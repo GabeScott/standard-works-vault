@@ -5,4 +5,4 @@
 [Alma 57:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/57?lang=eng&id=p36#p36)
 
 
-[^a]: [[Alma 12.34|Alma 12:34.]]
+[^a]: [[Alma 12.34|Alma 12:34]].  

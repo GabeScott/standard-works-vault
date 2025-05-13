@@ -5,7 +5,7 @@
 [Alma 37:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p14#p14)
 
 
-[^a]: [[D&C 3.5|D&C 3:5.]]
-[^b]: TG [[Sacred]].
-[^c]: TG [[Scriptures, Preservation of]].
-[^d]: [[1 Nephi 9.5|1 Ne. 9:5 (3-6).]]
+[^a]: [[D&C 3.5|D&C 3:5]].  
+[^b]: [[Sacred|TG Sacred]].  
+[^c]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  
+[^d]: [[1 Nephi 9.3|1 Ne. 9:5 (3–6)]][[1 Nephi 9.4|]][[1 Nephi 9.5|]][[1 Nephi 9.6|]].  

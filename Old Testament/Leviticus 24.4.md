@@ -5,4 +5,4 @@
 [Leviticus 24:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.4?lang=eng#p4)
 
 
-[^a]: [[Exodus 25.37|Ex. 25:37.]]
+[^a]: [[Exodus 25.37|Ex. 25:37]].  

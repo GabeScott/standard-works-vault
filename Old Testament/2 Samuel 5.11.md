@@ -5,4 +5,4 @@
 [2 Samuel 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.11?lang=eng#p11)
 
 
-[^a]: [[1 Kings 5.1|1 Kgs. 5:1.]]
+[^a]: [[1 Kings 5.1|1 Kgs. 5:1]].  

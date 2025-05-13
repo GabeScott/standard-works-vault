@@ -5,4 +5,4 @@
 [Ezra 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/8.1?lang=eng#p1)
 
 
-[^a]: HEB heads of their fathers; i.e., patriarchal leaders.
+[^a]: HEB heads of their fathers; i.e., patriarchal leaders.  

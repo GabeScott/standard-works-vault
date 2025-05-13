@@ -5,6 +5,6 @@
 [Exodus 15:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 23.27|Ex. 23:27 (27-30)]]; [[Deuteronomy 2.25|Deut. 2:25.]]
-[^b]: [[Joshua 2.9|Josh. 2:9.]]
-[^c]: [[Psalms 74.2|Ps. 74:2]]; [[1 Corinthians 6.20|1 Cor. 6:20.]]
+[^a]: [[Exodus 23.27|Ex. 23:27 (27–30)]][[Exodus 23.28|]][[Exodus 23.29|]][[Exodus 23.30|]]; [[Deuteronomy 2.25|Deut. 2:25]].  
+[^b]: [[Joshua 2.9|Josh. 2:9]].  
+[^c]: [[Psalms 74.2|Ps. 74:2]]; [[1 Corinthians 6.20|1 Cor. 6:20]].  

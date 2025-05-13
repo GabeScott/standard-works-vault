@@ -5,4 +5,4 @@
 [Leviticus 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.4?lang=eng#p4)
 
 
-[^a]: [[Exodus 6.22|Ex. 6:22 (18, 22).]]
+[^a]: [[Exodus 6.18|Ex. 6:22 (18, 22)]][[Exodus 6.22|]].  

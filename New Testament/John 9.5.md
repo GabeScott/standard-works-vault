@@ -5,4 +5,4 @@
 [John 9:5](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.5?lang=eng#p5)
 
 
-[^a]: TG [[Jesus Christ, Light of the World]]; [[Light of Christ]].
+[^a]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]]; [[Light of Christ|Light of Christ]].  

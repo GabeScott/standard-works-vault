@@ -5,4 +5,4 @@
 [Ezekiel 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/10.9?lang=eng#p9)
 
 
-[^a]: [[Ezekiel 1.16|Ezek. 1:16.]]
+[^a]: [[Ezekiel 1.16|Ezek. 1:16]].  

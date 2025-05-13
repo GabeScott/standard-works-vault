@@ -5,4 +5,4 @@
 [Ezekiel 48:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.21?lang=eng#p21)
 
 
-[^a]: [[Ezekiel 44.3|Ezek. 44:3]]; [[Ezekiel 45.7|45:7.]]
+[^a]: [[Ezekiel 44.3|Ezek. 44:3]]; [[Ezekiel 45.7|45:7]].  

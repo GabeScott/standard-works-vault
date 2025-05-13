@@ -5,5 +5,5 @@
 [Alma 5:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 12.6|Alma 12:6.]]
-[^b]: [[Psalms 147.1|Ps. 147:1 (1-7).]]
+[^a]: [[Alma 12.6|Alma 12:6]].  
+[^b]: [[Psalms 147.1|Ps. 147:1 (1–7)]][[Psalms 147.2|]][[Psalms 147.3|]][[Psalms 147.4|]][[Psalms 147.5|]][[Psalms 147.6|]][[Psalms 147.7|]].  

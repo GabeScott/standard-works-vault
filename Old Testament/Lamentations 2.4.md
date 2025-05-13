@@ -5,4 +5,4 @@
 [Lamentations 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.4?lang=eng#p4)
 
 
-[^a]: [[Isaiah 63.10|Isa. 63:10 (9-10).]]
+[^a]: [[Isaiah 63.9|Isa. 63:10 (9–10)]][[Isaiah 63.10|]].  

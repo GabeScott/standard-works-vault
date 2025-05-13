@@ -5,4 +5,4 @@
 [Philippians 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.11?lang=eng#p11)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Righteousness|TG Righteousness]].  

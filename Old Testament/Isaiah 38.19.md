@@ -5,5 +5,5 @@
 [Isaiah 38:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.19?lang=eng#p19)
 
 
-[^a]: [[Psalms 145.4|Ps. 145:4.]]
-[^b]: [[Psalms 78.4|Ps. 78:4 (2-4).]]
+[^a]: [[Psalms 145.4|Ps. 145:4]].  
+[^b]: [[Psalms 78.2|Ps. 78:4 (2–4)]][[Psalms 78.3|]][[Psalms 78.4|]].  

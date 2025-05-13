@@ -5,5 +5,5 @@
 [Colossians 1:26](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.26?lang=eng#p26)
 
 
-[^a]: [[Romans 16.25|Rom. 16:25 (25-26)]]. TG [[Mysteries of Godliness]].
-[^b]: 2 Tim. 1:10.
+[^a]: [[Romans 16.25|Rom. 16:25 (25–26)]][[Romans 16.26|]]. [[Mysteries of Godliness|TG Mysteries of Godliness]].  
+[^b]: [[2 Timothy 1.10|2 Tim. 1:10]].  

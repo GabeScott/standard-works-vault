@@ -5,5 +5,5 @@
 [Ezekiel 35:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/35.15?lang=eng#p15)
 
 
-[^a]: Obad. 1:15.
-[^b]: TG [[World, End of]].
+[^a]: [[Obadiah 1.15|Obad. 1:15]].  
+[^b]: [[World, End of|TG World, End of]].  

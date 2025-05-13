@@ -5,7 +5,7 @@
 [Omni 1:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p26#p26)
 
 
-[^a]: [[Jacob 1.7|Jacob 1:7]]; [[Alma 29.2|Alma 29:2]]; [[Moroni 10.32|Moro. 10:32.]]
-[^b]: TG [[Commitment]]; [[Self-Sacrifice]].
-[^c]: [[3 Nephi 9.20|3 Ne. 9:20.]]
-[^d]: TG [[Fast, Fasting]].
+[^a]: [[Jacob 1.7|Jacob 1:7]]; [[Alma 29.2|Alma 29:2]]; [[Moroni 10.32|Moro. 10:32]].  
+[^b]: [[Commitment|TG Commitment]]; [[Self-Sacrifice|Self-Sacrifice]].  
+[^c]: [[3 Nephi 9.20|3 Ne. 9:20]].  
+[^d]: [[Fast, Fasting|TG Fast, Fasting]].  

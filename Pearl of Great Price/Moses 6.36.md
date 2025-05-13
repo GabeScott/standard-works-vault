@@ -5,6 +5,6 @@
 [Moses 6:36](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.36?lang=eng#p36)
 
 
-[^a]: TG [[Man, Antemortal Existence of]]; [[Spirit Body]]; [[Spirit Creation]].
-[^b]: [[Moses 1.11|Moses 1:11.]]
-[^c]: TG [[Seer]].
+[^a]: [[Man, Antemortal Existence of|TG Man, Antemortal Existence of]]; [[Spirit Body|Spirit Body]]; [[Spirit Creation|Spirit Creation]].  
+[^b]: [[Moses 1.11|Moses 1:11]].  
+[^c]: [[Seer|TG Seer]].  

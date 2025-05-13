@@ -5,4 +5,4 @@
 [1 Chronicles 29:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.23?lang=eng#p23)
 
 
-[^a]: [[1 Kings 2.12|1 Kgs. 2:12.]]
+[^a]: [[1 Kings 2.12|1 Kgs. 2:12]].  

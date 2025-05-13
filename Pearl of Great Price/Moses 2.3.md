@@ -5,4 +5,4 @@
 [Moses 2:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.3?lang=eng#p3)
 
 
-[^a]: [[D&C 88.7|D&C 88:7 (6-13)]]. TG [[Light]].
+[^a]: [[D&C 88.6|D&C 88:7 (6–13)]][[D&C 88.7|]][[D&C 88.8|]][[D&C 88.9|]][[D&C 88.10|]][[D&C 88.11|]][[D&C 88.12|]][[D&C 88.13|]]. [[Light [noun]|TG Light [noun]]].  

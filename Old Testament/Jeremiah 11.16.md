@@ -5,5 +5,5 @@
 [Jeremiah 11:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.16?lang=eng#p16)
 
 
-[^a]: [[Psalms 52.8|Ps. 52:8.]]
-[^b]: TG [[Vineyard of the Lord]].
+[^a]: [[Psalms 52.8|Ps. 52:8]].  
+[^b]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  

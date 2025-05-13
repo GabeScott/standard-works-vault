@@ -5,4 +5,4 @@
 [Jeremiah 5:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.17?lang=eng#p17)
 
 
-[^a]: [[Deuteronomy 28.51|Deut. 28:51 (31, 33, 51).]]
+[^a]: [[Deuteronomy 28.31|Deut. 28:51 (31, 33, 51)]][[Deuteronomy 28.33|]][[Deuteronomy 28.51|]].  

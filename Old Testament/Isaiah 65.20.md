@@ -5,5 +5,5 @@
 [Isaiah 65:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.20?lang=eng#p20)
 
 
-[^a]: TG [[Old Age]].
-[^b]: [[D&C 101.30|D&C 101:30.]]
+[^a]: [[Old Age|TG Old Age]].  
+[^b]: [[D&C 101.30|D&C 101:30]].  

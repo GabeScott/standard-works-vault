@@ -5,5 +5,5 @@
 [Psalms 77:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/77.3?lang=eng#p3)
 
 
-[^a]: OR meditated.
-[^b]: [[Psalms 142.3|Ps. 142:3 (1-3).]]
+[^a]: OR meditated.  
+[^b]: [[Psalms 142.1|Ps. 142:3 (1–3)]][[Psalms 142.2|]][[Psalms 142.3|]].  

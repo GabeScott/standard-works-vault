@@ -5,4 +5,4 @@
 [Isaiah 43:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.4?lang=eng#p4)
 
 
-[^a]: [[D&C 18.10|D&C 18:10.]]
+[^a]: [[D&C 18.10|D&C 18:10]].  

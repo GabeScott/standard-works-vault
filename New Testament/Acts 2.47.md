@@ -5,5 +5,5 @@
 [Acts 2:47](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.47?lang=eng#p47)
 
 
-[^a]: [[Acts 5.14|Acts 5:14.]]
-[^b]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Acts 5.14|Acts 5:14]].  
+[^b]: [[Church|TG Church]].  

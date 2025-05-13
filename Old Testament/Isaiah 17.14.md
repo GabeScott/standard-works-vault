@@ -5,4 +5,4 @@
 [Isaiah 17:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/17.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 33.1|Isa. 33:1 (1, 4).]]
+[^a]: [[Isaiah 33.1|Isa. 33:1 (1, 4)]][[Isaiah 33.4|]].  

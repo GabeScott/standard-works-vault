@@ -5,4 +5,4 @@
 [Isaiah 19:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.18?lang=eng#p18)
 
 
-[^a]: HEB Heres; possibly “of the sun”; perhaps Heliopolis, one of the oldest cities of the Nile delta.
+[^a]: HEB Heres; possibly “of the sun”; perhaps Heliopolis, one of the oldest cities of the Nile delta.  

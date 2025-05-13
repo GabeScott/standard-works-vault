@@ -5,7 +5,7 @@
 [Romans 7:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.7?lang=eng#p7)
 
 
-[^a]: GR May it not be!
-[^b]: [[D&C 82.3|D&C 82:3 (3-4)]]. TG [[Law of Moses]].
-[^c]: TG [[Lust]].
-[^d]: GR lust for, set the heart upon. TG [[Covet, Covetousness]].
+[^a]: GR May it not be!  
+[^b]: [[D&C 82.3|D&C 82:3 (3–4)]][[D&C 82.4|]]. [[Law of Moses|TG Law of Moses]].  
+[^c]: [[Lust|TG Lust]].  
+[^d]: GR lust for, set the heart upon. [[Covet, Covetousness|TG Covet]].  

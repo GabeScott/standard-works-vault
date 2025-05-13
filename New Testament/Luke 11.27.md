@@ -5,4 +5,4 @@
 [Luke 11:27](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.27?lang=eng#p27)
 
 
-[^a]: [[Luke 1.48|Luke 1:48.]]
+[^a]: [[Luke 1.48|Luke 1:48]].  

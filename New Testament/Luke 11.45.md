@@ -5,4 +5,4 @@
 [Luke 11:45](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.45?lang=eng#p45)
 
 
-[^a]: TG [[Reproach]].
+[^a]: [[Reproach|TG Reproach]].  

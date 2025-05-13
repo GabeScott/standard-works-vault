@@ -5,4 +5,4 @@
 [D&C 6:35](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.35?lang=eng#p35)
 
 
-[^a]: [[John 8.11|John 8:11.]]
+[^a]: [[John 8.11|John 8:11]].  

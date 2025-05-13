@@ -5,5 +5,5 @@
 [Isaiah 47:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.11?lang=eng#p11)
 
 
-[^a]: HEB ruin, or calamity.
-[^b]: [[D&C 29.8|D&C 29:8]]; [[D&C 63.37|63:37.]]
+[^a]: HEB ruin, or calamity.  
+[^b]: [[D&C 29.8|D&C 29:8]]; [[D&C 63.37|63:37]].  

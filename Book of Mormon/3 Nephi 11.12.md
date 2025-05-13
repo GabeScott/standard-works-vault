@@ -5,6 +5,6 @@
 [3 Nephi 11:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Reverence]].
-[^b]: [[Alma 16.20|Alma 16:20.]]
-[^c]: [[3 Nephi 10.19|3 Ne. 10:19.]]
+[^a]: [[Reverence|TG Reverence]].  
+[^b]: [[Alma 16.20|Alma 16:20]].  
+[^c]: [[3 Nephi 10.19|3 Ne. 10:19]].  

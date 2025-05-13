@@ -5,4 +5,4 @@
 [Psalms 119:37](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.37?lang=eng#p37)
 
 
-[^a]: TG [[Vanity]].
+[^a]: [[Vanity|TG Vanity]].  

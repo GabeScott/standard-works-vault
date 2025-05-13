@@ -5,4 +5,4 @@
 [2 Chronicles 26:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.1?lang=eng#p1)
 
 
-[^a]: OR Azariah (see 2 Kgs. 14:21; 15:1).
+[^a]: OR Azariah (see [[2 Kings 14.21|2 Kgs. 14:21]]; [[2 Kings 15.1|15:1]]).  

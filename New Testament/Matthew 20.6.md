@@ -5,4 +5,4 @@
 [Matthew 20:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.6?lang=eng#p6)
 
 
-[^a]: [[D&C 33.3|D&C 33:3 (1-3).]]
+[^a]: [[D&C 33.1|D&C 33:3 (1–3)]][[D&C 33.2|]][[D&C 33.3|]].  

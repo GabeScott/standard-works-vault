@@ -5,4 +5,4 @@
 [Ezekiel 36:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.11?lang=eng#p11)
 
 
-[^a]: [[Ezekiel 16.55|Ezek. 16:55.]]
+[^a]: [[Ezekiel 16.55|Ezek. 16:55]].  

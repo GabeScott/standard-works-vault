@@ -5,5 +5,5 @@
 [Luke 8:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.18?lang=eng#p18)
 
 
-[^a]: [[2 Nephi 28.30|2 Ne. 28:30 (29-31).]]
-[^b]: [[Mark 4.24|Mark 4:24.]]
+[^a]: [[2 Nephi 28.29|2 Ne. 28:30 (29–31)]][[2 Nephi 28.30|]][[2 Nephi 28.31|]].  
+[^b]: [[Mark 4.24|Mark 4:24]].  

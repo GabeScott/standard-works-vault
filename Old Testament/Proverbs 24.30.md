@@ -5,4 +5,4 @@
 [Proverbs 24:30](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.30?lang=eng#p30)
 
 
-[^a]: TG [[Idleness, Idle, Idler]]; [[Laziness]].
+[^a]: [[Idleness, Idle, Idler|TG Idleness]]; [[Laziness|Laziness]].  

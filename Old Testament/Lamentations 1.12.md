@@ -5,5 +5,5 @@
 [Lamentations 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.12?lang=eng#p12)
 
 
-[^a]: [[Jeremiah 30.15|Jer. 30:15.]]
-[^b]: [[Isaiah 13.13|Isa. 13:13.]]
+[^a]: [[Jeremiah 30.15|Jer. 30:15]].  
+[^b]: [[Isaiah 13.13|Isa. 13:13]].  

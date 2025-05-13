@@ -5,5 +5,5 @@
 [Amos 5:15](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.15?lang=eng#p15)
 
 
-[^a]: TG [[Love]].
-[^b]: [[2 Nephi 3.4|2 Ne. 3:4]]; [[2 Nephi 25.21|25:21]]; [[Jacob 2.25|Jacob 2:25.]]
+[^a]: [[Love|TG Love]].  
+[^b]: [[2 Nephi 3.4|2 Ne. 3:4]]; [[2 Nephi 25.21|25:21]]; [[Jacob 2.25|Jacob 2:25]].  

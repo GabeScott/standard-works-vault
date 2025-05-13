@@ -5,5 +5,5 @@
 [Luke 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.5?lang=eng#p5)
 
 
-[^a]: TG [[Priesthood, Aaronic]].
-[^b]: [[1 Chronicles 24.10|1 Chr. 24:10 (5, 10, 19)]]; [[Nehemiah 12.4|Neh. 12:4.]]
+[^a]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  
+[^b]: [[1 Chronicles 24.5|1 Chr. 24:10 (5, 10, 19)]][[1 Chronicles 24.10|]][[1 Chronicles 24.19|]]; [[Nehemiah 12.4|Neh. 12:4]].  

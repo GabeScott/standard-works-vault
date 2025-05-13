@@ -5,4 +5,4 @@
 [2 Chronicles 34:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/34.15?lang=eng#p15)
 
 
-[^a]: TG [[Scriptures, Preservation of]].
+[^a]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  

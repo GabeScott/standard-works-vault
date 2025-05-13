@@ -5,4 +5,4 @@
 [Numbers 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/10.2?lang=eng#p2)
 
 
-[^a]: HEB hammered work.
+[^a]: HEB hammered work.  

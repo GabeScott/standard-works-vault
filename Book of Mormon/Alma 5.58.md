@@ -5,4 +5,4 @@
 [Alma 5:58](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p58#p58)
 
 
-[^a]: TG [[Book of Life]].
+[^a]: [[Book of Life|TG Book of Life]].  

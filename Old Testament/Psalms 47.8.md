@@ -5,6 +5,6 @@
 [Psalms 47:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/47.8?lang=eng#p8)
 
 
-[^a]: HEB nations, Gentiles.
-[^b]: [[Revelation 7.15|Rev. 7:15]]; [[D&C 88.13|D&C 88:13.]]
-[^c]: TG [[Kingdom of God, in Heaven]].
+[^a]: HEB nations, Gentiles.  
+[^b]: [[Revelation 7.15|Rev. 7:15]]; [[D&C 88.13|D&C 88:13]].  
+[^c]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  

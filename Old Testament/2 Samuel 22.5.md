@@ -5,4 +5,4 @@
 [2 Samuel 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.5?lang=eng#p5)
 
 
-[^a]: OR enclosed.
+[^a]: OR enclosed.  

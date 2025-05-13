@@ -5,4 +5,4 @@
 [Isaiah 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.7?lang=eng#p7)
 
 
-[^a]: HEB did his heart intend it thus.
+[^a]: HEB did his heart intend it thus.  

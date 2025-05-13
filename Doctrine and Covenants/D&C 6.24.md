@@ -5,5 +5,5 @@
 [D&C 6:24](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.24?lang=eng#p24)
 
 
-[^a]: [[D&C 18.2|D&C 18:2.]]
-[^b]: TG [[God, Omniscience of]].
+[^a]: [[D&C 18.2|D&C 18:2]].  
+[^b]: [[God, Omniscience of|TG God, Omniscience of]].  

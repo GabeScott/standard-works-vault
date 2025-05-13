@@ -5,4 +5,4 @@
 [Deuteronomy 15:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.20?lang=eng#p20)
 
 
-[^a]: [[Deuteronomy 12.5|Deut. 12:5 (5-6)]]; [[1 Kings 8.29|1 Kgs. 8:29 (26-30).]]
+[^a]: [[Deuteronomy 12.5|Deut. 12:5 (5–6)]][[Deuteronomy 12.6|]]; [[1 Kings 8.26|1 Kgs. 8:29 (26–30)]][[1 Kings 8.27|]][[1 Kings 8.28|]][[1 Kings 8.29|]][[1 Kings 8.30|]].  

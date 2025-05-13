@@ -5,5 +5,5 @@
 [2 Corinthians 11:27](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.27?lang=eng#p27)
 
 
-[^a]: GR toil, trouble.
-[^b]: TG [[Pain]].
+[^a]: GR toil, trouble.  
+[^b]: [[Pain|TG Pain]].  

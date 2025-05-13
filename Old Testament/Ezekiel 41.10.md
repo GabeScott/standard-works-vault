@@ -5,4 +5,4 @@
 [Ezekiel 41:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 40.17|Ezek. 40:17]]; [[Ezekiel 42.4|42:4 (1, 4-5).]]
+[^a]: [[Ezekiel 40.17|Ezek. 40:17]]; [[Ezekiel 42.1|42:4 (1, 4–5)]][[Ezekiel 42.4|]][[Ezekiel 42.5|]].  

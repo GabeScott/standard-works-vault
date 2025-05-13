@@ -5,5 +5,5 @@
 [D&C 6:27](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.27?lang=eng#p27)
 
 
-[^a]: TG [[Treasure]].
-[^b]: [[D&C 35.20|D&C 35:20.]]
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[D&C 35.20|D&C 35:20]].  

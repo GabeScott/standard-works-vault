@@ -5,5 +5,5 @@
 [Alma 15:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/15?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 27.20|Alma 27:20.]]
-[^b]: [[Zechariah 10.12|Zech. 10:12 (11-12).]]
+[^a]: [[Alma 27.20|Alma 27:20]].  
+[^b]: [[Zechariah 10.11|Zech. 10:12 (11–12)]][[Zechariah 10.12|]].  

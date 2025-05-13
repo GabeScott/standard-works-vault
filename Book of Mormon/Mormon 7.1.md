@@ -5,4 +5,4 @@
 [Mormon 7:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/7?lang=eng&id=p1#p1)
 
 
-[^a]: [[Helaman 15.11|Hel. 15:11 (11-13)]]; [[Mormon 5.12|Morm. 5:12 (9, 12).]]
+[^a]: [[Helaman 15.11|Hel. 15:11 (11–13)]][[Helaman 15.12|]][[Helaman 15.13|]]; [[Mormon 5.9|Morm. 5:12 (9, 12)]][[Mormon 5.12|]].  

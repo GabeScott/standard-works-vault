@@ -5,4 +5,4 @@
 [Alma 18:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p43#p43)
 
 
-[^a]: [[Alma 19.4|Alma 19:4 (4-5).]]
+[^a]: [[Alma 19.4|Alma 19:4 (4–5)]][[Alma 19.5|]].  

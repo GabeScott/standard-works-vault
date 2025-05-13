@@ -5,4 +5,4 @@
 [Helaman 7:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Prophets, Rejection of]].
+[^a]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

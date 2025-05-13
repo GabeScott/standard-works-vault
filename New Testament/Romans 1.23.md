@@ -5,6 +5,6 @@
 [Romans 1:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.23?lang=eng#p23)
 
 
-[^a]: GR incorruptible, immortal.
-[^b]: [[Exodus 32.4|Ex. 32:4.]]
-[^c]: GR (also) perishable.
+[^a]: GR incorruptible, immortal.  
+[^b]: [[Exodus 32.4|Ex. 32:4]].  
+[^c]: GR (also) perishable.  

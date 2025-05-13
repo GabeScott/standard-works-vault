@@ -5,4 +5,4 @@
 [Judges 11:17](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.17?lang=eng#p17)
 
 
-[^a]: [[Numbers 20.14|Num. 20:14.]]
+[^a]: [[Numbers 20.14|Num. 20:14]].  

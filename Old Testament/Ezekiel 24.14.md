@@ -5,4 +5,4 @@
 [Ezekiel 24:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.14?lang=eng#p14)
 
 
-[^a]: [[2 Nephi 9.17|2 Ne. 9:17.]]
+[^a]: [[2 Nephi 9.17|2 Ne. 9:17]].  

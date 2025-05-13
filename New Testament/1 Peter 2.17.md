@@ -5,7 +5,7 @@
 [1 Peter 2:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.17?lang=eng#p17)
 
 
-[^a]: TG [[Respecter]].
-[^b]: TG [[Brotherhood and Sisterhood]].
-[^c]: [[Proverbs 24.21|Prov. 24:21.]]
-[^d]: TG [[Citizenship]]; [[Kings, Earthly]].
+[^a]: [[Respect|TG Respect]].  
+[^b]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  
+[^c]: [[Proverbs 24.21|Prov. 24:21]].  
+[^d]: [[Citizenship|TG Citizenship]]; [[Kings, Earthly|Kings, Earthly]].  

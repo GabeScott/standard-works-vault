@@ -5,4 +5,4 @@
 [1 Chronicles 16:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.17?lang=eng#p17)
 
 
-[^a]: [[Psalms 105.10|Ps. 105:10 (9-10).]]
+[^a]: [[Psalms 105.9|Ps. 105:10 (9–10)]][[Psalms 105.10|]].  

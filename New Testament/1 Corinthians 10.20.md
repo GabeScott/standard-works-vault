@@ -5,4 +5,4 @@
 [1 Corinthians 10:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.20?lang=eng#p20)
 
 
-[^a]: [[Deuteronomy 32.17|Deut. 32:17]]. TG [[Self-Sacrifice]]; [[Superstitions]].
+[^a]: [[Deuteronomy 32.17|Deut. 32:17]]. [[Sacrifice|TG Sacrifice]]; [[Superstitions|Superstitions]].  

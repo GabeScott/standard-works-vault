@@ -5,4 +5,4 @@
 [Abraham 1:30](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.30?lang=eng#p30)
 
 
-[^a]: [[Abraham 1.7|Abr. 1:7 (7, 12).]]
+[^a]: [[Abraham 1.7|Abr. 1:7 (7, 12)]][[Abraham 1.12|]].  

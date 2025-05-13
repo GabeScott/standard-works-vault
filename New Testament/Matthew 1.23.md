@@ -5,7 +5,7 @@
 [Matthew 1:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.23?lang=eng#p23)
 
 
-[^a]: [[Isaiah 7.14|Isa. 7:14.]]
-[^b]: TG [[Jesus Christ, Birth of]].
-[^c]: TG [[Name of the Lord]].
-[^d]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Isaiah 7.14|Isa. 7:14]].  
+[^b]: [[Jesus Christ, Birth of|TG Jesus Christ, Birth of]].  
+[^c]: [[Name|TG Name]].  
+[^d]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

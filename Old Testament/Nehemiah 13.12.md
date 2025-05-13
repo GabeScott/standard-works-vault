@@ -5,5 +5,5 @@
 [Nehemiah 13:12](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.12?lang=eng#p12)
 
 
-[^a]: TG [[Tithing]].
-[^b]: OR storage houses.
+[^a]: [[Tithing|TG Tithing]].  
+[^b]: OR storage houses.  

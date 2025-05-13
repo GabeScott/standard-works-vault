@@ -5,5 +5,5 @@
 [Hebrews 10:23](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.23?lang=eng#p23)
 
 
-[^a]: [[1 Timothy 6.12|1 Tim. 6:12 (12-13).]]
-[^b]: GR hope.
+[^a]: [[1 Timothy 6.12|1 Tim. 6:12 (12–13)]][[1 Timothy 6.13|]].  
+[^b]: GR hope.  

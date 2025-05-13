@@ -5,5 +5,5 @@
 [Ether 9:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p5#p5)
 
 
-[^a]: [[Esther 2.21|Esth. 2:21.]]
-[^b]: TG [[Oath]].
+[^a]: [[Esther 2.21|Esth. 2:21]].  
+[^b]: [[Oath|TG Oath]].  

@@ -5,5 +5,5 @@
 [1 Nephi 2:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/2?lang=eng&id=p1#p1)
 
 
-[^a]: TG [[Persecution, Persecute]].
-[^b]: [[1 Nephi 7.14|1 Ne. 7:14.]]
+[^a]: [[Persecution, Persecute|TG Persecution]].  
+[^b]: [[1 Nephi 7.14|1 Ne. 7:14]].  

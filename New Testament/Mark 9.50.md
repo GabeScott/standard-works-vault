@@ -5,4 +5,4 @@
 [Mark 9:50](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.50?lang=eng#p50)
 
 
-[^a]: 1 Thes. 5:13. TG [[Peace of God]].
+[^a]: [[1 Thessalonians 5.13|1 Thes. 5:13]]. [[Peace|TG Peace]].  

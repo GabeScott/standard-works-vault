@@ -5,6 +5,6 @@
 [Moroni 6:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/6?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mosiah 26.30|Mosiah 26:30 (30-31).]]
-[^b]: TG [[Sincere, Sincerity]].
-[^c]: TG [[Forgive, Forgiveness]].
+[^a]: [[Mosiah 26.30|Mosiah 26:30 (30–31)]][[Mosiah 26.31|]].  
+[^b]: [[Sincere, Sincerity|TG Sincere]].  
+[^c]: [[Forgive, Forgiveness|TG Forgive]].  

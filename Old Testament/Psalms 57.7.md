@@ -5,5 +5,5 @@
 [Psalms 57:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/57.7?lang=eng#p7)
 
 
-[^a]: OR steadfast.
-[^b]: [[Psalms 108.1|Ps. 108:1 (1-5)]]; [[2 Nephi 22.5|2 Ne. 22:5 (5-6)]]; [[Alma 26.8|Alma 26:8]]; [[D&C 136.28|D&C 136:28.]]
+[^a]: OR steadfast.  
+[^b]: [[Psalms 108.1|Ps. 108:1 (1–5)]][[Psalms 108.2|]][[Psalms 108.3|]][[Psalms 108.4|]][[Psalms 108.5|]]; [[2 Nephi 22.5|2 Ne. 22:5 (5–6)]][[2 Nephi 22.6|]]; [[Alma 26.8|Alma 26:8]]; [[D&C 136.28|D&C 136:28]].  

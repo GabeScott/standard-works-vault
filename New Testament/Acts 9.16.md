@@ -5,4 +5,4 @@
 [Acts 9:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.16?lang=eng#p16)
 
 
-[^a]: TG [[Self-Sacrifice]].
+[^a]: [[Self-Sacrifice|TG Self-Sacrifice]].  

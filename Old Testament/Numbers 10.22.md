@@ -5,4 +5,4 @@
 [Numbers 10:22](https://www.churchofjesuschrist.org/study/scriptures/ot/num/10.22?lang=eng#p22)
 
 
-[^a]: [[Numbers 2.24|Num. 2:24.]]
+[^a]: [[Numbers 2.24|Num. 2:24]].  

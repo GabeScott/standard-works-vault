@@ -5,4 +5,4 @@
 [Mosiah 13:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p9#p9)
 
 
-[^a]: Dan. 3:16 (16-18).
+[^a]: [[Daniel 3.16|Dan. 3:16 (16–18)]][[Daniel 3.17|]][[Daniel 3.18|]].  

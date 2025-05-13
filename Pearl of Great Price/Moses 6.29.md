@@ -5,4 +5,4 @@
 [Moses 6:29](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.29?lang=eng#p29)
 
 
-[^a]: [[Moses 7.37|Moses 7:37]]. TG [[Hell]].
+[^a]: [[Moses 7.37|Moses 7:37]]. [[Hell|TG Hell]].  

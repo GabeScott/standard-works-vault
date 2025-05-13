@@ -5,5 +5,5 @@
 [1 Samuel 25:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 122.8|Ps. 122:8.]]
-[^b]: [[Luke 10.5|Luke 10:5.]]
+[^a]: [[Psalms 122.8|Ps. 122:8]].  
+[^b]: [[Luke 10.5|Luke 10:5]].  

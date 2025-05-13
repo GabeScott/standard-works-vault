@@ -5,5 +5,5 @@
 [Alma 38:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 18.24|Alma 18:24.]]
-[^b]: TG [[Priesthood, Magnifying Callings within]]; [[Self-Mastery]].
+[^a]: [[Alma 18.24|Alma 18:24]].  
+[^b]: [[Priesthood, Magnifying Callings within|TG Priesthood, Magnifying Callings within]]; [[Self-Mastery|Self-Mastery]].  

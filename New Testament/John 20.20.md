@@ -5,5 +5,5 @@
 [John 20:20](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.20?lang=eng#p20)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
-[^b]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  
+[^b]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  

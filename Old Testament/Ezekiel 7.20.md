@@ -5,4 +5,4 @@
 [Ezekiel 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.20?lang=eng#p20)
 
 
-[^a]: TG [[Idolatry, Idol]].
+[^a]: [[Idolatry, Idol|TG Idolatry]].  

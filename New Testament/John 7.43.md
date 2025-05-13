@@ -5,4 +5,4 @@
 [John 7:43](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.43?lang=eng#p43)
 
 
-[^a]: [[Matthew 10.34|Matt. 10:34.]]
+[^a]: [[Matthew 10.34|Matt. 10:34]].  

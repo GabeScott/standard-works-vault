@@ -5,4 +5,4 @@
 [Genesis 20:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 12.17|Gen. 12:17.]]
+[^a]: [[Genesis 12.17|Gen. 12:17]].  

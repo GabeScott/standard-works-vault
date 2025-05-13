@@ -5,4 +5,4 @@
 [3 Nephi 2:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/2?lang=eng&id=p1#p1)
 
 
-[^a]: [[Helaman 14.6|Hel. 14:6.]]
+[^a]: [[Helaman 14.6|Hel. 14:6]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 21:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.7?lang=eng#p7)
 
 
-[^a]: [[2 Kings 8.19|2 Kgs. 8:19 (16-19).]]
+[^a]: [[2 Kings 8.16|2 Kgs. 8:19 (16–19)]][[2 Kings 8.17|]][[2 Kings 8.18|]][[2 Kings 8.19|]].  

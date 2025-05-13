@@ -5,4 +5,4 @@
 [1 Samuel 26:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/26.5?lang=eng#p5)
 
 
-[^a]: IE barricade.
+[^a]: IE barricade.  

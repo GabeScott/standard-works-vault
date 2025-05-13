@@ -5,4 +5,4 @@
 [Mark 13:30](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.30?lang=eng#p30)
 
 
-[^a]: [[D&C 45.21|D&C 45:21.]]
+[^a]: [[D&C 45.21|D&C 45:21]].  

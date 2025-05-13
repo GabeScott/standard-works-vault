@@ -5,5 +5,5 @@
 [Exodus 34:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.27?lang=eng#p27)
 
 
-[^a]: TG [[Scribe]]; [[Scriptures, Writing of]].
-[^b]: OR according to.
+[^a]: [[Scribe|TG Scribe]]; [[Scriptures, Writing of|Scriptures, Writing of]].  
+[^b]: OR according to.  

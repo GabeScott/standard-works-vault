@@ -5,5 +5,5 @@
 [Luke 7:50](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.50?lang=eng#p50)
 
 
-[^a]: [[Matthew 9.2|Matt. 9:2]]; [[Ether 12.4|Ether 12:4.]]
-[^b]: [[Mosiah 15.18|Mosiah 15:18.]]
+[^a]: [[Matthew 9.2|Matt. 9:2]]; [[Ether 12.4|Ether 12:4]].  
+[^b]: [[Mosiah 15.18|Mosiah 15:18]].  

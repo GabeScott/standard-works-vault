@@ -5,5 +5,5 @@
 [1 Nephi 16:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p34#p34)
 
 
-[^a]: [[1 Nephi 7.2|1 Ne. 7:2 (2-6, 19).]]
-[^b]: HEB probably “consolation,” from verb naham, “be sorry, console oneself.”
+[^a]: [[1 Nephi 7.2|1 Ne. 7:2 (2–6, 19)]][[1 Nephi 7.3|]][[1 Nephi 7.4|]][[1 Nephi 7.5|]][[1 Nephi 7.6|]][[1 Nephi 7.19|]].  
+[^b]: HEB probably “consolation,” from verb naham, “be sorry, console oneself.”  

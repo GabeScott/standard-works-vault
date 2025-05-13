@@ -5,7 +5,7 @@
 [Moses 7:47](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.47?lang=eng#p47)
 
 
-[^a]: TG [[Jesus Christ, Appearances, Antemortal]].
-[^b]: TG [[Jesus Christ, Lamb of God]]; [[Passover]].
-[^c]: TG [[Faith]].
-[^d]: [[Moses 7.21|Moses 7:21.]]
+[^a]: [[Jesus Christ, Appearances, Antemortal|TG Jesus Christ, Appearances, Antemortal]].  
+[^b]: [[Jesus Christ, Lamb of God|TG Jesus Christ, Lamb of God]]; [[Passover|Passover]].  
+[^c]: [[Faith|TG Faith]].  
+[^d]: [[Moses 7.21|Moses 7:21]].  

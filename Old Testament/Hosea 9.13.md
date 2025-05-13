@@ -5,4 +5,4 @@
 [Hosea 9:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/9.13?lang=eng#p13)
 
 
-[^a]: IE Tyre.
+[^a]: IE Tyre.  

@@ -5,5 +5,5 @@
 [Alma 8:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p16#p16)
 
 
-[^a]: [[Galatians 2.2|Gal. 2:2]]; [[Helaman 13.3|Hel. 13:3.]]
-[^b]: [[Alma 9.12|Alma 9:12 (4, 12, 18, 24).]]
+[^a]: [[Galatians 2.2|Gal. 2:2]]; [[Helaman 13.3|Hel. 13:3]].  
+[^b]: [[Alma 9.4|Alma 9:12 (4, 12, 18, 24)]][[Alma 9.12|]][[Alma 9.18|]][[Alma 9.24|]].  

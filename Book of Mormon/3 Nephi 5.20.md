@@ -5,5 +5,5 @@
 [3 Nephi 5:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p20#p20)
 
 
-[^a]: [[Words of Mormon 1.5|Morm. 1:5]]; [[Mormon 8.13|8:13.]]
-[^b]: [[1 Nephi 4.36|1 Ne. 4:36]]; [[3 Nephi 15.14|3 Ne. 15:14.]]
+[^a]: [[Mormon 1.5|Morm. 1:5]]; [[Mormon 8.13|8:13]].  
+[^b]: [[1 Nephi 4.36|1 Ne. 4:36]]; [[3 Nephi 15.14|3 Ne. 15:14]].  

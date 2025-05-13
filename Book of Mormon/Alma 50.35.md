@@ -5,5 +5,5 @@
 [Alma 50:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p35#p35)
 
 
-[^a]: [[Mosiah 27.8|Mosiah 27:8]]; [[Helaman 1.7|Hel. 1:7]]; [[Helaman 2.5|2:5.]]
-[^b]: [[Alma 51.29|Alma 51:29.]]
+[^a]: [[Mosiah 27.8|Mosiah 27:8]]; [[Helaman 1.7|Hel. 1:7]]; [[Helaman 2.5|2:5]].  
+[^b]: [[Alma 51.29|Alma 51:29]].  

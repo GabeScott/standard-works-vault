@@ -5,4 +5,4 @@
 [Titus 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.13?lang=eng#p13)
 
 
-[^a]: [[D&C 84.117|D&C 84:117 (87, 117).]]
+[^a]: [[D&C 84.87|D&C 84:117 (87, 117)]][[D&C 84.117|]].  

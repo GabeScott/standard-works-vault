@@ -5,4 +5,4 @@
 [Psalms 107:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.35?lang=eng#p35)
 
 
-[^a]: TG [[Earth, Renewal of]].
+[^a]: [[Earth, Renewal of|TG Earth, Renewal of]].  

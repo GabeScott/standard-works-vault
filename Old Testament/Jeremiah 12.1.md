@@ -5,4 +5,4 @@
 [Jeremiah 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/12.1?lang=eng#p1)
 
 
-[^a]: [[Mosiah 16.2|Mosiah 16:2]]; [[D&C 1.9|D&C 1:9]]. TG [[Wickedness, Wicked]].
+[^a]: [[Mosiah 16.2|Mosiah 16:2]]; [[D&C 1.9|D&C 1:9]]. [[Wickedness, Wicked|TG Wickedness]].  

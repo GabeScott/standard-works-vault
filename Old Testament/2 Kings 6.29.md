@@ -5,4 +5,4 @@
 [2 Kings 6:29](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/6.29?lang=eng#p29)
 
 
-[^a]: [[Deuteronomy 28.53|Deut. 28:53 (52-53).]]
+[^a]: [[Deuteronomy 28.52|Deut. 28:53 (52–53)]][[Deuteronomy 28.53|]].  

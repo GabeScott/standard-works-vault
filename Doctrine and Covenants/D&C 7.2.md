@@ -5,5 +5,5 @@
 [D&C 7:2](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/7.2?lang=eng#p2)
 
 
-[^a]: TG [[Death, Power over]].
-[^b]: [[Luke 9.27|Luke 9:27.]]
+[^a]: [[Death, Power over|TG Death, Power over]].  
+[^b]: [[Luke 9.27|Luke 9:27]].  

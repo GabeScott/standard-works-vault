@@ -5,4 +5,4 @@
 [Revelation 5:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/5.11?lang=eng#p11)
 
 
-[^a]: Dan. 7:10.
+[^a]: [[Daniel 7.10|Dan. 7:10]].  

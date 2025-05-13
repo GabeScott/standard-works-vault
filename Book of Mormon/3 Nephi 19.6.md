@@ -5,4 +5,4 @@
 [3 Nephi 19:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p6#p6)
 
 
-[^a]: [[3 Nephi 17.13|3 Ne. 17:13.]]
+[^a]: [[3 Nephi 17.13|3 Ne. 17:13]].  

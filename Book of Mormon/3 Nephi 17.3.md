@@ -5,6 +5,6 @@
 [3 Nephi 17:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Meditation, Meditate]].
-[^b]: [[Ezra 7.10|Ezra 7:10]]; [[D&C 29.8|D&C 29:8]]; [[D&C 132.3|132:3.]]
-[^c]: [[3 Nephi 19.2|3 Ne. 19:2.]]
+[^a]: [[Meditation, Meditate|TG Meditation]].  
+[^b]: [[Ezra 7.10|Ezra 7:10]]; [[D&C 29.8|D&C 29:8]]; [[D&C 132.3|132:3]].  
+[^c]: [[3 Nephi 19.2|3 Ne. 19:2]].  

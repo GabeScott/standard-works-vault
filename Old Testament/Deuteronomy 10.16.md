@@ -5,6 +5,6 @@
 [Deuteronomy 10:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.16?lang=eng#p16)
 
 
-[^a]: IE Purify your hearts. TG [[Circumcision]].
-[^b]: [[Mosiah 4.2|Mosiah 4:2.]]
-[^c]: OR stubborn. TG [[Stiffnecked, Stiffneckedness]].
+[^a]: IE Purify your hearts. [[Circumcision|TG Circumcision]].  
+[^b]: [[Mosiah 4.2|Mosiah 4:2]].  
+[^c]: OR stubborn. [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  

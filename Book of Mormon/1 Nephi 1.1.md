@@ -5,9 +5,9 @@
 [1 Nephi 1:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p1#p1)
 
 
-[^a]: TG [[Birthright]].
-[^b]: [[Proverbs 22.1|Prov. 22:1.]]
-[^c]: [[Mosiah 1.2|Mosiah 1:2 (2-3)]]; [[D&C 68.25|D&C 68:25 (25, 28)]]. TG [[Honoring Father and Mother]].
-[^d]: [[Enos 1.1|Enos 1:1]]. TG [[Education]]; [[Family, Children, Responsibilities toward]]; [[Family, Love within]].
-[^e]: TG [[Affliction]]; [[Israel, Blessings of]]; [[God, Gifts of]].
-[^f]: TG [[Record Keeping]]; [[Scriptures, Writing of]].
+[^a]: [[Birthright|TG Birthright]].  
+[^b]: [[Proverbs 22.1|Prov. 22:1]].  
+[^c]: [[Mosiah 1.2|Mosiah 1:2 (2–3)]][[Mosiah 1.3|]]; [[D&C 68.25|D&C 68:25 (25, 28)]][[D&C 68.28|]]. [[Honoring Father and Mother|TG Honoring Father and Mother]].  
+[^d]: [[Enos 1.1|Enos 1:1]]. [[Education|TG Education]]; [[Family, Children, Responsibilities toward|Family, Children, Responsibilities toward]]; [[Family, Love within|Family, Love within]].  
+[^e]: [[Affliction|TG Affliction]]; [[Blessing|Blessing]]; [[God, Gifts of|God, Gifts of]].  
+[^f]: [[Record Keeping|TG Record Keeping]]; [[Scriptures, Writing of|Scriptures, Writing of]].  

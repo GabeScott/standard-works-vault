@@ -5,6 +5,6 @@
 [Abraham 2:7](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/2.7?lang=eng#p7)
 
 
-[^a]: [[Moses 6.42|Moses 6:42.]]
-[^b]: Lam. 2:1; [[1 Nephi 17.39|1 Ne. 17:39]]; [[D&C 38.17|D&C 38:17]]; Moses 6:9, 44.
-[^c]: [[2 Kings 2.11|2 Kgs. 2:11]]; [[Isaiah 66.15|Isa. 66:15 (15-16).]]
+[^a]: [[Moses 6.42|Moses 6:42]].  
+[^b]: [[Lamentations 2.1|Lam. 2:1]]; [[1 Nephi 17.39|1 Ne. 17:39]]; [[D&C 38.17|D&C 38:17]]; [[Moses 6.9|Moses 6:9, 44]][[Moses 6.44|]].  
+[^c]: [[2 Kings 2.11|2 Kgs. 2:11]]; [[Isaiah 66.15|Isa. 66:15 (15–16)]][[Isaiah 66.16|]].  

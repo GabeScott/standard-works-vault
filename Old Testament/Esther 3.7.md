@@ -5,4 +5,4 @@
 [Esther 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/3.7?lang=eng#p7)
 
 
-[^a]: [[Ezra 6.15|Ezra 6:15.]]
+[^a]: [[Ezra 6.15|Ezra 6:15]].  

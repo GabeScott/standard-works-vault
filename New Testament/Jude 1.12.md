@@ -5,4 +5,4 @@
 [Jude 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.12?lang=eng#p12)
 
 
-[^a]: 2 Pet. 2:17.
+[^a]: [[2 Peter 2.17|2 Pet. 2:17]].  

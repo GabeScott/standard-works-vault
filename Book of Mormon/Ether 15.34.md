@@ -5,5 +5,5 @@
 [Ether 15:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/15?lang=eng&id=p34#p34)
 
 
-[^a]: [[Ether 1.6|Ether 1:6]]; [[Ether 11.23|11:23]]; [[Ether 12.2|12:2.]]
-[^b]: [[Mosiah 13.9|Mosiah 13:9.]]
+[^a]: [[Ether 1.6|Ether 1:6]]; [[Ether 11.23|11:23]]; [[Ether 12.2|12:2]].  
+[^b]: [[Mosiah 13.9|Mosiah 13:9]].  

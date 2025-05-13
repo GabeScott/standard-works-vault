@@ -5,4 +5,4 @@
 [Psalms 86:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/86.5?lang=eng#p5)
 
 
-[^a]: TG [[Forgive, Forgiveness]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]].  

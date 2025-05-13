@@ -5,5 +5,5 @@
 [Isaiah 28:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.13?lang=eng#p13)
 
 
-[^a]: [[2 Nephi 28.30|2 Ne. 28:30]]; [[D&C 50.24|D&C 50:24]]; [[D&C 93.20|93:20.]]
-[^b]: IE In spite of the Lord’s instructing Israel through prophets, many of the people apostatized.
+[^a]: [[2 Nephi 28.30|2 Ne. 28:30]]; [[D&C 50.24|D&C 50:24]]; [[D&C 93.20|93:20]].  
+[^b]: IE In spite of the Lord’s instructing Israel through prophets, many of the people apostatized.  

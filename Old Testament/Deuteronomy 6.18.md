@@ -5,5 +5,5 @@
 [Deuteronomy 6:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.18?lang=eng#p18)
 
 
-[^a]: [[D&C 58.27|D&C 58:27 (26-28).]]
-[^b]: OR promised (also v. 23).
+[^a]: [[D&C 58.26|D&C 58:27 (26–28)]][[D&C 58.27|]][[D&C 58.28|]].  
+[^b]: OR promised (also [[Deuteronomy 6.23|v. 23]]).  

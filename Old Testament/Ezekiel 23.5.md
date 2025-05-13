@@ -5,4 +5,4 @@
 [Ezekiel 23:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.5?lang=eng#p5)
 
 
-[^a]: [[2 Kings 15.19|2 Kgs. 15:19]]; [[2 Kings 17.6|17:6 (3-6)]]; [[Hosea 8.9|Hosea 8:9.]]
+[^a]: [[2 Kings 15.19|2 Kgs. 15:19]]; [[2 Kings 17.3|17:6 (3–6)]][[2 Kings 17.4|]][[2 Kings 17.5|]][[2 Kings 17.6|]]; [[Hosea 8.9|Hosea 8:9]].  

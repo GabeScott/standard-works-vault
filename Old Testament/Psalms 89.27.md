@@ -5,4 +5,4 @@
 [Psalms 89:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.27?lang=eng#p27)
 
 
-[^a]: TG [[Firstborn]]; [[Jesus Christ, Davidic Descent of]]; Jesus Christ, [[Firstborn]].
+[^a]: [[Firstborn|TG Firstborn]]; [[Jesus Christ, Davidic Descent of|Jesus Christ, Davidic Descent of]]; [[Jesus Christ, Firstborn|Jesus Christ, Firstborn]].  

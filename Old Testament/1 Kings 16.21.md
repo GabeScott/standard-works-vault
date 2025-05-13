@@ -5,4 +5,4 @@
 [1 Kings 16:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.21?lang=eng#p21)
 
 
-[^a]: [[Alma 51.6|Alma 51:6 (4-7).]]
+[^a]: [[Alma 51.4|Alma 51:6 (4–7)]][[Alma 51.5|]][[Alma 51.6|]][[Alma 51.7|]].  

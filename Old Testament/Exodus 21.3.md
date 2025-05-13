@@ -5,4 +5,4 @@
 [Exodus 21:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.3?lang=eng#p3)
 
 
-[^a]: OR singly.
+[^a]: OR singly.  

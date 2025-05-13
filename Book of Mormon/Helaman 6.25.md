@@ -5,4 +5,4 @@
 [Helaman 6:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p25#p25)
 
 
-[^a]: [[Alma 37.29|Alma 37:29 (27-32).]]
+[^a]: [[Alma 37.27|Alma 37:29 (27–32)]][[Alma 37.28|]][[Alma 37.29|]][[Alma 37.30|]][[Alma 37.31|]][[Alma 37.32|]].  

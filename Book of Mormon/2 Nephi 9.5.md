@@ -5,8 +5,8 @@
 [2 Nephi 9:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Jesus Christ, Creator]].
-[^b]: [[2 Nephi 7.6|2 Ne. 7:6 (4-9).]]
-[^c]: [[Mark 10.44|Mark 10:44 (43-44).]]
-[^d]: TG [[Jesus Christ, Death of]]; [[Jesus Christ, Mission of]].
-[^e]: [[John 12.32|John 12:32]]; [[2 Nephi 26.24|2 Ne. 26:24]]; [[3 Nephi 27.14|3 Ne. 27:14 (14-15).]]
+[^a]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  
+[^b]: [[2 Nephi 7.4|2 Ne. 7:6 (4–9)]][[2 Nephi 7.5|]][[2 Nephi 7.6|]][[2 Nephi 7.7|]][[2 Nephi 7.8|]][[2 Nephi 7.9|]].  
+[^c]: [[Mark 10.43|Mark 10:44 (43–44)]][[Mark 10.44|]].  
+[^d]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]]; [[Jesus Christ, Mission of|Jesus Christ, Mission of]].  
+[^e]: [[John 12.32|John 12:32]]; [[2 Nephi 26.24|2 Ne. 26:24]]; [[3 Nephi 27.14|3 Ne. 27:14 (14–15)]][[3 Nephi 27.15|]].  

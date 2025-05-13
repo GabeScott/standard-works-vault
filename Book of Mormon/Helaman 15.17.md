@@ -5,4 +5,4 @@
 [Helaman 15:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p17#p17)
 
 
-[^a]: [[Helaman 13.6|Hel. 13:6 (5-10)]]; [[Mormon 3.2|Morm. 3:2.]]
+[^a]: [[Helaman 13.5|Hel. 13:6 (5–10)]][[Helaman 13.6|]][[Helaman 13.7|]][[Helaman 13.8|]][[Helaman 13.9|]][[Helaman 13.10|]]; [[Mormon 3.2|Morm. 3:2]].  

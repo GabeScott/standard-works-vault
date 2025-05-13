@@ -5,4 +5,4 @@
 [Ecclesiastes 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.17?lang=eng#p17)
 
 
-[^a]: [[Ecclesiastes 1.14|Eccl. 1:14.]]
+[^a]: [[Ecclesiastes 1.14|Eccl. 1:14]].  

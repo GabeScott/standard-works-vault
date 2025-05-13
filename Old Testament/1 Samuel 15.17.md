@@ -5,4 +5,4 @@
 [1 Samuel 15:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.17?lang=eng#p17)
 
 
-[^a]: TG [[Called of God]].
+[^a]: [[Called of God|TG Called of God]].  

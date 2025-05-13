@@ -5,4 +5,4 @@
 [Ezekiel 46:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.14?lang=eng#p14)
 
 
-[^a]: OR moisten, soften.
+[^a]: OR moisten, soften.  

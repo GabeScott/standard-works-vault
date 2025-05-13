@@ -5,6 +5,6 @@
 [Acts 21:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.26?lang=eng#p26)
 
 
-[^a]: [[Numbers 6.13|Num. 6:13.]]
-[^b]: TG [[Purification, Purify, Purifying]].
-[^c]: [[Numbers 6.11|Num. 6:11 (9-12).]]
+[^a]: [[Numbers 6.13|Num. 6:13]].  
+[^b]: [[Purification, Purify, Purifying|TG Purification]].  
+[^c]: [[Numbers 6.9|Num. 6:11 (9–12)]][[Numbers 6.10|]][[Numbers 6.11|]][[Numbers 6.12|]].  

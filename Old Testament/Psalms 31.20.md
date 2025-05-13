@@ -5,5 +5,5 @@
 [Psalms 31:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.20?lang=eng#p20)
 
 
-[^a]: [[Psalms 27.5|Ps. 27:5.]]
-[^b]: TG [[Gossip]]; [[Strife]].
+[^a]: [[Psalms 27.5|Ps. 27:5]].  
+[^b]: [[Gossip|TG Gossip]]; [[Strife|Strife]].  

@@ -5,6 +5,6 @@
 [Psalms 79:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/79.1?lang=eng#p1)
 
 
-[^a]: Lam. 5:2.
-[^b]: Lam. 1:10.
-[^c]: [[2 Kings 25.9|2 Kgs. 25:9.]]
+[^a]: [[Lamentations 5.2|Lam. 5:2]].  
+[^b]: [[Lamentations 1.10|Lam. 1:10]].  
+[^c]: [[2 Kings 25.9|2 Kgs. 25:9]].  

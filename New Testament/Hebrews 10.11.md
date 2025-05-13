@@ -5,5 +5,5 @@
 [Hebrews 10:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.11?lang=eng#p11)
 
 
-[^a]: [[Hebrews 7.27|Heb. 7:27.]]
-[^b]: [[Leviticus 4.20|Lev. 4:20 (20, 26).]]
+[^a]: [[Hebrews 7.27|Heb. 7:27]].  
+[^b]: [[Leviticus 4.20|Lev. 4:20 (20, 26)]][[Leviticus 4.26|]].  

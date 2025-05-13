@@ -5,4 +5,4 @@
 [Psalms 17:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/17.11?lang=eng#p11)
 
 
-[^a]: OR to cast us to earth.
+[^a]: OR to cast us to earth.  

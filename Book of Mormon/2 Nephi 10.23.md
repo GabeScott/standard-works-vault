@@ -5,7 +5,7 @@
 [2 Nephi 10:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Cheerful, Cheerfulness]].
-[^b]: TG [[Agency]].
-[^c]: [[2 Nephi 2.16|2 Ne. 2:16.]]
-[^d]: [[Deuteronomy 30.19|Deut. 30:19 (15, 19).]]
+[^a]: [[Cheerful, Cheerfulness|TG Cheerful]].  
+[^b]: [[Agency|TG Agency]].  
+[^c]: [[2 Nephi 2.16|2 Ne. 2:16]].  
+[^d]: [[Deuteronomy 30.15|Deut. 30:19 (15, 19)]][[Deuteronomy 30.19|]].  

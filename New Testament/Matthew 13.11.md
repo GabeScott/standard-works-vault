@@ -5,4 +5,4 @@
 [Matthew 13:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.11?lang=eng#p11)
 
 
-[^a]: [[Matthew 11.25|Matt. 11:25]]; [[D&C 6.11|D&C 6:11 (11-12)]]; [[D&C 19.8|19:8]]. TG [[Mysteries of Godliness]].
+[^a]: [[Matthew 11.25|Matt. 11:25]]; [[D&C 6.11|D&C 6:11 (11–12)]][[D&C 6.12|]]; [[D&C 19.8|19:8]]. [[Mysteries of Godliness|TG Mysteries of Godliness]].  

@@ -5,5 +5,5 @@
 [Psalms 69:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.19?lang=eng#p19)
 
 
-[^a]: TG [[Reproach]].
-[^b]: TG [[Shame]].
+[^a]: [[Reproach|TG Reproach]].  
+[^b]: [[Shame|TG Shame]].  

@@ -5,4 +5,4 @@
 [Isaiah 50:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.8?lang=eng#p8)
 
 
-[^a]: [[Romans 8.32|Rom. 8:32 (32-34).]]
+[^a]: [[Romans 8.32|Rom. 8:32 (32–34)]][[Romans 8.33|]][[Romans 8.34|]].  

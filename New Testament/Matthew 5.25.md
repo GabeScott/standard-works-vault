@@ -5,4 +5,4 @@
 [Matthew 5:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.25?lang=eng#p25)
 
 
-[^a]: GR Quickly have kind thoughts for, or be well disposed toward. TG [[Communication]]; [[Disputations, Dispute]].
+[^a]: GR Quickly have kind thoughts for, or be well disposed toward. [[Communication|TG Communication]]; [[Disputations, Dispute|Disputations]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/9.15?lang=eng#p15)
 
 
-[^a]: IE large shields.
+[^a]: IE large shields.  

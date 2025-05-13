@@ -5,5 +5,5 @@
 [Deuteronomy 4:25](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.25?lang=eng#p25)
 
 
-[^a]: TG [[Evil]].
-[^b]: TG [[Anger]].
+[^a]: [[Evil|TG Evil]].  
+[^b]: [[Anger|TG Anger]].  

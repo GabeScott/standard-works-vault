@@ -5,4 +5,4 @@
 [Mosiah 13:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p15#p15)
 
 
-[^a]: [[Exodus 20.7|Ex. 20:7]]; [[Mormon 7.7|Morm. 7:7]]; [[D&C 58.30|D&C 58:30.]]
+[^a]: [[Exodus 20.7|Ex. 20:7]]; [[Mormon 7.7|Morm. 7:7]]; [[D&C 58.30|D&C 58:30]].  

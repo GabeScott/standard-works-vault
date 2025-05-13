@@ -5,4 +5,4 @@
 [Alma 24:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p17#p17)
 
 
-[^a]: [[Helaman 15.9|Hel. 15:9.]]
+[^a]: [[Helaman 15.9|Hel. 15:9]].  

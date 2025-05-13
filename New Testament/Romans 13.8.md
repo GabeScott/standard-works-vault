@@ -5,5 +5,5 @@
 [Romans 13:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.8?lang=eng#p8)
 
 
-[^a]: TG [[Debt]].
-[^b]: TG [[Love]].
+[^a]: [[Debt|TG Debt]].  
+[^b]: [[Love|TG Love]].  

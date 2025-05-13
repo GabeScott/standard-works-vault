@@ -5,4 +5,4 @@
 [Judges 19:5](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/19.5?lang=eng#p5)
 
 
-[^a]: OR Sustain (also v. 8).
+[^a]: OR Sustain (also [[Judges 19.8|v. 8]]).  

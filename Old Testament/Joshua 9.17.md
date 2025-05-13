@@ -5,4 +5,4 @@
 [Joshua 9:17](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.17?lang=eng#p17)
 
 
-[^a]: [[2 Samuel 21.2|2 Sam. 21:2.]]
+[^a]: [[2 Samuel 21.2|2 Sam. 21:2]].  

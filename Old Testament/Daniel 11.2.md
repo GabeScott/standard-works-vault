@@ -5,5 +5,5 @@
 [Daniel 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.2?lang=eng#p2)
 
 
-[^a]: IE kingdom of Macedonia.
-[^b]: Dan. 8:21.
+[^a]: IE kingdom of Macedonia.  
+[^b]: [[Daniel 8.21|Dan. 8:21]].  

@@ -5,4 +5,4 @@
 [2 Kings 23:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.13?lang=eng#p13)
 
 
-[^a]: [[1 Kings 11.7|1 Kgs. 11:7.]]
+[^a]: [[1 Kings 11.7|1 Kgs. 11:7]].  

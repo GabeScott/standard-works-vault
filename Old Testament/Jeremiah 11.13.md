@@ -5,5 +5,5 @@
 [Jeremiah 11:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.13?lang=eng#p13)
 
 
-[^a]: TG [[Idolatry, Idol]].
-[^b]: TG [[Apostasy of Israel]].
+[^a]: [[Idolatry, Idol|TG Idolatry]].  
+[^b]: [[Apostasy of Israel|TG Apostasy of Israel]].  

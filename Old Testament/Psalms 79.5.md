@@ -5,4 +5,4 @@
 [Psalms 79:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/79.5?lang=eng#p5)
 
 
-[^a]: [[2 Nephi 25.17|2 Ne. 25:17 (15-18).]]
+[^a]: [[2 Nephi 25.15|2 Ne. 25:17 (15–18)]][[2 Nephi 25.16|]][[2 Nephi 25.17|]][[2 Nephi 25.18|]].  

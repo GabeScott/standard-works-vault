@@ -5,4 +5,4 @@
 [Alma 18:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p22#p22)
 
 
-[^a]: [[Genesis 41.39|Gen. 41:39]]; [[Alma 48.11|Alma 48:11 (11-17).]]
+[^a]: [[Genesis 41.39|Gen. 41:39]]; [[Alma 48.11|Alma 48:11 (11–17)]][[Alma 48.12|]][[Alma 48.13|]][[Alma 48.14|]][[Alma 48.15|]][[Alma 48.16|]][[Alma 48.17|]].  

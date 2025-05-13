@@ -5,4 +5,4 @@
 [1 Chronicles 23:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/23.28?lang=eng#p28)
 
 
-[^a]: [[2 Chronicles 23.6|2 Chr. 23:6.]]
+[^a]: [[2 Chronicles 23.6|2 Chr. 23:6]].  

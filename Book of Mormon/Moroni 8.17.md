@@ -5,5 +5,5 @@
 [Moroni 8:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Charity]].
-[^b]: [[Mosiah 3.16|Mosiah 3:16 (16-19).]]
+[^a]: [[Charity|TG Charity]].  
+[^b]: [[Mosiah 3.16|Mosiah 3:16 (16–19)]][[Mosiah 3.17|]][[Mosiah 3.18|]][[Mosiah 3.19|]].  

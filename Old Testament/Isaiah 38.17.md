@@ -5,4 +5,4 @@
 [Isaiah 38:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.17?lang=eng#p17)
 
 
-[^a]: OR on my peace came great bitterness.
+[^a]: OR on my peace came great bitterness.  

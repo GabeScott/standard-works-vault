@@ -5,4 +5,4 @@
 [Mark 12:29](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.29?lang=eng#p29)
 
 
-[^a]: [[Deuteronomy 6.4|Deut. 6:4.]]
+[^a]: [[Deuteronomy 6.4|Deut. 6:4]].  

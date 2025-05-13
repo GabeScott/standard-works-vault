@@ -5,4 +5,4 @@
 [Joshua 10:38](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.38?lang=eng#p38)
 
 
-[^a]: [[Joshua 12.13|Josh. 12:13.]]
+[^a]: [[Joshua 12.13|Josh. 12:13]].  

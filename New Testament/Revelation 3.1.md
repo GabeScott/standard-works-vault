@@ -5,9 +5,9 @@
 [Revelation 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.1?lang=eng#p1)
 
 
-[^a]: JST Rev. 3:1 And unto the servant of the church in Sardis, write; These things saith he who hath the seven stars, which are the seven servants of God; I know thy …
-[^b]: [[Revelation 1.20|Rev. 1:20.]]
-[^c]: [[Revelation 1.4|Rev. 1:4.]]
-[^d]: [[Revelation 1.20|Rev. 1:20 (16, 20).]]
-[^e]: TG [[God, Omniscience of]].
-[^f]: [[Ephesians 2.1|Eph. 2:1.]]
+[^a]: JST Rev. 3:1 And unto the servant of the church in Sardis, write; These things saith he who hath the seven stars, which are the seven servants of God; I know thy …  
+[^b]: [[Revelation 1.20|Rev. 1:20]].  
+[^c]: [[Revelation 1.4|Rev. 1:4]].  
+[^d]: [[Revelation 1.16|Rev. 1:20 (16, 20)]][[Revelation 1.20|]].  
+[^e]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^f]: [[Ephesians 2.1|Eph. 2:1]].  

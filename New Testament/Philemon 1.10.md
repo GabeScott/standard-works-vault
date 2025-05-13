@@ -5,4 +5,4 @@
 [Philemon 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/philem/1.10?lang=eng#p10)
 
 
-[^a]: Col. 4:9.
+[^a]: [[Colossians 4.9|Col. 4:9]].  

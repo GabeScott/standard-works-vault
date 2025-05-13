@@ -5,4 +5,4 @@
 [Numbers 35:22](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.22?lang=eng#p22)
 
 
-[^a]: OR hurls at him.
+[^a]: OR hurls at him.  

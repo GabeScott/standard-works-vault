@@ -5,4 +5,4 @@
 [Malachi 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.9?lang=eng#p9)
 
 
-[^a]: TG [[Curse]].
+[^a]: [[Curse|TG Curse]].  

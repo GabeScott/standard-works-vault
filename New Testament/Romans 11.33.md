@@ -5,8 +5,8 @@
 [Romans 11:33](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.33?lang=eng#p33)
 
 
-[^a]: TG [[Treasure]].
-[^b]: TG [[God, Intelligence of]].
-[^c]: TG [[God, Omniscience of]].
-[^d]: [[Isaiah 40.28|Isa. 40:28.]]
-[^e]: [[Proverbs 25.2|Prov. 25:2.]]
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[God, Intelligence of|TG God, Intelligence of]].  
+[^c]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^d]: [[Isaiah 40.28|Isa. 40:28]].  
+[^e]: [[Proverbs 25.2|Prov. 25:2]].  

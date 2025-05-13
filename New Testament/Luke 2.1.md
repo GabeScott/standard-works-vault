@@ -5,5 +5,5 @@
 [Luke 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.1?lang=eng#p1)
 
 
-[^a]: JST Luke 2:1 … his empire should be taxed.
-[^b]: GR enrolled, registered (also vv. 3, 5).
+[^a]: JST Luke 2:1 … his empire should be taxed.  
+[^b]: GR enrolled, registered (also [[Luke 2.3|vv. 3, 5]][[Luke 2.5|]]).  

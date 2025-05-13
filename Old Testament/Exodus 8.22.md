@@ -5,5 +5,5 @@
 [Exodus 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.22?lang=eng#p22)
 
 
-[^a]: OR separate, segregate.
-[^b]: [[D&C 38.18|D&C 38:18.]]
+[^a]: OR separate, segregate.  
+[^b]: [[D&C 38.18|D&C 38:18]].  

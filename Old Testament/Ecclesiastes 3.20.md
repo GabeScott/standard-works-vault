@@ -5,4 +5,4 @@
 [Ecclesiastes 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 3.19|Gen. 3:19.]]
+[^a]: [[Genesis 3.19|Gen. 3:19]].  

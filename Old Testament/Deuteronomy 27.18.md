@@ -5,5 +5,5 @@
 [Deuteronomy 27:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.18?lang=eng#p18)
 
 
-[^a]: OR misleads.
-[^b]: [[Leviticus 19.14|Lev. 19:14.]]
+[^a]: OR misleads.  
+[^b]: [[Leviticus 19.14|Lev. 19:14]].  

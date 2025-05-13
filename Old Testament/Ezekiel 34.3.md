@@ -5,4 +5,4 @@
 [Ezekiel 34:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.3?lang=eng#p3)
 
 
-[^a]: [[2 Nephi 26.29|2 Ne. 26:29.]]
+[^a]: [[2 Nephi 26.29|2 Ne. 26:29]].  

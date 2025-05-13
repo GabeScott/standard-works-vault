@@ -5,4 +5,4 @@
 [Genesis 46:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.28?lang=eng#p28)
 
 
-[^a]: [[Genesis 45.10|Gen. 45:10.]]
+[^a]: [[Genesis 45.10|Gen. 45:10]].  

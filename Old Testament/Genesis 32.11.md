@@ -5,4 +5,4 @@
 [Genesis 32:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.11?lang=eng#p11)
 
 
-[^a]: TG [[Deliver, Deliverance]].
+[^a]: [[Deliver, Deliverance|TG Deliver]].  

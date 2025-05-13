@@ -5,4 +5,4 @@
 [Alma 26:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p14#p14)
 
 
-[^a]: [[Alma 12.11|Alma 12:11.]]
+[^a]: [[Alma 12.11|Alma 12:11]].  

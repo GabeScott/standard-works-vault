@@ -5,4 +5,4 @@
 [John 18:19](https://www.churchofjesuschrist.org/study/scriptures/nt/john/18.19?lang=eng#p19)
 
 
-[^a]: TG [[Jesus Christ, Trials of]].
+[^a]: [[Jesus Christ, Trials of|TG Jesus Christ, Trials of]].  

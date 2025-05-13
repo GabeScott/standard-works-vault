@@ -5,5 +5,5 @@
 [Moroni 9:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/9?lang=eng&id=p24#p24)
 
 
-[^a]: [[Alma 45.14|Alma 45:14.]]
-[^b]: [[Mormon 6.6|Morm. 6:6]]; [[Mormon 8.1|8:1.]]
+[^a]: [[Alma 45.14|Alma 45:14]].  
+[^b]: [[Mormon 6.6|Morm. 6:6]]; [[Mormon 8.1|8:1]].  

@@ -5,5 +5,5 @@
 [Leviticus 14:32](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.32?lang=eng#p32)
 
 
-[^a]: HEB teaching or instruction.
-[^b]: [[Leviticus 14.21|Lev. 14:21 (21-22).]]
+[^a]: HEB teaching or instruction.  
+[^b]: [[Leviticus 14.21|Lev. 14:21 (21–22)]][[Leviticus 14.22|]].  

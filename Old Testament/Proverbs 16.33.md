@@ -5,4 +5,4 @@
 [Proverbs 16:33](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.33?lang=eng#p33)
 
 
-[^a]: [[Proverbs 18.18|Prov. 18:18]]; [[1 Nephi 3.11|1 Ne. 3:11]]; [[D&C 102.34|D&C 102:34.]]
+[^a]: [[Proverbs 18.18|Prov. 18:18]]; [[1 Nephi 3.11|1 Ne. 3:11]]; [[D&C 102.34|D&C 102:34]].  

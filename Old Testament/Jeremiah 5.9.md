@@ -5,5 +5,5 @@
 [Jeremiah 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.9?lang=eng#p9)
 
 
-[^a]: OR punish (also v. 29).
-[^b]: [[Jeremiah 9.9|Jer. 9:9]]; [[Jeremiah 44.22|44:22.]]
+[^a]: OR punish (also [[Jeremiah 5.29|v. 29]]).  
+[^b]: [[Jeremiah 9.9|Jer. 9:9]]; [[Jeremiah 44.22|44:22]].  

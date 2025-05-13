@@ -5,4 +5,4 @@
 [Isaiah 43:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.21?lang=eng#p21)
 
 
-[^a]: IE Israel.
+[^a]: IE Israel.  

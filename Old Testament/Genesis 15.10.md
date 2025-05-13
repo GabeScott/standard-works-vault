@@ -5,4 +5,4 @@
 [Genesis 15:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 34.18|Jer. 34:18 (18-19).]]
+[^a]: [[Jeremiah 34.18|Jer. 34:18 (18–19)]][[Jeremiah 34.19|]].  

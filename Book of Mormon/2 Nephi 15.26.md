@@ -5,7 +5,7 @@
 [2 Nephi 15:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p26#p26)
 
 
-[^a]: TG [[Ensign]].
-[^b]: TG [[Nations]].
-[^c]: [[2 Nephi 29.2|2 Ne. 29:2.]]
-[^d]: TG [[Israel, Gathering of]].
+[^a]: [[Ensign|TG Ensign]].  
+[^b]: [[Nations|TG Nations]].  
+[^c]: [[2 Nephi 29.2|2 Ne. 29:2]].  
+[^d]: [[Israel, Gathering of|TG Israel, Gathering of]].  

@@ -5,4 +5,4 @@
 [Mosiah 10:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p21#p21)
 
 
-[^a]: [[Mosiah 9.14|Mosiah 9:14 (9, 14).]]
+[^a]: [[Mosiah 9.9|Mosiah 9:14 (9, 14)]][[Mosiah 9.14|]].  

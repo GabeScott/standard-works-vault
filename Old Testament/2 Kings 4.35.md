@@ -5,4 +5,4 @@
 [2 Kings 4:35](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.35?lang=eng#p35)
 
 
-[^a]: [[2 Kings 8.1|2 Kgs. 8:1]]. TG [[Death, Power over]].
+[^a]: [[2 Kings 8.1|2 Kgs. 8:1]]. [[Death, Power over|TG Death, Power over]].  

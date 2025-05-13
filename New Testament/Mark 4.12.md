@@ -5,5 +5,5 @@
 [Mark 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.12?lang=eng#p12)
 
 
-[^a]: TG [[Spiritual Blindness]].
-[^b]: TG [[Forgive, Forgiveness]].
+[^a]: [[Spiritual Blindness|TG Spiritual Blindness]].  
+[^b]: [[Forgive, Forgiveness|TG Forgive]].  

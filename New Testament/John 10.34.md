@@ -5,4 +5,4 @@
 [John 10:34](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.34?lang=eng#p34)
 
 
-[^a]: TG [[Man, Potential to Become like Heavenly Father]]; [[Sons and Daughters of God]].
+[^a]: [[Man, Potential to Become like Heavenly Father|TG Man, Potential to Become like Heavenly Father]]; [[Sons and Daughters of God|Sons and Daughters of God]].  

@@ -5,4 +5,4 @@
 [Ezekiel 12:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.27?lang=eng#p27)
 
 
-[^a]: [[Amos 6.3|Amos 6:3.]]
+[^a]: [[Amos 6.3|Amos 6:3]].  

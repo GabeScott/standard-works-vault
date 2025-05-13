@@ -5,4 +5,4 @@
 [Psalms 31:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.11?lang=eng#p11)
 
 
-[^a]: [[Job 19.14|Job 19:14 (14-15)]]; [[Psalms 64.8|Ps. 64:8.]]
+[^a]: [[Job 19.14|Job 19:14 (14–15)]][[Job 19.15|]]; [[Psalms 64.8|Ps. 64:8]].  

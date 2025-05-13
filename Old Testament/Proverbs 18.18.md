@@ -5,4 +5,4 @@
 [Proverbs 18:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.18?lang=eng#p18)
 
 
-[^a]: [[Proverbs 16.33|Prov. 16:33.]]
+[^a]: [[Proverbs 16.33|Prov. 16:33]].  

@@ -5,7 +5,7 @@
 [Isaiah 58:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.11?lang=eng#p11)
 
 
-[^a]: TG [[Guidance, Divine]].
-[^b]: TG [[Drought]].
-[^c]: HEB strengthen.
-[^d]: TG [[Abundant Life]].
+[^a]: [[Guidance, Divine|TG Guidance, Divine]].  
+[^b]: [[Drought|TG Drought]].  
+[^c]: HEB strengthen.  
+[^d]: [[Abundant Life|TG Abundant Life]].  

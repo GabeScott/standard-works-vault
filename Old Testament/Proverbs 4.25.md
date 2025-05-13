@@ -5,4 +5,4 @@
 [Proverbs 4:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/4.25?lang=eng#p25)
 
 
-[^a]: [[Proverbs 4.21|Prov. 4:21.]]
+[^a]: [[Proverbs 4.21|Prov. 4:21]].  

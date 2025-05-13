@@ -5,5 +5,5 @@
 [Isaiah 66:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.17?lang=eng#p17)
 
 
-[^a]: Several examples of forbidden practices are listed here.
-[^b]: [[Leviticus 11.29|Lev. 11:29.]]
+[^a]: Several examples of forbidden practices are listed here.  
+[^b]: [[Leviticus 11.29|Lev. 11:29]].  

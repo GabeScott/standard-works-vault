@@ -5,6 +5,6 @@
 [Ether 13:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Jerusalem]].
-[^b]: [[1 Nephi 1.18|1 Ne. 1:18 (18-20)]]; [[1 Nephi 2.2|2:2.]]
-[^c]: [[Joel 2.18|Joel 2:18]]; [[Revelation 21.10|Rev. 21:10 (10-27)]]; [[3 Nephi 20.46|3 Ne. 20:46 (29-36, 46).]]
+[^a]: [[Jerusalem|TG Jerusalem]].  
+[^b]: [[1 Nephi 1.18|1 Ne. 1:18 (18–20)]][[1 Nephi 1.19|]][[1 Nephi 1.20|]]; [[1 Nephi 2.2|2:2]].  
+[^c]: [[Joel 2.18|Joel 2:18]]; [[Revelation 21.10|Rev. 21:10 (10–27)]][[Revelation 21.11|]][[Revelation 21.12|]][[Revelation 21.13|]][[Revelation 21.14|]][[Revelation 21.15|]][[Revelation 21.16|]][[Revelation 21.17|]][[Revelation 21.18|]][[Revelation 21.19|]][[Revelation 21.20|]][[Revelation 21.21|]][[Revelation 21.22|]][[Revelation 21.23|]][[Revelation 21.24|]][[Revelation 21.25|]][[Revelation 21.26|]][[Revelation 21.27|]]; [[3 Nephi 20.29|3 Ne. 20:46 (29–36, 46)]][[3 Nephi 20.30|]][[3 Nephi 20.31|]][[3 Nephi 20.32|]][[3 Nephi 20.33|]][[3 Nephi 20.34|]][[3 Nephi 20.35|]][[3 Nephi 20.36|]][[3 Nephi 20.46|]].  

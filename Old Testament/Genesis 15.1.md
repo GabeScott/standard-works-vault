@@ -5,6 +5,6 @@
 [Genesis 15:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.1?lang=eng#p1)
 
 
-[^a]: TG [[Vision]].
-[^b]: [[Genesis 26.24|Gen. 26:24]]; [[1 Nephi 22.17|1 Ne. 22:17]]. TG [[Courage, Courageous]]; [[Fearful]].
-[^c]: TG [[Protection, Divine]].
+[^a]: [[Vision|TG Vision]].  
+[^b]: [[Genesis 26.24|Gen. 26:24]]; [[1 Nephi 22.17|1 Ne. 22:17]]. [[Courage, Courageous|TG Courage]]; [[Fearful|Fearful]].  
+[^c]: [[Protection, Divine|TG Protection, Divine]].  

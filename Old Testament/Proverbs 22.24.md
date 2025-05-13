@@ -5,5 +5,5 @@
 [Proverbs 22:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.24?lang=eng#p24)
 
 
-[^a]: TG [[Friendship, Friend]].
-[^b]: TG [[Anger]].
+[^a]: [[Friendship, Friend|TG Friendship]].  
+[^b]: [[Anger|TG Anger]].  

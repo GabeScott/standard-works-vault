@@ -5,6 +5,6 @@
 [Helaman 7:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p5#p5)
 
 
-[^a]: [[Job 12.6|Job 12:6]]; [[Job 21.7|21:7]]; [[Psalms 73.12|Ps. 73:12.]]
-[^b]: TG [[Bribe, Bribery]].
-[^c]: [[Matthew 13.22|Matt. 13:22]]; [[D&C 39.9|D&C 39:9.]]
+[^a]: [[Job 12.6|Job 12:6]]; [[Job 21.7|21:7]]; [[Psalms 73.12|Ps. 73:12]].  
+[^b]: [[Bribe, Bribery|TG Bribe]].  
+[^c]: [[Matthew 13.22|Matt. 13:22]]; [[D&C 39.9|D&C 39:9]].  

@@ -5,4 +5,4 @@
 [Mark 1:45](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.45?lang=eng#p45)
 
 
-[^a]: GR spread widely.
+[^a]: GR spread widely.  

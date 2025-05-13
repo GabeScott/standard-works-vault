@@ -5,4 +5,4 @@
 [Mosiah 1:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p15#p15)
 
 
-[^a]: [[1 Kings 2.1|1 Kgs. 2:1]]; [[Psalms 72.1|Ps. 72:1 (1-4).]]
+[^a]: [[1 Kings 2.1|1 Kgs. 2:1]]; [[Psalms 72.1|Ps. 72:1 (1–4)]][[Psalms 72.2|]][[Psalms 72.3|]][[Psalms 72.4|]].  

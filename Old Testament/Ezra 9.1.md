@@ -5,6 +5,6 @@
 [Ezra 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.1?lang=eng#p1)
 
 
-[^a]: IE officials.
-[^b]: [[Alma 5.57|Alma 5:57.]]
-[^c]: [[Deuteronomy 12.31|Deut. 12:31 (30-31)]]; [[D&C 3.18|D&C 3:18.]]
+[^a]: IE officials.  
+[^b]: [[Alma 5.57|Alma 5:57]].  
+[^c]: [[Deuteronomy 12.30|Deut. 12:31 (30–31)]][[Deuteronomy 12.31|]]; [[D&C 3.18|D&C 3:18]].  

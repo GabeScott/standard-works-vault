@@ -5,4 +5,4 @@
 [Ezekiel 11:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.24?lang=eng#p24)
 
 
-[^a]: TG [[God, Spirit of]].
+[^a]: [[God, Spirit of|TG God, Spirit of]].  

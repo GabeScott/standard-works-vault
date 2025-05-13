@@ -5,5 +5,5 @@
 [2 Nephi 17:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/17?lang=eng&id=p17#p17)
 
 
-[^a]: [[2 Chronicles 28.19|2 Chr. 28:19 (19-21).]]
-[^b]: [[1 Kings 12.19|1 Kgs. 12:19 (16-19).]]
+[^a]: [[2 Chronicles 28.19|2 Chr. 28:19 (19–21)]][[2 Chronicles 28.20|]][[2 Chronicles 28.21|]].  
+[^b]: [[1 Kings 12.16|1 Kgs. 12:19 (16–19)]][[1 Kings 12.17|]][[1 Kings 12.18|]][[1 Kings 12.19|]].  

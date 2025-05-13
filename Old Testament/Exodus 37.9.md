@@ -5,4 +5,4 @@
 [Exodus 37:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/37.9?lang=eng#p9)
 
 
-[^a]: TG [[Blood, Symbolism of]].
+[^a]: [[Symbolism|TG Symbolism]].  

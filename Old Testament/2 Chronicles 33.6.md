@@ -5,8 +5,8 @@
 [2 Chronicles 33:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.6?lang=eng#p6)
 
 
-[^a]: [[2 Kings 21.6|2 Kgs. 21:6]]; [[2 Chronicles 28.3|2 Chr. 28:3]]; [[Ezekiel 20.26|Ezek. 20:26.]]
-[^b]: IE practiced soothsaying.
-[^c]: [[Deuteronomy 18.12|Deut. 18:12 (10-14).]]
-[^d]: IE practiced spiritualism.
-[^e]: TG [[Spirits, Evil or Unclean]].
+[^a]: [[2 Kings 21.6|2 Kgs. 21:6]]; [[2 Chronicles 28.3|2 Chr. 28:3]]; [[Ezekiel 20.26|Ezek. 20:26]].  
+[^b]: IE practiced soothsaying.  
+[^c]: [[Deuteronomy 18.10|Deut. 18:12 (10–14)]][[Deuteronomy 18.11|]][[Deuteronomy 18.12|]][[Deuteronomy 18.13|]][[Deuteronomy 18.14|]].  
+[^d]: IE practiced spiritualism.  
+[^e]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

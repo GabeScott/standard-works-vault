@@ -5,4 +5,4 @@
 [Deuteronomy 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.10?lang=eng#p10)
 
 
-[^a]: OR vegetables.
+[^a]: OR vegetables.  

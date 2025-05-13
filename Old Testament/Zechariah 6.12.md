@@ -5,4 +5,4 @@
 [Zechariah 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/6.12?lang=eng#p12)
 
 
-[^a]: HEB Branch is His name and from beneath Him one shall branch forth and he shall build the temple of Jehovah.
+[^a]: HEB Branch is His name and from beneath Him one shall branch forth and he shall build the temple of Jehovah.  

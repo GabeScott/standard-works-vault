@@ -5,4 +5,4 @@
 [1 Kings 22:35](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.35?lang=eng#p35)
 
 
-[^a]: IE propped up.
+[^a]: IE propped up.  

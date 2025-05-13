@@ -5,6 +5,6 @@
 [Isaiah 45:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.13?lang=eng#p13)
 
 
-[^a]: IE Cyrus.
-[^b]: [[Isaiah 44.28|Isa. 44:28.]]
-[^c]: [[Isaiah 52.3|Isa. 52:3.]]
+[^a]: IE Cyrus.  
+[^b]: [[Isaiah 44.28|Isa. 44:28]].  
+[^c]: [[Isaiah 52.3|Isa. 52:3]].  

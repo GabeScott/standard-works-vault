@@ -5,4 +5,4 @@
 [2 Timothy 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.11?lang=eng#p11)
 
 
-[^a]: [[Acts 15.26|Acts 15:26.]]
+[^a]: [[Acts 15.26|Acts 15:26]].  

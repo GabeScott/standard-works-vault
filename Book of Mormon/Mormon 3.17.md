@@ -5,4 +5,4 @@
 [Mormon 3:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p17#p17)
 
 
-[^a]: [[2 Nephi 30.3|2 Ne. 30:3 (3-8)]]; [[3 Nephi 29.1|3 Ne. 29:1.]]
+[^a]: [[2 Nephi 30.3|2 Ne. 30:3 (3–8)]][[2 Nephi 30.4|]][[2 Nephi 30.5|]][[2 Nephi 30.6|]][[2 Nephi 30.7|]][[2 Nephi 30.8|]]; [[3 Nephi 29.1|3 Ne. 29:1]].  

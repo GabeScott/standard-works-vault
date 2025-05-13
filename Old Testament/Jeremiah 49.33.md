@@ -5,4 +5,4 @@
 [Jeremiah 49:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.33?lang=eng#p33)
 
 
-[^a]: HEB jackals.
+[^a]: HEB jackals.  

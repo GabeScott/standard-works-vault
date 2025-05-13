@@ -5,4 +5,4 @@
 [Deuteronomy 15:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.17?lang=eng#p17)
 
 
-[^a]: [[Exodus 21.6|Ex. 21:6.]]
+[^a]: [[Exodus 21.6|Ex. 21:6]].  

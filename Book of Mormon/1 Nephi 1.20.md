@@ -5,7 +5,7 @@
 [1 Nephi 1:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p20#p20)
 
 
-[^a]: [[Jeremiah 13.11|Jer. 13:11]]; [[Helaman 13.24|Hel. 13:24 (24-28).]]
-[^b]: [[Jeremiah 11.19|Jer. 11:19]]; [[1 Nephi 2.2|1 Ne. 2:2 (1-4)]]. TG [[Prophets, Rejection of]].
-[^c]: [[Genesis 32.10|Gen. 32:10]]; [[Alma 34.38|Alma 34:38]]; [[D&C 46.15|D&C 46:15.]]
-[^d]: TG [[Deliver, Deliverance]].
+[^a]: [[Jeremiah 13.11|Jer. 13:11]]; [[Helaman 13.24|Hel. 13:24 (24–28)]][[Helaman 13.25|]][[Helaman 13.26|]][[Helaman 13.27|]][[Helaman 13.28|]].  
+[^b]: [[Jeremiah 11.19|Jer. 11:19]]; [[1 Nephi 2.1|1 Ne. 2:2 (1–4)]][[1 Nephi 2.2|]][[1 Nephi 2.3|]][[1 Nephi 2.4|]]. [[Prophets, Rejection of|TG Prophets, Rejection of]].  
+[^c]: [[Genesis 32.10|Gen. 32:10]]; [[Alma 34.38|Alma 34:38]]; [[D&C 46.15|D&C 46:15]].  
+[^d]: [[Deliver, Deliverance|TG Deliver]].  

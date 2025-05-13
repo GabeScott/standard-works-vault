@@ -5,4 +5,4 @@
 [Philemon 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/philem/1.16?lang=eng#p16)
 
 
-[^a]: TG [[Brotherhood and Sisterhood]].
+[^a]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  

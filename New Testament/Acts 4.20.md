@@ -5,5 +5,5 @@
 [Acts 4:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.20?lang=eng#p20)
 
 
-[^a]: [[Jeremiah 20.9|Jer. 20:9]]; [[Amos 3.8|Amos 3:8.]]
-[^b]: TG [[Witness, Witnesses]].
+[^a]: [[Jeremiah 20.9|Jer. 20:9]]; [[Amos 3.8|Amos 3:8]].  
+[^b]: [[Witness, Witnesses|TG Witness]].  

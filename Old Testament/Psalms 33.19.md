@@ -5,4 +5,4 @@
 [Psalms 33:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.19?lang=eng#p19)
 
 
-[^a]: [[Psalms 37.19|Ps. 37:19 (18-19).]]
+[^a]: [[Psalms 37.18|Ps. 37:19 (18–19)]][[Psalms 37.19|]].  

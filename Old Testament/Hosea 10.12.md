@@ -5,6 +5,6 @@
 [Hosea 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/10.12?lang=eng#p12)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Harvest]].
-[^c]: [[Jeremiah 4.3|Jer. 4:3.]]
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Harvest|TG Harvest]].  
+[^c]: [[Jeremiah 4.3|Jer. 4:3]].  

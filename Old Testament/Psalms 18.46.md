@@ -5,5 +5,5 @@
 [Psalms 18:46](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.46?lang=eng#p46)
 
 
-[^a]: [[Deuteronomy 5.24|Deut. 5:24.]]
-[^b]: TG [[Rock]].
+[^a]: [[Deuteronomy 5.24|Deut. 5:24]].  
+[^b]: [[Rock|TG Rock]].  

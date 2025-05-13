@@ -5,4 +5,4 @@
 [Zechariah 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.14?lang=eng#p14)
 
 
-[^a]: HEB zealous. Joel 2:18; [[Zechariah 8.2|Zech. 8:2.]]
+[^a]: HEB zealous. [[Joel 2.18|Joel 2:18]]; [[Zechariah 8.2|Zech. 8:2]].  

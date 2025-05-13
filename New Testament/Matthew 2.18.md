@@ -5,6 +5,6 @@
 [Matthew 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.18?lang=eng#p18)
 
 
-[^a]: [[Jeremiah 31.15|Jer. 31:15.]]
-[^b]: TG [[Mourning, Mourn]].
-[^c]: [[Jeremiah 40.1|Jer. 40:1.]]
+[^a]: [[Jeremiah 31.15|Jer. 31:15]].  
+[^b]: [[Mourning, Mourn|TG Mourning]].  
+[^c]: [[Jeremiah 40.1|Jer. 40:1]].  

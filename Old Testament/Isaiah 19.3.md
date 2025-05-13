@@ -5,5 +5,5 @@
 [Isaiah 19:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.3?lang=eng#p3)
 
 
-[^a]: HEB necromancers.
-[^b]: TG [[Sorcery]].
+[^a]: HEB necromancers.  
+[^b]: [[Sorcery|TG Sorcery]].  

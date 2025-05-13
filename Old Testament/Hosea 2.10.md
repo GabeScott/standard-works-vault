@@ -5,4 +5,4 @@
 [Hosea 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.10?lang=eng#p10)
 
 
-[^a]: Lam. 1:8.
+[^a]: [[Lamentations 1.8|Lam. 1:8]].  

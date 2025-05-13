@@ -5,4 +5,4 @@
 [Ezekiel 43:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.8?lang=eng#p8)
 
 
-[^a]: [[D&C 63.61|D&C 63:61 (60-64).]]
+[^a]: [[D&C 63.60|D&C 63:61 (60–64)]][[D&C 63.61|]][[D&C 63.62|]][[D&C 63.63|]][[D&C 63.64|]].  

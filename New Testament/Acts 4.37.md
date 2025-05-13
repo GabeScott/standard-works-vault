@@ -5,4 +5,4 @@
 [Acts 4:37](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.37?lang=eng#p37)
 
 
-[^a]: [[D&C 19.34|D&C 19:34.]]
+[^a]: [[D&C 19.34|D&C 19:34]].  

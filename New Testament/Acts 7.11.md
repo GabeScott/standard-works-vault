@@ -5,4 +5,4 @@
 [Acts 7:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.11?lang=eng#p11)
 
 
-[^a]: OR famine. TG [[Drought]]; [[Famine]].
+[^a]: OR famine. [[Drought|TG Drought]]; [[Famine|Famine]].  

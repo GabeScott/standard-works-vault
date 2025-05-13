@@ -5,4 +5,4 @@
 [Matthew 11:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.8?lang=eng#p8)
 
 
-[^a]: TG [[Kings, Earthly]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  

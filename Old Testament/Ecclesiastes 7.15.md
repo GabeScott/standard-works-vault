@@ -5,5 +5,5 @@
 [Ecclesiastes 7:15](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.15?lang=eng#p15)
 
 
-[^a]: TG [[Vanity]].
-[^b]: [[Ecclesiastes 8.14|Eccl. 8:14.]]
+[^a]: [[Vanity|TG Vanity]].  
+[^b]: [[Ecclesiastes 8.14|Eccl. 8:14]].  

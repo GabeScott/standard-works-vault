@@ -5,4 +5,4 @@
 [Helaman 4:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p13#p13)
 
 
-[^a]: [[Ezekiel 35.13|Ezek. 35:13]]. TG [[Boast, Boasting]]; [[Trust Not in the Arm of Flesh]].
+[^a]: [[Ezekiel 35.13|Ezek. 35:13]]. [[Boast, Boasting|TG Boast]]; [[Trust Not in the Arm of Flesh|Trust Not in the Arm of Flesh]].  

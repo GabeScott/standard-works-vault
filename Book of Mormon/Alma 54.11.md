@@ -5,4 +5,4 @@
 [Alma 54:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/54?lang=eng&id=p11#p11)
 
 
-[^a]: [[John 8.44|John 8:44 (43-44).]]
+[^a]: [[John 8.43|John 8:44 (43–44)]][[John 8.44|]].  

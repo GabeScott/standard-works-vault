@@ -5,4 +5,4 @@
 [2 Nephi 15:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Bribe, Bribery]].
+[^a]: [[Bribe, Bribery|TG Bribe]].  

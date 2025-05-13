@@ -5,5 +5,5 @@
 [Alma 12:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p8#p8)
 
 
-[^a]: Dan. 12:2.
-[^b]: TG [[Judgment, the Last]].
+[^a]: [[Daniel 12.2|Dan. 12:2]].  
+[^b]: [[Judgment, the Last|TG Judgment, the Last]].  

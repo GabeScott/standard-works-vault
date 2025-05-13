@@ -5,4 +5,4 @@
 [Isaiah 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/17.13?lang=eng#p13)
 
 
-[^a]: [[Psalms 83.13|Ps. 83:13.]]
+[^a]: [[Psalms 83.13|Ps. 83:13]].  

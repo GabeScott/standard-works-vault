@@ -5,4 +5,4 @@
 [Ezekiel 31:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/31.9?lang=eng#p9)
 
 
-[^a]: [[Ezekiel 28.13|Ezek. 28:13.]]
+[^a]: [[Ezekiel 28.13|Ezek. 28:13]].  

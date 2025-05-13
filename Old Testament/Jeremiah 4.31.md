@@ -5,4 +5,4 @@
 [Jeremiah 4:31](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.31?lang=eng#p31)
 
 
-[^a]: Lam. 1:17.
+[^a]: [[Lamentations 1.17|Lam. 1:17]].  

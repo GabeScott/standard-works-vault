@@ -5,9 +5,9 @@
 [Psalms 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/23.4?lang=eng#p4)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: [[Psalms 138.7|Ps. 138:7]]; [[D&C 127.2|D&C 127:2 (1-2).]]
-[^c]: [[Job 3.5|Job 3:5.]]
-[^d]: TG [[Death]].
-[^e]: TG [[Evil]].
-[^f]: TG [[Holy Ghost, Comforter]].
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Psalms 138.7|Ps. 138:7]]; [[D&C 127.1|D&C 127:2 (1–2)]][[D&C 127.2|]].  
+[^c]: [[Job 3.5|Job 3:5]].  
+[^d]: [[Death|TG Death]].  
+[^e]: [[Evil|TG Evil]].  
+[^f]: [[Comfort|TG Comfort]].  

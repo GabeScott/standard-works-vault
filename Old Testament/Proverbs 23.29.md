@@ -5,4 +5,4 @@
 [Proverbs 23:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.29?lang=eng#p29)
 
 
-[^a]: TG [[Contention]].
+[^a]: [[Contention|TG Contention]].  

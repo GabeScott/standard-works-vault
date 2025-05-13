@@ -5,4 +5,4 @@
 [Proverbs 18:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.17?lang=eng#p17)
 
 
-[^a]: [[Mark 9.35|Mark 9:35.]]
+[^a]: [[Mark 9.35|Mark 9:35]].  

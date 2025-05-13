@@ -5,4 +5,4 @@
 [Luke 6:41](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.41?lang=eng#p41)
 
 
-[^a]: GR chip, splinter.
+[^a]: GR chip, splinter.  

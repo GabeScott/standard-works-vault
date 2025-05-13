@@ -5,5 +5,5 @@
 [Romans 12:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.11?lang=eng#p11)
 
 
-[^a]: GR haste, diligence.
-[^b]: TG [[Zeal, Zealous]].
+[^a]: GR haste, diligence.  
+[^b]: [[Zeal, Zealous|TG Zeal]].  

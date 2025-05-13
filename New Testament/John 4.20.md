@@ -5,4 +5,4 @@
 [John 4:20](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.20?lang=eng#p20)
 
 
-[^a]: [[Deuteronomy 11.29|Deut. 11:29.]]
+[^a]: [[Deuteronomy 11.29|Deut. 11:29]].  

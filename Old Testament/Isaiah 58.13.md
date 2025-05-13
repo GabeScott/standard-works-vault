@@ -5,4 +5,4 @@
 [Isaiah 58:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.13?lang=eng#p13)
 
 
-[^a]: TG [[Sabbath]].
+[^a]: [[Sabbath|TG Sabbath]].  

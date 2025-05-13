@@ -5,5 +5,5 @@
 [Moses 2:31](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.31?lang=eng#p31)
 
 
-[^a]: [[Genesis 1.31|Gen. 1:31]]; [[Moroni 7.12|Moro. 7:12]]; [[D&C 59.17|D&C 59:17 (16-20).]]
-[^b]: [[Exodus 20.11|Ex. 20:11 (8-11)]]; [[Exodus 31.17|31:17]]; [[Mosiah 13.19|Mosiah 13:19]]; [[Abraham 4.31|Abr. 4:31.]]
+[^a]: [[Genesis 1.31|Gen. 1:31]]; [[Moroni 7.12|Moro. 7:12]]; [[D&C 59.16|D&C 59:17 (16–20)]][[D&C 59.17|]][[D&C 59.18|]][[D&C 59.19|]][[D&C 59.20|]].  
+[^b]: [[Exodus 20.8|Ex. 20:11 (8–11)]][[Exodus 20.9|]][[Exodus 20.10|]][[Exodus 20.11|]]; [[Exodus 31.17|31:17]]; [[Mosiah 13.19|Mosiah 13:19]]; [[Abraham 4.31|Abr. 4:31]].  

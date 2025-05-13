@@ -5,6 +5,6 @@
 [1 Timothy 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.4?lang=eng#p4)
 
 
-[^a]: GR creation.
-[^b]: [[Genesis 1.31|Gen. 1:31.]]
-[^c]: TG [[Thanksgiving]].
+[^a]: GR creation.  
+[^b]: [[Genesis 1.31|Gen. 1:31]].  
+[^c]: [[Thanksgiving|TG Thanksgiving]].  

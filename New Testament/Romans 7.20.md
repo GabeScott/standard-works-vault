@@ -5,4 +5,4 @@
 [Romans 7:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.20?lang=eng#p20)
 
 
-[^a]: GR what I do not intend, choose.
+[^a]: GR what I do not intend, choose.  

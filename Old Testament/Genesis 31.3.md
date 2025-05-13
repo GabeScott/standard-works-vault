@@ -5,5 +5,5 @@
 [Genesis 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 32.9|Gen. 32:9.]]
-[^b]: [[Genesis 26.24|Gen. 26:24.]]
+[^a]: [[Genesis 32.9|Gen. 32:9]].  
+[^b]: [[Genesis 26.24|Gen. 26:24]].  

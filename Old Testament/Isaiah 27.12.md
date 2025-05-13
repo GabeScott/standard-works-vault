@@ -5,6 +5,6 @@
 [Isaiah 27:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/27.12?lang=eng#p12)
 
 
-[^a]: IE harvest, or glean.
-[^b]: IE from Mesopotamia.
-[^c]: TG [[Israel, Gathering of]].
+[^a]: IE harvest, or glean.  
+[^b]: IE from Mesopotamia.  
+[^c]: [[Israel, Gathering of|TG Israel, Gathering of]].  

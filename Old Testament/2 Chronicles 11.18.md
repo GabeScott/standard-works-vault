@@ -5,4 +5,4 @@
 [2 Chronicles 11:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/11.18?lang=eng#p18)
 
 
-[^a]: [[1 Samuel 16.6|1 Sam. 16:6.]]
+[^a]: [[1 Samuel 16.6|1 Sam. 16:6]].  

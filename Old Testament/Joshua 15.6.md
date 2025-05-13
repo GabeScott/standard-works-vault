@@ -5,4 +5,4 @@
 [Joshua 15:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.6?lang=eng#p6)
 
 
-[^a]: HEB thumb rock; apparently a landmark. Josh. 18:17.
+[^a]: HEB thumb rock; apparently a landmark. [[Joshua 18.17|Josh. 18:17]].  

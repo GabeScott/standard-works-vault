@@ -5,4 +5,4 @@
 [2 Kings 9:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/9.27?lang=eng#p27)
 
 
-[^a]: [[2 Chronicles 22.9|2 Chr. 22:9.]]
+[^a]: [[2 Chronicles 22.9|2 Chr. 22:9]].  

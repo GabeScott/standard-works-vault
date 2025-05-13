@@ -5,4 +5,4 @@
 [Alma 4:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Stumblingblock]].
+[^a]: [[Stumblingblock|TG Stumblingblock]].  

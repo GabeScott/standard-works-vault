@@ -5,5 +5,5 @@
 [Numbers 16:22](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.22?lang=eng#p22)
 
 
-[^a]: TG [[God the Father, Elohim]].
-[^b]: TG [[Man, Antemortal Existence of]]; [[Man, a Spirit Child of Heavenly Father]]; [[Spirit Body]]; [[Spirit Creation]].
+[^a]: [[God the Father, Elohim|TG God the Father, Elohim]].  
+[^b]: [[Man, Antemortal Existence of|TG Man, Antemortal Existence of]]; [[Man, a Spirit Child of Heavenly Father|Man, a Spirit Child of Heavenly Father]]; [[Spirit Body|Spirit Body]]; [[Spirit Creation|Spirit Creation]].  

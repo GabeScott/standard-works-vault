@@ -5,4 +5,4 @@
 [Luke 2:36](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.36?lang=eng#p36)
 
 
-[^a]: TG [[Woman, Women]].
+[^a]: [[Woman, Women|TG Woman]].  

@@ -5,4 +5,4 @@
 [Psalms 105:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.39?lang=eng#p39)
 
 
-[^a]: [[Exodus 13.21|Ex. 13:21]]; [[Psalms 99.7|Ps. 99:7.]]
+[^a]: [[Exodus 13.21|Ex. 13:21]]; [[Psalms 99.7|Ps. 99:7]].  

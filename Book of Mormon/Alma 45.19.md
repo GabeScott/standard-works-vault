@@ -5,5 +5,5 @@
 [Alma 45:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p19#p19)
 
 
-[^a]: [[2 Kings 2.16|2 Kgs. 2:16.]]
-[^b]: [[Deuteronomy 34.6|Deut. 34:6 (5-6)]]. TG [[Translated Beings]].
+[^a]: [[2 Kings 2.16|2 Kgs. 2:16]].  
+[^b]: [[Deuteronomy 34.5|Deut. 34:6 (5–6)]][[Deuteronomy 34.6|]]. [[Translated Beings|TG Translated Beings]].  

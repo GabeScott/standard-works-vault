@@ -5,4 +5,4 @@
 [Helaman 3:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 22.27|Alma 22:27 (27, 32-33)]]; [[Helaman 11.20|Hel. 11:20.]]
+[^a]: [[Alma 22.27|Alma 22:27 (27, 32–33)]][[Alma 22.32|]][[Alma 22.33|]]; [[Helaman 11.20|Hel. 11:20]].  

@@ -5,8 +5,8 @@
 [Revelation 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.10?lang=eng#p10)
 
 
-[^a]: TG [[Suffering]].
-[^b]: TG [[Testament]].
-[^c]: [[D&C 6.13|D&C 6:13]]; [[D&C 31.13|31:13]]. TG [[Martyrdom]].
-[^d]: TG [[God, Gifts of]].
-[^e]: [[D&C 20.14|D&C 20:14]]. TG [[Reward]].
+[^a]: [[Suffering|TG Suffering]].  
+[^b]: [[Test, Try, Prove|TG Test]].  
+[^c]: [[D&C 6.13|D&C 6:13]]; [[D&C 31.13|31:13]]. [[Martyrdom|TG Martyrdom]].  
+[^d]: [[God, Gifts of|TG God, Gifts of]].  
+[^e]: [[D&C 20.14|D&C 20:14]]. [[Reward|TG Reward]].  

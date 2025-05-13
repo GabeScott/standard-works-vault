@@ -5,6 +5,6 @@
 [Romans 8:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.1?lang=eng#p1)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: TG [[Trust Not in the Arm of Flesh]].
-[^c]: [[Alma 13.12|Alma 13:12 (12, 28)]]; [[D&C 11.12|D&C 11:12 (12-13).]]
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  
+[^c]: [[Alma 13.12|Alma 13:12 (12, 28)]][[Alma 13.28|]]; [[D&C 11.12|D&C 11:12 (12–13)]][[D&C 11.13|]].  

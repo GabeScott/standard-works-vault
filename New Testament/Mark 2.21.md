@@ -5,4 +5,4 @@
 [Mark 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/2.21?lang=eng#p21)
 
 
-[^a]: GR unshrunken or unsized.
+[^a]: GR unshrunken or unsized.  

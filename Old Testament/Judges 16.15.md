@@ -5,4 +5,4 @@
 [Judges 16:15](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16.15?lang=eng#p15)
 
 
-[^a]: [[Judges 14.16|Judg. 14:16.]]
+[^a]: [[Judges 14.16|Judg. 14:16]].  

@@ -5,4 +5,4 @@
 [Jeremiah 33:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/33.13?lang=eng#p13)
 
 
-[^a]: HEB counts.
+[^a]: HEB counts.  

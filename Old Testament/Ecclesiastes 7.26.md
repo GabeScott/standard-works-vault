@@ -5,7 +5,7 @@
 [Ecclesiastes 7:26](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.26?lang=eng#p26)
 
 
-[^a]: [[Proverbs 5.4|Prov. 5:4.]]
-[^b]: TG [[Woman, Women]].
-[^c]: [[1 Nephi 22.15|1 Ne. 22:15 (15-17).]]
-[^d]: [[Proverbs 2.19|Prov. 2:19.]]
+[^a]: [[Proverbs 5.4|Prov. 5:4]].  
+[^b]: [[Woman, Women|TG Woman]].  
+[^c]: [[1 Nephi 22.15|1 Ne. 22:15 (15–17)]][[1 Nephi 22.16|]][[1 Nephi 22.17|]].  
+[^d]: [[Proverbs 2.19|Prov. 2:19]].  

@@ -5,5 +5,5 @@
 [Romans 14:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.20?lang=eng#p20)
 
 
-[^a]: GR Because of food.
-[^b]: TG [[God, Works of]].
+[^a]: GR Because of food.  
+[^b]: [[God, Works of|TG God, Works of]].  

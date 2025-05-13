@@ -5,4 +5,4 @@
 [Jeremiah 14:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.21?lang=eng#p21)
 
 
-[^a]: [[Psalms 106.45|Ps. 106:45.]]
+[^a]: [[Psalms 106.45|Ps. 106:45]].  

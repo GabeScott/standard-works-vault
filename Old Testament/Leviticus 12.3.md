@@ -5,4 +5,4 @@
 [Leviticus 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/12.3?lang=eng#p3)
 
 
-[^a]: TG [[Circumcision]].
+[^a]: [[Circumcision|TG Circumcision]].  

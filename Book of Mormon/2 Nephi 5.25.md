@@ -5,4 +5,4 @@
 [2 Nephi 5:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p25#p25)
 
 
-[^a]: [[1 Nephi 2.24|1 Ne. 2:24.]]
+[^a]: [[1 Nephi 2.24|1 Ne. 2:24]].  

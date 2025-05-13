@@ -5,5 +5,5 @@
 [Acts 2:30](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.30?lang=eng#p30)
 
 
-[^a]: TG [[Oath]].
-[^b]: TG [[Jesus Christ, Davidic Descent of]].
+[^a]: [[Oath|TG Oath]].  
+[^b]: [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  

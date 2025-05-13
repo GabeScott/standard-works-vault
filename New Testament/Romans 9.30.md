@@ -5,4 +5,4 @@
 [Romans 9:30](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.30?lang=eng#p30)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Righteousness|TG Righteousness]].  

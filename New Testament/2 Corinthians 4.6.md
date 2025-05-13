@@ -5,7 +5,7 @@
 [2 Corinthians 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/4.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 33.9|Ps. 33:9]]; [[Moses 2.5|Moses 2:5 (4-5).]]
-[^b]: [[D&C 45.9|D&C 45:9.]]
-[^c]: TG [[Intelligence]]; [[Light of Christ]].
-[^d]: TG [[God, Glory of]]; [[Jesus Christ, Relationships with the Father]].
+[^a]: [[Psalms 33.9|Ps. 33:9]]; [[Moses 2.4|Moses 2:5 (4–5)]][[Moses 2.5|]].  
+[^b]: [[D&C 45.9|D&C 45:9]].  
+[^c]: [[Intelligence|TG Intelligence]]; [[Light of Christ|Light of Christ]].  
+[^d]: [[God, Glory of|TG God, Glory of]]; [[Jesus Christ, Relationships with the Father|Jesus Christ, Relationships with the Father]].  

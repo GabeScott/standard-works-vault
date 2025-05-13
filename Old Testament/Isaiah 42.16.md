@@ -5,4 +5,4 @@
 [Isaiah 42:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.16?lang=eng#p16)
 
 
-[^a]: [[2 Nephi 3.5|2 Ne. 3:5.]]
+[^a]: [[2 Nephi 3.5|2 Ne. 3:5]].  

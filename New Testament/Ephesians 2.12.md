@@ -5,7 +5,7 @@
 [Ephesians 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Stranger]].
-[^b]: TG [[Covenants]].
-[^c]: 1 Thes. 4:13.
-[^d]: 1 Thes. 4:5; [[Mosiah 27.31|Mosiah 27:31]]; [[Alma 41.11|Alma 41:11.]]
+[^a]: [[Stranger|TG Stranger]].  
+[^b]: [[Covenants|TG Covenants]].  
+[^c]: [[1 Thessalonians 4.13|1 Thes. 4:13]].  
+[^d]: [[1 Thessalonians 4.5|1 Thes. 4:5]]; [[Mosiah 27.31|Mosiah 27:31]]; [[Alma 41.11|Alma 41:11]].  

@@ -5,4 +5,4 @@
 [2 Nephi 4:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p11#p11)
 
 
-[^a]: [[Jacob 1.14|Jacob 1:14 (12-14).]]
+[^a]: [[Jacob 1.12|Jacob 1:14 (12–14)]][[Jacob 1.13|]][[Jacob 1.14|]].  

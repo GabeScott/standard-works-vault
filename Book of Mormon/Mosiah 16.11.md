@@ -5,6 +5,6 @@
 [Mosiah 16:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/16?lang=eng&id=p11#p11)
 
 
-[^a]: Dan. 12:2 (2-3); [[John 5.29|John 5:29 (28-29).]]
-[^b]: TG [[Happiness, Happy]].
-[^c]: [[Alma 9.11|Alma 9:11]]. TG [[Damnation, Damned]].
+[^a]: [[Daniel 12.2|Dan. 12:2 (2–3)]][[Daniel 12.3|]]; [[John 5.28|John 5:29 (28–29)]][[John 5.29|]].  
+[^b]: [[Happiness, Happy|TG Happiness]].  
+[^c]: [[Alma 9.11|Alma 9:11]]. [[Damnation, Damned|TG Damnation]].  

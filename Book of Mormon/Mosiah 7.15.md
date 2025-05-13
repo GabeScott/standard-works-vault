@@ -5,6 +5,6 @@
 [Mosiah 7:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p15#p15)
 
 
-[^a]: [[Mosiah 19.15|Mosiah 19:15.]]
-[^b]: TG [[Bondage, Physical]].
-[^c]: TG [[Slavery, Slave]].
+[^a]: [[Mosiah 19.15|Mosiah 19:15]].  
+[^b]: [[Bondage, Physical|TG Bondage, Physical]].  
+[^c]: [[Slavery, Slave|TG Slavery]].  

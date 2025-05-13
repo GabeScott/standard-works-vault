@@ -5,5 +5,5 @@
 [3 Nephi 21:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p5#p5)
 
 
-[^a]: [[3 Nephi 26.8|3 Ne. 26:8.]]
-[^b]: [[2 Nephi 30.5|2 Ne. 30:5]]; [[Mormon 5.15|Morm. 5:15]]; [[D&C 3.18|D&C 3:18.]]
+[^a]: [[3 Nephi 26.8|3 Ne. 26:8]].  
+[^b]: [[2 Nephi 30.5|2 Ne. 30:5]]; [[Mormon 5.15|Morm. 5:15]]; [[D&C 3.18|D&C 3:18]].  

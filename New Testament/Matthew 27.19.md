@@ -5,4 +5,4 @@
 [Matthew 27:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.19?lang=eng#p19)
 
 
-[^a]: TG [[Dream]].
+[^a]: [[Dream|TG Dream]].  

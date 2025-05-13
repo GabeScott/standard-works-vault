@@ -5,4 +5,4 @@
 [Isaiah 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.6?lang=eng#p6)
 
 
-[^a]: [[2 Nephi 13.6|2 Ne. 13:6.]]
+[^a]: [[2 Nephi 13.6|2 Ne. 13:6]].  

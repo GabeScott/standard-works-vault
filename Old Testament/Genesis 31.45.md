@@ -5,4 +5,4 @@
 [Genesis 31:45](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.45?lang=eng#p45)
 
 
-[^a]: [[Exodus 24.4|Ex. 24:4.]]
+[^a]: [[Exodus 24.4|Ex. 24:4]].  

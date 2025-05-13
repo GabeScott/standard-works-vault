@@ -5,5 +5,5 @@
 [1 Samuel 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.6?lang=eng#p6)
 
 
-[^a]: TG [[Holy Ghost, Gifts of]].
-[^b]: 2 Pet. 1:4.
+[^a]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  
+[^b]: [[2 Peter 1.4|2 Pet. 1:4]].  

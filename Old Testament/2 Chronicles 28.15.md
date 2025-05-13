@@ -5,4 +5,4 @@
 [2 Chronicles 28:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.15?lang=eng#p15)
 
 
-[^a]: [[Proverbs 25.21|Prov. 25:21 (21-22).]]
+[^a]: [[Proverbs 25.21|Prov. 25:21 (21–22)]][[Proverbs 25.22|]].  

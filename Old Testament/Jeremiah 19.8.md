@@ -5,5 +5,5 @@
 [Jeremiah 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/19.8?lang=eng#p8)
 
 
-[^a]: [[Jeremiah 18.16|Jer. 18:16.]]
-[^b]: TG [[Plague]].
+[^a]: [[Jeremiah 18.16|Jer. 18:16]].  
+[^b]: [[Plague|TG Plague]].  

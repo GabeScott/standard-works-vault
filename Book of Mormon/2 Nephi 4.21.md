@@ -5,5 +5,5 @@
 [2 Nephi 4:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[God, Love of]].
-[^b]: [[D&C 84.33|D&C 84:33.]]
+[^a]: [[God, Love of|TG God, Love of]].  
+[^b]: [[D&C 84.33|D&C 84:33]].  

@@ -5,5 +5,5 @@
 [Leviticus 26:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.4?lang=eng#p4)
 
 
-[^a]: TG [[God, Gifts of]].
-[^b]: [[Deuteronomy 28.12|Deut. 28:12]]; [[Jeremiah 3.3|Jer. 3:3]]; [[Joel 2.23|Joel 2:23]]; [[Acts 14.17|Acts 14:17]]; [[2 Nephi 15.6|2 Ne. 15:6.]]
+[^a]: [[God, Gifts of|TG God, Gifts of]].  
+[^b]: [[Deuteronomy 28.12|Deut. 28:12]]; [[Jeremiah 3.3|Jer. 3:3]]; [[Joel 2.23|Joel 2:23]]; [[Acts 14.17|Acts 14:17]]; [[2 Nephi 15.6|2 Ne. 15:6]].  

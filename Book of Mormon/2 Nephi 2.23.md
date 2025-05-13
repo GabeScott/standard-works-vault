@@ -5,6 +5,6 @@
 [2 Nephi 2:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p23#p23)
 
 
-[^a]: [[Genesis 3.16|Gen. 3:16]]; [[Moses 5.11|Moses 5:11]]. TG [[Family]]; [[Marriage, Motherhood]].
-[^b]: TG [[Joy]].
-[^c]: TG [[Sin]].
+[^a]: [[Genesis 3.16|Gen. 3:16]]; [[Moses 5.11|Moses 5:11]]. [[Family|TG Family]]; [[Marriage, Motherhood|Marriage, Motherhood]].  
+[^b]: [[Joy|TG Joy]].  
+[^c]: [[Sin|TG Sin]].  

@@ -5,4 +5,4 @@
 [Ephesians 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.19?lang=eng#p19)
 
 
-[^a]: TG [[God, Love of]].
+[^a]: [[God, Love of|TG God, Love of]].  

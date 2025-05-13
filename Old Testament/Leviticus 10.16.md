@@ -5,5 +5,5 @@
 [Leviticus 10:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.16?lang=eng#p16)
 
 
-[^a]: HEB demanded the goat.
-[^b]: [[Leviticus 9.3|Lev. 9:3 (3, 15).]]
+[^a]: HEB demanded the goat.  
+[^b]: [[Leviticus 9.3|Lev. 9:3 (3, 15)]][[Leviticus 9.15|]].  

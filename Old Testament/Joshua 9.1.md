@@ -5,4 +5,4 @@
 [Joshua 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.1?lang=eng#p1)
 
 
-[^a]: [[Numbers 34.6|Num. 34:6.]]
+[^a]: [[Numbers 34.6|Num. 34:6]].  

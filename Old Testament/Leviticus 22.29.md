@@ -5,4 +5,4 @@
 [Leviticus 22:29](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.29?lang=eng#p29)
 
 
-[^a]: TG [[Thanksgiving]].
+[^a]: [[Thanksgiving|TG Thanksgiving]].  

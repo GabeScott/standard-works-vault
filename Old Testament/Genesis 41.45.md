@@ -5,5 +5,5 @@
 [Genesis 41:45](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.45?lang=eng#p45)
 
 
-[^a]: [[Genesis 46.20|Gen. 46:20 (19-20).]]
-[^b]: [[Genesis 47.22|Gen. 47:22.]]
+[^a]: [[Genesis 46.19|Gen. 46:20 (19–20)]][[Genesis 46.20|]].  
+[^b]: [[Genesis 47.22|Gen. 47:22]].  

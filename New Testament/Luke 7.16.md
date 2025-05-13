@@ -5,5 +5,5 @@
 [Luke 7:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.16?lang=eng#p16)
 
 
-[^a]: [[Alma 19.25|Alma 19:25 (24-27)]]; [[Moses 6.39|Moses 6:39 (37-40).]]
-[^b]: [[Exodus 3.16|Ex. 3:16]]; [[Luke 1.68|Luke 1:68]]; [[D&C 110.7|D&C 110:7.]]
+[^a]: [[Alma 19.24|Alma 19:25 (24–27)]][[Alma 19.25|]][[Alma 19.26|]][[Alma 19.27|]]; [[Moses 6.37|Moses 6:39 (37–40)]][[Moses 6.38|]][[Moses 6.39|]][[Moses 6.40|]].  
+[^b]: [[Exodus 3.16|Ex. 3:16]]; [[Luke 1.68|Luke 1:68]]; [[D&C 110.7|D&C 110:7]].  

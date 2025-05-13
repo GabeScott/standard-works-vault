@@ -5,5 +5,5 @@
 [Joshua 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.4?lang=eng#p4)
 
 
-[^a]: OR craftily, with cunning.
-[^b]: Other Hebrew texts: made ready provisions. (See v. 12.)
+[^a]: OR craftily, with cunning.  
+[^b]: Other Hebrew texts: made ready provisions. (See [[Joshua 9.12|v. 12]].)  

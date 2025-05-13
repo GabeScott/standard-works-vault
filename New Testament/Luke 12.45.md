@@ -5,4 +5,4 @@
 [Luke 12:45](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.45?lang=eng#p45)
 
 
-[^a]: GR maidservants.
+[^a]: GR maidservants.  

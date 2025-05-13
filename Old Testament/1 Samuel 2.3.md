@@ -5,5 +5,5 @@
 [1 Samuel 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.3?lang=eng#p3)
 
 
-[^a]: TG [[God, Intelligence of]]; [[God, Omniscience of]]; [[Intelligence]]; [[Knowledge]].
-[^b]: [[3 Nephi 27.15|3 Ne. 27:15 (11-15).]]
+[^a]: [[God, Intelligence of|TG God, Intelligence of]]; [[God, Omniscience of|God, Omniscience of]]; [[Intelligence|Intelligence]]; [[Knowledge|Knowledge]].  
+[^b]: [[3 Nephi 27.11|3 Ne. 27:15 (11–15)]][[3 Nephi 27.12|]][[3 Nephi 27.13|]][[3 Nephi 27.14|]][[3 Nephi 27.15|]].  

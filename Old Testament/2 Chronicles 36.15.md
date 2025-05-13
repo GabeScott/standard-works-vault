@@ -5,6 +5,6 @@
 [2 Chronicles 36:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.15?lang=eng#p15)
 
 
-[^a]: [[Jeremiah 44.4|Jer. 44:4 (4-5)]]; [[D&C 133.71|D&C 133:71.]]
-[^b]: [[1 Nephi 1.4|1 Ne. 1:4 (4, 18)]]. TG [[Prophets, Mission of]].
-[^c]: HEB early, promptly.
+[^a]: [[Jeremiah 44.4|Jer. 44:4 (4–5)]][[Jeremiah 44.5|]]; [[D&C 133.71|D&C 133:71]].  
+[^b]: [[1 Nephi 1.4|1 Ne. 1:4 (4, 18)]][[1 Nephi 1.18|]]. [[Prophets, Mission of|TG Prophets, Mission of]].  
+[^c]: HEB early, promptly.  

@@ -5,4 +5,4 @@
 [Mark 2:23](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/2.23?lang=eng#p23)
 
 
-[^a]: GR occasionally picking some grain.
+[^a]: GR occasionally picking some grain.  

@@ -5,4 +5,4 @@
 [John 13:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.13?lang=eng#p13)
 
 
-[^a]: GR Teacher.
+[^a]: GR Teacher.  

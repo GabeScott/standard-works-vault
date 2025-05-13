@@ -5,7 +5,7 @@
 [Alma 40:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p21#p21)
 
 
-[^a]: [[Luke 23.43|Luke 23:43 (39-43).]]
-[^b]: TG [[Paradise, Paradisiacal]].
-[^c]: TG [[Spirits in Prison]].
-[^d]: [[Alma 42.23|Alma 42:23.]]
+[^a]: [[Luke 23.39|Luke 23:43 (39–43)]][[Luke 23.40|]][[Luke 23.41|]][[Luke 23.42|]][[Luke 23.43|]].  
+[^b]: [[Paradise, Paradisiacal|TG Paradise]].  
+[^c]: [[Spirits in Prison|TG Spirits in Prison]].  
+[^d]: [[Alma 42.23|Alma 42:23]].  

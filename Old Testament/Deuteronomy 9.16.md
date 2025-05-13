@@ -5,5 +5,5 @@
 [Deuteronomy 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 32.19|Ex. 32:19 (19-20).]]
-[^b]: [[Exodus 20.23|Ex. 20:23]]; [[Exodus 32.8|32:8]]; [[Nehemiah 9.18|Neh. 9:18.]]
+[^a]: [[Exodus 32.19|Ex. 32:19 (19–20)]][[Exodus 32.20|]].  
+[^b]: [[Exodus 20.23|Ex. 20:23]]; [[Exodus 32.8|32:8]]; [[Nehemiah 9.18|Neh. 9:18]].  

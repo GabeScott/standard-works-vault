@@ -5,5 +5,5 @@
 [Alma 19:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p36#p36)
 
 
-[^a]: TG [[God, Spirit of]].
-[^b]: [[2 Nephi 26.33|2 Ne. 26:33]]; [[Alma 5.33|Alma 5:33]]; [[3 Nephi 18.25|3 Ne. 18:25.]]
+[^a]: [[God, Spirit of|TG God, Spirit of]].  
+[^b]: [[2 Nephi 26.33|2 Ne. 26:33]]; [[Alma 5.33|Alma 5:33]]; [[3 Nephi 18.25|3 Ne. 18:25]].  

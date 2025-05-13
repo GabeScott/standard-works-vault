@@ -5,5 +5,5 @@
 [Deuteronomy 18:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.4?lang=eng#p4)
 
 
-[^a]: [[Numbers 18.12|Num. 18:12.]]
-[^b]: HEB grain.
+[^a]: [[Numbers 18.12|Num. 18:12]].  
+[^b]: HEB grain.  

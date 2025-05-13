@@ -5,4 +5,4 @@
 [Mark 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.1?lang=eng#p1)
 
 
-[^a]: TG [[Gospel]].
+[^a]: [[Gospel|TG Gospel]].  

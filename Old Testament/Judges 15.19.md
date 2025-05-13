@@ -5,5 +5,5 @@
 [Judges 15:19](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/15.19?lang=eng#p19)
 
 
-[^a]: OR But God opened up the basin that was at Lehi.
-[^b]: IE The spring of him who calls.
+[^a]: OR But God opened up the basin that was at Lehi.  
+[^b]: IE The spring of him who calls.  

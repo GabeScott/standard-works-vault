@@ -5,4 +5,4 @@
 [Genesis 20:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.16?lang=eng#p16)
 
 
-[^a]: [[Genesis 20.5|Gen. 20:5.]]
+[^a]: [[Genesis 20.5|Gen. 20:5]].  

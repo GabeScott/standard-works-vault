@@ -5,5 +5,5 @@
 [Micah 6:11](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.11?lang=eng#p11)
 
 
-[^a]: [[Exodus 34.7|Ex. 34:7.]]
-[^b]: [[Hosea 12.7|Hosea 12:7.]]
+[^a]: [[Exodus 34.7|Ex. 34:7]].  
+[^b]: [[Hosea 12.7|Hosea 12:7]].  

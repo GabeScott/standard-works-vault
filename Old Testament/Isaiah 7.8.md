@@ -5,5 +5,5 @@
 [Isaiah 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 17.1|Isa. 17:1 (1, 3).]]
-[^b]: TG [[Israel, Joseph, People of]]; [[Israel, Ten Lost Tribes of]].
+[^a]: [[Isaiah 17.1|Isa. 17:1 (1, 3)]][[Isaiah 17.3|]].  
+[^b]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]]; [[Israel, Ten Lost Tribes of|Israel, Ten Lost Tribes of]].  

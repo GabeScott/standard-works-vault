@@ -5,5 +5,5 @@
 [Zephaniah 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.4?lang=eng#p4)
 
 
-[^a]: [[2 Nephi 19.21|2 Ne. 19:21.]]
-[^b]: OR idolatrous priests.
+[^a]: [[2 Nephi 19.21|2 Ne. 19:21]].  
+[^b]: OR idolatrous priests.  

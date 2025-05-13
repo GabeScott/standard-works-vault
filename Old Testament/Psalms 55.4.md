@@ -5,4 +5,4 @@
 [Psalms 55:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/55.4?lang=eng#p4)
 
 
-[^a]: TG [[Pain]].
+[^a]: [[Pain|TG Pain]].  

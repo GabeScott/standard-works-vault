@@ -5,5 +5,5 @@
 [Matthew 18:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.4?lang=eng#p4)
 
 
-[^a]: TG [[Humility, Humble]]; [[Meek, Meekness]].
-[^b]: TG [[Children]].
+[^a]: [[Humility, Humble|TG Humility]]; [[Meek, Meekness|Meek]].  
+[^b]: [[Children|TG Children]].  

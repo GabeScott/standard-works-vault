@@ -5,5 +5,5 @@
 [Psalms 27:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/27.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 31.20|Ps. 31:20.]]
-[^b]: [[Psalms 40.2|Ps. 40:2.]]
+[^a]: [[Psalms 31.20|Ps. 31:20]].  
+[^b]: [[Psalms 40.2|Ps. 40:2]].  

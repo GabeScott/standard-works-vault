@@ -5,5 +5,5 @@
 [John 8:31](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.31?lang=eng#p31)
 
 
-[^a]: TG [[Commitment]]; [[Perseverance]]; [[Steadfastness, Steadfast]].
-[^b]: [[Matthew 27.57|Matt. 27:57.]]
+[^a]: [[Commitment|TG Commitment]]; [[Perseverance|Perseverance]]; [[Steadfastness, Steadfast|Steadfastness]].  
+[^b]: [[Matthew 27.57|Matt. 27:57]].  

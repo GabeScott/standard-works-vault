@@ -5,5 +5,5 @@
 [Alma 37:47](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p47#p47)
 
 
-[^a]: TG [[Scriptures, Preservation of]].
-[^b]: [[Amos 5.6|Amos 5:6]]; [[Ether 12.41|Ether 12:41.]]
+[^a]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  
+[^b]: [[Amos 5.6|Amos 5:6]]; [[Ether 12.41|Ether 12:41]].  

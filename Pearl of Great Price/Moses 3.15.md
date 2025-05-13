@@ -5,4 +5,4 @@
 [Moses 3:15](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.15?lang=eng#p15)
 
 
-[^a]: TG [[Eden]].
+[^a]: [[Eden|TG Eden]].  

@@ -5,5 +5,5 @@
 [Alma 5:50](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p50#p50)
 
 
-[^a]: [[Psalms 24.8|Ps. 24:8]]; [[Psalms 72.19|72:19]]. TG [[Jesus Christ, Glory of]].
-[^b]: [[Psalms 74.12|Ps. 74:12]]; [[Psalms 149.2|149:2]]; [[Matthew 2.2|Matt. 2:2]]; [[Luke 23.2|Luke 23:2]]; [[2 Nephi 10.14|2 Ne. 10:14]]; [[D&C 38.21|D&C 38:21 (21-22)]]; [[D&C 128.22|128:22 (22-23)]]; [[Moses 7.53|Moses 7:53]]. TG [[Jesus Christ, King]]; [[Kingdom of God, on Earth]].
+[^a]: [[Psalms 24.8|Ps. 24:8]]; [[Psalms 72.19|72:19]]. [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  
+[^b]: [[Psalms 74.12|Ps. 74:12]]; [[Psalms 149.2|149:2]]; [[Matthew 2.2|Matt. 2:2]]; [[Luke 23.2|Luke 23:2]]; [[2 Nephi 10.14|2 Ne. 10:14]]; [[D&C 38.21|D&C 38:21 (21–22)]][[D&C 38.22|]]; [[D&C 128.22|128:22 (22–23)]][[D&C 128.23|]]; [[Moses 7.53|Moses 7:53]]. [[Jesus Christ, King|TG Jesus Christ, King]]; [[Kingdom of God, on Earth|Kingdom of God, on Earth]].  

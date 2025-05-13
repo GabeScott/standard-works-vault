@@ -5,4 +5,4 @@
 [Moroni 2:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/2?lang=eng&id=p3#p3)
 
 
-[^a]: [[Acts 19.6|Acts 19:6.]]
+[^a]: [[Acts 19.6|Acts 19:6]].  

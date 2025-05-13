@@ -5,5 +5,5 @@
 [Judges 6:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.22?lang=eng#p22)
 
 
-[^a]: TG [[Angels]].
-[^b]: [[Numbers 12.8|Num. 12:8.]]
+[^a]: [[Angels|TG Angels]].  
+[^b]: [[Numbers 12.8|Num. 12:8]].  

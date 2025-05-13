@@ -5,4 +5,4 @@
 [Psalms 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/7.14?lang=eng#p14)
 
 
-[^a]: [[Job 15.35|Job 15:35]]; [[Isaiah 59.4|Isa. 59:4.]]
+[^a]: [[Job 15.35|Job 15:35]]; [[Isaiah 59.4|Isa. 59:4]].  

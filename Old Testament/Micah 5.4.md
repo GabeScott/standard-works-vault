@@ -5,5 +5,5 @@
 [Micah 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/5.4?lang=eng#p4)
 
 
-[^a]: IE feed the flock.
-[^b]: TG [[Priesthood, Power of]].
+[^a]: IE feed the flock.  
+[^b]: [[Priesthood, Power of|TG Priesthood, Power of]].  

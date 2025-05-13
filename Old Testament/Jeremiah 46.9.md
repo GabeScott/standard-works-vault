@@ -5,4 +5,4 @@
 [Jeremiah 46:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 66.19|Isa. 66:19]]; [[Ezekiel 27.10|Ezek. 27:10]]; [[Ezekiel 30.5|30:5.]]
+[^a]: [[Isaiah 66.19|Isa. 66:19]]; [[Ezekiel 27.10|Ezek. 27:10]]; [[Ezekiel 30.5|30:5]].  

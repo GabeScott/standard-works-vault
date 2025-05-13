@@ -5,4 +5,4 @@
 [2 Samuel 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/8.16?lang=eng#p16)
 
 
-[^a]: [[2 Samuel 20.23|2 Sam. 20:23 (23-26).]]
+[^a]: [[2 Samuel 20.23|2 Sam. 20:23 (23–26)]][[2 Samuel 20.24|]][[2 Samuel 20.25|]][[2 Samuel 20.26|]].  

@@ -5,5 +5,5 @@
 [Ether 12:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p12#p12)
 
 
-[^a]: [[Luke 16.30|Luke 16:30 (27-31)]]; [[Alma 32.18|Alma 32:18 (17-18)]]; [[Moroni 7.37|Moro. 7:37.]]
-[^b]: [[Psalms 78.41|Ps. 78:41]]; [[Matthew 13.58|Matt. 13:58]]; [[Mormon 9.20|Morm. 9:20.]]
+[^a]: [[Luke 16.27|Luke 16:30 (27–31)]][[Luke 16.28|]][[Luke 16.29|]][[Luke 16.30|]][[Luke 16.31|]]; [[Alma 32.17|Alma 32:18 (17–18)]][[Alma 32.18|]]; [[Moroni 7.37|Moro. 7:37]].  
+[^b]: [[Psalms 78.41|Ps. 78:41]]; [[Matthew 13.58|Matt. 13:58]]; [[Mormon 9.20|Morm. 9:20]].  

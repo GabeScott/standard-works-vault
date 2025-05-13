@@ -5,6 +5,6 @@
 [Isaiah 5:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.23?lang=eng#p23)
 
 
-[^a]: TG [[Injustice]].
-[^b]: [[Proverbs 17.15|Prov. 17:15.]]
-[^c]: IE deprive him of his legal rights.
+[^a]: [[Injustice|TG Injustice]].  
+[^b]: [[Proverbs 17.15|Prov. 17:15]].  
+[^c]: IE deprive him of his legal rights.  

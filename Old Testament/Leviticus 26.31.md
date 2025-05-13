@@ -5,5 +5,5 @@
 [Leviticus 26:31](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.31?lang=eng#p31)
 
 
-[^a]: [[Ezekiel 5.14|Ezek. 5:14.]]
-[^b]: IE I will not accept your burnt offerings.
+[^a]: [[Ezekiel 5.14|Ezek. 5:14]].  
+[^b]: IE I will not accept your burnt offerings.  

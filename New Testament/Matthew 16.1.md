@@ -5,4 +5,4 @@
 [Matthew 16:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.1?lang=eng#p1)
 
 
-[^a]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Heaven|TG Heaven]].  

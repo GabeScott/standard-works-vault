@@ -5,4 +5,4 @@
 [1 Corinthians 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.17?lang=eng#p17)
 
 
-[^a]: TG [[Wisdom]].
+[^a]: [[Wisdom|TG Wisdom]].  

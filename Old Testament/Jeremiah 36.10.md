@@ -5,4 +5,4 @@
 [Jeremiah 36:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 26.24|Jer. 26:24.]]
+[^a]: [[Jeremiah 26.24|Jer. 26:24]].  

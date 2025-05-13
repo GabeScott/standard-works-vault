@@ -5,4 +5,4 @@
 [Ezekiel 23:40](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.40?lang=eng#p40)
 
 
-[^a]: [[Hosea 2.13|Hosea 2:13.]]
+[^a]: [[Hosea 2.13|Hosea 2:13]].  

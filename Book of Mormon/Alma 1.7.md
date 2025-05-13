@@ -5,5 +5,5 @@
 [Alma 1:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Teacher]].
-[^b]: TG [[Word of God]]; [[Word of the Lord]].
+[^a]: [[Teacher|TG Teacher]].  
+[^b]: [[Word of God|TG Word of God]]; [[Word of the Lord|Word of the Lord]].  

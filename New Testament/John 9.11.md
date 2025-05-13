@@ -5,5 +5,5 @@
 [John 9:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.11?lang=eng#p11)
 
 
-[^a]: [[2 Kings 5.10|2 Kgs. 5:10.]]
-[^b]: TG [[Sight]].
+[^a]: [[2 Kings 5.10|2 Kgs. 5:10]].  
+[^b]: [[Sight|TG Sight]].  

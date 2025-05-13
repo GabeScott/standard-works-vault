@@ -5,4 +5,4 @@
 [Exodus 11:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/11.8?lang=eng#p8)
 
 
-[^a]: TG [[Anger]].
+[^a]: [[Anger|TG Anger]].  

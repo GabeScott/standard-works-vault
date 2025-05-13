@@ -5,6 +5,6 @@
 [1 Corinthians 8:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/8.4?lang=eng#p4)
 
 
-[^a]: JST 1 Cor. 8:4 … which are in the world offered in sacrifice unto idols, we know that an idol is nothing, and …
-[^b]: [[Galatians 4.8|Gal. 4:8]]. TG [[Idolatry, Idol]].
-[^c]: [[1 Corinthians 10.19|1 Cor. 10:19 (19-20).]]
+[^a]: JST 1 Cor. 8:4 … which are in the world offered in sacrifice unto idols, we know that an idol is nothing, and …  
+[^b]: [[Galatians 4.8|Gal. 4:8]]. [[Idolatry, Idol|TG Idolatry]].  
+[^c]: [[1 Corinthians 10.19|1 Cor. 10:19 (19–20)]][[1 Corinthians 10.20|]].  

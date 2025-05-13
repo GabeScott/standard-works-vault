@@ -5,5 +5,5 @@
 [Ecclesiastes 2:24](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.24?lang=eng#p24)
 
 
-[^a]: [[Luke 12.19|Luke 12:19 (19-21).]]
-[^b]: TG [[Labor]].
+[^a]: [[Luke 12.19|Luke 12:19 (19–21)]][[Luke 12.20|]][[Luke 12.21|]].  
+[^b]: [[Labor|TG Labor]].  

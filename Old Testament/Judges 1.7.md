@@ -5,4 +5,4 @@
 [Judges 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/1.7?lang=eng#p7)
 
 
-[^a]: OR Seventy kings.
+[^a]: OR Seventy kings.  

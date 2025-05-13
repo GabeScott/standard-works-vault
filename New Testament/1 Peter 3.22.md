@@ -5,6 +5,6 @@
 [1 Peter 3:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.22?lang=eng#p22)
 
 
-[^a]: [[John 7.34|John 7:34.]]
-[^b]: TG [[Angels]].
-[^c]: Col. 1:16; 2:10. TG [[Authority]].
+[^a]: [[John 7.34|John 7:34]].  
+[^b]: [[Angels|TG Angels]].  
+[^c]: [[Colossians 1.16|Col. 1:16]]; [[Colossians 2.10|2:10]]. [[Authority|TG Authority]].  

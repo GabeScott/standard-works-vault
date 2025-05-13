@@ -5,4 +5,4 @@
 [Joshua 19:50](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/19.50?lang=eng#p50)
 
 
-[^a]: [[Joshua 24.30|Josh. 24:30 (29-30).]]
+[^a]: [[Joshua 24.29|Josh. 24:30 (29–30)]][[Joshua 24.30|]].  

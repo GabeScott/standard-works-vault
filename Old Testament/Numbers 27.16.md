@@ -5,6 +5,6 @@
 [Numbers 27:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/27.16?lang=eng#p16)
 
 
-[^a]: TG [[God the Father, Elohim]].
-[^b]: TG [[Man, Antemortal Existence of]]; [[Spirit Body]].
-[^c]: A of F 1:5.
+[^a]: [[God the Father, Elohim|TG God the Father, Elohim]].  
+[^b]: [[Man, Antemortal Existence of|TG Man, Antemortal Existence of]]; [[Spirit Body|Spirit Body]].  
+[^c]: [[Articles of Faith 1.5|A of F 1:5]].  

@@ -5,4 +5,4 @@
 [Numbers 28:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.18?lang=eng#p18)
 
 
-[^a]: OR a sacred meeting (also vv. 25, 26).
+[^a]: OR a sacred meeting (also [[Numbers 28.25|vv. 25, 26]][[Numbers 28.26|]]).  

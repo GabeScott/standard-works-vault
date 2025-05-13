@@ -5,5 +5,5 @@
 [Isaiah 59:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.12?lang=eng#p12)
 
 
-[^a]: [[Alma 5.23|Alma 5:23 (22-23).]]
-[^b]: [[2 Nephi 9.14|2 Ne. 9:14.]]
+[^a]: [[Alma 5.22|Alma 5:23 (22–23)]][[Alma 5.23|]].  
+[^b]: [[2 Nephi 9.14|2 Ne. 9:14]].  

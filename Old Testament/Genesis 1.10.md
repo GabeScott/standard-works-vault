@@ -5,4 +5,4 @@
 [Genesis 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.10?lang=eng#p10)
 
 
-[^a]: [[Moses 1.29|Moses 1:29.]]
+[^a]: [[Moses 1.29|Moses 1:29]].  

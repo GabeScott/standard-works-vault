@@ -5,4 +5,4 @@
 [Luke 9:59](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.59?lang=eng#p59)
 
 
-[^a]: [[2 Nephi 31.12|2 Ne. 31:12 (12-13)]]. TG [[Called of God]].
+[^a]: [[2 Nephi 31.12|2 Ne. 31:12 (12–13)]][[2 Nephi 31.13|]]. [[Called of God|TG Called of God]].  

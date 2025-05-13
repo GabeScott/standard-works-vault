@@ -5,5 +5,5 @@
 [Mosiah 27:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p37#p37)
 
 
-[^a]: [[Mosiah 12.21|Mosiah 12:21]]; [[Mosiah 15.14|15:14 (14-17).]]
-[^b]: TG [[Peace of God]].
+[^a]: [[Mosiah 12.21|Mosiah 12:21]]; [[Mosiah 15.14|15:14 (14–17)]][[Mosiah 15.15|]][[Mosiah 15.16|]][[Mosiah 15.17|]].  
+[^b]: [[Peace of God|TG Peace of God]].  

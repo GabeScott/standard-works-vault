@@ -5,5 +5,5 @@
 [Ezekiel 38:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 28.2|Isa. 28:2.]]
-[^b]: [[Jeremiah 4.13|Jer. 4:13.]]
+[^a]: [[Isaiah 28.2|Isa. 28:2]].  
+[^b]: [[Jeremiah 4.13|Jer. 4:13]].  

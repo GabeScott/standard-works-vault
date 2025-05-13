@@ -5,4 +5,4 @@
 [2 Samuel 20:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/20.14?lang=eng#p14)
 
 
-[^a]: [[Alma 46.21|Alma 46:21 (19-21).]]
+[^a]: [[Alma 46.19|Alma 46:21 (19–21)]][[Alma 46.20|]][[Alma 46.21|]].  

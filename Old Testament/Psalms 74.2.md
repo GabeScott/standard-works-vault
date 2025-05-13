@@ -5,4 +5,4 @@
 [Psalms 74:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 15.16|Ex. 15:16.]]
+[^a]: [[Exodus 15.16|Ex. 15:16]].  

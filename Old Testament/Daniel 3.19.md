@@ -5,4 +5,4 @@
 [Daniel 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/3.19?lang=eng#p19)
 
 
-[^a]: OR expression of his countenance.
+[^a]: OR expression of his countenance.  

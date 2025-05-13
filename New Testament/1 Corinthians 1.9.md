@@ -5,4 +5,4 @@
 [1 Corinthians 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.9?lang=eng#p9)
 
 
-[^a]: TG [[Fellowshipping]].
+[^a]: [[Fellowshipping|TG Fellowshipping]].  

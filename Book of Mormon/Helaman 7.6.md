@@ -5,4 +5,4 @@
 [Helaman 7:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p6#p6)
 
 
-[^a]: IE six years; see Hel. 4:26; 6:6, 32; 11:26.
+[^a]: IE six years; see [[Helaman 4.26|Hel. 4:26]]; [[Helaman 6.6|6:6, 32]][[Helaman 6.32|]]; [[Helaman 11.26|11:26]].  

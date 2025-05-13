@@ -5,5 +5,5 @@
 [Ephesians 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.20?lang=eng#p20)
 
 
-[^a]: [[Acts 2.32|Acts 2:32]]; [[1 Corinthians 15.20|1 Cor. 15:20 (14-20).]]
-[^b]: [[Hebrews 7.26|Heb. 7:26.]]
+[^a]: [[Acts 2.32|Acts 2:32]]; [[1 Corinthians 15.14|1 Cor. 15:20 (14–20)]][[1 Corinthians 15.15|]][[1 Corinthians 15.16|]][[1 Corinthians 15.17|]][[1 Corinthians 15.18|]][[1 Corinthians 15.19|]][[1 Corinthians 15.20|]].  
+[^b]: [[Hebrews 7.26|Heb. 7:26]].  

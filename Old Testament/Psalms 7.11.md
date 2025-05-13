@@ -5,4 +5,4 @@
 [Psalms 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/7.11?lang=eng#p11)
 
 
-[^a]: TG [[God, Indignation of]].
+[^a]: [[God, Indignation of|TG God, Indignation of]].  

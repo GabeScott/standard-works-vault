@@ -5,4 +5,4 @@
 [Ezra 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/1.9?lang=eng#p9)
 
 
-[^a]: OR basins.
+[^a]: OR basins.  

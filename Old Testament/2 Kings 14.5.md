@@ -5,4 +5,4 @@
 [2 Kings 14:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/14.5?lang=eng#p5)
 
 
-[^a]: [[2 Kings 12.20|2 Kgs. 12:20.]]
+[^a]: [[2 Kings 12.20|2 Kgs. 12:20]].  

@@ -5,5 +5,5 @@
 [Mosiah 10:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p16#p16)
 
 
-[^a]: [[2 Nephi 5.12|2 Ne. 5:12]]; [[Mosiah 28.11|Mosiah 28:11.]]
-[^b]: [[Alma 20.10|Alma 20:10 (10, 13).]]
+[^a]: [[2 Nephi 5.12|2 Ne. 5:12]]; [[Mosiah 28.11|Mosiah 28:11]].  
+[^b]: [[Alma 20.10|Alma 20:10 (10, 13)]][[Alma 20.13|]].  

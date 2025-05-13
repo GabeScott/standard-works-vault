@@ -5,5 +5,5 @@
 [Leviticus 7:33](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.33?lang=eng#p33)
 
 
-[^a]: [[1 Samuel 2.14|1 Sam. 2:14.]]
-[^b]: HEB as a present.
+[^a]: [[1 Samuel 2.14|1 Sam. 2:14]].  
+[^b]: HEB as a present.  

@@ -5,5 +5,5 @@
 [2 Nephi 26:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p28#p28)
 
 
-[^a]: [[Romans 2.11|Rom. 2:11]]; [[Alma 13.5|Alma 13:5.]]
-[^b]: [[1 Nephi 17.35|1 Ne. 17:35 (33-35).]]
+[^a]: [[Romans 2.11|Rom. 2:11]]; [[Alma 13.5|Alma 13:5]].  
+[^b]: [[1 Nephi 17.33|1 Ne. 17:35 (33–35)]][[1 Nephi 17.34|]][[1 Nephi 17.35|]].  

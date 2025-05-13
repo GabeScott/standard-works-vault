@@ -5,4 +5,4 @@
 [1 Samuel 30:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/30.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 56.3|Ps. 56:3 (3-4).]]
+[^a]: [[Psalms 56.3|Ps. 56:3 (3–4)]][[Psalms 56.4|]].  

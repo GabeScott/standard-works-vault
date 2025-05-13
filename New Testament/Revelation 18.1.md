@@ -5,4 +5,4 @@
 [Revelation 18:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 43.2|Ezek. 43:2.]]
+[^a]: [[Ezekiel 43.2|Ezek. 43:2]].  

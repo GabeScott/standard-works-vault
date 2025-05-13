@@ -5,4 +5,4 @@
 [2 Kings 18:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/18.11?lang=eng#p11)
 
 
-[^a]: TG [[Israel, Ten Lost Tribes of]].
+[^a]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  

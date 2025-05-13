@@ -5,5 +5,5 @@
 [1 Kings 21:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/21.27?lang=eng#p27)
 
 
-[^a]: [[2 Kings 6.30|2 Kgs. 6:30.]]
-[^b]: OR dejectedly.
+[^a]: [[2 Kings 6.30|2 Kgs. 6:30]].  
+[^b]: OR dejectedly.  

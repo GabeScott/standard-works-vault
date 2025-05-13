@@ -5,5 +5,5 @@
 [Psalms 25:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.2?lang=eng#p2)
 
 
-[^a]: TG [[Faith]]; [[Trust in God]].
-[^b]: TG [[Shame]].
+[^a]: [[Faith|TG Faith]]; [[Trust in God|Trust in God]].  
+[^b]: [[Shame|TG Shame]].  

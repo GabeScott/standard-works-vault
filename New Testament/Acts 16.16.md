@@ -5,4 +5,4 @@
 [Acts 16:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.16?lang=eng#p16)
 
 
-[^a]: TG [[Sorcery]].
+[^a]: [[Sorcery|TG Sorcery]].  

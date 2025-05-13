@@ -5,4 +5,4 @@
 [Helaman 13:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 60.29|Alma 60:29]]; [[3 Nephi 2.19|3 Ne. 2:19.]]
+[^a]: [[Alma 60.29|Alma 60:29]]; [[3 Nephi 2.19|3 Ne. 2:19]].  

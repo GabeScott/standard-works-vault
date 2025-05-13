@@ -5,4 +5,4 @@
 [Micah 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/4.4?lang=eng#p4)
 
 
-[^a]: [[1 Kings 4.25|1 Kgs. 4:25.]]
+[^a]: [[1 Kings 4.25|1 Kgs. 4:25]].  

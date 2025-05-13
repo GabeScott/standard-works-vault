@@ -5,4 +5,4 @@
 [Genesis 16:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.6?lang=eng#p6)
 
 
-[^a]: HEB that which is good in thine eyes.
+[^a]: HEB that which is good in thine eyes.  

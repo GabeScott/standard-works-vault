@@ -5,4 +5,4 @@
 [Ezekiel 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/6.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 141.7|Ps. 141:7.]]
+[^a]: [[Psalms 141.7|Ps. 141:7]].  

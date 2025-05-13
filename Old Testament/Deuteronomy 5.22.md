@@ -5,5 +5,5 @@
 [Deuteronomy 5:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.22?lang=eng#p22)
 
 
-[^a]: TG [[Scriptures, Writing of]].
-[^b]: TG [[Law of Moses]].
+[^a]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  
+[^b]: [[Law of Moses|TG Law of Moses]].  

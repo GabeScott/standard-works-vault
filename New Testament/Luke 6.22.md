@@ -5,7 +5,7 @@
 [Luke 6:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.22?lang=eng#p22)
 
 
-[^a]: [[1 Peter 3.14|1 Pet. 3:14.]]
-[^b]: TG [[Persecution, Persecute]].
-[^c]: TG [[Reproach]].
-[^d]: [[Isaiah 66.5|Isa. 66:5.]]
+[^a]: [[1 Peter 3.14|1 Pet. 3:14]].  
+[^b]: [[Persecution, Persecute|TG Persecution]].  
+[^c]: [[Reproach|TG Reproach]].  
+[^d]: [[Isaiah 66.5|Isa. 66:5]].  

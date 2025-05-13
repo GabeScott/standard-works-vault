@@ -5,5 +5,5 @@
 [1 Corinthians 15:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.1?lang=eng#p1)
 
 
-[^a]: TG [[Missionary Work]].
-[^b]: TG [[Gospel]].
+[^a]: [[Missionary Work|TG Missionary Work]].  
+[^b]: [[Gospel|TG Gospel]].  

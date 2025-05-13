@@ -5,4 +5,4 @@
 [Acts 17:1](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.1?lang=eng#p1)
 
 
-[^a]: 1 Thes. 1:1.
+[^a]: [[1 Thessalonians 1.1|1 Thes. 1:1]].  

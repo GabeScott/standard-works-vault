@@ -5,5 +5,5 @@
 [Deuteronomy 24:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.14?lang=eng#p14)
 
 
-[^a]: [[Proverbs 14.31|Prov. 14:31.]]
-[^b]: IE of the cities, towns.
+[^a]: [[Proverbs 14.31|Prov. 14:31]].  
+[^b]: IE of the cities, towns.  

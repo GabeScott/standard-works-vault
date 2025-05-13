@@ -5,4 +5,4 @@
 [Alma 56:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 53.22|Alma 53:22.]]
+[^a]: [[Alma 53.22|Alma 53:22]].  

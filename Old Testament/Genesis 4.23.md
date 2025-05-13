@@ -5,4 +5,4 @@
 [Genesis 4:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.23?lang=eng#p23)
 
 
-[^a]: TG [[Secret Combinations]].
+[^a]: [[Secret Combinations|TG Secret Combinations]].  

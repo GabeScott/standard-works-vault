@@ -5,4 +5,4 @@
 [Acts 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.21?lang=eng#p21)
 
 
-[^a]: TG [[Jesus Christ, Savior]]; [[Salvation for the Dead]].
+[^a]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]]; [[Salvation|Salvation]].  

@@ -5,6 +5,6 @@
 [Moroni 8:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Holy Ghost, Loss of]].
-[^b]: [[Mormon 5.16|Morm. 5:16]]; [[Moroni 9.4|Moro. 9:4.]]
-[^c]: [[Alma 39.6|Alma 39:6]]. TG [[Holy Ghost, Unpardonable Sin against]].
+[^a]: [[Holy Ghost, Loss of|TG Holy Ghost, Loss of]].  
+[^b]: [[Mormon 5.16|Morm. 5:16]]; [[Moroni 9.4|Moro. 9:4]].  
+[^c]: [[Alma 39.6|Alma 39:6]]. [[Holy Ghost, Unpardonable Sin against|TG Holy Ghost, Unpardonable Sin against]].  

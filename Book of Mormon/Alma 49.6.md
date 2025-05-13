@@ -5,4 +5,4 @@
 [Alma 49:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 46.13|Alma 46:13]]; [[Helaman 1.14|Hel. 1:14.]]
+[^a]: [[Alma 46.13|Alma 46:13]]; [[Helaman 1.14|Hel. 1:14]].  

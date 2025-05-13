@@ -5,4 +5,4 @@
 [1 Samuel 24:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/24.17?lang=eng#p17)
 
 
-[^a]: TG [[Reconciliation, Reconcile]].
+[^a]: [[Reconciliation, Reconcile|TG Reconciliation]].  

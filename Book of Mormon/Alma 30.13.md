@@ -5,5 +5,5 @@
 [Alma 30:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p13#p13)
 
 
-[^a]: [[1 Corinthians 1.25|1 Cor. 1:25 (18-25).]]
-[^b]: [[Jacob 7.7|Jacob 7:7.]]
+[^a]: [[1 Corinthians 1.18|1 Cor. 1:25 (18–25)]][[1 Corinthians 1.19|]][[1 Corinthians 1.20|]][[1 Corinthians 1.21|]][[1 Corinthians 1.22|]][[1 Corinthians 1.23|]][[1 Corinthians 1.24|]][[1 Corinthians 1.25|]].  
+[^b]: [[Jacob 7.7|Jacob 7:7]].  

@@ -5,4 +5,4 @@
 [3 Nephi 12:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p22#p22)
 
 
-[^a]: [[Matthew 5.22|Matt. 5:22.]]
+[^a]: [[Matthew 5.22|Matt. 5:22]].  

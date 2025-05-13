@@ -5,4 +5,4 @@
 [Proverbs 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.14?lang=eng#p14)
 
 
-[^a]: [[Proverbs 10.11|Prov. 10:11]]; [[Moroni 7.11|Moro. 7:11.]]
+[^a]: [[Proverbs 10.11|Prov. 10:11]]; [[Moroni 7.11|Moro. 7:11]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 6:42](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/6.42?lang=eng#p42)
 
 
-[^a]: [[Psalms 132.1|Ps. 132:1.]]
+[^a]: [[Psalms 132.1|Ps. 132:1]].  

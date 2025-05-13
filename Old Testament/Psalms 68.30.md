@@ -5,4 +5,4 @@
 [Psalms 68:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.30?lang=eng#p30)
 
 
-[^a]: HEB beasts that dwell among reeds.
+[^a]: HEB beasts that dwell among reeds.  

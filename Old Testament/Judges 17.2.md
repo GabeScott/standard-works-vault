@@ -5,4 +5,4 @@
 [Judges 17:2](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/17.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 24.31|Gen. 24:31.]]
+[^a]: [[Genesis 24.31|Gen. 24:31]].  

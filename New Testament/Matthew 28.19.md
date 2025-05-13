@@ -5,7 +5,7 @@
 [Matthew 28:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.19?lang=eng#p19)
 
 
-[^a]: GR preach to, make disciples of (meaning “make Christians in all nations”). TG [[Apostles]]; [[Israel, Mission of]]; [[Missionary Work]]; [[Mission of Early Saints]]; [[Mission of Latter-day Saints]]; [[Teaching with the Spirit]].
-[^b]: TG [[Nations]].
-[^c]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential.
-[^d]: TG [[Godhead]].
+[^a]: GR preach to, make disciples of (meaning “make Christians in all nations”). [[Apostles|TG Apostles]]; [[Israel, Mission of|Israel, Mission of]]; [[Missionary Work|Missionary Work]]; [[Mission of Early Saints|Mission of Early Saints]]; [[Mission of Latter-day Saints|Mission of Latter-day Saints]]; [[Teaching, Teach, Taught|Teaching]].  
+[^b]: [[Nations|TG Nations]].  
+[^c]: [[Baptism|TG Baptism]]; [[Baptism, Essential|Baptism, Essential]].  
+[^d]: [[Godhead|TG Godhead]].  

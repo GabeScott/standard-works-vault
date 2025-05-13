@@ -5,4 +5,4 @@
 [Ephesians 6:10](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.10?lang=eng#p10)
 
 
-[^a]: TG [[Strength]].
+[^a]: [[Strength|TG Strength]].  

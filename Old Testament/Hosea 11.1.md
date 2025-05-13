@@ -5,6 +5,6 @@
 [Hosea 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/11.1?lang=eng#p1)
 
 
-[^a]: TG [[God, Love of]].
-[^b]: [[Exodus 4.22|Ex. 4:22 (22-23).]]
-[^c]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[God, Love of|TG God, Love of]].  
+[^b]: [[Exodus 4.22|Ex. 4:22 (22–23)]][[Exodus 4.23|]].  
+[^c]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

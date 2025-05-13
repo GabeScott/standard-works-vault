@@ -5,6 +5,6 @@
 [Exodus 16:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.23?lang=eng#p23)
 
 
-[^a]: TG [[Sabbath]].
-[^b]: [[Exodus 35.3|Ex. 35:3.]]
-[^c]: OR cook what you will cook.
+[^a]: [[Sabbath|TG Sabbath]].  
+[^b]: [[Exodus 35.3|Ex. 35:3]].  
+[^c]: OR cook what you will cook.  

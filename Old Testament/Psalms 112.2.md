@@ -5,4 +5,4 @@
 [Psalms 112:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/112.2?lang=eng#p2)
 
 
-[^a]: [[D&C 104.33|D&C 104:33.]]
+[^a]: [[D&C 104.33|D&C 104:33]].  

@@ -5,4 +5,4 @@
 [Alma 18:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 22.9|Alma 22:9 (9-11).]]
+[^a]: [[Alma 22.9|Alma 22:9 (9–11)]][[Alma 22.10|]][[Alma 22.11|]].  

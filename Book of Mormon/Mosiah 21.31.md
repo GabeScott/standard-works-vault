@@ -5,4 +5,4 @@
 [Mosiah 21:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p31#p31)
 
 
-[^a]: [[Mosiah 18.13|Mosiah 18:13.]]
+[^a]: [[Mosiah 18.13|Mosiah 18:13]].  

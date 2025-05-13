@@ -5,4 +5,4 @@
 [Alma 22:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 19.29|Alma 19:29.]]
+[^a]: [[Alma 19.29|Alma 19:29]].  

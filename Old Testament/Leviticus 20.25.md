@@ -5,6 +5,6 @@
 [Leviticus 20:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.25?lang=eng#p25)
 
 
-[^a]: HEB distinguish between.
-[^b]: HEB distinguished for you as impure.
-[^c]: [[Acts 10.15|Acts 10:15.]]
+[^a]: HEB distinguish between.  
+[^b]: HEB distinguished for you as impure.  
+[^c]: [[Acts 10.15|Acts 10:15]].  

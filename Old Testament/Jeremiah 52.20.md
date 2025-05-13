@@ -5,6 +5,6 @@
 [Jeremiah 52:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.20?lang=eng#p20)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]].
-[^b]: [[1 Kings 7.25|1 Kgs. 7:25.]]
-[^c]: TG [[Genealogy and Temple Work]].
+[^a]: [[Baptism|TG Baptism]].  
+[^b]: [[1 Kings 7.25|1 Kgs. 7:25]].  
+[^c]: [[Temple|TG Temple]].  

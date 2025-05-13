@@ -5,6 +5,6 @@
 [Acts 5:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.32?lang=eng#p32)
 
 
-[^a]: [[Luke 1.2|Luke 1:2]]; [[John 1.14|John 1:14]]; [[Acts 26.16|Acts 26:16]]. TG [[Holy Ghost, Mission of]]; [[Witness, Witnesses]].
-[^b]: TG [[Holy Ghost, Source of Testimony]].
-[^c]: TG [[Holy Ghost, Gift of]].
+[^a]: [[Luke 1.2|Luke 1:2]]; [[John 1.14|John 1:14]]; [[Acts 26.16|Acts 26:16]]. [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]]; [[Witness, Witnesses|Witness]].  
+[^b]: [[Holy Ghost, Source of Testimony|TG Holy Ghost, Source of Testimony]].  
+[^c]: [[Holy Ghost, Gift of|TG Holy Ghost, Gift of]].  

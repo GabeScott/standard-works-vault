@@ -5,4 +5,4 @@
 [Ezekiel 29:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.6?lang=eng#p6)
 
 
-[^a]: [[2 Kings 18.21|2 Kgs. 18:21]]; [[Isaiah 36.6|Isa. 36:6.]]
+[^a]: [[2 Kings 18.21|2 Kgs. 18:21]]; [[Isaiah 36.6|Isa. 36:6]].  

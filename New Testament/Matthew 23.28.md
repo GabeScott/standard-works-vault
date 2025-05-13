@@ -5,5 +5,5 @@
 [Matthew 23:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.28?lang=eng#p28)
 
 
-[^a]: [[D&C 10.37|D&C 10:37.]]
-[^b]: TG [[Guile]].
+[^a]: [[D&C 10.37|D&C 10:37]].  
+[^b]: [[Guile|TG Guile]].  

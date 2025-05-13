@@ -5,4 +5,4 @@
 [Alma 40:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 40.11|Alma 40:11.]]
+[^a]: [[Alma 40.11|Alma 40:11]].  

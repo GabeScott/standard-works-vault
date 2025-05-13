@@ -5,4 +5,4 @@
 [Zechariah 9:14](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/9.14?lang=eng#p14)
 
 
-[^a]: Dan. 11:40.
+[^a]: [[Daniel 11.40|Dan. 11:40]].  

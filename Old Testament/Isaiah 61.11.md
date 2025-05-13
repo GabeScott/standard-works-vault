@@ -5,4 +5,4 @@
 [Isaiah 61:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.11?lang=eng#p11)
 
 
-[^a]: [[Isaiah 60.18|Isa. 60:18 (17-19).]]
+[^a]: [[Isaiah 60.17|Isa. 60:18 (17–19)]][[Isaiah 60.18|]][[Isaiah 60.19|]].  

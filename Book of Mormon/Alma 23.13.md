@@ -5,4 +5,4 @@
 [Alma 23:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/23?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 53.10|Alma 53:10.]]
+[^a]: [[Alma 53.10|Alma 53:10]].  

@@ -5,5 +5,5 @@
 [Proverbs 27:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.1?lang=eng#p1)
 
 
-[^a]: TG [[Boast, Boasting]].
-[^b]: [[James 4.13|James 4:13 (13-14).]]
+[^a]: [[Boast, Boasting|TG Boast]].  
+[^b]: [[James 4.13|James 4:13 (13–14)]][[James 4.14|]].  

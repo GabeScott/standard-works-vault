@@ -5,5 +5,5 @@
 [Isaiah 66:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.4?lang=eng#p4)
 
 
-[^a]: IE The Lord will respond to their evils and punish them.
-[^b]: [[Isaiah 65.12|Isa. 65:12.]]
+[^a]: IE The Lord will respond to their evils and punish them.  
+[^b]: [[Isaiah 65.12|Isa. 65:12]].  

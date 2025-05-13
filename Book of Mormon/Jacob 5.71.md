@@ -5,6 +5,6 @@
 [Jacob 5:71](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p71#p71)
 
 
-[^a]: [[Matthew 21.28|Matt. 21:28]]; [[Jacob 6.2|Jacob 6:2 (2-3)]]; [[D&C 33.3|D&C 33:3 (3-4).]]
-[^b]: [[D&C 39.17|D&C 39:17]]; [[D&C 43.28|43:28 (28-30).]]
-[^c]: TG [[Millennium, Preparing a People for]].
+[^a]: [[Matthew 21.28|Matt. 21:28]]; [[Jacob 6.2|Jacob 6:2 (2–3)]][[Jacob 6.3|]]; [[D&C 33.3|D&C 33:3 (3–4)]][[D&C 33.4|]].  
+[^b]: [[D&C 39.17|D&C 39:17]]; [[D&C 43.28|43:28 (28–30)]][[D&C 43.29|]][[D&C 43.30|]].  
+[^c]: [[Millennium, Preparing a People for|TG Millennium, Preparing a People for]].  

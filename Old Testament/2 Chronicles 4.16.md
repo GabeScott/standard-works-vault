@@ -5,4 +5,4 @@
 [2 Chronicles 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/4.16?lang=eng#p16)
 
 
-[^a]: OR polished bronze.
+[^a]: OR polished bronze.  

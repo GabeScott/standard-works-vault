@@ -5,4 +5,4 @@
 [Helaman 4:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p8#p8)
 
 
-[^a]: [[Helaman 1.15|Hel. 1:15.]]
+[^a]: [[Helaman 1.15|Hel. 1:15]].  

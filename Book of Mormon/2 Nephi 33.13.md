@@ -5,4 +5,4 @@
 [2 Nephi 33:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p13#p13)
 
 
-[^a]: [[Isaiah 29.4|Isa. 29:4]]; [[2 Nephi 27.13|2 Ne. 27:13]]; [[Mormon 8.26|Morm. 8:26.]]
+[^a]: [[Isaiah 29.4|Isa. 29:4]]; [[2 Nephi 27.13|2 Ne. 27:13]]; [[Mormon 8.26|Morm. 8:26]].  

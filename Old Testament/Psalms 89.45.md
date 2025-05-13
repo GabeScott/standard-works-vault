@@ -5,4 +5,4 @@
 [Psalms 89:45](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.45?lang=eng#p45)
 
 
-[^a]: TG [[Shame]].
+[^a]: [[Shame|TG Shame]].  

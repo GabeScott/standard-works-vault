@@ -5,4 +5,4 @@
 [1 Kings 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.7?lang=eng#p7)
 
 
-[^a]: TG [[Cherubim]].
+[^a]: [[Cherubim|TG Cherubim]].  

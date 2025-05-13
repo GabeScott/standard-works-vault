@@ -5,4 +5,4 @@
 [Mark 13:32](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.32?lang=eng#p32)
 
 
-[^a]: TG [[Day of the Lord]].
+[^a]: [[Day of the Lord|TG Day of the Lord]].  

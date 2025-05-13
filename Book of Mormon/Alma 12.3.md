@@ -5,5 +5,5 @@
 [Alma 12:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p3#p3)
 
 
-[^a]: [[Jacob 2.5|Jacob 2:5]]; [[D&C 6.16|D&C 6:16.]]
-[^b]: [[Alma 10.17|Alma 10:17.]]
+[^a]: [[Jacob 2.5|Jacob 2:5]]; [[D&C 6.16|D&C 6:16]].  
+[^b]: [[Alma 10.17|Alma 10:17]].  

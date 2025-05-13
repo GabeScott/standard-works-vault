@@ -5,4 +5,4 @@
 [Matthew 13:38](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.38?lang=eng#p38)
 
 
-[^a]: [[D&C 88.94|D&C 88:94]]. TG [[Devil, Church of]].
+[^a]: [[D&C 88.94|D&C 88:94]]. [[Devil, Church of|TG Devil, Church of]].  

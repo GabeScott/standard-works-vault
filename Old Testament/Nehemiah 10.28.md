@@ -5,6 +5,6 @@
 [Nehemiah 10:28](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.28?lang=eng#p28)
 
 
-[^a]: OR temple servants.
-[^b]: [[Ezra 6.21|Ezra 6:21.]]
-[^c]: [[Mosiah 18.26|Mosiah 18:26.]]
+[^a]: OR temple servants.  
+[^b]: [[Ezra 6.21|Ezra 6:21]].  
+[^c]: [[Mosiah 18.26|Mosiah 18:26]].  

@@ -5,4 +5,4 @@
 [Daniel 7:25](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.25?lang=eng#p25)
 
 
-[^a]: [[Revelation 12.13|Rev. 12:13 (13-17).]]
+[^a]: [[Revelation 12.13|Rev. 12:13 (13–17)]][[Revelation 12.14|]][[Revelation 12.15|]][[Revelation 12.16|]][[Revelation 12.17|]].  

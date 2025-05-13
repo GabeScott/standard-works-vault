@@ -5,4 +5,4 @@
 [Amos 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.14?lang=eng#p14)
 
 
-[^a]: JS—H 1:23 (22-23).
+[^a]: [[Joseph Smith History 1.22|JS—H 1:23 (22–23)]][[Joseph Smith History 1.23|]].  

@@ -5,4 +5,4 @@
 [Hebrews 8:9](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/8.9?lang=eng#p9)
 
 
-[^a]: TG [[Law of Moses]].
+[^a]: [[Law of Moses|TG Law of Moses]].  

@@ -5,7 +5,7 @@
 [John 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.12?lang=eng#p12)
 
 
-[^a]: [[D&C 25.1|D&C 25:1]]. TG [[Teachable]].
-[^b]: GR authority, right, privilege. D&C 11:30. TG [[Jesus Christ, Power of]].
-[^c]: [[D&C 39.4|D&C 39:4 (3-6)]]. TG [[Sons and Daughters of God]].
-[^d]: TG [[Name of the Lord]].
+[^a]: [[D&C 25.1|D&C 25:1]]. [[Teachable|TG Teachable]].  
+[^b]: GR authority, right, privilege. [[D&C 11.30|D&C 11:30]]. [[Jesus Christ, Power of|TG Jesus Christ, Power of]].  
+[^c]: [[D&C 39.3|D&C 39:4 (3–6)]][[D&C 39.4|]][[D&C 39.5|]][[D&C 39.6|]]. [[Sons and Daughters of God|TG Sons and Daughters of God]].  
+[^d]: [[Name|TG Name]].  

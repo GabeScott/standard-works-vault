@@ -5,5 +5,5 @@
 [Proverbs 21:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.17?lang=eng#p17)
 
 
-[^a]: TG [[Pleasure]].
-[^b]: TG [[Treasure]].
+[^a]: [[Pleasure|TG Pleasure]].  
+[^b]: [[Treasure|TG Treasure]].  

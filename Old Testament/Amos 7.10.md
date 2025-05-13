@@ -5,4 +5,4 @@
 [Amos 7:10](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.10?lang=eng#p10)
 
 
-[^a]: [[Amos 1.1|Amos 1:1.]]
+[^a]: [[Amos 1.1|Amos 1:1]].  

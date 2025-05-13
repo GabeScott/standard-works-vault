@@ -5,5 +5,5 @@
 [Exodus 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.16?lang=eng#p16)
 
 
-[^a]: OR serve as.
-[^b]: OR birth-stools.
+[^a]: OR serve as.  
+[^b]: OR birth-stools.  

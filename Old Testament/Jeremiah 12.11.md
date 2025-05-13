@@ -5,4 +5,4 @@
 [Jeremiah 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/12.11?lang=eng#p11)
 
 
-[^a]: IE pays attention.
+[^a]: IE pays attention.  

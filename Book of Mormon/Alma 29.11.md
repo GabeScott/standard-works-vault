@@ -5,4 +5,4 @@
 [Alma 29:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p11#p11)
 
 
-[^a]: [[Exodus 3.6|Ex. 3:6]]; [[Alma 36.2|Alma 36:2.]]
+[^a]: [[Exodus 3.6|Ex. 3:6]]; [[Alma 36.2|Alma 36:2]].  

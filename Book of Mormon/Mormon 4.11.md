@@ -5,4 +5,4 @@
 [Mormon 4:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/4?lang=eng&id=p11#p11)
 
 
-[^a]: [[Moroni 9.5|Moro. 9:5 (5, 23)]]. TG [[Blood, Shedding of]].
+[^a]: [[Moroni 9.5|Moro. 9:5 (5, 23)]][[Moroni 9.23|]]. [[Blood, Shedding of|TG Blood, Shedding of]].  

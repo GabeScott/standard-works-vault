@@ -5,4 +5,4 @@
 [Genesis 38:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/38.8?lang=eng#p8)
 
 
-[^a]: TG [[Widows]].
+[^a]: [[Widows|TG Widows]].  

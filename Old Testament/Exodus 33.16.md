@@ -5,5 +5,5 @@
 [Exodus 33:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.16?lang=eng#p16)
 
 
-[^a]: [[Numbers 14.14|Num. 14:14.]]
-[^b]: OR special, distinctive people. 1 Kgs. 8:53. TG [[Separation, Separate]].
+[^a]: [[Numbers 14.14|Num. 14:14]].  
+[^b]: OR special, distinctive people. [[1 Kings 8.53|1 Kgs. 8:53]]. [[Separation, Separate|TG Separation]].  

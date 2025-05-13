@@ -5,5 +5,5 @@
 [Jeremiah 29:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.8?lang=eng#p8)
 
 
-[^a]: [[Jeremiah 27.9|Jer. 27:9.]]
-[^b]: TG [[Dream]].
+[^a]: [[Jeremiah 27.9|Jer. 27:9]].  
+[^b]: [[Dream|TG Dream]].  

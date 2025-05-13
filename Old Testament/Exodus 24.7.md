@@ -5,6 +5,6 @@
 [Exodus 24:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.7?lang=eng#p7)
 
 
-[^a]: TG [[Scriptures, Lost]].
-[^b]: [[Hebrews 9.19|Heb. 9:19]]; [[Alma 31.5|Alma 31:5.]]
-[^c]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[Scriptures, Lost|TG Scriptures, Lost]].  
+[^b]: [[Hebrews 9.19|Heb. 9:19]]; [[Alma 31.5|Alma 31:5]].  
+[^c]: [[Obedience, Obedient, Obey|TG Obedience]].  

@@ -5,5 +5,5 @@
 [John 21:14](https://www.churchofjesuschrist.org/study/scriptures/nt/john/21.14?lang=eng#p14)
 
 
-[^a]: [[3 Nephi 26.13|3 Ne. 26:13]]; [[3 Nephi 27.2|27:2.]]
-[^b]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^a]: [[3 Nephi 26.13|3 Ne. 26:13]]; [[3 Nephi 27.2|27:2]].  
+[^b]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  

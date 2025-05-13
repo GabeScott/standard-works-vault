@@ -5,6 +5,6 @@
 [Isaiah 35:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/35.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 11.16|Isa. 11:16]]; [[Isaiah 51.10|51:10 (10-11).]]
-[^b]: TG [[Holiness]].
-[^c]: TG [[Chastity, Chaste]].
+[^a]: [[Isaiah 11.16|Isa. 11:16]]; [[Isaiah 51.10|51:10 (10–11)]][[Isaiah 51.11|]].  
+[^b]: [[Holiness|TG Holiness]].  
+[^c]: [[Chastity, Chaste|TG Chastity]].  

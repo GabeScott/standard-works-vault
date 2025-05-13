@@ -5,4 +5,4 @@
 [1 Samuel 15:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 25.18|Gen. 25:18.]]
+[^a]: [[Genesis 25.18|Gen. 25:18]].  

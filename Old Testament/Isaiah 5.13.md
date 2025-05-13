@@ -5,5 +5,5 @@
 [Isaiah 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.13?lang=eng#p13)
 
 
-[^a]: TG [[Bondage, Spiritual]].
-[^b]: TG [[God, Knowledge about]]; [[Knowledge]].
+[^a]: [[Bondage, Spiritual|TG Bondage, Spiritual]].  
+[^b]: [[God, Knowledge about|TG God, Knowledge about]]; [[Knowledge|Knowledge]].  

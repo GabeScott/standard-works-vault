@@ -5,4 +5,4 @@
 [Deuteronomy 15:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.15?lang=eng#p15)
 
 
-[^a]: [[Matthew 7.12|Matt. 7:12.]]
+[^a]: [[Matthew 7.12|Matt. 7:12]].  

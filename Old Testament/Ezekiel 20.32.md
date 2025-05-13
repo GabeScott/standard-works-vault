@@ -5,6 +5,6 @@
 [Ezekiel 20:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.32?lang=eng#p32)
 
 
-[^a]: [[Psalms 94.11|Ps. 94:11]]; [[Ezekiel 11.5|Ezek. 11:5.]]
-[^b]: TG [[Traditions of Men]].
-[^c]: TG [[Idolatry, Idol]].
+[^a]: [[Psalms 94.11|Ps. 94:11]]; [[Ezekiel 11.5|Ezek. 11:5]].  
+[^b]: [[Traditions of Men|TG Traditions of Men]].  
+[^c]: [[Idolatry, Idol|TG Idolatry]].  

@@ -5,7 +5,7 @@
 [Zechariah 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/12.6?lang=eng#p6)
 
 
-[^a]: Obad. 1:18.
-[^b]: OR nations.
-[^c]: TG [[Jerusalem]].
-[^d]: [[D&C 109.64|D&C 109:64 (62-67)]]. TG [[Israel, Gathering of]].
+[^a]: [[Obadiah 1.18|Obad. 1:18]].  
+[^b]: OR nations.  
+[^c]: [[Jerusalem|TG Jerusalem]].  
+[^d]: [[D&C 109.62|D&C 109:64 (62–67)]][[D&C 109.63|]][[D&C 109.64|]][[D&C 109.65|]][[D&C 109.66|]][[D&C 109.67|]]. [[Israel, Gathering of|TG Israel, Gathering of]].  

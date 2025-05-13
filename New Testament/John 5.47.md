@@ -5,4 +5,4 @@
 [John 5:47](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.47?lang=eng#p47)
 
 
-[^a]: TG [[Scriptures, Study of]].
+[^a]: [[Scriptures, Study of|TG Scriptures, Study of]].  

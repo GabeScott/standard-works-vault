@@ -5,4 +5,4 @@
 [Deuteronomy 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.6?lang=eng#p6)
 
 
-[^a]: HEB may buy food.
+[^a]: HEB may buy food.  

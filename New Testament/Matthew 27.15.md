@@ -5,6 +5,6 @@
 [Matthew 27:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.15?lang=eng#p15)
 
 
-[^a]: GR accustomed.
-[^b]: [[Luke 23.17|Luke 23:17.]]
-[^c]: GR desired.
+[^a]: GR accustomed.  
+[^b]: [[Luke 23.17|Luke 23:17]].  
+[^c]: GR desired.  

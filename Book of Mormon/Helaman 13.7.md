@@ -5,6 +5,6 @@
 [Helaman 13:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 13.26|Alma 13:26]]; [[Helaman 14.26|Hel. 14:26 (9, 26, 28).]]
-[^b]: [[Isaiah 52.7|Isa. 52:7.]]
-[^c]: TG [[Prophets, Rejection of]].
+[^a]: [[Alma 13.26|Alma 13:26]]; [[Helaman 14.9|Hel. 14:26 (9, 26, 28)]][[Helaman 14.26|]][[Helaman 14.28|]].  
+[^b]: [[Isaiah 52.7|Isa. 52:7]].  
+[^c]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

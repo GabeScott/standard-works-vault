@@ -5,4 +5,4 @@
 [Matthew 14:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.19?lang=eng#p19)
 
 
-[^a]: [[3 Nephi 18.5|3 Ne. 18:5 (4-5)]]; [[3 Nephi 20.6|20:6 (6-7).]]
+[^a]: [[3 Nephi 18.4|3 Ne. 18:5 (4–5)]][[3 Nephi 18.5|]]; [[3 Nephi 20.6|20:6 (6–7)]][[3 Nephi 20.7|]].  

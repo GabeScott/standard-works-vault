@@ -5,4 +5,4 @@
 [1 Corinthians 16:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.12?lang=eng#p12)
 
 
-[^a]: [[Acts 18.24|Acts 18:24.]]
+[^a]: [[Acts 18.24|Acts 18:24]].  

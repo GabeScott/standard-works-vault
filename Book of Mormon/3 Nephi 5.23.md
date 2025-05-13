@@ -5,5 +5,5 @@
 [3 Nephi 5:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 46.24|Alma 46:24]]; [[3 Nephi 10.17|3 Ne. 10:17.]]
-[^b]: [[2 Nephi 3.12|2 Ne. 3:12]]; [[Mormon 7.5|Morm. 7:5 (5, 10).]]
+[^a]: [[Alma 46.24|Alma 46:24]]; [[3 Nephi 10.17|3 Ne. 10:17]].  
+[^b]: [[2 Nephi 3.12|2 Ne. 3:12]]; [[Mormon 7.5|Morm. 7:5 (5, 10)]][[Mormon 7.10|]].  

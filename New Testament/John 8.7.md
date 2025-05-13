@@ -5,6 +5,6 @@
 [John 8:7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.7?lang=eng#p7)
 
 
-[^a]: [[3 Nephi 14.5|3 Ne. 14:5 (1-5).]]
-[^b]: [[Deuteronomy 17.7|Deut. 17:7.]]
-[^c]: TG [[Gossip]].
+[^a]: [[3 Nephi 14.1|3 Ne. 14:5 (1–5)]][[3 Nephi 14.2|]][[3 Nephi 14.3|]][[3 Nephi 14.4|]][[3 Nephi 14.5|]].  
+[^b]: [[Deuteronomy 17.7|Deut. 17:7]].  
+[^c]: [[Gossip|TG Gossip]].  

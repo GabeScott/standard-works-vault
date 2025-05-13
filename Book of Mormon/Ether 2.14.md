@@ -5,6 +5,6 @@
 [Ether 2:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p14#p14)
 
 
-[^a]: [[Exodus 25.22|Ex. 25:22.]]
-[^b]: [[1 Nephi 16.25|1 Ne. 16:25]]. TG [[Chastening]]; [[Reproof, Reprove]].
-[^c]: TG [[Prayer, Pray]].
+[^a]: [[Exodus 25.22|Ex. 25:22]].  
+[^b]: [[1 Nephi 16.25|1 Ne. 16:25]]. [[Chastening|TG Chastening]]; [[Reproof, Reprove|Reproof]].  
+[^c]: [[Prayer, Pray|TG Prayer]].  

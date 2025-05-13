@@ -5,6 +5,6 @@
 [Matthew 26:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.31?lang=eng#p31)
 
 
-[^a]: TG [[Offense, Offend, Offender]].
-[^b]: GR strike, hit, slay.
-[^c]: [[Zechariah 13.7|Zech. 13:7.]]
+[^a]: [[Offense, Offend, Offender|TG Offense]].  
+[^b]: GR strike, hit, slay.  
+[^c]: [[Zechariah 13.7|Zech. 13:7]].  

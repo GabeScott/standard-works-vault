@@ -5,4 +5,4 @@
 [Luke 11:31](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.31?lang=eng#p31)
 
 
-[^a]: [[1 Kings 10.1|1 Kgs. 10:1.]]
+[^a]: [[1 Kings 10.1|1 Kgs. 10:1]].  

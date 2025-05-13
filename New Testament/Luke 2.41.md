@@ -5,4 +5,4 @@
 [Luke 2:41](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.41?lang=eng#p41)
 
 
-[^a]: [[Deuteronomy 16.1|Deut. 16:1.]]
+[^a]: [[Deuteronomy 16.1|Deut. 16:1]].  

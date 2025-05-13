@@ -5,4 +5,4 @@
 [Alma 12:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 14.2|Alma 14:2.]]
+[^a]: [[Alma 14.2|Alma 14:2]].  

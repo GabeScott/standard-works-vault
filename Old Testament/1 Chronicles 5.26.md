@@ -5,5 +5,5 @@
 [1 Chronicles 5:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/5.26?lang=eng#p26)
 
 
-[^a]: [[2 Kings 15.29|2 Kgs. 15:29.]]
-[^b]: [[Genesis 49.19|Gen. 49:19.]]
+[^a]: [[2 Kings 15.29|2 Kgs. 15:29]].  
+[^b]: [[Genesis 49.19|Gen. 49:19]].  

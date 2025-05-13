@@ -5,6 +5,6 @@
 [Revelation 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/4.4?lang=eng#p4)
 
 
-[^a]: JST Rev. 4:4 And in the midst of the throne …
-[^b]: GR thrones.
-[^c]: [[D&C 77.5|D&C 77:5.]]
+[^a]: JST Rev. 4:4 And in the midst of the throne …  
+[^b]: GR thrones.  
+[^c]: [[D&C 77.5|D&C 77:5]].  

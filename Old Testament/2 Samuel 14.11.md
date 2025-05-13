@@ -5,4 +5,4 @@
 [2 Samuel 14:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/14.11?lang=eng#p11)
 
 
-[^a]: [[Numbers 35.19|Num. 35:19 (19, 21).]]
+[^a]: [[Numbers 35.19|Num. 35:19 (19, 21)]][[Numbers 35.21|]].  

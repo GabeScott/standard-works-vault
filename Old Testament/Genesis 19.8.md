@@ -5,6 +5,6 @@
 [Genesis 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.8?lang=eng#p8)
 
 
-[^a]: JST Gen. 19:9-15 (Appendix).
-[^b]: [[Judges 19.24|Judg. 19:24 (24-27).]]
-[^c]: [[Genesis 18.5|Gen. 18:5.]]
+[^a]: [[JST Genesis 19.9|JST Gen. 19:9–15 (Appendix)]][[JST Genesis 19.10|]][[JST Genesis 19.11|]][[JST Genesis 19.12|]][[JST Genesis 19.13|]][[JST Genesis 19.14|]][[JST Genesis 19.15|]].  
+[^b]: [[Judges 19.24|Judg. 19:24 (24–27)]][[Judges 19.25|]][[Judges 19.26|]][[Judges 19.27|]].  
+[^c]: [[Genesis 18.5|Gen. 18:5]].  

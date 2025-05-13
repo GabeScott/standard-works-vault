@@ -5,4 +5,4 @@
 [Isaiah 65:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.24?lang=eng#p24)
 
 
-[^a]: [[Alma 9.26|Alma 9:26.]]
+[^a]: [[Alma 9.26|Alma 9:26]].  

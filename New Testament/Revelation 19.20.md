@@ -5,8 +5,8 @@
 [Revelation 19:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.20?lang=eng#p20)
 
 
-[^a]: TG [[Antichrist]]; [[False Prophets]].
-[^b]: TG [[Miracle]].
-[^c]: [[Revelation 13.14|Rev. 13:14 (11-18).]]
-[^d]: [[Matthew 8.12|Matt. 8:12]]; [[Matthew 13.42|13:42]]; [[D&C 112.24|D&C 112:24]]. TG [[Hell]].
-[^e]: Dan. 7:11.
+[^a]: [[Antichrist|TG Antichrist]]; [[False Prophets|False Prophets]].  
+[^b]: [[Miracle|TG Miracle]].  
+[^c]: [[Revelation 13.11|Rev. 13:14 (11–18)]][[Revelation 13.12|]][[Revelation 13.13|]][[Revelation 13.14|]][[Revelation 13.15|]][[Revelation 13.16|]][[Revelation 13.17|]][[Revelation 13.18|]].  
+[^d]: [[Matthew 8.12|Matt. 8:12]]; [[Matthew 13.42|13:42]]; [[D&C 112.24|D&C 112:24]]. [[Hell|TG Hell]].  
+[^e]: [[Daniel 7.11|Dan. 7:11]].  

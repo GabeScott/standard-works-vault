@@ -5,6 +5,6 @@
 [2 Peter 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.6?lang=eng#p6)
 
 
-[^a]: GR self-control. TG [[Temperance, Temperate]].
-[^b]: TG [[Patience, Patient, Patiently]].
-[^c]: GR reverence, piety, godliness.
+[^a]: GR self-control. [[Temperance, Temperate|TG Temperance]].  
+[^b]: [[Patience, Patient, Patiently|TG Patience]].  
+[^c]: GR reverence, piety, godliness.  

@@ -5,6 +5,6 @@
 [2 Nephi 4:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Family, Patriarchal]]; [[Patriarchal Blessings]].
-[^b]: TG [[Family, Children, Responsibilities toward]].
-[^c]: [[Proverbs 22.6|Prov. 22:6.]]
+[^a]: [[Family, Patriarchal|TG Family, Patriarchal]]; [[Patriarchal Blessings|Patriarchal Blessings]].  
+[^b]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  
+[^c]: [[Proverbs 22.6|Prov. 22:6]].  

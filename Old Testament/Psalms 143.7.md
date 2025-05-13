@@ -5,4 +5,4 @@
 [Psalms 143:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/143.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 28.1|Ps. 28:1]]; [[Psalms 88.4|88:4.]]
+[^a]: [[Psalms 28.1|Ps. 28:1]]; [[Psalms 88.4|88:4]].  

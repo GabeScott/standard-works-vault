@@ -5,4 +5,4 @@
 [Acts 26:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.13?lang=eng#p13)
 
 
-[^a]: JS—H 1:16.
+[^a]: [[Joseph Smith History 1.16|JS—H 1:16]].  

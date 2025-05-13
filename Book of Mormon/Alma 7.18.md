@@ -5,4 +5,4 @@
 [Alma 7:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p18#p18)
 
 
-[^a]: [[James 1.8|James 1:8.]]
+[^a]: [[James 1.8|James 1:8]].  

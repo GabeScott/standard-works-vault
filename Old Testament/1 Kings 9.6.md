@@ -5,4 +5,4 @@
 [1 Kings 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.6?lang=eng#p6)
 
 
-[^a]: [[1 Kings 11.10|1 Kgs. 11:10.]]
+[^a]: [[1 Kings 11.10|1 Kgs. 11:10]].  

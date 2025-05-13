@@ -5,4 +5,4 @@
 [Job 29:3](https://www.churchofjesuschrist.org/study/scriptures/ot/job/29.3?lang=eng#p3)
 
 
-[^a]: OR lamp.
+[^a]: OR lamp.  

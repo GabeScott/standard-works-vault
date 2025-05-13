@@ -5,4 +5,4 @@
 [Psalms 68:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.6?lang=eng#p6)
 
 
-[^a]: TG [[Rebellion, Rebel]].
+[^a]: [[Rebellion, Rebel|TG Rebellion]].  

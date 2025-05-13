@@ -5,4 +5,4 @@
 [Jeremiah 50:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.12?lang=eng#p12)
 
 
-[^a]: OR last.
+[^a]: OR last.  

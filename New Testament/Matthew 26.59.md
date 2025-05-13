@@ -5,5 +5,5 @@
 [Matthew 26:59](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.59?lang=eng#p59)
 
 
-[^a]: TG [[Slander]].
-[^b]: GR so that they might put Him to death.
+[^a]: [[Slander|TG Slander]].  
+[^b]: GR so that they might put Him to death.  

@@ -5,4 +5,4 @@
 [2 Chronicles 18:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/18.1?lang=eng#p1)
 
 
-[^a]: IE allied himself by marriage.
+[^a]: IE allied himself by marriage.  

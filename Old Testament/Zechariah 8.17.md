@@ -5,4 +5,4 @@
 [Zechariah 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.17?lang=eng#p17)
 
 
-[^a]: TG [[Lying, Liar, Lie]].
+[^a]: [[Lying, Liar, Lie|TG Lying]].  

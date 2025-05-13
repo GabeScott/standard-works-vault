@@ -5,4 +5,4 @@
 [1 Nephi 15:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p8#p8)
 
 
-[^a]: [[2 Nephi 1.25|2 Ne. 1:25 (24-27)]]; [[Mosiah 10.14|Mosiah 10:14]]. TG [[Problem-Solving]].
+[^a]: [[2 Nephi 1.24|2 Ne. 1:25 (24–27)]][[2 Nephi 1.25|]][[2 Nephi 1.26|]][[2 Nephi 1.27|]]; [[Mosiah 10.14|Mosiah 10:14]]. [[Problem-Solving|TG Problem-Solving]].  

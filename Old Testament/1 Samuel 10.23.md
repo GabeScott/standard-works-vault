@@ -5,4 +5,4 @@
 [1 Samuel 10:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.23?lang=eng#p23)
 
 
-[^a]: [[1 Samuel 9.2|1 Sam. 9:2.]]
+[^a]: [[1 Samuel 9.2|1 Sam. 9:2]].  

@@ -5,6 +5,6 @@
 [3 Nephi 15:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/15?lang=eng&id=p1#p1)
 
 
-[^a]: IE in Galilee and Judea.
-[^b]: [[James 1.22|James 1:22 (22-24).]]
-[^c]: [[John 6.39|John 6:39]]; [[1 Nephi 13.37|1 Ne. 13:37]]; [[Mosiah 23.22|Mosiah 23:22]]; [[Alma 26.7|Alma 26:7]]; [[D&C 5.35|D&C 5:35.]]
+[^a]: IE in Galilee and Judea.  
+[^b]: [[James 1.22|James 1:22 (22–24)]][[James 1.23|]][[James 1.24|]].  
+[^c]: [[John 6.39|John 6:39]]; [[1 Nephi 13.37|1 Ne. 13:37]]; [[Mosiah 23.22|Mosiah 23:22]]; [[Alma 26.7|Alma 26:7]]; [[D&C 5.35|D&C 5:35]].  

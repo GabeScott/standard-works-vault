@@ -5,4 +5,4 @@
 [Leviticus 13:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.21?lang=eng#p21)
 
 
-[^a]: HEB and there is no depression in the skin.
+[^a]: HEB and there is no depression in the skin.  

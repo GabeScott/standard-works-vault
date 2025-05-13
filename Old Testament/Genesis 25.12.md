@@ -5,6 +5,6 @@
 [Genesis 25:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.12?lang=eng#p12)
 
 
-[^a]: TG [[Seed of Abraham]].
-[^b]: D&C 132:34, 65.
-[^c]: [[Genesis 16.15|Gen. 16:15.]]
+[^a]: [[Seed of Abraham|TG Seed of Abraham]].  
+[^b]: [[D&C 132.34|D&C 132:34, 65]][[D&C 132.65|]].  
+[^c]: [[Genesis 16.15|Gen. 16:15]].  

@@ -5,4 +5,4 @@
 [1 Kings 12:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.22?lang=eng#p22)
 
 
-[^a]: [[2 Chronicles 12.15|2 Chr. 12:15 (5, 7, 15).]]
+[^a]: [[2 Chronicles 12.5|2 Chr. 12:15 (5, 7, 15)]][[2 Chronicles 12.7|]][[2 Chronicles 12.15|]].  

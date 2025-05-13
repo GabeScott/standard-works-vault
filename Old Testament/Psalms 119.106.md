@@ -5,4 +5,4 @@
 [Psalms 119:106](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.106?lang=eng#p106)
 
 
-[^a]: [[Nehemiah 10.29|Neh. 10:29.]]
+[^a]: [[Nehemiah 10.29|Neh. 10:29]].  

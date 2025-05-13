@@ -5,6 +5,6 @@
 [Luke 4:40](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.40?lang=eng#p40)
 
 
-[^a]: OR various.
-[^b]: TG [[Hands, Laying on of]].
-[^c]: TG [[Administrations to the Sick]].
+[^a]: OR various.  
+[^b]: [[Hands, Laying on of|TG Hands, Laying on of]].  
+[^c]: [[Administrations to the Sick|TG Administrations to the Sick]].  

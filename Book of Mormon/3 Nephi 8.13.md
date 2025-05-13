@@ -5,4 +5,4 @@
 [3 Nephi 8:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/8?lang=eng&id=p13#p13)
 
 
-[^a]: [[Helaman 14.24|Hel. 14:24]]; [[3 Nephi 6.8|3 Ne. 6:8.]]
+[^a]: [[Helaman 14.24|Hel. 14:24]]; [[3 Nephi 6.8|3 Ne. 6:8]].  

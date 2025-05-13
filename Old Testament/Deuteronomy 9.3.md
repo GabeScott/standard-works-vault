@@ -5,5 +5,5 @@
 [Deuteronomy 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.3?lang=eng#p3)
 
 
-[^a]: [[Judges 4.14|Judg. 4:14.]]
-[^b]: HEB subdue them before you.
+[^a]: [[Judges 4.14|Judg. 4:14]].  
+[^b]: HEB subdue them before you.  

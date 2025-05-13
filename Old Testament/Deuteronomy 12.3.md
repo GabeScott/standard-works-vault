@@ -5,5 +5,5 @@
 [Deuteronomy 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 34.13|Ex. 34:13.]]
-[^b]: HEB asherim; i.e., idols, fertility goddesses.
+[^a]: [[Exodus 34.13|Ex. 34:13]].  
+[^b]: HEB asherim; i.e., idols, fertility goddesses.  

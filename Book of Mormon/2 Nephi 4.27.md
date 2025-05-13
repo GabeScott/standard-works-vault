@@ -5,7 +5,7 @@
 [2 Nephi 4:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p27#p27)
 
 
-[^a]: [[Romans 6.13|Rom. 6:13 (10-16).]]
-[^b]: TG [[Temptation]].
-[^c]: TG [[Contentment]]; [[Peace of God]]; [[Peace of God]] of God.
-[^d]: TG [[Self-Mastery]].
+[^a]: [[Romans 6.10|Rom. 6:13 (10–16)]][[Romans 6.11|]][[Romans 6.12|]][[Romans 6.13|]][[Romans 6.14|]][[Romans 6.15|]][[Romans 6.16|]].  
+[^b]: [[Temptation|TG Temptation]].  
+[^c]: [[Contentment|TG Contentment]]; [[Peace|Peace]]; [[Peace of God|Peace of God]].  
+[^d]: [[Self-Mastery|TG Self-Mastery]].  

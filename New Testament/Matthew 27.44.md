@@ -5,4 +5,4 @@
 [Matthew 27:44](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.44?lang=eng#p44)
 
 
-[^a]: GR insulted, reproached Him.
+[^a]: GR insulted, reproached Him.  

@@ -5,5 +5,5 @@
 [Hebrews 13:21](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.21?lang=eng#p21)
 
 
-[^a]: TG [[Good Works]].
-[^b]: TG [[God, Will of]].
+[^a]: [[Good Works|TG Good Works]].  
+[^b]: [[God, Will of|TG God, Will of]].  

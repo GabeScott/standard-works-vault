@@ -5,6 +5,6 @@
 [3 Nephi 12:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p33#p33)
 
 
-[^a]: TG [[Swearing, Swear, Sware, Sworn]].
-[^b]: TG [[Dependability]].
-[^c]: TG [[Oath]].
+[^a]: [[Swearing, Swear, Sware, Sworn|TG Swearing]].  
+[^b]: [[Dependability|TG Dependability]].  
+[^c]: [[Oath|TG Oath]].  

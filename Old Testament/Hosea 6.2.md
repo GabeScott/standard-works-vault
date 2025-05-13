@@ -5,5 +5,5 @@
 [Hosea 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/6.2?lang=eng#p2)
 
 
-[^a]: OR restore us to life; i.e., resurrect us.
-[^b]: OR presence.
+[^a]: OR restore us to life; i.e., resurrect us.  
+[^b]: OR presence.  

@@ -5,5 +5,5 @@
 [Amos 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/8.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 7.2|Ezek. 7:2.]]
-[^b]: [[Amos 7.8|Amos 7:8.]]
+[^a]: [[Ezekiel 7.2|Ezek. 7:2]].  
+[^b]: [[Amos 7.8|Amos 7:8]].  

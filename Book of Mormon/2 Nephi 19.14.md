@@ -5,4 +5,4 @@
 [2 Nephi 19:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p14#p14)
 
 
-[^a]: [[Isaiah 10.17|Isa. 10:17.]]
+[^a]: [[Isaiah 10.17|Isa. 10:17]].  

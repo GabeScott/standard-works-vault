@@ -5,4 +5,4 @@
 [2 Nephi 13:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/13?lang=eng&id=p12#p12)
 
 
-[^a]: [[Isaiah 9.16|Isa. 9:16]]. TG [[Leadership]].
+[^a]: [[Isaiah 9.16|Isa. 9:16]]. [[Leadership|TG Leadership]].  

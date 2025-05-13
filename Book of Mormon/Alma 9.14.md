@@ -5,4 +5,4 @@
 [Alma 9:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p14#p14)
 
 
-[^a]: [[2 Nephi 5.20|2 Ne. 5:20 (20-24)]]; [[Alma 38.1|Alma 38:1.]]
+[^a]: [[2 Nephi 5.20|2 Ne. 5:20 (20–24)]][[2 Nephi 5.21|]][[2 Nephi 5.22|]][[2 Nephi 5.23|]][[2 Nephi 5.24|]]; [[Alma 38.1|Alma 38:1]].  

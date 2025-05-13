@@ -5,4 +5,4 @@
 [Mormon 5:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p6#p6)
 
 
-[^a]: [[Mormon 2.3|Morm. 2:3]]; [[Mormon 4.13|4:13 (13-17).]]
+[^a]: [[Mormon 2.3|Morm. 2:3]]; [[Mormon 4.13|4:13 (13–17)]][[Mormon 4.14|]][[Mormon 4.15|]][[Mormon 4.16|]][[Mormon 4.17|]].  

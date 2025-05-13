@@ -5,4 +5,4 @@
 [Mark 12:25](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.25?lang=eng#p25)
 
 
-[^a]: TG [[Marriage, Marry]].
+[^a]: [[Marriage, Marry|TG Marriage, Marry]].  

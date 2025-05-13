@@ -5,5 +5,5 @@
 [Colossians 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.14?lang=eng#p14)
 
 
-[^a]: TG [[Jesus Christ, Atonement through]]; [[Redemption]].
-[^b]: TG [[Remission of Sins]].
+[^a]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Redemption|Redemption]].  
+[^b]: [[Remission of Sins|TG Remission of Sins]].  

@@ -5,5 +5,5 @@
 [1 Samuel 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/1.19?lang=eng#p19)
 
 
-[^a]: [[1 Samuel 1.1|1 Sam. 1:1.]]
-[^b]: [[Genesis 30.22|Gen. 30:22 (22-23).]]
+[^a]: [[1 Samuel 1.1|1 Sam. 1:1]].  
+[^b]: [[Genesis 30.22|Gen. 30:22 (22–23)]][[Genesis 30.23|]].  

@@ -5,4 +5,4 @@
 [3 Nephi 5:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p5#p5)
 
 
-[^a]: [[2 Nephi 10.15|2 Ne. 10:15.]]
+[^a]: [[2 Nephi 10.15|2 Ne. 10:15]].  

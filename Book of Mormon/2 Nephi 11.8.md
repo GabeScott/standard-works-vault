@@ -5,4 +5,4 @@
 [2 Nephi 11:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/11?lang=eng&id=p8#p8)
 
 
-[^a]: See the Latter-day Saint edition of the King James Version of the Bible for other notes and cross-references on these chapters from Isaiah.
+[^a]: See the Latter-day Saint edition of the King James Version of the Bible for other notes and cross-references on these chapters from Isaiah.  

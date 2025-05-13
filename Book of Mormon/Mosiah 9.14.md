@@ -5,5 +5,5 @@
 [Mosiah 9:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/9?lang=eng&id=p14#p14)
 
 
-[^a]: [[Mosiah 7.5|Mosiah 7:5]]; [[Mosiah 11.12|11:12 (12-13).]]
-[^b]: [[Mosiah 10.21|Mosiah 10:21.]]
+[^a]: [[Mosiah 7.5|Mosiah 7:5]]; [[Mosiah 11.12|11:12 (12–13)]][[Mosiah 11.13|]].  
+[^b]: [[Mosiah 10.21|Mosiah 10:21]].  

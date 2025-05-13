@@ -5,5 +5,5 @@
 [Ezekiel 10:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/10.19?lang=eng#p19)
 
 
-[^a]: TG [[Cherubim]].
-[^b]: [[Ezekiel 11.1|Ezek. 11:1.]]
+[^a]: [[Cherubim|TG Cherubim]].  
+[^b]: [[Ezekiel 11.1|Ezek. 11:1]].  

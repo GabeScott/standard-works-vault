@@ -5,4 +5,4 @@
 [Exodus 12:40](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.40?lang=eng#p40)
 
 
-[^a]: TG [[Israel, Bondage of, in Egypt]].
+[^a]: [[Israel, Bondage of, in Egypt|TG Israel, Bondage of, in Egypt]].  

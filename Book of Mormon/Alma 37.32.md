@@ -5,4 +5,4 @@
 [Alma 37:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p32#p32)
 
 
-[^a]: [[2 Nephi 4.31|2 Ne. 4:31]]; [[Alma 43.7|Alma 43:7.]]
+[^a]: [[2 Nephi 4.31|2 Ne. 4:31]]; [[Alma 43.7|Alma 43:7]].  

@@ -5,4 +5,4 @@
 [Mormon 9:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p34#p34)
 
 
-[^a]: [[Mosiah 8.13|Mosiah 8:13 (13-18)]]; [[Ether 3.23|Ether 3:23 (23, 28)]]; [[D&C 17.1|D&C 17:1.]]
+[^a]: [[Mosiah 8.13|Mosiah 8:13 (13–18)]][[Mosiah 8.14|]][[Mosiah 8.15|]][[Mosiah 8.16|]][[Mosiah 8.17|]][[Mosiah 8.18|]]; [[Ether 3.23|Ether 3:23 (23, 28)]][[Ether 3.28|]]; [[D&C 17.1|D&C 17:1]].  

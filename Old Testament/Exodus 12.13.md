@@ -5,4 +5,4 @@
 [Exodus 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.13?lang=eng#p13)
 
 
-[^a]: HEB sign.
+[^a]: HEB sign.  

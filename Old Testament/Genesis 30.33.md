@@ -5,4 +5,4 @@
 [Genesis 30:33](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.33?lang=eng#p33)
 
 
-[^a]: [[D&C 59.23|D&C 59:23.]]
+[^a]: [[D&C 59.23|D&C 59:23]].  

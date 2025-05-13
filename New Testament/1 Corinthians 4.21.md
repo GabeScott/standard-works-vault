@@ -5,5 +5,5 @@
 [1 Corinthians 4:21](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.21?lang=eng#p21)
 
 
-[^a]: IE Which do you choose?
-[^b]: GR gentleness, kindness.
+[^a]: IE Which do you choose?  
+[^b]: GR gentleness, kindness.  

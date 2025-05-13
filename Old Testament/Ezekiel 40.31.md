@@ -5,4 +5,4 @@
 [Ezekiel 40:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.31?lang=eng#p31)
 
 
-[^a]: OR outer.
+[^a]: OR outer.  

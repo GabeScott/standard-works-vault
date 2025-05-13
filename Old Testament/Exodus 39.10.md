@@ -5,4 +5,4 @@
 [Exodus 39:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.10?lang=eng#p10)
 
 
-[^a]: OR ruby.
+[^a]: OR ruby.  

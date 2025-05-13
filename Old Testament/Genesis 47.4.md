@@ -5,4 +5,4 @@
 [Genesis 47:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.4?lang=eng#p4)
 
 
-[^a]: [[Deuteronomy 26.5|Deut. 26:5.]]
+[^a]: [[Deuteronomy 26.5|Deut. 26:5]].  

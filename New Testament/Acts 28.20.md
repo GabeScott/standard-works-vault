@@ -5,4 +5,4 @@
 [Acts 28:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.20?lang=eng#p20)
 
 
-[^a]: [[Acts 23.6|Acts 23:6]]. TG [[Hope]].
+[^a]: [[Acts 23.6|Acts 23:6]]. [[Hope|TG Hope]].  

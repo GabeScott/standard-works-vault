@@ -5,4 +5,4 @@
 [Daniel 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.6?lang=eng#p6)
 
 
-[^a]: [[Ezekiel 9.2|Ezek. 9:2]]; Dan. 10:5.
+[^a]: [[Ezekiel 9.2|Ezek. 9:2]]; [[Daniel 10.5|Dan. 10:5]].  

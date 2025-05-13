@@ -5,4 +5,4 @@
 [Romans 7:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.1?lang=eng#p1)
 
 
-[^a]: [[Mosiah 13.30|Mosiah 13:30 (29-32).]]
+[^a]: [[Mosiah 13.29|Mosiah 13:30 (29–32)]][[Mosiah 13.30|]][[Mosiah 13.31|]][[Mosiah 13.32|]].  

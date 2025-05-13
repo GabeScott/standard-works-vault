@@ -5,4 +5,4 @@
 [Jeremiah 46:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 23.29|2 Kgs. 23:29.]]
+[^a]: [[2 Kings 23.29|2 Kgs. 23:29]].  

@@ -5,4 +5,4 @@
 [John 18:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/18.28?lang=eng#p28)
 
 
-[^a]: [[John 19.14|John 19:14.]]
+[^a]: [[John 19.14|John 19:14]].  

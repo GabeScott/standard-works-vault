@@ -5,4 +5,4 @@
 [Matthew 22:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.35?lang=eng#p35)
 
 
-[^a]: TG [[Testament]].
+[^a]: [[Test, Try, Prove|TG Test]].  

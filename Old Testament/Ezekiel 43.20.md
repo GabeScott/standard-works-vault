@@ -5,4 +5,4 @@
 [Ezekiel 43:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.20?lang=eng#p20)
 
 
-[^a]: IE of the altar.
+[^a]: IE of the altar.  

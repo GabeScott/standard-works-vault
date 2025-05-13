@@ -5,4 +5,4 @@
 [Alma 34:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 8.21|Alma 8:21]]; [[Alma 31.32|31:32.]]
+[^a]: [[Alma 8.21|Alma 8:21]]; [[Alma 31.32|31:32]].  

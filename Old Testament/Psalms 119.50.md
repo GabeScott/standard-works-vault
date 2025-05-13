@@ -5,5 +5,5 @@
 [Psalms 119:50](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.50?lang=eng#p50)
 
 
-[^a]: TG [[Holy Ghost, Comforter]].
-[^b]: TG [[Affliction]].
+[^a]: [[Comfort|TG Comfort]].  
+[^b]: [[Affliction|TG Affliction]].  

@@ -5,4 +5,4 @@
 [Mosiah 27:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p19#p19)
 
 
-[^a]: Dan. 10:15; [[Luke 1.20|Luke 1:20 (20-22).]]
+[^a]: [[Daniel 10.15|Dan. 10:15]]; [[Luke 1.20|Luke 1:20 (20–22)]][[Luke 1.21|]][[Luke 1.22|]].  

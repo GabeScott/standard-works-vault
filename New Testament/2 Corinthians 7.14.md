@@ -5,5 +5,5 @@
 [2 Corinthians 7:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/7.14?lang=eng#p14)
 
 
-[^a]: [[2 Corinthians 9.2|2 Cor. 9:2.]]
-[^b]: TG [[Boast, Boasting]].
+[^a]: [[2 Corinthians 9.2|2 Cor. 9:2]].  
+[^b]: [[Boast, Boasting|TG Boast]].  

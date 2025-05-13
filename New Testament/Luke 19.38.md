@@ -5,4 +5,4 @@
 [Luke 19:38](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.38?lang=eng#p38)
 
 
-[^a]: [[Luke 2.14|Luke 2:14.]]
+[^a]: [[Luke 2.14|Luke 2:14]].  

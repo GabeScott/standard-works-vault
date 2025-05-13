@@ -5,5 +5,5 @@
 [Alma 45:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Lust]].
-[^b]: [[2 Nephi 26.9|2 Ne. 26:9]]; [[3 Nephi 27.32|3 Ne. 27:32.]]
+[^a]: [[Lust|TG Lust]].  
+[^b]: [[2 Nephi 26.9|2 Ne. 26:9]]; [[3 Nephi 27.32|3 Ne. 27:32]].  

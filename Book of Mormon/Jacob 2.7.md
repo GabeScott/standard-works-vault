@@ -5,5 +5,5 @@
 [Jacob 2:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p7#p7)
 
 
-[^a]: [[Leviticus 19.17|Lev. 19:17]]; [[D&C 121.43|D&C 121:43.]]
-[^b]: TG [[Chastity, Chaste]].
+[^a]: [[Leviticus 19.17|Lev. 19:17]]; [[D&C 121.43|D&C 121:43]].  
+[^b]: [[Chastity, Chaste|TG Chastity]].  

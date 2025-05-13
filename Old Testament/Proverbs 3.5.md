@@ -5,7 +5,7 @@
 [Proverbs 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.5?lang=eng#p5)
 
 
-[^a]: TG [[Faith]]; [[Trust in God]]; [[Trustworthiness]].
-[^b]: TG [[Heart]].
-[^c]: TG [[Trust Not in the Arm of Flesh]].
-[^d]: TG [[Intelligence]]; [[Understanding]].
+[^a]: [[Faith|TG Faith]]; [[Trust in God|Trust in God]]; [[Trustworthiness|Trustworthiness]].  
+[^b]: [[Heart|TG Heart]].  
+[^c]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  
+[^d]: [[Intelligence|TG Intelligence]]; [[Understanding|Understanding]].  

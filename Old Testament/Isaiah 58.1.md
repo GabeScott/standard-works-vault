@@ -5,8 +5,8 @@
 [Isaiah 58:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.1?lang=eng#p1)
 
 
-[^a]: [[D&C 34.10|D&C 34:10.]]
-[^b]: TG [[Priesthood, Magnifying Callings within]].
-[^c]: HEB ram’s horn. Alma 29:1 (1-2); [[D&C 33.2|D&C 33:2]]; [[D&C 42.6|42:6.]]
-[^d]: TG [[Prophets, Mission of]].
-[^e]: TG [[Transgressor]].
+[^a]: [[D&C 34.10|D&C 34:10]].  
+[^b]: [[Priesthood, Magnifying Callings within|TG Priesthood, Magnifying Callings within]].  
+[^c]: HEB ram’s horn. [[Alma 29.1|Alma 29:1 (1–2)]][[Alma 29.2|]]; [[D&C 33.2|D&C 33:2]]; [[D&C 42.6|42:6]].  
+[^d]: [[Prophets, Mission of|TG Prophets, Mission of]].  
+[^e]: [[Transgress, Transgression|TG Transgress]].  

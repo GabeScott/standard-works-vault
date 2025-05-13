@@ -5,4 +5,4 @@
 [Ezekiel 22:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.29?lang=eng#p29)
 
 
-[^a]: TG [[Poor]].
+[^a]: [[Poor|TG Poor]].  

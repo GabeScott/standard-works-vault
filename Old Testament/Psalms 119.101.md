@@ -5,4 +5,4 @@
 [Psalms 119:101](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.101?lang=eng#p101)
 
 
-[^a]: TG [[Self-Mastery]].
+[^a]: [[Self-Mastery|TG Self-Mastery]].  

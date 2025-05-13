@@ -5,4 +5,4 @@
 [2 Kings 22:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/22.20?lang=eng#p20)
 
 
-[^a]: [[Alma 7.27|Alma 7:27]]; [[Alma 40.12|40:12]]; [[D&C 19.23|D&C 19:23]]; [[D&C 45.46|45:46.]]
+[^a]: [[Alma 7.27|Alma 7:27]]; [[Alma 40.12|40:12]]; [[D&C 19.23|D&C 19:23]]; [[D&C 45.46|45:46]].  

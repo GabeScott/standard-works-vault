@@ -5,4 +5,4 @@
 [Psalms 109:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.2?lang=eng#p2)
 
 
-[^a]: [[D&C 109.30|D&C 109:30 (29-30).]]
+[^a]: [[D&C 109.29|D&C 109:30 (29–30)]][[D&C 109.30|]].  

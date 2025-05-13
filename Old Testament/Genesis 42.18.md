@@ -5,4 +5,4 @@
 [Genesis 42:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.18?lang=eng#p18)
 
 
-[^a]: TG [[Reverence]].
+[^a]: [[Reverence|TG Reverence]].  

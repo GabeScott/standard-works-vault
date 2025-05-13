@@ -5,4 +5,4 @@
 [Malachi 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.9?lang=eng#p9)
 
 
-[^a]: [[1 Samuel 2.30|1 Sam. 2:30.]]
+[^a]: [[1 Samuel 2.30|1 Sam. 2:30]].  

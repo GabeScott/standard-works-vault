@@ -5,4 +5,4 @@
 [Alma 32:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p38#p38)
 
 
-[^a]: TG [[Apostasy of Individuals]].
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  

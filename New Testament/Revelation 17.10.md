@@ -5,4 +5,4 @@
 [Revelation 17:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.10?lang=eng#p10)
 
 
-[^a]: TG [[Kings, Earthly]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  

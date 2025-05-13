@@ -5,5 +5,5 @@
 [2 Kings 8:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/8.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 27.40|Gen. 27:40.]]
-[^b]: TG [[Bondage, Physical]].
+[^a]: [[Genesis 27.40|Gen. 27:40]].  
+[^b]: [[Bondage, Physical|TG Bondage, Physical]].  

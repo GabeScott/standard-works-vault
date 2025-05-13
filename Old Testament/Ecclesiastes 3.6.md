@@ -5,4 +5,4 @@
 [Ecclesiastes 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.6?lang=eng#p6)
 
 
-[^a]: OR seek.
+[^a]: OR seek.  

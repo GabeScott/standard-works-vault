@@ -5,7 +5,7 @@
 [Exodus 12:46](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.46?lang=eng#p46)
 
 
-[^a]: OR any.
-[^b]: OR outside.
-[^c]: TG [[Jesus Christ, Prophecies about]].
-[^d]: [[John 19.36|John 19:36]]. TG [[Passover]].
+[^a]: OR any.  
+[^b]: OR outside.  
+[^c]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^d]: [[John 19.36|John 19:36]]. [[Passover|TG Passover]].  

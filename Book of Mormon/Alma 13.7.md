@@ -5,6 +5,6 @@
 [Alma 13:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p7#p7)
 
 
-[^a]: [[Hebrews 7.3|Heb. 7:3]]; [[Abraham 1.3|Abr. 1:3 (2-4).]]
-[^b]: TG [[Eternity]].
-[^c]: TG [[God, Foreknowledge of]]; [[God, Omniscience of]].
+[^a]: [[Hebrews 7.3|Heb. 7:3]]; [[Abraham 1.2|Abr. 1:3 (2–4)]][[Abraham 1.3|]][[Abraham 1.4|]].  
+[^b]: [[Eternity|TG Eternity]].  
+[^c]: [[God, Foreknowledge of|TG God, Foreknowledge of]]; [[God, Omniscience of|God, Omniscience of]].  

@@ -5,4 +5,4 @@
 [Psalms 107:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.39?lang=eng#p39)
 
 
-[^a]: OR diminished.
+[^a]: OR diminished.  

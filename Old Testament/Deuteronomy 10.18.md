@@ -5,7 +5,7 @@
 [Deuteronomy 10:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.18?lang=eng#p18)
 
 
-[^a]: OR deals justly with.
-[^b]: TG [[God, Love of]].
-[^c]: OR alien, sojourner (also v. 19).
-[^d]: TG [[Food]].
+[^a]: OR deals justly with.  
+[^b]: [[God, Love of|TG God, Love of]].  
+[^c]: OR alien, sojourner (also [[Deuteronomy 10.19|v. 19]]).  
+[^d]: [[Food|TG Food]].  

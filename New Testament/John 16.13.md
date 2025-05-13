@@ -5,7 +5,7 @@
 [John 16:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.13?lang=eng#p13)
 
 
-[^a]: TG [[Conscience]].
-[^b]: TG [[God, Omniscience of]]; [[Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of]]; [[Inspiration, Inspire]]; [[Learn, Learning]].
-[^c]: TG [[God, Intelligence of]]; [[Truth]].
-[^d]: TG [[Revelation]].
+[^a]: [[Conscience|TG Conscience]].  
+[^b]: [[God, Omniscience of|TG God, Omniscience of]]; [[Holy Ghost, Gifts of|Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of|Holy Ghost, Mission of]]; [[Inspiration, Inspire|Inspiration]]; [[Learn, Learning|Learn]].  
+[^c]: [[God, Intelligence of|TG God, Intelligence of]]; [[Truth|Truth]].  
+[^d]: [[Revelation|TG Revelation]].  

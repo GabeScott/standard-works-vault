@@ -5,4 +5,4 @@
 [Zephaniah 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.4?lang=eng#p4)
 
 
-[^a]: [[Zechariah 9.5|Zech. 9:5.]]
+[^a]: [[Zechariah 9.5|Zech. 9:5]].  

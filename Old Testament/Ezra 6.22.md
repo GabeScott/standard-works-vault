@@ -5,4 +5,4 @@
 [Ezra 6:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.22?lang=eng#p22)
 
 
-[^a]: OR to assist them.
+[^a]: OR to assist them.  

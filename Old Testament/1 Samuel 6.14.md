@@ -5,4 +5,4 @@
 [1 Samuel 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.14?lang=eng#p14)
 
 
-[^a]: OR split, cut up.
+[^a]: OR split, cut up.  

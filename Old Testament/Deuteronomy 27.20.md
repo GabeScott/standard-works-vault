@@ -5,4 +5,4 @@
 [Deuteronomy 27:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.20?lang=eng#p20)
 
 
-[^a]: OR her who is his father’s.
+[^a]: OR her who is his father’s.  

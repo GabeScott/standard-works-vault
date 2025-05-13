@@ -5,4 +5,4 @@
 [Proverbs 15:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.24?lang=eng#p24)
 
 
-[^a]: Col. 3:2; [[2 Nephi 9.39|2 Ne. 9:39.]]
+[^a]: [[Colossians 3.2|Col. 3:2]]; [[2 Nephi 9.39|2 Ne. 9:39]].  

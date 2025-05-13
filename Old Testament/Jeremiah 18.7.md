@@ -5,4 +5,4 @@
 [Jeremiah 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/18.7?lang=eng#p7)
 
 
-[^a]: [[Jeremiah 1.10|Jer. 1:10.]]
+[^a]: [[Jeremiah 1.10|Jer. 1:10]].  

@@ -5,4 +5,4 @@
 [1 Corinthians 15:34](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.34?lang=eng#p34)
 
 
-[^a]: TG [[Shame]].
+[^a]: [[Shame|TG Shame]].  

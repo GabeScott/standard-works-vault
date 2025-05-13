@@ -5,5 +5,5 @@
 [1 Kings 4:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.25?lang=eng#p25)
 
 
-[^a]: HEB confidently, securely.
-[^b]: [[Micah 4.4|Micah 4:4.]]
+[^a]: HEB confidently, securely.  
+[^b]: [[Micah 4.4|Micah 4:4]].  

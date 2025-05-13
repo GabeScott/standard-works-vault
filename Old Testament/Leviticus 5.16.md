@@ -5,5 +5,5 @@
 [Leviticus 5:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/5.16?lang=eng#p16)
 
 
-[^a]: [[D&C 98.47|D&C 98:47.]]
-[^b]: [[1 Samuel 6.3|1 Sam. 6:3.]]
+[^a]: [[D&C 98.47|D&C 98:47]].  
+[^b]: [[1 Samuel 6.3|1 Sam. 6:3]].  

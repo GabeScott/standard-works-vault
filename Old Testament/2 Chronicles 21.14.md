@@ -5,4 +5,4 @@
 [2 Chronicles 21:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.14?lang=eng#p14)
 
 
-[^a]: TG [[Plague]].
+[^a]: [[Plague|TG Plague]].  

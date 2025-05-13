@@ -5,5 +5,5 @@
 [Psalms 90:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/90.2?lang=eng#p2)
 
 
-[^a]: [[D&C 38.1|D&C 38:1.]]
-[^b]: TG [[Eternity]]; [[God, Eternal Nature of]].
+[^a]: [[D&C 38.1|D&C 38:1]].  
+[^b]: [[Eternity|TG Eternity]]; [[God, Eternal Nature of|God, Eternal Nature of]].  

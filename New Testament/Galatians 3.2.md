@@ -5,5 +5,5 @@
 [Galatians 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.2?lang=eng#p2)
 
 
-[^a]: [[2 Nephi 2.5|2 Ne. 2:5]]; [[Mosiah 13.28|Mosiah 13:28 (27-28).]]
-[^b]: [[Romans 10.17|Rom. 10:17.]]
+[^a]: [[2 Nephi 2.5|2 Ne. 2:5]]; [[Mosiah 13.27|Mosiah 13:28 (27–28)]][[Mosiah 13.28|]].  
+[^b]: [[Romans 10.17|Rom. 10:17]].  

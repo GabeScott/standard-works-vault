@@ -5,4 +5,4 @@
 [Ezekiel 42:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/42.7?lang=eng#p7)
 
 
-[^a]: OR outer.
+[^a]: OR outer.  

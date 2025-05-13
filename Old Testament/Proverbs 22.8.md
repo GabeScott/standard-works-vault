@@ -5,5 +5,5 @@
 [Proverbs 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.8?lang=eng#p8)
 
 
-[^a]: [[2 Nephi 9.16|2 Ne. 9:16.]]
-[^b]: TG [[Harvest]].
+[^a]: [[2 Nephi 9.16|2 Ne. 9:16]].  
+[^b]: [[Harvest|TG Harvest]].  

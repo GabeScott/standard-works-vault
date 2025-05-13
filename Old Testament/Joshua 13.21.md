@@ -5,5 +5,5 @@
 [Joshua 13:21](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.21?lang=eng#p21)
 
 
-[^a]: [[Numbers 31.8|Num. 31:8.]]
-[^b]: OR vassal princes.
+[^a]: [[Numbers 31.8|Num. 31:8]].  
+[^b]: OR vassal princes.  

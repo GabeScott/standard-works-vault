@@ -5,5 +5,5 @@
 [John 19:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.11?lang=eng#p11)
 
 
-[^a]: [[Romans 13.1|Rom. 13:1]]; [[D&C 134.1|D&C 134:1.]]
-[^b]: [[John 18.14|John 18:14.]]
+[^a]: [[Romans 13.1|Rom. 13:1]]; [[D&C 134.1|D&C 134:1]].  
+[^b]: [[John 18.14|John 18:14]].  

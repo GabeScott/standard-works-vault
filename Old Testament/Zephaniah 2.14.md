@@ -5,4 +5,4 @@
 [Zephaniah 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 34.11|Isa. 34:11 (10-11).]]
+[^a]: [[Isaiah 34.10|Isa. 34:11 (10–11)]][[Isaiah 34.11|]].  

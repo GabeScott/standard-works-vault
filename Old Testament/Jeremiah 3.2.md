@@ -5,4 +5,4 @@
 [Jeremiah 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 31.16|Deut. 31:16.]]
+[^a]: [[Deuteronomy 31.16|Deut. 31:16]].  

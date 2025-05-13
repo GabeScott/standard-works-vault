@@ -5,4 +5,4 @@
 [Ezra 4:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.14?lang=eng#p14)
 
 
-[^a]: IE we are dependent on.
+[^a]: IE we are dependent on.  

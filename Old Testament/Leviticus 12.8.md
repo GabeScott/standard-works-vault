@@ -5,5 +5,5 @@
 [Leviticus 12:8](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/12.8?lang=eng#p8)
 
 
-[^a]: [[Leviticus 5.7|Lev. 5:7.]]
-[^b]: [[Leviticus 15.15|Lev. 15:15 (14-15).]]
+[^a]: [[Leviticus 5.7|Lev. 5:7]].  
+[^b]: [[Leviticus 15.14|Lev. 15:15 (14–15)]][[Leviticus 15.15|]].  

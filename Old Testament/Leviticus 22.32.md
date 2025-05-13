@@ -5,5 +5,5 @@
 [Leviticus 22:32](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.32?lang=eng#p32)
 
 
-[^a]: HEB sanctified.
-[^b]: [[Leviticus 20.7|Lev. 20:7.]]
+[^a]: HEB sanctified.  
+[^b]: [[Leviticus 20.7|Lev. 20:7]].  

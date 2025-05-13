@@ -5,4 +5,4 @@
 [Exodus 33:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.22?lang=eng#p22)
 
 
-[^a]: HEB until I have gone past.
+[^a]: HEB until I have gone past.  

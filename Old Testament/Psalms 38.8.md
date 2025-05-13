@@ -5,4 +5,4 @@
 [Psalms 38:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/38.8?lang=eng#p8)
 
 
-[^a]: OR groaned.
+[^a]: OR groaned.  

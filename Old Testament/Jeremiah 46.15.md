@@ -5,4 +5,4 @@
 [Jeremiah 46:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.15?lang=eng#p15)
 
 
-[^a]: [[Mosiah 1.13|Mosiah 1:13]]; [[Helaman 4.24|Hel. 4:24 (24, 26).]]
+[^a]: [[Mosiah 1.13|Mosiah 1:13]]; [[Helaman 4.24|Hel. 4:24 (24, 26)]][[Helaman 4.26|]].  

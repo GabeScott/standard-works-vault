@@ -5,4 +5,4 @@
 [Numbers 4:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/4.10?lang=eng#p10)
 
 
-[^a]: OR yoke, or carrying frame (also v. 12).
+[^a]: OR yoke, or carrying frame (also [[Numbers 4.12|v. 12]]).  

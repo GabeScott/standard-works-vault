@@ -5,6 +5,6 @@
 [Alma 6:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/6?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 4.4|Alma 4:4]]; [[Alma 8.3|8:3.]]
-[^b]: [[Alma 2.20|Alma 2:20.]]
-[^c]: [[Alma 1.9|Alma 1:9.]]
+[^a]: [[Alma 4.4|Alma 4:4]]; [[Alma 8.3|8:3]].  
+[^b]: [[Alma 2.20|Alma 2:20]].  
+[^c]: [[Alma 1.9|Alma 1:9]].  

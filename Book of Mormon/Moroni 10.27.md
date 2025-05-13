@@ -5,6 +5,6 @@
 [Moroni 10:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p27#p27)
 
 
-[^a]: [[Isaiah 51.16|Isa. 51:16]]; [[2 Nephi 33.10|2 Ne. 33:10 (10-11)]]; [[D&C 1.24|D&C 1:24.]]
-[^b]: [[2 Nephi 3.19|2 Ne. 3:19 (19-20)]]; [[2 Nephi 27.13|27:13]]; [[2 Nephi 33.13|33:13 (13-15)]]; [[Mormon 9.30|Morm. 9:30.]]
-[^c]: [[Isaiah 29.4|Isa. 29:4.]]
+[^a]: [[Isaiah 51.16|Isa. 51:16]]; [[2 Nephi 33.10|2 Ne. 33:10 (10–11)]][[2 Nephi 33.11|]]; [[D&C 1.24|D&C 1:24]].  
+[^b]: [[2 Nephi 3.19|2 Ne. 3:19 (19–20)]][[2 Nephi 3.20|]]; [[2 Nephi 27.13|27:13]]; [[2 Nephi 33.13|33:13 (13–15)]][[2 Nephi 33.14|]][[2 Nephi 33.15|]]; [[Mormon 9.30|Morm. 9:30]].  
+[^c]: [[Isaiah 29.4|Isa. 29:4]].  

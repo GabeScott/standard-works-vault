@@ -5,4 +5,4 @@
 [Matthew 16:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.23?lang=eng#p23)
 
 
-[^a]: [[Helaman 10.4|Hel. 10:4 (4-5).]]
+[^a]: [[Helaman 10.4|Hel. 10:4 (4–5)]][[Helaman 10.5|]].  

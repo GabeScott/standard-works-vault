@@ -5,4 +5,4 @@
 [1 Samuel 12:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 2.23|Ex. 2:23.]]
+[^a]: [[Exodus 2.23|Ex. 2:23]].  

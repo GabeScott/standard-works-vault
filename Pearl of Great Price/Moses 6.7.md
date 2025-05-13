@@ -5,4 +5,4 @@
 [Moses 6:7](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.7?lang=eng#p7)
 
 
-[^a]: TG [[Priesthood, History of]]; [[Priesthood, History of]], History of; [[Priesthood, History of]], Melchizedek.
+[^a]: [[Priesthood|TG Priesthood]]; [[Priesthood, History of|Priesthood, History of]]; [[Priesthood, Melchizedek|Priesthood, Melchizedek]].  

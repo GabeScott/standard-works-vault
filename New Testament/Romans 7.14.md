@@ -5,6 +5,6 @@
 [Romans 7:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.14?lang=eng#p14)
 
 
-[^a]: [[D&C 29.34|D&C 29:34.]]
-[^b]: TG [[Carnal Mind]].
-[^c]: GR devoted to, a slave to.
+[^a]: [[D&C 29.34|D&C 29:34]].  
+[^b]: [[Carnal Mind|TG Carnal Mind]].  
+[^c]: GR devoted to, a slave to.  

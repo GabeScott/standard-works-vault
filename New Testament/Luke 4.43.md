@@ -5,5 +5,5 @@
 [Luke 4:43](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.43?lang=eng#p43)
 
 
-[^a]: TG [[Preaching, Preach]].
-[^b]: TG [[Jesus Christ, Messenger of the Covenant]].
+[^a]: [[Preaching, Preach|TG Preaching]].  
+[^b]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  

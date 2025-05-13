@@ -5,5 +5,5 @@
 [Isaiah 32:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/32.17?lang=eng#p17)
 
 
-[^a]: TG [[Conscience]]; [[Peace of God]]; [[Peace of God]]makers; [[Peace of God]] of God.
-[^b]: TG [[Happiness, Happy]]; [[Joy]].
+[^a]: [[Conscience|TG Conscience]]; [[Peace|Peace]]; [[Peacemakers|Peacemakers]]; [[Peace of God|Peace of God]].  
+[^b]: [[Happiness, Happy|TG Happiness]]; [[Joy|Joy]].  

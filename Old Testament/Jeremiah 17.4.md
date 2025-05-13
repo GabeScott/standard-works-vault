@@ -5,5 +5,5 @@
 [Jeremiah 17:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.4?lang=eng#p4)
 
 
-[^a]: TG [[Israel, Scattering of]].
-[^b]: [[Jeremiah 15.14|Jer. 15:14.]]
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  
+[^b]: [[Jeremiah 15.14|Jer. 15:14]].  

@@ -5,6 +5,6 @@
 [Alma 34:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Testimony]]; [[Witness, Witnesses]].
-[^b]: TG [[Jesus Christ, Redeemer]].
-[^c]: TG [[Jesus Christ, Atonement through]].
+[^a]: [[Testimony|TG Testimony]]; [[Witness, Witnesses|Witness]].  
+[^b]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]].  
+[^c]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  

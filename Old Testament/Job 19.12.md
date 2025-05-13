@@ -5,4 +5,4 @@
 [Job 19:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.12?lang=eng#p12)
 
 
-[^a]: HEB tent.
+[^a]: HEB tent.  

@@ -5,5 +5,5 @@
 [Ezekiel 13:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.23?lang=eng#p23)
 
 
-[^a]: [[Micah 3.6|Micah 3:6.]]
-[^b]: TG [[Sorcery]].
+[^a]: [[Micah 3.6|Micah 3:6]].  
+[^b]: [[Sorcery|TG Sorcery]].  

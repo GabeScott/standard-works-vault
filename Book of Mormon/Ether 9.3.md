@@ -5,7 +5,7 @@
 [Ether 9:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Dream]]; [[Warn, Warnings]].
-[^b]: [[Ether 9.13|Ether 9:13.]]
-[^c]: [[Words of Mormon 1.3|Morm. 1:3]]; [[Mormon 4.23|4:23.]]
-[^d]: [[Mormon 6.2|Morm. 6:2 (1-15).]]
+[^a]: [[Dream|TG Dream]]; [[Warn, Warnings|Warn]].  
+[^b]: [[Ether 9.13|Ether 9:13]].  
+[^c]: [[Mormon 1.3|Morm. 1:3]]; [[Mormon 4.23|4:23]].  
+[^d]: [[Mormon 6.1|Morm. 6:2 (1–15)]][[Mormon 6.2|]][[Mormon 6.3|]][[Mormon 6.4|]][[Mormon 6.5|]][[Mormon 6.6|]][[Mormon 6.7|]][[Mormon 6.8|]][[Mormon 6.9|]][[Mormon 6.10|]][[Mormon 6.11|]][[Mormon 6.12|]][[Mormon 6.13|]][[Mormon 6.14|]][[Mormon 6.15|]].  

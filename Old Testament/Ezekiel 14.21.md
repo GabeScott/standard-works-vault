@@ -5,4 +5,4 @@
 [Ezekiel 14:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.21?lang=eng#p21)
 
 
-[^a]: [[Ezekiel 5.17|Ezek. 5:17]]; [[Ezekiel 33.27|33:27]]; [[Revelation 6.8|Rev. 6:8.]]
+[^a]: [[Ezekiel 5.17|Ezek. 5:17]]; [[Ezekiel 33.27|33:27]]; [[Revelation 6.8|Rev. 6:8]].  

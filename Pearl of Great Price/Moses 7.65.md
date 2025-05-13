@@ -5,5 +5,5 @@
 [Moses 7:65](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.65?lang=eng#p65)
 
 
-[^a]: [[1 Corinthians 5.5|1 Cor. 5:5.]]
-[^b]: [[Jude 1.14|Jude 1:14.]]
+[^a]: [[1 Corinthians 5.5|1 Cor. 5:5]].  
+[^b]: [[Jude 1.14|Jude 1:14]].  

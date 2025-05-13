@@ -5,5 +5,5 @@
 [Ezekiel 48:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.15?lang=eng#p15)
 
 
-[^a]: OR common. Ezek. 42:20; 45:6.
-[^b]: [[Numbers 35.2|Num. 35:2 (1-5)]]; [[Ezekiel 45.2|Ezek. 45:2.]]
+[^a]: OR common. [[Ezekiel 42.20|Ezek. 42:20]]; [[Ezekiel 45.6|45:6]].  
+[^b]: [[Numbers 35.1|Num. 35:2 (1–5)]][[Numbers 35.2|]][[Numbers 35.3|]][[Numbers 35.4|]][[Numbers 35.5|]]; [[Ezekiel 45.2|Ezek. 45:2]].  

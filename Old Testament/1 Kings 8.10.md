@@ -5,4 +5,4 @@
 [1 Kings 8:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.10?lang=eng#p10)
 
 
-[^a]: [[D&C 84.5|D&C 84:5]]. TG [[God, Manifestations of]].
+[^a]: [[D&C 84.5|D&C 84:5]]. [[God, Manifestations of|TG God, Manifestations of]].  

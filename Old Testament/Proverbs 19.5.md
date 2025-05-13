@@ -5,5 +5,5 @@
 [Proverbs 19:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.5?lang=eng#p5)
 
 
-[^a]: [[Mosiah 13.23|Mosiah 13:23.]]
-[^b]: TG [[Lying, Liar, Lie]].
+[^a]: [[Mosiah 13.23|Mosiah 13:23]].  
+[^b]: [[Lying, Liar, Lie|TG Lying]].  

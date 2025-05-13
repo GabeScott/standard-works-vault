@@ -5,5 +5,5 @@
 [Hosea 11:8](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/11.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 19.24|Gen. 19:24 (24-25)]]; [[Deuteronomy 29.23|Deut. 29:23.]]
-[^b]: JST Hosea 11:8 … toward thee, and my mercies are extended to gather thee.
+[^a]: [[Genesis 19.24|Gen. 19:24 (24–25)]][[Genesis 19.25|]]; [[Deuteronomy 29.23|Deut. 29:23]].  
+[^b]: JST Hosea 11:8 … toward thee, and my mercies are extended to gather thee.  

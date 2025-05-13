@@ -5,6 +5,6 @@
 [Judges 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.14?lang=eng#p14)
 
 
-[^a]: [[Numbers 32.40|Num. 32:40]]; [[Joshua 17.1|Josh. 17:1.]]
-[^b]: HEB hold the sceptre of the muster-officer, the marshal’s staff.
-[^c]: TG [[Scribe]].
+[^a]: [[Numbers 32.40|Num. 32:40]]; [[Joshua 17.1|Josh. 17:1]].  
+[^b]: HEB hold the sceptre of the muster-officer, the marshal’s staff.  
+[^c]: [[Scribe|TG Scribe]].  

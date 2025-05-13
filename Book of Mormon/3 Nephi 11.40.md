@@ -5,5 +5,5 @@
 [3 Nephi 11:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p40#p40)
 
 
-[^a]: [[Romans 16.17|Rom. 16:17 (17-19)]]; [[1 Timothy 1.3|1 Tim. 1:3.]]
-[^b]: [[3 Nephi 14.26|3 Ne. 14:26 (24-27).]]
+[^a]: [[Romans 16.17|Rom. 16:17 (17–19)]][[Romans 16.18|]][[Romans 16.19|]]; [[1 Timothy 1.3|1 Tim. 1:3]].  
+[^b]: [[3 Nephi 14.24|3 Ne. 14:26 (24–27)]][[3 Nephi 14.25|]][[3 Nephi 14.26|]][[3 Nephi 14.27|]].  

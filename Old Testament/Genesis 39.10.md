@@ -5,4 +5,4 @@
 [Genesis 39:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.10?lang=eng#p10)
 
 
-[^a]: [[Judges 16.16|Judg. 16:16 (15-16).]]
+[^a]: [[Judges 16.15|Judg. 16:16 (15–16)]][[Judges 16.16|]].  

@@ -5,4 +5,4 @@
 [Luke 2:38](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.38?lang=eng#p38)
 
 
-[^a]: [[D&C 29.42|D&C 29:42.]]
+[^a]: [[D&C 29.42|D&C 29:42]].  

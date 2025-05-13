@@ -5,4 +5,4 @@
 [Job 38:41](https://www.churchofjesuschrist.org/study/scriptures/ot/job/38.41?lang=eng#p41)
 
 
-[^a]: [[Luke 12.24|Luke 12:24.]]
+[^a]: [[Luke 12.24|Luke 12:24]].  

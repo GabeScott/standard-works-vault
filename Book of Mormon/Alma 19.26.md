@@ -5,4 +5,4 @@
 [Alma 19:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p26#p26)
 
 
-[^a]: [[Moses 6.38|Moses 6:38 (37-39).]]
+[^a]: [[Moses 6.37|Moses 6:38 (37–39)]][[Moses 6.38|]][[Moses 6.39|]].  

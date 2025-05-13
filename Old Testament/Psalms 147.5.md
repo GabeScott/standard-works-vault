@@ -5,4 +5,4 @@
 [Psalms 147:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/147.5?lang=eng#p5)
 
 
-[^a]: TG [[God, Omniscience of]]; [[Understanding]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]]; [[Understanding|Understanding]].  

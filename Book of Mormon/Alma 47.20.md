@@ -5,4 +5,4 @@
 [Alma 47:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/47?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 46.29|Alma 46:29.]]
+[^a]: [[Alma 46.29|Alma 46:29]].  

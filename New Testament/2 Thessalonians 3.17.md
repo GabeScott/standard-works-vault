@@ -5,4 +5,4 @@
 [2 Thessalonians 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.17?lang=eng#p17)
 
 
-[^a]: Col. 4:18.
+[^a]: [[Colossians 4.18|Col. 4:18]].  

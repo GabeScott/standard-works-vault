@@ -5,6 +5,6 @@
 [Deuteronomy 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.4?lang=eng#p4)
 
 
-[^a]: [[Exodus 13.7|Ex. 13:7.]]
-[^b]: OR territory.
-[^c]: [[Exodus 34.25|Ex. 34:25.]]
+[^a]: [[Exodus 13.7|Ex. 13:7]].  
+[^b]: OR territory.  
+[^c]: [[Exodus 34.25|Ex. 34:25]].  

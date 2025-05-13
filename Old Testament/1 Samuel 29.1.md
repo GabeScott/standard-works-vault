@@ -5,4 +5,4 @@
 [1 Samuel 29:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/29.1?lang=eng#p1)
 
 
-[^a]: OR spring.
+[^a]: OR spring.  

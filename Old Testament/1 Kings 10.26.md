@@ -5,4 +5,4 @@
 [1 Kings 10:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.26?lang=eng#p26)
 
 
-[^a]: [[1 Kings 4.26|1 Kgs. 4:26.]]
+[^a]: [[1 Kings 4.26|1 Kgs. 4:26]].  

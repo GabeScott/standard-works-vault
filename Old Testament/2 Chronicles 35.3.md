@@ -5,4 +5,4 @@
 [2 Chronicles 35:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/35.3?lang=eng#p3)
 
 
-[^a]: [[Deuteronomy 33.10|Deut. 33:10 (8-11).]]
+[^a]: [[Deuteronomy 33.8|Deut. 33:10 (8–11)]][[Deuteronomy 33.9|]][[Deuteronomy 33.10|]][[Deuteronomy 33.11|]].  

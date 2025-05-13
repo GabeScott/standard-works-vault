@@ -5,4 +5,4 @@
 [Zechariah 1:21](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.21?lang=eng#p21)
 
 
-[^a]: HEB terrify.
+[^a]: HEB terrify.  

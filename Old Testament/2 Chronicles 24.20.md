@@ -5,5 +5,5 @@
 [2 Chronicles 24:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/24.20?lang=eng#p20)
 
 
-[^a]: TG [[God, Spirit of]].
-[^b]: [[Mosiah 7.29|Mosiah 7:29 (29-31).]]
+[^a]: [[God, Spirit of|TG God, Spirit of]].  
+[^b]: [[Mosiah 7.29|Mosiah 7:29 (29–31)]][[Mosiah 7.30|]][[Mosiah 7.31|]].  

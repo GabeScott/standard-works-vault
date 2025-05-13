@@ -5,7 +5,7 @@
 [Deuteronomy 4:40](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.40?lang=eng#p40)
 
 
-[^a]: TG [[Obedience, Obedient, Obey]].
-[^b]: [[Deuteronomy 22.7|Deut. 22:7]]; [[Deuteronomy 25.15|25:15]]; [[D&C 5.33|D&C 5:33.]]
-[^c]: TG [[Mortality]].
-[^d]: HEB land.
+[^a]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^b]: [[Deuteronomy 22.7|Deut. 22:7]]; [[Deuteronomy 25.15|25:15]]; [[D&C 5.33|D&C 5:33]].  
+[^c]: [[Mortality|TG Mortality]].  
+[^d]: HEB land.  

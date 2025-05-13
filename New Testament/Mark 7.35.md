@@ -5,4 +5,4 @@
 [Mark 7:35](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.35?lang=eng#p35)
 
 
-[^a]: TG [[Miracle]].
+[^a]: [[Miracle|TG Miracle]].  

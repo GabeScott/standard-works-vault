@@ -5,4 +5,4 @@
 [Daniel 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.3?lang=eng#p3)
 
 
-[^a]: Dan. 8:20.
+[^a]: [[Daniel 8.20|Dan. 8:20]].  

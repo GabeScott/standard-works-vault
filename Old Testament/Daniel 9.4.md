@@ -5,6 +5,6 @@
 [Daniel 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.4?lang=eng#p4)
 
 
-[^a]: TG [[Confession]].
-[^b]: [[Deuteronomy 7.9|Deut. 7:9]]; [[Nehemiah 1.5|Neh. 1:5.]]
-[^c]: [[D&C 109.1|D&C 109:1.]]
+[^a]: [[Confession|TG Confession]].  
+[^b]: [[Deuteronomy 7.9|Deut. 7:9]]; [[Nehemiah 1.5|Neh. 1:5]].  
+[^c]: [[D&C 109.1|D&C 109:1]].  

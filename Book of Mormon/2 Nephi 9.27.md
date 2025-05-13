@@ -5,7 +5,7 @@
 [2 Nephi 9:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p27#p27)
 
 
-[^a]: [[Luke 12.47|Luke 12:47 (47-48)]]. TG [[God, Law of]].
-[^b]: TG [[Disobedience, Disobey]].
-[^c]: TG [[Idleness, Idle, Idler]]; [[Procrastination, Procrastinate]]; [[Waste]].
-[^d]: TG [[Probation, Probationary]].
+[^a]: [[Luke 12.47|Luke 12:47 (47–48)]][[Luke 12.48|]]. [[God, Law of|TG God, Law of]].  
+[^b]: [[Disobedience, Disobey|TG Disobedience]].  
+[^c]: [[Idleness, Idle, Idler|TG Idleness]]; [[Procrastination, Procrastinate|Procrastination]]; [[Waste|Waste]].  
+[^d]: [[Probation, Probationary|TG Probation]].  

@@ -5,5 +5,5 @@
 [Exodus 29:41](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.41?lang=eng#p41)
 
 
-[^a]: [[Psalms 141.2|Ps. 141:2.]]
-[^b]: HEB cereal, meal, or flour.
+[^a]: [[Psalms 141.2|Ps. 141:2]].  
+[^b]: HEB cereal, meal, or flour.  

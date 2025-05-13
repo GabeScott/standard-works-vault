@@ -5,4 +5,4 @@
 [Daniel 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.18?lang=eng#p18)
 
 
-[^a]: TG [[Mission of Latter-day Saints]].
+[^a]: [[Saints|TG Saints]].  

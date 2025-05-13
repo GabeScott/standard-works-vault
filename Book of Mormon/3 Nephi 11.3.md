@@ -5,6 +5,6 @@
 [3 Nephi 11:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p3#p3)
 
 
-[^a]: [[Deuteronomy 4.33|Deut. 4:33]]; [[Ezekiel 1.24|Ezek. 1:24]]; [[Helaman 5.29|Hel. 5:29 (28-36).]]
-[^b]: [[1 Kings 19.12|1 Kgs. 19:12 (11-13)]]; [[D&C 85.6|D&C 85:6.]]
-[^c]: [[1 Samuel 3.11|1 Sam. 3:11]]; [[Jeremiah 20.9|Jer. 20:9.]]
+[^a]: [[Deuteronomy 4.33|Deut. 4:33]]; [[Ezekiel 1.24|Ezek. 1:24]]; [[Helaman 5.28|Hel. 5:29 (28–36)]][[Helaman 5.29|]][[Helaman 5.30|]][[Helaman 5.31|]][[Helaman 5.32|]][[Helaman 5.33|]][[Helaman 5.34|]][[Helaman 5.35|]][[Helaman 5.36|]].  
+[^b]: [[1 Kings 19.11|1 Kgs. 19:12 (11–13)]][[1 Kings 19.12|]][[1 Kings 19.13|]]; [[D&C 85.6|D&C 85:6]].  
+[^c]: [[1 Samuel 3.11|1 Sam. 3:11]]; [[Jeremiah 20.9|Jer. 20:9]].  

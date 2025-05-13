@@ -5,4 +5,4 @@
 [Alma 2:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Common Consent]].
+[^a]: [[Common Consent|TG Common Consent]].  

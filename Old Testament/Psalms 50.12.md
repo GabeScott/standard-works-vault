@@ -5,4 +5,4 @@
 [Psalms 50:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.12?lang=eng#p12)
 
 
-[^a]: TG [[God, Works of]]; [[Stewardship, Steward]].
+[^a]: [[God, Works of|TG God, Works of]]; [[Stewardship, Steward|Stewardship]].  

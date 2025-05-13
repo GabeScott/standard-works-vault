@@ -5,7 +5,7 @@
 [Hebrews 6:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.2?lang=eng#p2)
 
 
-[^a]: [[D&C 68.25|D&C 68:25.]]
-[^b]: TG [[Baptism, Essential]].
-[^c]: [[D&C 107.67|D&C 107:67.]]
-[^d]: TG [[Hands, Laying on of]].
+[^a]: [[D&C 68.25|D&C 68:25]].  
+[^b]: [[Baptism, Essential|TG Baptism, Essential]].  
+[^c]: [[D&C 107.67|D&C 107:67]].  
+[^d]: [[Hands, Laying on of|TG Hands, Laying on of]].  

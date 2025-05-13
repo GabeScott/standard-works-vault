@@ -5,5 +5,5 @@
 [Nehemiah 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/6.13?lang=eng#p13)
 
 
-[^a]: [[D&C 3.7|D&C 3:7 (7-8).]]
-[^b]: TG [[Slander]].
+[^a]: [[D&C 3.7|D&C 3:7 (7–8)]][[D&C 3.8|]].  
+[^b]: [[Slander|TG Slander]].  

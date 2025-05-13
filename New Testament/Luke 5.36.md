@@ -5,4 +5,4 @@
 [Luke 5:36](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.36?lang=eng#p36)
 
 
-[^a]: GR fits, accords.
+[^a]: GR fits, accords.  

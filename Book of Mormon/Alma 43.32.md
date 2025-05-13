@@ -5,4 +5,4 @@
 [Alma 43:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p32#p32)
 
 
-[^a]: [[Alma 43.41|Alma 43:41.]]
+[^a]: [[Alma 43.41|Alma 43:41]].  

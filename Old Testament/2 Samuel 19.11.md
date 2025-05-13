@@ -5,4 +5,4 @@
 [2 Samuel 19:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.11?lang=eng#p11)
 
 
-[^a]: [[2 Samuel 15.24|2 Sam. 15:24 (24-29).]]
+[^a]: [[2 Samuel 15.24|2 Sam. 15:24 (24–29)]][[2 Samuel 15.25|]][[2 Samuel 15.26|]][[2 Samuel 15.27|]][[2 Samuel 15.28|]][[2 Samuel 15.29|]].  

@@ -5,5 +5,5 @@
 [Exodus 28:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.15?lang=eng#p15)
 
 
-[^a]: TG [[Urim and Thummim]].
-[^b]: OR similar to.
+[^a]: [[Urim and Thummim|TG Urim and Thummim]].  
+[^b]: OR similar to.  

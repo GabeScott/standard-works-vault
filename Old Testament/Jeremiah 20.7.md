@@ -5,5 +5,5 @@
 [Jeremiah 20:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.7?lang=eng#p7)
 
 
-[^a]: HEB persuaded.
-[^b]: Lam. 3:14. TG [[Despair]]; [[Suffering]].
+[^a]: HEB persuaded.  
+[^b]: [[Lamentations 3.14|Lam. 3:14]]. [[Despair|TG Despair]]; [[Suffering|Suffering]].  

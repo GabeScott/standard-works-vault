@@ -5,4 +5,4 @@
 [Jeremiah 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 3.3|Jer. 3:3.]]
+[^a]: [[Jeremiah 3.3|Jer. 3:3]].  

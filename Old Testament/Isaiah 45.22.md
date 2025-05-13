@@ -5,5 +5,5 @@
 [Isaiah 45:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.22?lang=eng#p22)
 
 
-[^a]: [[D&C 6.36|D&C 6:36]]; [[D&C 43.34|43:34.]]
-[^b]: TG [[Salvation, Plan of]].
+[^a]: [[D&C 6.36|D&C 6:36]]; [[D&C 43.34|43:34]].  
+[^b]: [[Salvation, Plan of|TG Salvation, Plan of]].  

@@ -5,4 +5,4 @@
 [Psalms 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 23.3|Ps. 23:3]]; [[Psalms 109.21|109:21.]]
+[^a]: [[Psalms 23.3|Ps. 23:3]]; [[Psalms 109.21|109:21]].  

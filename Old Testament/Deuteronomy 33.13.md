@@ -5,6 +5,6 @@
 [Deuteronomy 33:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.13?lang=eng#p13)
 
 
-[^a]: TG [[Book of Mormon]].
-[^b]: TG [[Lands of Inheritance]].
-[^c]: [[Genesis 27.28|Gen. 27:28.]]
+[^a]: [[Book of Mormon|TG Book of Mormon]].  
+[^b]: [[Lands of Inheritance|TG Lands of Inheritance]].  
+[^c]: [[Genesis 27.28|Gen. 27:28]].  

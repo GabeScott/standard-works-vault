@@ -5,4 +5,4 @@
 [1 Nephi 8:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p30#p30)
 
 
-[^a]: [[1 Nephi 8.19|1 Ne. 8:19]]; [[1 Nephi 15.24|15:24 (23-24).]]
+[^a]: [[1 Nephi 8.19|1 Ne. 8:19]]; [[1 Nephi 15.23|15:24 (23–24)]][[1 Nephi 15.24|]].  

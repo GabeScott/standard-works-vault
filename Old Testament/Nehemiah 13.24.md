@@ -5,4 +5,4 @@
 [Nehemiah 13:24](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.24?lang=eng#p24)
 
 
-[^a]: TG [[Language]].
+[^a]: [[Language|TG Language]].  

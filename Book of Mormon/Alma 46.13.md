@@ -5,7 +5,7 @@
 [Alma 46:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 44.9|Alma 44:9]]; [[Alma 49.6|49:6 (6, 24).]]
-[^b]: [[Alma 51.20|Alma 51:20]]. TG [[Citizenship]].
-[^c]: TG [[Reverence]].
-[^d]: [[Alma 48.10|Alma 48:10.]]
+[^a]: [[Alma 44.9|Alma 44:9]]; [[Alma 49.6|49:6 (6, 24)]][[Alma 49.24|]].  
+[^b]: [[Alma 51.20|Alma 51:20]]. [[Citizenship|TG Citizenship]].  
+[^c]: [[Reverence|TG Reverence]].  
+[^d]: [[Alma 48.10|Alma 48:10]].  

@@ -5,4 +5,4 @@
 [Ruth 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.14?lang=eng#p14)
 
 
-[^b]: IE left some food.
+[^b]: IE left some food.  

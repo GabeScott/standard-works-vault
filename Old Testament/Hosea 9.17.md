@@ -5,4 +5,4 @@
 [Hosea 9:17](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/9.17?lang=eng#p17)
 
 
-[^a]: TG [[Israel, Scattering of]].
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  

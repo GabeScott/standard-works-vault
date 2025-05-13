@@ -5,5 +5,5 @@
 [Genesis 24:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 17.7|Gen. 17:7]]; [[Genesis 24.27|24:27.]]
-[^b]: [[Genesis 24.21|Gen. 24:21]]; [[Nehemiah 1.11|Neh. 1:11.]]
+[^a]: [[Genesis 17.7|Gen. 17:7]]; [[Genesis 24.27|24:27]].  
+[^b]: [[Genesis 24.21|Gen. 24:21]]; [[Nehemiah 1.11|Neh. 1:11]].  

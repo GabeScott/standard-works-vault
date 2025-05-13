@@ -5,6 +5,6 @@
 [Job 38:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/38.7?lang=eng#p7)
 
 
-[^a]: TG [[Singing, Sing, Sang, Sung]].
-[^b]: TG [[Council in Heaven]]; [[Man, Antemortal Existence of]]; [[Sons and Daughters of God]].
-[^c]: TG [[Joy]].
+[^a]: [[Singing, Sing, Sang, Sung|TG Singing]].  
+[^b]: [[Council in Heaven|TG Council in Heaven]]; [[Man, Antemortal Existence of|Man, Antemortal Existence of]]; [[Sons and Daughters of God|Sons and Daughters of God]].  
+[^c]: [[Joy|TG Joy]].  

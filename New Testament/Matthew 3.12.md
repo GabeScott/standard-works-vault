@@ -5,6 +5,6 @@
 [Matthew 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.12?lang=eng#p12)
 
 
-[^a]: [[Jeremiah 51.2|Jer. 51:2.]]
-[^b]: GR storehouse.
-[^c]: [[D&C 43.32|D&C 43:32]]; [[D&C 63.34|63:34 (33-34)]]; [[D&C 101.66|101:66.]]
+[^a]: [[Jeremiah 51.2|Jer. 51:2]].  
+[^b]: GR storehouse.  
+[^c]: [[D&C 43.32|D&C 43:32]]; [[D&C 63.33|63:34 (33–34)]][[D&C 63.34|]]; [[D&C 101.66|101:66]].  

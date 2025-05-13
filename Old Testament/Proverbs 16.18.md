@@ -5,5 +5,5 @@
 [Proverbs 16:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.18?lang=eng#p18)
 
 
-[^a]: TG [[Pride]].
-[^b]: TG [[Haughtiness, Haughty]].
+[^a]: [[Pride|TG Pride]].  
+[^b]: [[Haughtiness, Haughty|TG Haughtiness]].  

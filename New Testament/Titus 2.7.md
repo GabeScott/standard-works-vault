@@ -5,5 +5,5 @@
 [Titus 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.7?lang=eng#p7)
 
 
-[^a]: GR dignity, respectfulness.
-[^b]: TG [[Sincere, Sincerity]].
+[^a]: GR dignity, respectfulness.  
+[^b]: [[Sincere, Sincerity|TG Sincere]].  

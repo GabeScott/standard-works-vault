@@ -5,4 +5,4 @@
 [John 11:38](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.38?lang=eng#p38)
 
 
-[^a]: [[Matthew 27.60|Matt. 27:60.]]
+[^a]: [[Matthew 27.60|Matt. 27:60]].  

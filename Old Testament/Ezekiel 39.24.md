@@ -5,6 +5,6 @@
 [Ezekiel 39:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.24?lang=eng#p24)
 
 
-[^a]: [[Ezekiel 36.19|Ezek. 36:19.]]
-[^b]: TG [[Uncleanness, Unclean]].
-[^c]: TG [[Transgressor]].
+[^a]: [[Ezekiel 36.19|Ezek. 36:19]].  
+[^b]: [[Uncleanness, Unclean|TG Uncleanness]].  
+[^c]: [[Transgress, Transgression|TG Transgress]].  

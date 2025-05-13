@@ -5,4 +5,4 @@
 [John 11:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.9?lang=eng#p9)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

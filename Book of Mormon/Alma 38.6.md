@@ -5,4 +5,4 @@
 [Alma 38:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 36.23|Alma 36:23 (23, 26)]]; [[D&C 5.16|D&C 5:16]]. TG [[Holy Ghost, Baptism of]]; [[Man, Natural, Not Spiritually Reborn]]; [[Man, New, Spiritually Reborn]].
+[^a]: [[Alma 36.23|Alma 36:23 (23, 26)]][[Alma 36.26|]]; [[D&C 5.16|D&C 5:16]]. [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]]; [[Man, Natural, Not Spiritually Reborn|Man, Natural, Not Spiritually Reborn]]; [[Man, New, Spiritually Reborn|Man, New, Spiritually Reborn]].  

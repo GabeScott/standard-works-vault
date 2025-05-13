@@ -5,4 +5,4 @@
 [Ezra 8:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/8.24?lang=eng#p24)
 
 
-[^a]: TG [[Setting Apart]].
+[^a]: [[Setting Apart|TG Setting Apart]].  

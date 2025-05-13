@@ -5,5 +5,5 @@
 [Ezekiel 44:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.3?lang=eng#p3)
 
 
-[^a]: [[Ezekiel 34.24|Ezek. 34:24]]; [[Ezekiel 37.25|37:25 (24-25)]]; [[Ezekiel 45.7|45:7]]; [[Ezekiel 48.21|48:21.]]
-[^b]: [[Genesis 31.54|Gen. 31:54.]]
+[^a]: [[Ezekiel 34.24|Ezek. 34:24]]; [[Ezekiel 37.24|37:25 (24–25)]][[Ezekiel 37.25|]]; [[Ezekiel 45.7|45:7]]; [[Ezekiel 48.21|48:21]].  
+[^b]: [[Genesis 31.54|Gen. 31:54]].  

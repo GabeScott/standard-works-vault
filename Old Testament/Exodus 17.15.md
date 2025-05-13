@@ -5,4 +5,4 @@
 [Exodus 17:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.15?lang=eng#p15)
 
 
-[^a]: IE The Lord is my banner. Judg. 6:24.
+[^a]: IE The Lord is my banner. [[Judges 6.24|Judg. 6:24]].  

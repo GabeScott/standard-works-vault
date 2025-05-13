@@ -5,5 +5,5 @@
 [1 Kings 15:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.26?lang=eng#p26)
 
 
-[^a]: TG [[Unrighteous Dominion]].
-[^b]: [[Mosiah 11.29|Mosiah 11:29 (27-29).]]
+[^a]: [[Unrighteous Dominion|TG Unrighteous Dominion]].  
+[^b]: [[Mosiah 11.27|Mosiah 11:29 (27–29)]][[Mosiah 11.28|]][[Mosiah 11.29|]].  

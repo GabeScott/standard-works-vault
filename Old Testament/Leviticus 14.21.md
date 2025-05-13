@@ -5,5 +5,5 @@
 [Leviticus 14:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.21?lang=eng#p21)
 
 
-[^a]: [[Leviticus 5.7|Lev. 5:7]]; [[Leviticus 14.32|14:32]]. TG [[Poor]].
-[^b]: HEB a sheep, a sin sacrifice for presentation, to atone for him.
+[^a]: [[Leviticus 5.7|Lev. 5:7]]; [[Leviticus 14.32|14:32]]. [[Poor|TG Poor]].  
+[^b]: HEB a sheep, a sin sacrifice for presentation, to atone for him.  

@@ -5,4 +5,4 @@
 [1 Corinthians 14:28](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.28?lang=eng#p28)
 
 
-[^a]: TG [[Silence, Silent]].
+[^a]: [[Silence, Silent|TG Silence]].  

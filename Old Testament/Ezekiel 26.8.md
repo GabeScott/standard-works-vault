@@ -5,4 +5,4 @@
 [Ezekiel 26:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.8?lang=eng#p8)
 
 
-[^a]: OR shield.
+[^a]: OR shield.  

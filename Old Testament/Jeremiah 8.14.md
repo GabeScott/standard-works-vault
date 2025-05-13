@@ -5,4 +5,4 @@
 [Jeremiah 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.14?lang=eng#p14)
 
 
-[^a]: OR fortified.
+[^a]: OR fortified.  

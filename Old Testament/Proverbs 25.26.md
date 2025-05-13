@@ -5,4 +5,4 @@
 [Proverbs 25:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.26?lang=eng#p26)
 
 
-[^a]: HEB a trampled spring; i.e., ruined by wading into it. See Ezek. 34:18.
+[^a]: HEB a trampled spring; i.e., ruined by wading into it. See [[Ezekiel 34.18|Ezek. 34:18]].  

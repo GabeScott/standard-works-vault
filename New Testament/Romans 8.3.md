@@ -5,5 +5,5 @@
 [Romans 8:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.3?lang=eng#p3)
 
 
-[^a]: [[Hebrews 7.18|Heb. 7:18.]]
-[^b]: TG [[Jesus Christ, Condescension of]].
+[^a]: [[Hebrews 7.18|Heb. 7:18]].  
+[^b]: [[Jesus Christ, Condescension of|TG Jesus Christ, Condescension of]].  

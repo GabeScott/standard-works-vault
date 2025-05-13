@@ -5,5 +5,5 @@
 [Alma 10:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p13#p13)
 
 
-[^a]: [[Jeremiah 11.19|Jer. 11:19]]; Lam. 3:62 (60-62); [[Alma 11.21|Alma 11:21.]]
-[^b]: [[Mark 14.55|Mark 14:55 (55-60).]]
+[^a]: [[Jeremiah 11.19|Jer. 11:19]]; [[Lamentations 3.60|Lam. 3:62 (60–62)]][[Lamentations 3.61|]][[Lamentations 3.62|]]; [[Alma 11.21|Alma 11:21]].  
+[^b]: [[Mark 14.55|Mark 14:55 (55–60)]][[Mark 14.56|]][[Mark 14.57|]][[Mark 14.58|]][[Mark 14.59|]][[Mark 14.60|]].  

@@ -5,4 +5,4 @@
 [Luke 22:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.8?lang=eng#p8)
 
 
-[^a]: [[Mark 14.13|Mark 14:13 (12-16).]]
+[^a]: [[Mark 14.12|Mark 14:13 (12–16)]][[Mark 14.13|]][[Mark 14.14|]][[Mark 14.15|]][[Mark 14.16|]].  

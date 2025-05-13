@@ -5,4 +5,4 @@
 [Luke 14:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.7?lang=eng#p7)
 
 
-[^a]: GR first places. Matt. 23:6.
+[^a]: GR first places. [[Matthew 23.6|Matt. 23:6]].  

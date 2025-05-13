@@ -5,4 +5,4 @@
 [Ether 10:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p33#p33)
 
 
-[^a]: TG [[Secret Combinations]].
+[^a]: [[Secret Combinations|TG Secret Combinations]].  

@@ -5,4 +5,4 @@
 [3 Nephi 6:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p4#p4)
 
 
-[^a]: TG [[Order]].
+[^a]: [[Order|TG Order]].  

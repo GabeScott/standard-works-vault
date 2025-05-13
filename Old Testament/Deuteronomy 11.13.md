@@ -5,5 +5,5 @@
 [Deuteronomy 11:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.13?lang=eng#p13)
 
 
-[^a]: 2 Thes. 3:5.
-[^b]: TG [[Service]].
+[^a]: [[2 Thessalonians 3.5|2 Thes. 3:5]].  
+[^b]: [[Service|TG Service]].  

@@ -5,4 +5,4 @@
 [Mormon 8:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 45.10|Alma 45:10.]]
+[^a]: [[Alma 45.10|Alma 45:10]].  

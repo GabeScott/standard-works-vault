@@ -5,4 +5,4 @@
 [Nehemiah 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/3.13?lang=eng#p13)
 
 
-[^a]: [[Nehemiah 2.13|Neh. 2:13.]]
+[^a]: [[Nehemiah 2.13|Neh. 2:13]].  

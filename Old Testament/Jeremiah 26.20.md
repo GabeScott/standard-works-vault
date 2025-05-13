@@ -5,4 +5,4 @@
 [Jeremiah 26:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.20?lang=eng#p20)
 
 
-[^a]: [[1 Nephi 1.4|1 Ne. 1:4.]]
+[^a]: [[1 Nephi 1.4|1 Ne. 1:4]].  

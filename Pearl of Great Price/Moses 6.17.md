@@ -5,5 +5,5 @@
 [Moses 6:17](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.17?lang=eng#p17)
 
 
-[^a]: D&C 107:45, 53.
-[^b]: [[Moses 6.41|Moses 6:41.]]
+[^a]: [[D&C 107.45|D&C 107:45, 53]][[D&C 107.53|]].  
+[^b]: [[Moses 6.41|Moses 6:41]].  

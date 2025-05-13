@@ -5,7 +5,7 @@
 [Ezekiel 40:46](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.46?lang=eng#p46)
 
 
-[^a]: [[Ezekiel 42.13|Ezek. 42:13.]]
-[^b]: [[Numbers 18.5|Num. 18:5.]]
-[^c]: [[Ezekiel 43.19|Ezek. 43:19.]]
-[^d]: [[Numbers 16.5|Num. 16:5]]; [[Ezekiel 44.15|Ezek. 44:15 (15-16)]]; [[Ezekiel 45.4|45:4.]]
+[^a]: [[Ezekiel 42.13|Ezek. 42:13]].  
+[^b]: [[Numbers 18.5|Num. 18:5]].  
+[^c]: [[Ezekiel 43.19|Ezek. 43:19]].  
+[^d]: [[Numbers 16.5|Num. 16:5]]; [[Ezekiel 44.15|Ezek. 44:15 (15–16)]][[Ezekiel 44.16|]]; [[Ezekiel 45.4|45:4]].  

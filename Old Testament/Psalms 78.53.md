@@ -5,4 +5,4 @@
 [Psalms 78:53](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.53?lang=eng#p53)
 
 
-[^a]: [[Exodus 14.28|Ex. 14:28 (27-28).]]
+[^a]: [[Exodus 14.27|Ex. 14:28 (27–28)]][[Exodus 14.28|]].  

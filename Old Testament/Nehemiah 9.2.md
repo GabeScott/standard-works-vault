@@ -5,6 +5,6 @@
 [Nehemiah 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.2?lang=eng#p2)
 
 
-[^a]: [[Alma 5.57|Alma 5:57.]]
-[^b]: OR foreigners.
-[^c]: TG [[Confession]]; [[Repent, Repentance]].
+[^a]: [[Alma 5.57|Alma 5:57]].  
+[^b]: OR foreigners.  
+[^c]: [[Confession|TG Confession]]; [[Repent, Repentance|Repent]].  

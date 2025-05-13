@@ -5,4 +5,4 @@
 [Mark 6:13](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.13?lang=eng#p13)
 
 
-[^a]: [[Exodus 31.11|Ex. 31:11]]. TG [[Administrations to the Sick]]; [[Anointing, Anoint]].
+[^a]: [[Exodus 31.11|Ex. 31:11]]. [[Administrations to the Sick|TG Administrations to the Sick]]; [[Anointing, Anoint|Anointing]].  

@@ -5,4 +5,4 @@
 [2 Samuel 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/3.6?lang=eng#p6)
 
 
-[^a]: [[2 Samuel 2.8|2 Sam. 2:8.]]
+[^a]: [[2 Samuel 2.8|2 Sam. 2:8]].  

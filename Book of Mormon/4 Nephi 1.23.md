@@ -5,4 +5,4 @@
 [4 Nephi 1:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Treasure]].
+[^a]: [[Treasure|TG Treasure]].  

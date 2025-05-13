@@ -5,4 +5,4 @@
 [Psalms 118:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.12?lang=eng#p12)
 
 
-[^a]: [[Deuteronomy 1.44|Deut. 1:44.]]
+[^a]: [[Deuteronomy 1.44|Deut. 1:44]].  

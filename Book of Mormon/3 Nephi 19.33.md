@@ -5,4 +5,4 @@
 [3 Nephi 19:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p33#p33)
 
 
-[^a]: [[Proverbs 2.2|Prov. 2:2]]; [[Proverbs 8.5|8:5]]; [[Isaiah 44.18|Isa. 44:18]]; [[Mosiah 2.9|Mosiah 2:9]]; [[Mosiah 12.27|12:27.]]
+[^a]: [[Proverbs 2.2|Prov. 2:2]]; [[Proverbs 8.5|8:5]]; [[Isaiah 44.18|Isa. 44:18]]; [[Mosiah 2.9|Mosiah 2:9]]; [[Mosiah 12.27|12:27]].  

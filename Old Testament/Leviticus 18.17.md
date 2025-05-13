@@ -5,4 +5,4 @@
 [Leviticus 18:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.17?lang=eng#p17)
 
 
-[^a]: TG [[Woman, Women]].
+[^a]: [[Woman, Women|TG Woman]].  

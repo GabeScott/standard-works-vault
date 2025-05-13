@@ -5,5 +5,5 @@
 [2 Chronicles 22:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/22.9?lang=eng#p9)
 
 
-[^a]: [[2 Kings 9.27|2 Kgs. 9:27.]]
-[^b]: OR grandson.
+[^a]: [[2 Kings 9.27|2 Kgs. 9:27]].  
+[^b]: OR grandson.  

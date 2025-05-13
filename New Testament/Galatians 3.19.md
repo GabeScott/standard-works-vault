@@ -5,5 +5,5 @@
 [Galatians 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.19?lang=eng#p19)
 
 
-[^a]: JST Gal. 3:19-20 (Appendix).
-[^b]: [[1 Timothy 1.9|1 Tim. 1:9.]]
+[^a]: [[JST Galatians 3.19|JST Gal. 3:19–20 (Appendix)]][[JST Galatians 3.20|]].  
+[^b]: [[1 Timothy 1.9|1 Tim. 1:9]].  

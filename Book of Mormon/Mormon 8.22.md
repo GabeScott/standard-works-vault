@@ -5,4 +5,4 @@
 [Mormon 8:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p22#p22)
 
 
-[^a]: [[D&C 3.3|D&C 3:3.]]
+[^a]: [[D&C 3.3|D&C 3:3]].  

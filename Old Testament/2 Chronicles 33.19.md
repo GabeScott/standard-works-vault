@@ -5,4 +5,4 @@
 [2 Chronicles 33:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.19?lang=eng#p19)
 
 
-[^a]: TG [[Scriptures, Lost]].
+[^a]: [[Scriptures, Lost|TG Scriptures, Lost]].  

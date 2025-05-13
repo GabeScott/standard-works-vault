@@ -5,5 +5,5 @@
 [Hebrews 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.6?lang=eng#p6)
 
 
-[^a]: GR those who formerly were taught the gospel.
-[^b]: GR disobedience, unbelief, obstinacy.
+[^a]: GR those who formerly were taught the gospel.  
+[^b]: GR disobedience, unbelief, obstinacy.  

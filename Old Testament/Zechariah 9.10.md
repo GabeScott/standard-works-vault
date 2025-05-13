@@ -5,6 +5,6 @@
 [Zechariah 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/9.10?lang=eng#p10)
 
 
-[^a]: [[Micah 5.10|Micah 5:10.]]
-[^b]: TG [[Heathen]].
-[^c]: [[Psalms 72.8|Ps. 72:8]]; [[D&C 58.22|D&C 58:22]]; [[D&C 76.63|76:63.]]
+[^a]: [[Micah 5.10|Micah 5:10]].  
+[^b]: [[Heathen|TG Heathen]].  
+[^c]: [[Psalms 72.8|Ps. 72:8]]; [[D&C 58.22|D&C 58:22]]; [[D&C 76.63|76:63]].  

@@ -5,5 +5,5 @@
 [Mosiah 29:42](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p42#p42)
 
 
-[^a]: [[Alma 2.16|Alma 2:16]]; [[Alma 7.1|7:1.]]
-[^b]: [[Mosiah 26.7|Mosiah 26:7]]; [[Alma 4.4|Alma 4:4.]]
+[^a]: [[Alma 2.16|Alma 2:16]]; [[Alma 7.1|7:1]].  
+[^b]: [[Mosiah 26.7|Mosiah 26:7]]; [[Alma 4.4|Alma 4:4]].  

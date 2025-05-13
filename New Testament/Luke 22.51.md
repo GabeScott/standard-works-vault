@@ -5,4 +5,4 @@
 [Luke 22:51](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.51?lang=eng#p51)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Heal, Healing|TG Heal]].  

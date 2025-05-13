@@ -5,4 +5,4 @@
 [Luke 11:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.33?lang=eng#p33)
 
 
-[^a]: [[Matthew 5.15|Matt. 5:15 (15-16)]]; [[3 Nephi 18.24|3 Ne. 18:24.]]
+[^a]: [[Matthew 5.15|Matt. 5:15 (15–16)]][[Matthew 5.16|]]; [[3 Nephi 18.24|3 Ne. 18:24]].  

@@ -5,4 +5,4 @@
 [Numbers 16:45](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.45?lang=eng#p45)
 
 
-[^a]: [[Genesis 19.14|Gen. 19:14.]]
+[^a]: [[Genesis 19.14|Gen. 19:14]].  

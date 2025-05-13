@@ -5,5 +5,5 @@
 [Genesis 37:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.2?lang=eng#p2)
 
 
-[^a]: IE genealogical lines.
-[^b]: [[Genesis 41.46|Gen. 41:46 (46-47, 54).]]
+[^a]: IE genealogical lines.  
+[^b]: [[Genesis 41.46|Gen. 41:46 (46–47, 54)]][[Genesis 41.47|]][[Genesis 41.54|]].  

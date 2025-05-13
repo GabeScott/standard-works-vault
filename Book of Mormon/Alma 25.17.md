@@ -5,4 +5,4 @@
 [Alma 25:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/25?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 17.9|Alma 17:9 (7-11).]]
+[^a]: [[Alma 17.7|Alma 17:9 (7–11)]][[Alma 17.8|]][[Alma 17.9|]][[Alma 17.10|]][[Alma 17.11|]].  

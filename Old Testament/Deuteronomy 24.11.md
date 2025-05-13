@@ -5,4 +5,4 @@
 [Deuteronomy 24:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.11?lang=eng#p11)
 
 
-[^a]: OR outside.
+[^a]: OR outside.  

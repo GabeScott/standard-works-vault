@@ -5,4 +5,4 @@
 [1 Kings 7:38](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.38?lang=eng#p38)
 
 
-[^a]: [[2 Chronicles 4.6|2 Chr. 4:6.]]
+[^a]: [[2 Chronicles 4.6|2 Chr. 4:6]].  

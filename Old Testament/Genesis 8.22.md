@@ -5,5 +5,5 @@
 [Genesis 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.22?lang=eng#p22)
 
 
-[^a]: [[Amos 9.13|Amos 9:13 (13-15).]]
-[^b]: [[Jeremiah 33.20|Jer. 33:20 (20, 25).]]
+[^a]: [[Amos 9.13|Amos 9:13 (13–15)]][[Amos 9.14|]][[Amos 9.15|]].  
+[^b]: [[Jeremiah 33.20|Jer. 33:20 (20, 25)]][[Jeremiah 33.25|]].  

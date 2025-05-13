@@ -5,5 +5,5 @@
 [Ecclesiastes 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/4.8?lang=eng#p8)
 
 
-[^a]: OR deprive myself.
-[^b]: [[Ecclesiastes 1.13|Eccl. 1:13.]]
+[^a]: OR deprive myself.  
+[^b]: [[Ecclesiastes 1.13|Eccl. 1:13]].  

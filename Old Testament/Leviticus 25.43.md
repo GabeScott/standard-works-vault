@@ -5,4 +5,4 @@
 [Leviticus 25:43](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.43?lang=eng#p43)
 
 
-[^a]: [[Mormon 9.27|Morm. 9:27.]]
+[^a]: [[Mormon 9.27|Morm. 9:27]].  

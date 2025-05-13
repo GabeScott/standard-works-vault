@@ -5,5 +5,5 @@
 [Mosiah 19:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/19?lang=eng&id=p28#p28)
 
 
-[^a]: [[Mosiah 21.5|Mosiah 21:5]]; [[Mosiah 22.6|22:6 (6-10).]]
-[^b]: [[Mosiah 7.22|Mosiah 7:22]]; [[Mosiah 9.10|9:10.]]
+[^a]: [[Mosiah 21.5|Mosiah 21:5]]; [[Mosiah 22.6|22:6 (6–10)]][[Mosiah 22.7|]][[Mosiah 22.8|]][[Mosiah 22.9|]][[Mosiah 22.10|]].  
+[^b]: [[Mosiah 7.22|Mosiah 7:22]]; [[Mosiah 9.10|9:10]].  

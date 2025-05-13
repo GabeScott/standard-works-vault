@@ -5,5 +5,5 @@
 [1 Corinthians 16:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.15?lang=eng#p15)
 
 
-[^a]: [[1 Corinthians 1.16|1 Cor. 1:16.]]
-[^b]: GR devoted, appointed.
+[^a]: [[1 Corinthians 1.16|1 Cor. 1:16]].  
+[^b]: GR devoted, appointed.  

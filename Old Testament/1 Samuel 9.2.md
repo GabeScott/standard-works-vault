@@ -5,6 +5,6 @@
 [1 Samuel 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.2?lang=eng#p2)
 
 
-[^a]: [[1 Chronicles 12.29|1 Chr. 12:29.]]
-[^b]: TG [[Talents]].
-[^c]: [[1 Samuel 10.23|1 Sam. 10:23.]]
+[^a]: [[1 Chronicles 12.29|1 Chr. 12:29]].  
+[^b]: [[Talents|TG Talents]].  
+[^c]: [[1 Samuel 10.23|1 Sam. 10:23]].  

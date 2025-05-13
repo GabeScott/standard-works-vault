@@ -5,4 +5,4 @@
 [Judges 6:11](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.11?lang=eng#p11)
 
 
-[^b]: HEB in the winepress.
+[^b]: HEB in the winepress.  

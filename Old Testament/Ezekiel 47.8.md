@@ -5,5 +5,5 @@
 [Ezekiel 47:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.8?lang=eng#p8)
 
 
-[^a]: [[Deuteronomy 3.17|Deut. 3:17.]]
-[^b]: [[2 Kings 2.21|2 Kgs. 2:21.]]
+[^a]: [[Deuteronomy 3.17|Deut. 3:17]].  
+[^b]: [[2 Kings 2.21|2 Kgs. 2:21]].  

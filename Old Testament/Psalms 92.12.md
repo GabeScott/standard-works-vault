@@ -5,4 +5,4 @@
 [Psalms 92:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/92.12?lang=eng#p12)
 
 
-[^a]: [[Psalms 52.8|Ps. 52:8.]]
+[^a]: [[Psalms 52.8|Ps. 52:8]].  

@@ -5,5 +5,5 @@
 [Zephaniah 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.5?lang=eng#p5)
 
 
-[^a]: [[Ezekiel 25.16|Ezek. 25:16.]]
-[^b]: Obad. 1:19.
+[^a]: [[Ezekiel 25.16|Ezek. 25:16]].  
+[^b]: [[Obadiah 1.19|Obad. 1:19]].  

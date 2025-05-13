@@ -5,5 +5,5 @@
 [Matthew 26:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.17?lang=eng#p17)
 
 
-[^a]: TG [[Bread, Unleavened]].
-[^b]: TG [[Passover]].
+[^a]: [[Bread, Unleavened|TG Bread, Unleavened]].  
+[^b]: [[Passover|TG Passover]].  

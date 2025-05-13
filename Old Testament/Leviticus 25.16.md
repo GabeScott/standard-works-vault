@@ -5,4 +5,4 @@
 [Leviticus 25:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.16?lang=eng#p16)
 
 
-[^a]: OR amount, number.
+[^a]: OR amount, number.  

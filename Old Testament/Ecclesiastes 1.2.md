@@ -5,5 +5,5 @@
 [Ecclesiastes 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.2?lang=eng#p2)
 
 
-[^a]: TG [[Vanity]].
-[^b]: IE empty, fleeting, unsubstantial.
+[^a]: [[Vanity|TG Vanity]].  
+[^b]: IE empty, fleeting, unsubstantial.  

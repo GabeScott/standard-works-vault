@@ -5,5 +5,5 @@
 [Matthew 16:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.25?lang=eng#p25)
 
 
-[^a]: TG [[Self-Mastery]]; [[Self-Sacrifice]].
-[^b]: TG [[Abundant Life]].
+[^a]: [[Self-Mastery|TG Self-Mastery]]; [[Self-Sacrifice|Self-Sacrifice]].  
+[^b]: [[Abundant Life|TG Abundant Life]].  

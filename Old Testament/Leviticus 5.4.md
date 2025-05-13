@@ -5,4 +5,4 @@
 [Leviticus 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/5.4?lang=eng#p4)
 
 
-[^a]: [[3 Nephi 12.34|3 Ne. 12:34 (34-37).]]
+[^a]: [[3 Nephi 12.34|3 Ne. 12:34 (34–37)]][[3 Nephi 12.35|]][[3 Nephi 12.36|]][[3 Nephi 12.37|]].  

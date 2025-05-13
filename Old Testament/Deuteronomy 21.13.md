@@ -5,4 +5,4 @@
 [Deuteronomy 21:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/21.13?lang=eng#p13)
 
 
-[^a]: OR captive garb.
+[^a]: OR captive garb.  

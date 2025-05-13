@@ -5,5 +5,5 @@
 [Isaiah 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.22?lang=eng#p22)
 
 
-[^a]: IE Cease depending on mortal man; he is of little power compared to God. Moses 1:10.
-[^b]: TG [[Trust Not in the Arm of Flesh]].
+[^a]: IE Cease depending on mortal man; he is of little power compared to God. [[Moses 1.10|Moses 1:10]].  
+[^b]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  

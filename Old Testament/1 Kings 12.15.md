@@ -5,5 +5,5 @@
 [1 Kings 12:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.15?lang=eng#p15)
 
 
-[^a]: HEB turn of affairs.
-[^b]: [[1 Kings 11.30|1 Kgs. 11:30 (30-31).]]
+[^a]: HEB turn of affairs.  
+[^b]: [[1 Kings 11.30|1 Kgs. 11:30 (30–31)]][[1 Kings 11.31|]].  

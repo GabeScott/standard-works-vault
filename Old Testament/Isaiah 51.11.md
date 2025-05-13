@@ -5,7 +5,7 @@
 [Isaiah 51:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.11?lang=eng#p11)
 
 
-[^a]: TG [[Israel, Restoration of]].
-[^b]: TG [[Israel, Gathering of]].
-[^c]: TG [[Joy]].
-[^d]: TG [[Mourning, Mourn]].
+[^a]: [[Israel, Restoration of|TG Israel, Restoration of]].  
+[^b]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^c]: [[Joy|TG Joy]].  
+[^d]: [[Mourning, Mourn|TG Mourning]].  

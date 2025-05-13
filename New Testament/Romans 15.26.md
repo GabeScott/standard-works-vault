@@ -5,4 +5,4 @@
 [Romans 15:26](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.26?lang=eng#p26)
 
 
-[^a]: TG [[Almsgiving]]; [[Welfare]].
+[^a]: [[Almsgiving|TG Almsgiving]]; [[Welfare|Welfare]].  

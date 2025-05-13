@@ -5,5 +5,5 @@
 [Numbers 26:59](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.59?lang=eng#p59)
 
 
-[^a]: [[Exodus 2.1|Ex. 2:1 (1-2).]]
-[^b]: [[Exodus 2.4|Ex. 2:4]]; [[Exodus 15.20|15:20 (20-21).]]
+[^a]: [[Exodus 2.1|Ex. 2:1 (1–2)]][[Exodus 2.2|]].  
+[^b]: [[Exodus 2.4|Ex. 2:4]]; [[Exodus 15.20|15:20 (20–21)]][[Exodus 15.21|]].  

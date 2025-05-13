@@ -5,4 +5,4 @@
 [Isaiah 16:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.13?lang=eng#p13)
 
 
-[^a]: [[Amos 2.1|Amos 2:1 (1-3).]]
+[^a]: [[Amos 2.1|Amos 2:1 (1–3)]][[Amos 2.2|]][[Amos 2.3|]].  

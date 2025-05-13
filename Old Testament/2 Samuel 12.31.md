@@ -5,4 +5,4 @@
 [2 Samuel 12:31](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.31?lang=eng#p31)
 
 
-[^a]: [[1 Chronicles 20.3|1 Chr. 20:3.]]
+[^a]: [[1 Chronicles 20.3|1 Chr. 20:3]].  

@@ -5,4 +5,4 @@
 [John 9:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.17?lang=eng#p17)
 
 
-[^a]: [[John 7.40|John 7:40 (40-44).]]
+[^a]: [[John 7.40|John 7:40 (40–44)]][[John 7.41|]][[John 7.42|]][[John 7.43|]][[John 7.44|]].  

@@ -5,4 +5,4 @@
 [Psalms 58:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/58.1?lang=eng#p1)
 
 
-[^a]: [[Mosiah 29.11|Mosiah 29:11.]]
+[^a]: [[Mosiah 29.11|Mosiah 29:11]].  

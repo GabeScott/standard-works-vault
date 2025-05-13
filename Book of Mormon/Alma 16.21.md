@@ -5,4 +5,4 @@
 [Alma 16:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/16?lang=eng&id=p21#p21)
 
 
-[^a]: [[Alma 15.17|Alma 15:17.]]
+[^a]: [[Alma 15.17|Alma 15:17]].  

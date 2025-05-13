@@ -5,5 +5,5 @@
 [Ecclesiastes 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.2?lang=eng#p2)
 
 
-[^a]: [[Acts 17.26|Acts 17:26]]; [[Alma 40.10|Alma 40:10]]; [[D&C 138.53|D&C 138:53 (53-56).]]
-[^b]: [[2 Kings 20.1|2 Kgs. 20:1 (1-6)]]; [[D&C 42.48|D&C 42:48.]]
+[^a]: [[Acts 17.26|Acts 17:26]]; [[Alma 40.10|Alma 40:10]]; [[D&C 138.53|D&C 138:53 (53–56)]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]].  
+[^b]: [[2 Kings 20.1|2 Kgs. 20:1 (1–6)]][[2 Kings 20.2|]][[2 Kings 20.3|]][[2 Kings 20.4|]][[2 Kings 20.5|]][[2 Kings 20.6|]]; [[D&C 42.48|D&C 42:48]].  

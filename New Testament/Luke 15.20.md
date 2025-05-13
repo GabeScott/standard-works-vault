@@ -5,4 +5,4 @@
 [Luke 15:20](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.20?lang=eng#p20)
 
 
-[^a]: TG [[Benevolence]]; [[Compassion]]; [[Family, Love within]]; [[Mercy, Merciful]].
+[^a]: [[Benevolence|TG Benevolence]]; [[Compassion|Compassion]]; [[Family, Love within|Family, Love within]]; [[Mercy, Merciful|Mercy]].  

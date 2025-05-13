@@ -5,4 +5,4 @@
 [Luke 11:48](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.48?lang=eng#p48)
 
 
-[^a]: GR agree, accord with. Acts 22:20.
+[^a]: GR agree, accord with. [[Acts 22.20|Acts 22:20]].  

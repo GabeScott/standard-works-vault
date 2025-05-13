@@ -5,4 +5,4 @@
 [Exodus 4:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.23?lang=eng#p23)
 
 
-[^a]: [[Exodus 11.5|Ex. 11:5 (1-5).]]
+[^a]: [[Exodus 11.1|Ex. 11:5 (1–5)]][[Exodus 11.2|]][[Exodus 11.3|]][[Exodus 11.4|]][[Exodus 11.5|]].  

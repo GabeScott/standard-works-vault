@@ -5,6 +5,6 @@
 [Exodus 4:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.22?lang=eng#p22)
 
 
-[^a]: [[Jeremiah 2.14|Jer. 2:14.]]
-[^b]: [[Hosea 11.1|Hosea 11:1 (1-4).]]
-[^c]: TG [[Firstborn]].
+[^a]: [[Jeremiah 2.14|Jer. 2:14]].  
+[^b]: [[Hosea 11.1|Hosea 11:1 (1–4)]][[Hosea 11.2|]][[Hosea 11.3|]][[Hosea 11.4|]].  
+[^c]: [[Firstborn|TG Firstborn]].  

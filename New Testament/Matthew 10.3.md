@@ -5,4 +5,4 @@
 [Matthew 10:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.3?lang=eng#p3)
 
 
-[^a]: GR tax collector.
+[^a]: GR tax collector.  

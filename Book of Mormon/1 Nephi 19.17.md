@@ -5,4 +5,4 @@
 [1 Nephi 19:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p17#p17)
 
 
-[^a]: [[Isaiah 40.5|Isa. 40:5 (4-5).]]
+[^a]: [[Isaiah 40.4|Isa. 40:5 (4–5)]][[Isaiah 40.5|]].  

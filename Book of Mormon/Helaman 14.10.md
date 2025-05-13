@@ -5,4 +5,4 @@
 [Helaman 14:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p10#p10)
 
 
-[^a]: [[Helaman 13.2|Hel. 13:2 (2-7).]]
+[^a]: [[Helaman 13.2|Hel. 13:2 (2–7)]][[Helaman 13.3|]][[Helaman 13.4|]][[Helaman 13.5|]][[Helaman 13.6|]][[Helaman 13.7|]].  

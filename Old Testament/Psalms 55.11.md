@@ -5,4 +5,4 @@
 [Psalms 55:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/55.11?lang=eng#p11)
 
 
-[^a]: TG [[Guile]]; [[Sincere, Sincerity]].
+[^a]: [[Guile|TG Guile]]; [[Sincere, Sincerity|Sincere]].  

@@ -5,4 +5,4 @@
 [1 Corinthians 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.13?lang=eng#p13)
 
 
-[^a]: [[2 Nephi 28.3|2 Ne. 28:3 (3-5, 12-13).]]
+[^a]: [[2 Nephi 28.3|2 Ne. 28:3 (3–5, 12–13)]][[2 Nephi 28.4|]][[2 Nephi 28.5|]][[2 Nephi 28.12|]][[2 Nephi 28.13|]].  

@@ -5,5 +5,5 @@
 [Jeremiah 50:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 13.14|Isa. 13:14.]]
-[^b]: TG [[Lands of Inheritance]].
+[^a]: [[Isaiah 13.14|Isa. 13:14]].  
+[^b]: [[Lands of Inheritance|TG Lands of Inheritance]].  

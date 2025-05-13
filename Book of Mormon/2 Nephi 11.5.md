@@ -5,6 +5,6 @@
 [2 Nephi 11:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/11?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Abrahamic Covenant]].
-[^b]: TG [[Benevolence]]; [[Grace]].
-[^c]: TG [[Deliver, Deliverance]]; [[Jesus Christ, Atonement through]].
+[^a]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  
+[^b]: [[Benevolence|TG Benevolence]]; [[Grace|Grace]].  
+[^c]: [[Deliver, Deliverance|TG Deliver]]; [[Jesus Christ, Atonement through|Jesus Christ, Atonement through]].  

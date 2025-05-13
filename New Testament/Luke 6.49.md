@@ -5,4 +5,4 @@
 [Luke 6:49](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.49?lang=eng#p49)
 
 
-[^a]: [[James 1.23|James 1:23 (22-25).]]
+[^a]: [[James 1.22|James 1:23 (22–25)]][[James 1.23|]][[James 1.24|]][[James 1.25|]].  

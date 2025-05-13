@@ -5,4 +5,4 @@
 [Psalms 58:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/58.6?lang=eng#p6)
 
 
-[^a]: [[Job 4.10|Job 4:10.]]
+[^a]: [[Job 4.10|Job 4:10]].  

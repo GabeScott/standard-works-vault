@@ -5,4 +5,4 @@
 [Mosiah 21:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p20#p20)
 
 
-[^a]: [[Mosiah 20.5|Mosiah 20:5.]]
+[^a]: [[Mosiah 20.5|Mosiah 20:5]].  

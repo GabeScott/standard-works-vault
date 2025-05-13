@@ -5,5 +5,5 @@
 [Mark 3:28](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.28?lang=eng#p28)
 
 
-[^a]: JST Mark 3:21-25 (Appendix).
-[^b]: GR however so many.
+[^a]: [[JST Mark 3.21|JST Mark 3:21–25 (Appendix)]][[JST Mark 3.22|]][[JST Mark 3.23|]][[JST Mark 3.24|]][[JST Mark 3.25|]].  
+[^b]: GR however so many.  

@@ -5,4 +5,4 @@
 [2 Chronicles 24:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/24.14?lang=eng#p14)
 
 
-[^a]: [[2 Kings 12.13|2 Kgs. 12:13.]]
+[^a]: [[2 Kings 12.13|2 Kgs. 12:13]].  

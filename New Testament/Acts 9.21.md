@@ -5,5 +5,5 @@
 [Acts 9:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.21?lang=eng#p21)
 
 
-[^a]: [[Galatians 1.13|Gal. 1:13.]]
-[^b]: [[Acts 26.10|Acts 26:10.]]
+[^a]: [[Galatians 1.13|Gal. 1:13]].  
+[^b]: [[Acts 26.10|Acts 26:10]].  

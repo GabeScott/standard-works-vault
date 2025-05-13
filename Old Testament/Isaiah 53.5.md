@@ -5,7 +5,7 @@
 [Isaiah 53:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.5?lang=eng#p5)
 
 
-[^a]: TG [[Jesus Christ, Mission of]]; [[Jesus Christ, Prophecies about]]; [[Salvation, Plan of]].
-[^b]: [[Romans 4.25|Rom. 4:25]]. TG [[Redemption]]; [[Transgressor]].
-[^c]: [[1 Peter 2.24|1 Pet. 2:24 (24-25).]]
-[^d]: TG [[Remission of Sins]].
+[^a]: [[Jesus Christ, Mission of|TG Jesus Christ, Mission of]]; [[Jesus Christ, Prophecies about|Jesus Christ, Prophecies about]]; [[Salvation, Plan of|Salvation, Plan of]].  
+[^b]: [[Romans 4.25|Rom. 4:25]]. [[Redemption|TG Redemption]]; [[Transgress, Transgression|Transgress]].  
+[^c]: [[1 Peter 2.24|1 Pet. 2:24 (24–25)]][[1 Peter 2.25|]].  
+[^d]: [[Remission of Sins|TG Remission of Sins]].  

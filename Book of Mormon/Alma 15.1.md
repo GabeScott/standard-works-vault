@@ -5,5 +5,5 @@
 [Alma 15:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/15?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 14.23|Alma 14:23]]; [[Alma 16.2|16:2 (2-3, 9, 11).]]
-[^b]: [[Alma 14.7|Alma 14:7.]]
+[^a]: [[Alma 14.23|Alma 14:23]]; [[Alma 16.2|16:2 (2–3, 9, 11)]][[Alma 16.3|]][[Alma 16.9|]][[Alma 16.11|]].  
+[^b]: [[Alma 14.7|Alma 14:7]].  

@@ -5,5 +5,5 @@
 [Matthew 13:41](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.41?lang=eng#p41)
 
 
-[^a]: TG [[Angels]].
-[^b]: TG [[Offense, Offend, Offender]].
+[^a]: [[Angels|TG Angels]].  
+[^b]: [[Offense, Offend, Offender|TG Offense]].  

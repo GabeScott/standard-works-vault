@@ -5,4 +5,4 @@
 [1 Nephi 20:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p22#p22)
 
 
-[^a]: [[Romans 3.17|Rom. 3:17]]. TG [[Peace of God]].
+[^a]: [[Romans 3.17|Rom. 3:17]]. [[Peace of God|TG Peace of God]].  

@@ -5,5 +5,5 @@
 [3 Nephi 21:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p29#p29)
 
 
-[^a]: [[3 Nephi 20.42|3 Ne. 20:42.]]
-[^b]: [[Isaiah 52.12|Isa. 52:12 (11-12).]]
+[^a]: [[3 Nephi 20.42|3 Ne. 20:42]].  
+[^b]: [[Isaiah 52.11|Isa. 52:12 (11–12)]][[Isaiah 52.12|]].  

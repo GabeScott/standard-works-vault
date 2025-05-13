@@ -5,7 +5,7 @@
 [Moroni 7:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p13#p13)
 
 
-[^a]: [[D&C 35.12|D&C 35:12]]; [[D&C 84.47|84:47 (47-51).]]
-[^b]: [[2 Nephi 33.4|2 Ne. 33:4]]; [[Ether 8.26|Ether 8:26.]]
-[^c]: TG [[Benevolence]].
-[^d]: TG [[Inspiration, Inspire]].
+[^a]: [[D&C 35.12|D&C 35:12]]; [[D&C 84.47|84:47 (47–51)]][[D&C 84.48|]][[D&C 84.49|]][[D&C 84.50|]][[D&C 84.51|]].  
+[^b]: [[2 Nephi 33.4|2 Ne. 33:4]]; [[Ether 8.26|Ether 8:26]].  
+[^c]: [[Benevolence|TG Benevolence]].  
+[^d]: [[Inspiration, Inspire|TG Inspiration]].  

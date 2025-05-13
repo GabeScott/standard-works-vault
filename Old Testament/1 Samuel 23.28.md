@@ -5,4 +5,4 @@
 [1 Samuel 23:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/23.28?lang=eng#p28)
 
 
-[^a]: IE The rock of divisions.
+[^a]: IE The rock of divisions.  

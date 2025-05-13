@@ -5,4 +5,4 @@
 [Matthew 22:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.13?lang=eng#p13)
 
 
-[^a]: [[Matthew 8.12|Matt. 8:12 (11-12)]]; [[D&C 77.8|D&C 77:8]]; [[D&C 133.72|133:72 (71-73).]]
+[^a]: [[Matthew 8.11|Matt. 8:12 (11–12)]][[Matthew 8.12|]]; [[D&C 77.8|D&C 77:8]]; [[D&C 133.71|133:72 (71–73)]][[D&C 133.72|]][[D&C 133.73|]].  

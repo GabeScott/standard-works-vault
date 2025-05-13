@@ -5,4 +5,4 @@
 [Ether 6:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/6?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Prosper]].
+[^a]: [[Prosper|TG Prosper]].  

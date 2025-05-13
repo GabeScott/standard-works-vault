@@ -5,4 +5,4 @@
 [Jeremiah 31:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.19?lang=eng#p19)
 
 
-[^a]: [[Psalms 119.67|Ps. 119:67.]]
+[^a]: [[Psalms 119.67|Ps. 119:67]].  

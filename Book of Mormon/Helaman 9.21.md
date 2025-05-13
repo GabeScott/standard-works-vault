@@ -5,5 +5,5 @@
 [Helaman 9:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/9?lang=eng&id=p21#p21)
 
 
-[^a]: [[Psalms 75.4|Ps. 75:4]]; [[Luke 24.25|Luke 24:25]]; [[Acts 7.51|Acts 7:51.]]
-[^b]: TG [[Stiffnecked, Stiffneckedness]].
+[^a]: [[Psalms 75.4|Ps. 75:4]]; [[Luke 24.25|Luke 24:25]]; [[Acts 7.51|Acts 7:51]].  
+[^b]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  

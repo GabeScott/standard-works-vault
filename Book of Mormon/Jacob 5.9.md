@@ -5,4 +5,4 @@
 [Jacob 5:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p9#p9)
 
 
-[^a]: [[Acts 9.15|Acts 9:15]]; [[Acts 14.27|14:27]]; [[Romans 1.13|Rom. 1:13]]; [[Galatians 3.14|Gal. 3:14.]]
+[^a]: [[Acts 9.15|Acts 9:15]]; [[Acts 14.27|14:27]]; [[Romans 1.13|Rom. 1:13]]; [[Galatians 3.14|Gal. 3:14]].  

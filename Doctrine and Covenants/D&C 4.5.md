@@ -5,10 +5,10 @@
 [D&C 4:5](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/4.5?lang=eng#p5)
 
 
-[^a]: TG [[Faith]].
-[^b]: TG [[Hope]].
-[^c]: TG [[Charity]].
-[^d]: TG [[Love]].
-[^e]: [[Psalms 25.15|Ps. 25:15]]; [[Psalms 141.8|141:8]]; [[Matthew 6.22|Matt. 6:22]]; [[Mormon 8.15|Morm. 8:15.]]
-[^f]: TG [[Telestial Glory]]; [[Motivations]].
-[^g]: TG [[Priesthood, Qualifying for]].
+[^a]: [[Faith|TG Faith]].  
+[^b]: [[Hope|TG Hope]].  
+[^c]: [[Charity|TG Charity]].  
+[^d]: [[Love|TG Love]].  
+[^e]: [[Psalms 25.15|Ps. 25:15]]; [[Psalms 141.8|141:8]]; [[Matthew 6.22|Matt. 6:22]]; [[Mormon 8.15|Morm. 8:15]].  
+[^f]: [[Glory|TG Glory]]; [[Motivations|Motivations]].  
+[^g]: [[Priesthood, Qualifying for|TG Priesthood, Qualifying for]].  

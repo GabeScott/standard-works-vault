@@ -5,4 +5,4 @@
 [Judges 18:11](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.11?lang=eng#p11)
 
 
-[^a]: HEB girded.
+[^a]: HEB girded.  

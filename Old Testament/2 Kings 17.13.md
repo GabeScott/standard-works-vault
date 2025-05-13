@@ -5,6 +5,6 @@
 [2 Kings 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.13?lang=eng#p13)
 
 
-[^a]: [[Nehemiah 9.30|Neh. 9:30]]; [[1 Nephi 10.5|1 Ne. 10:5]]; [[Helaman 8.24|Hel. 8:24 (19-24)]]. TG [[Preaching, Preach]].
-[^b]: TG [[Authority]]; [[Prophets, Mission of]].
-[^c]: TG [[Seer]].
+[^a]: [[Nehemiah 9.30|Neh. 9:30]]; [[1 Nephi 10.5|1 Ne. 10:5]]; [[Helaman 8.19|Hel. 8:24 (19–24)]][[Helaman 8.20|]][[Helaman 8.21|]][[Helaman 8.22|]][[Helaman 8.23|]][[Helaman 8.24|]]. [[Preaching, Preach|TG Preaching]].  
+[^b]: [[Authority|TG Authority]]; [[Prophets, Mission of|Prophets, Mission of]].  
+[^c]: [[Seer|TG Seer]].  

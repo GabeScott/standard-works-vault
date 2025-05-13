@@ -5,4 +5,4 @@
 [Ezekiel 47:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.10?lang=eng#p10)
 
 
-[^a]: OR by it.
+[^a]: OR by it.  

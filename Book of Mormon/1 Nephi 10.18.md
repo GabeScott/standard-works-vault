@@ -9,4 +9,4 @@
 - I find this interesting because we also know that those that end up in a lower kingdom will also be the same forever. They will be stuck forever in their imperfection. Thus, we should never try to remain the same until we are perfect. 
 
 
-[^a]: [[Hebrews 13.8|Heb. 13:8]]; [[Mormon 9.9|Morm. 9:9 (9-11)]]; [[D&C 20.12|D&C 20:12]]. TG [[God, Perfection of]].
+[^a]: [[Hebrews 13.8|Heb. 13:8]]; [[Mormon 9.9|Morm. 9:9 (9–11)]][[Mormon 9.10|]][[Mormon 9.11|]]; [[D&C 20.12|D&C 20:12]]. [[God, Perfection of|TG God, Perfection of]].  

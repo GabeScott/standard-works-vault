@@ -5,4 +5,4 @@
 [D&C 2:3](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/2.3?lang=eng#p3)
 
 
-[^a]: [[Luke 1.17|Luke 1:17]]. TG [[Earth, Purpose of]].
+[^a]: [[Luke 1.17|Luke 1:17]]. [[Earth, Purpose of|TG Earth, Purpose of]].  

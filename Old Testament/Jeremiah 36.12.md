@@ -5,5 +5,5 @@
 [Jeremiah 36:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.12?lang=eng#p12)
 
 
-[^a]: OR officers or officials.
-[^b]: [[Jeremiah 26.22|Jer. 26:22.]]
+[^a]: OR officers or officials.  
+[^b]: [[Jeremiah 26.22|Jer. 26:22]].  

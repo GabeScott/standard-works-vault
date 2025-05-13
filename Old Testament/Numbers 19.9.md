@@ -5,4 +5,4 @@
 [Numbers 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/19.9?lang=eng#p9)
 
 
-[^a]: IE water for removal of impurity.
+[^a]: IE water for removal of impurity.  

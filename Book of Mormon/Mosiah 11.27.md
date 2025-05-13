@@ -5,5 +5,5 @@
 [Mosiah 11:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p27#p27)
 
 
-[^a]: [[Alma 9.6|Alma 9:6 (5-6).]]
-[^b]: [[Exodus 5.2|Ex. 5:2]]; [[Mosiah 12.13|Mosiah 12:13.]]
+[^a]: [[Alma 9.5|Alma 9:6 (5–6)]][[Alma 9.6|]].  
+[^b]: [[Exodus 5.2|Ex. 5:2]]; [[Mosiah 12.13|Mosiah 12:13]].  

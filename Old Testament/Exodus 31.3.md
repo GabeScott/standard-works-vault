@@ -5,7 +5,7 @@
 [Exodus 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.3?lang=eng#p3)
 
 
-[^a]: TG [[God, Spirit of]]; [[Holy Ghost, Gifts of]]; [[Teaching with the Spirit]].
-[^b]: TG [[God, Wisdom of]]; [[Wisdom]].
-[^c]: TG [[Knowledge]].
-[^d]: TG [[Art]].
+[^a]: [[God, Spirit of|TG God, Spirit of]]; [[Holy Ghost, Gifts of|Holy Ghost, Gifts of]]; [[Teaching with the Spirit|Teaching with the Spirit]].  
+[^b]: [[God, Wisdom of|TG God, Wisdom of]]; [[Wisdom|Wisdom]].  
+[^c]: [[Knowledge|TG Knowledge]].  
+[^d]: [[Art|TG Art]].  

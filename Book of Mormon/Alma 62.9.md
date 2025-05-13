@@ -5,6 +5,6 @@
 [Alma 62:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 51.19|Alma 51:19.]]
-[^b]: TG [[Capital Punishment]].
-[^c]: [[Alma 51.5|Alma 51:5 (5, 17, 21)]]; [[Alma 60.16|60:16.]]
+[^a]: [[Alma 51.19|Alma 51:19]].  
+[^b]: [[Capital Punishment|TG Capital Punishment]].  
+[^c]: [[Alma 51.5|Alma 51:5 (5, 17, 21)]][[Alma 51.17|]][[Alma 51.21|]]; [[Alma 60.16|60:16]].  

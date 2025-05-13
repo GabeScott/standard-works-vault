@@ -5,4 +5,4 @@
 [Alma 51:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p27#p27)
 
 
-[^a]: [[Alma 48.8|Alma 48:8 (8-9).]]
+[^a]: [[Alma 48.8|Alma 48:8 (8–9)]][[Alma 48.9|]].  

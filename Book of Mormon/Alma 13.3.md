@@ -5,10 +5,10 @@
 [Alma 13:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p3#p3)
 
 
-[^a]: [[D&C 127.2|D&C 127:2]]. TG [[Election, Elect]]; [[Foreordination]].
-[^b]: [[D&C 138.56|D&C 138:56.]]
-[^c]: [[Alma 12.30|Alma 12:30 (25, 30)]]; [[Alma 22.13|22:13]]. TG [[Man, Antemortal Existence of]].
-[^d]: TG [[God, Foreknowledge of]].
-[^e]: TG [[Agency]].
-[^f]: TG [[Priesthood, Qualifying for]].
-[^g]: TG [[Called of God]].
+[^a]: [[D&C 127.2|D&C 127:2]]. [[Election, Elect|TG Election]]; [[Foreordination|Foreordination]].  
+[^b]: [[D&C 138.56|D&C 138:56]].  
+[^c]: [[Alma 12.25|Alma 12:30 (25, 30)]][[Alma 12.30|]]; [[Alma 22.13|22:13]]. [[Man, Antemortal Existence of|TG Man, Antemortal Existence of]].  
+[^d]: [[God, Foreknowledge of|TG God, Foreknowledge of]].  
+[^e]: [[Agency|TG Agency]].  
+[^f]: [[Priesthood, Qualifying for|TG Priesthood, Qualifying for]].  
+[^g]: [[Called of God|TG Called of God]].  

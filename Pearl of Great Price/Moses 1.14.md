@@ -5,5 +5,5 @@
 [Moses 1:14](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.14?lang=eng#p14)
 
 
-[^a]: [[Moses 1.2|Moses 1:2 (2, 25)]]. TG [[Telestial Glory]].
-[^b]: [[Revelation 1.17|Rev. 1:17.]]
+[^a]: [[Moses 1.2|Moses 1:2 (2, 25)]][[Moses 1.25|]]. [[Glory|TG Glory]].  
+[^b]: [[Revelation 1.17|Rev. 1:17]].  

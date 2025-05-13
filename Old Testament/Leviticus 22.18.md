@@ -5,5 +5,5 @@
 [Leviticus 22:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.18?lang=eng#p18)
 
 
-[^a]: HEB sacrifice his sacrifice.
-[^b]: [[Amos 4.5|Amos 4:5.]]
+[^a]: HEB sacrifice his sacrifice.  
+[^b]: [[Amos 4.5|Amos 4:5]].  

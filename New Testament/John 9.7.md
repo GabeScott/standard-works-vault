@@ -5,4 +5,4 @@
 [John 9:7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.7?lang=eng#p7)
 
 
-[^a]: [[Nehemiah 3.15|Neh. 3:15]]; [[Isaiah 8.6|Isa. 8:6.]]
+[^a]: [[Nehemiah 3.15|Neh. 3:15]]; [[Isaiah 8.6|Isa. 8:6]].  

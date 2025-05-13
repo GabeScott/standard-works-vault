@@ -5,5 +5,5 @@
 [1 Nephi 20:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p18#p18)
 
 
-[^a]: [[Ecclesiastes 8.5|Eccl. 8:5.]]
-[^b]: TG [[Israel, Blessings of]]; [[Peace of God]].
+[^a]: [[Ecclesiastes 8.5|Eccl. 8:5]].  
+[^b]: [[Israel, Blessings of|TG Israel, Blessings of]]; [[Peace of God|Peace of God]].  

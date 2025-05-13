@@ -5,5 +5,5 @@
 [Job 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/job/12.13?lang=eng#p13)
 
 
-[^a]: [[2 Nephi 9.8|2 Ne. 9:8]]; [[Abraham 3.21|Abr. 3:21.]]
-[^b]: TG [[Strength]].
+[^a]: [[2 Nephi 9.8|2 Ne. 9:8]]; [[Abraham 3.21|Abr. 3:21]].  
+[^b]: [[Strength|TG Strength]].  

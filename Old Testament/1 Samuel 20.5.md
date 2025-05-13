@@ -5,4 +5,4 @@
 [1 Samuel 20:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/20.5?lang=eng#p5)
 
 
-[^a]: TG [[Astronomy]].
+[^a]: [[Astronomy|TG Astronomy]].  

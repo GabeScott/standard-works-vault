@@ -5,4 +5,4 @@
 [Deuteronomy 30:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.4?lang=eng#p4)
 
 
-[^a]: [[Matthew 24.31|Matt. 24:31.]]
+[^a]: [[Matthew 24.31|Matt. 24:31]].  

@@ -5,5 +5,5 @@
 [Exodus 31:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.14?lang=eng#p14)
 
 
-[^a]: TG [[Holiness]].
-[^b]: [[Exodus 35.2|Ex. 35:2 (1-3)]]; [[Numbers 15.35|Num. 15:35 (32-36).]]
+[^a]: [[Holiness|TG Holiness]].  
+[^b]: [[Exodus 35.1|Ex. 35:2 (1–3)]][[Exodus 35.2|]][[Exodus 35.3|]]; [[Numbers 15.32|Num. 15:35 (32–36)]][[Numbers 15.33|]][[Numbers 15.34|]][[Numbers 15.35|]][[Numbers 15.36|]].  

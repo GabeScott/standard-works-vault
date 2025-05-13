@@ -5,4 +5,4 @@
 [Exodus 34:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 19.12|Ex. 19:12 (12-13, 21).]]
+[^a]: [[Exodus 19.12|Ex. 19:12 (12–13, 21)]][[Exodus 19.13|]][[Exodus 19.21|]].  

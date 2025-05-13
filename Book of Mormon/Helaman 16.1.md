@@ -5,5 +5,5 @@
 [Helaman 16:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/16?lang=eng&id=p1#p1)
 
 
-[^a]: [[Helaman 13.4|Hel. 13:4.]]
-[^b]: [[Alma 9.27|Alma 9:27.]]
+[^a]: [[Helaman 13.4|Hel. 13:4]].  
+[^b]: [[Alma 9.27|Alma 9:27]].  

@@ -5,4 +5,4 @@
 [Mark 15:33](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.33?lang=eng#p33)
 
 
-[^a]: TG [[Darkness, Physical]].
+[^a]: [[Darkness, Physical|TG Darkness, Physical]].  

@@ -5,9 +5,9 @@
 [Joel 2:28](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.28?lang=eng#p28)
 
 
-[^a]: JS—H 1:41. TG [[Dispensations]]; [[Restoration of the Gospel]].
-[^b]: TG [[God, Spirit of]]; [[Millennium, Preparing a People for]].
-[^c]: TG [[Holy Ghost, Gifts of]].
-[^d]: TG [[Old Age]].
-[^e]: TG [[Dream]].
-[^f]: TG [[Vision]].
+[^a]: [[Joseph Smith History 1.41|JS—H 1:41]]. [[Dispensations|TG Dispensations]]; [[Restoration of the Gospel|Restoration of the Gospel]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]]; [[Millennium, Preparing a People for|Millennium, Preparing a People for]].  
+[^c]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  
+[^d]: [[Old Age|TG Old Age]].  
+[^e]: [[Dream|TG Dream]].  
+[^f]: [[Vision|TG Vision]].  

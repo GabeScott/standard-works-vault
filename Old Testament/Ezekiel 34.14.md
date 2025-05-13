@@ -5,4 +5,4 @@
 [Ezekiel 34:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 33.12|Jer. 33:12.]]
+[^a]: [[Jeremiah 33.12|Jer. 33:12]].  

@@ -5,5 +5,5 @@
 [Ezekiel 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/2.5?lang=eng#p5)
 
 
-[^a]: [[Ezekiel 12.2|Ezek. 12:2]]; [[Ezekiel 44.6|44:6.]]
-[^b]: [[Ezekiel 33.33|Ezek. 33:33.]]
+[^a]: [[Ezekiel 12.2|Ezek. 12:2]]; [[Ezekiel 44.6|44:6]].  
+[^b]: [[Ezekiel 33.33|Ezek. 33:33]].  

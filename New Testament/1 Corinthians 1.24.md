@@ -5,6 +5,6 @@
 [1 Corinthians 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.24?lang=eng#p24)
 
 
-[^a]: JST 1 Cor. 1:24 … who believe, both Jews and Greeks …
-[^b]: TG [[God, Power of]].
-[^c]: TG [[Jesus Christ, Relationships with the Father]].
+[^a]: JST 1 Cor. 1:24 … who believe, both Jews and Greeks …  
+[^b]: [[God, Power of|TG God, Power of]].  
+[^c]: [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  

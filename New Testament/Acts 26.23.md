@@ -5,5 +5,5 @@
 [Acts 26:23](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.23?lang=eng#p23)
 
 
-[^a]: TG [[Martyrdom]].
-[^b]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Martyrdom|TG Martyrdom]].  
+[^b]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

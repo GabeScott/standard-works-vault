@@ -5,5 +5,5 @@
 [Matthew 20:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.16?lang=eng#p16)
 
 
-[^a]: [[Jacob 5.63|Jacob 5:63.]]
-[^b]: TG [[Called of God]]; [[Foreordination]].
+[^a]: [[Jacob 5.63|Jacob 5:63]].  
+[^b]: [[Called of God|TG Called of God]]; [[Foreordination|Foreordination]].  

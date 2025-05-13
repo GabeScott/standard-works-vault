@@ -5,5 +5,5 @@
 [Ezra 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/3.12?lang=eng#p12)
 
 
-[^a]: OR old.
-[^b]: [[Haggai 2.3|Hag. 2:3 (3-9).]]
+[^a]: OR old.  
+[^b]: [[Haggai 2.3|Hag. 2:3 (3–9)]][[Haggai 2.4|]][[Haggai 2.5|]][[Haggai 2.6|]][[Haggai 2.7|]][[Haggai 2.8|]][[Haggai 2.9|]].  

@@ -5,4 +5,4 @@
 [Psalms 36:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/36.8?lang=eng#p8)
 
 
-[^a]: [[Psalms 16.11|Ps. 16:11.]]
+[^a]: [[Psalms 16.11|Ps. 16:11]].  

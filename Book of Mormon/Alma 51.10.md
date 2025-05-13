@@ -5,4 +5,4 @@
 [Alma 51:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Rashness]].
+[^a]: [[Rashness|TG Rashness]].  

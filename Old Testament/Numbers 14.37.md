@@ -5,5 +5,5 @@
 [Numbers 14:37](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.37?lang=eng#p37)
 
 
-[^a]: [[1 Corinthians 10.10|1 Cor. 10:10.]]
-[^b]: TG [[Plague]].
+[^a]: [[1 Corinthians 10.10|1 Cor. 10:10]].  
+[^b]: [[Plague|TG Plague]].  

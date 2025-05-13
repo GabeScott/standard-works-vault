@@ -5,6 +5,6 @@
 [1 Nephi 18:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p25#p25)
 
 
-[^a]: [[Enos 1.21|Enos 1:21.]]
-[^b]: [[2 Nephi 5.15|2 Ne. 5:15 (14-16).]]
-[^c]: [[Deuteronomy 33.16|Deut. 33:16 (13-17).]]
+[^a]: [[Enos 1.21|Enos 1:21]].  
+[^b]: [[2 Nephi 5.14|2 Ne. 5:15 (14–16)]][[2 Nephi 5.15|]][[2 Nephi 5.16|]].  
+[^c]: [[Deuteronomy 33.13|Deut. 33:16 (13–17)]][[Deuteronomy 33.14|]][[Deuteronomy 33.15|]][[Deuteronomy 33.16|]][[Deuteronomy 33.17|]].  

@@ -5,4 +5,4 @@
 [Joshua 22:20](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/22.20?lang=eng#p20)
 
 
-[^a]: [[Joshua 7.1|Josh. 7:1 (1-5).]]
+[^a]: [[Joshua 7.1|Josh. 7:1 (1–5)]][[Joshua 7.2|]][[Joshua 7.3|]][[Joshua 7.4|]][[Joshua 7.5|]].  

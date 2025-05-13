@@ -5,4 +5,4 @@
 [Alma 24:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p27#p27)
 
 
-[^a]: [[2 Kings 5.15|2 Kgs. 5:15]]; [[Isaiah 55.8|Isa. 55:8 (8-9)]]; [[Alma 37.7|Alma 37:7 (6-7).]]
+[^a]: [[2 Kings 5.15|2 Kgs. 5:15]]; [[Isaiah 55.8|Isa. 55:8 (8–9)]][[Isaiah 55.9|]]; [[Alma 37.6|Alma 37:7 (6–7)]][[Alma 37.7|]].  

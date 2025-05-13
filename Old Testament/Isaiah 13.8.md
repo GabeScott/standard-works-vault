@@ -5,5 +5,5 @@
 [Isaiah 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.8?lang=eng#p8)
 
 
-[^a]: TG [[Pain]].
-[^b]: [[Hosea 13.13|Hosea 13:13.]]
+[^a]: [[Pain|TG Pain]].  
+[^b]: [[Hosea 13.13|Hosea 13:13]].  

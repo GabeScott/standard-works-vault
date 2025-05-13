@@ -5,6 +5,6 @@
 [1 John 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/1.1?lang=eng#p1)
 
 
-[^a]: JST 1 Jn. 1:1 Brethren, this is the testimony which we give of that which was from the beginning …
-[^b]: [[John 1.2|John 1:2 (1-4, 14).]]
-[^c]: TG [[Jesus Christ, Messenger of the Covenant]].
+[^a]: JST 1 Jn. 1:1 Brethren, this is the testimony which we give of that which was from the beginning …  
+[^b]: [[John 1.1|John 1:2 (1–4, 14)]][[John 1.2|]][[John 1.3|]][[John 1.4|]][[John 1.14|]].  
+[^c]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  

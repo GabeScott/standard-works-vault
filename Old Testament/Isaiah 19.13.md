@@ -5,5 +5,5 @@
 [Isaiah 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.13?lang=eng#p13)
 
 
-[^a]: [[Jeremiah 44.1|Jer. 44:1.]]
-[^b]: IE cornerstones.
+[^a]: [[Jeremiah 44.1|Jer. 44:1]].  
+[^b]: IE cornerstones.  

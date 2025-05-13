@@ -5,6 +5,6 @@
 [Moses 8:24](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.24?lang=eng#p24)
 
 
-[^a]: TG [[Baptism, Qualifications for]].
-[^b]: TG [[Baptism, Essential]].
-[^c]: [[2 Nephi 32.5|2 Ne. 32:5 (2-5)]]; [[Moses 1.24|Moses 1:24.]]
+[^a]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  
+[^b]: [[Baptism, Essential|TG Baptism, Essential]].  
+[^c]: [[2 Nephi 32.2|2 Ne. 32:5 (2–5)]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]]; [[Moses 1.24|Moses 1:24]].  

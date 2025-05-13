@@ -5,4 +5,4 @@
 [Alma 40:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p18#p18)
 
 
-[^a]: [[Matthew 27.52|Matt. 27:52.]]
+[^a]: [[Matthew 27.52|Matt. 27:52]].  

@@ -5,4 +5,4 @@
 [Revelation 6:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/6.10?lang=eng#p10)
 
 
-[^a]: [[Deuteronomy 32.43|Deut. 32:43.]]
+[^a]: [[Deuteronomy 32.43|Deut. 32:43]].  

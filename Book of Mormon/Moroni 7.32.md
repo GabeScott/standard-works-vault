@@ -5,5 +5,5 @@
 [Moroni 7:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p32#p32)
 
 
-[^a]: [[Acts 15.17|Acts 15:17]]; [[Moses 7.28|Moses 7:28.]]
-[^b]: [[Acts 16.5|Acts 16:5]]; [[D&C 46.14|D&C 46:14.]]
+[^a]: [[Acts 15.17|Acts 15:17]]; [[Moses 7.28|Moses 7:28]].  
+[^b]: [[Acts 16.5|Acts 16:5]]; [[D&C 46.14|D&C 46:14]].  

@@ -5,5 +5,5 @@
 [Joshua 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.11?lang=eng#p11)
 
 
-[^a]: IE grain from the previous year.
-[^b]: TG [[Bread, Unleavened]].
+[^a]: IE grain from the previous year.  
+[^b]: [[Bread, Unleavened|TG Bread, Unleavened]].  

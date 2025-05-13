@@ -5,4 +5,4 @@
 [D&C 7:8](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/7.8?lang=eng#p8)
 
 
-[^a]: TG [[Joy]].
+[^a]: [[Joy|TG Joy]].  

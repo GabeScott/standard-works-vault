@@ -5,4 +5,4 @@
 [John 8:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.9?lang=eng#p9)
 
 
-[^a]: TG [[Conscience]].
+[^a]: [[Conscience|TG Conscience]].  

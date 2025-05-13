@@ -5,5 +5,5 @@
 [Leviticus 19:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.5?lang=eng#p5)
 
 
-[^a]: TG [[Self-Sacrifice]].
-[^b]: [[Moroni 7.6|Moro. 7:6.]]
+[^a]: [[Sacrifice|TG Sacrifice]].  
+[^b]: [[Moroni 7.6|Moro. 7:6]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 24:26](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/24.26?lang=eng#p26)
 
 
-[^a]: OR Jozachar (see 2 Kgs. 12:21).
+[^a]: OR Jozachar (see [[2 Kings 12.21|2 Kgs. 12:21]]).  

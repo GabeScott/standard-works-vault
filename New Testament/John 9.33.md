@@ -5,4 +5,4 @@
 [John 9:33](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.33?lang=eng#p33)
 
 
-[^a]: [[Acts 2.22|Acts 2:22.]]
+[^a]: [[Acts 2.22|Acts 2:22]].  

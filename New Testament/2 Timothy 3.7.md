@@ -5,6 +5,6 @@
 [2 Timothy 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.7?lang=eng#p7)
 
 
-[^a]: TG [[Learn, Learning]].
-[^b]: TG [[Ignorance, Ignorant]]; [[Knowledge]].
-[^c]: TG [[Truth]].
+[^a]: [[Learn, Learning|TG Learn]].  
+[^b]: [[Ignorance, Ignorant|TG Ignorance]]; [[Knowledge|Knowledge]].  
+[^c]: [[Truth|TG Truth]].  

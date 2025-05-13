@@ -5,4 +5,4 @@
 [Exodus 19:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.1?lang=eng#p1)
 
 
-[^a]: [[Numbers 10.12|Num. 10:12.]]
+[^a]: [[Numbers 10.12|Num. 10:12]].  

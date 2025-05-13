@@ -5,4 +5,4 @@
 [2 Kings 24:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.5?lang=eng#p5)
 
 
-[^a]: [[2 Chronicles 36.8|2 Chr. 36:8.]]
+[^a]: [[2 Chronicles 36.8|2 Chr. 36:8]].  

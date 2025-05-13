@@ -5,4 +5,4 @@
 [Genesis 40:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/40.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 39.20|Gen. 39:20.]]
+[^a]: [[Genesis 39.20|Gen. 39:20]].  

@@ -5,5 +5,5 @@
 [1 Samuel 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.10?lang=eng#p10)
 
 
-[^a]: [[1 Samuel 19.20|1 Sam. 19:20.]]
-[^b]: TG [[Man, New, Spiritually Reborn]].
+[^a]: [[1 Samuel 19.20|1 Sam. 19:20]].  
+[^b]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  

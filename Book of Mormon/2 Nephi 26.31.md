@@ -5,6 +5,6 @@
 [2 Nephi 26:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p31#p31)
 
 
-[^a]: TG [[Industry, Industrious]].
-[^b]: TG [[Zion, Sion]].
-[^c]: [[Jacob 2.18|Jacob 2:18 (17-19)]]; [[D&C 11.7|D&C 11:7]]; [[D&C 38.39|38:39.]]
+[^a]: [[Industry, Industrious|TG Industry]].  
+[^b]: [[Zion, Sion|TG Zion]].  
+[^c]: [[Jacob 2.17|Jacob 2:18 (17–19)]][[Jacob 2.18|]][[Jacob 2.19|]]; [[D&C 11.7|D&C 11:7]]; [[D&C 38.39|38:39]].  

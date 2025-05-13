@@ -5,5 +5,5 @@
 [Moses 7:66](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.66?lang=eng#p66)
 
 
-[^a]: [[Isaiah 13.7|Isa. 13:7.]]
-[^b]: TG [[Judgment, the Last]].
+[^a]: [[Isaiah 13.7|Isa. 13:7]].  
+[^b]: [[Judgment, the Last|TG Judgment, the Last]].  

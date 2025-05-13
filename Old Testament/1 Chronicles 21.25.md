@@ -5,5 +5,5 @@
 [1 Chronicles 21:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.25?lang=eng#p25)
 
 
-[^a]: [[2 Samuel 24.24|2 Sam. 24:24.]]
-[^b]: [[Genesis 23.16|Gen. 23:16.]]
+[^a]: [[2 Samuel 24.24|2 Sam. 24:24]].  
+[^b]: [[Genesis 23.16|Gen. 23:16]].  

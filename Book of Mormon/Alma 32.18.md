@@ -5,4 +5,4 @@
 [Alma 32:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p18#p18)
 
 
-[^a]: [[Luke 16.30|Luke 16:30 (27-31)]]; [[Ether 12.12|Ether 12:12 (12, 18).]]
+[^a]: [[Luke 16.27|Luke 16:30 (27–31)]][[Luke 16.28|]][[Luke 16.29|]][[Luke 16.30|]][[Luke 16.31|]]; [[Ether 12.12|Ether 12:12 (12, 18)]][[Ether 12.18|]].  

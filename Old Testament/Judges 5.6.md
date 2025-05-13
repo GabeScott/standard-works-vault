@@ -5,4 +5,4 @@
 [Judges 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.6?lang=eng#p6)
 
 
-[^a]: [[Leviticus 26.22|Lev. 26:22 (21-22).]]
+[^a]: [[Leviticus 26.21|Lev. 26:22 (21–22)]][[Leviticus 26.22|]].  

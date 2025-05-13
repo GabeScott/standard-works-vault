@@ -5,4 +5,4 @@
 [Joshua 12:23](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/12.23?lang=eng#p23)
 
 
-[^a]: [[Joshua 11.2|Josh. 11:2.]]
+[^a]: [[Joshua 11.2|Josh. 11:2]].  

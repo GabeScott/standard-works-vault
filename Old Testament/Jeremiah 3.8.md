@@ -5,5 +5,5 @@
 [Jeremiah 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.8?lang=eng#p8)
 
 
-[^a]: TG [[Adulterer, Adultery]].
-[^b]: TG [[Divorce, Divorcement]].
+[^a]: [[Adulterer, Adultery|TG Adulterer]].  
+[^b]: [[Divorce, Divorcement|TG Divorce]].  

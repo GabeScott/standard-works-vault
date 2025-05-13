@@ -5,4 +5,4 @@
 [Moroni 8:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p23#p23)
 
 
-[^a]: [[D&C 22.2|D&C 22:2.]]
+[^a]: [[D&C 22.2|D&C 22:2]].  

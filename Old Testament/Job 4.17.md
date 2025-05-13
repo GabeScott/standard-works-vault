@@ -5,4 +5,4 @@
 [Job 4:17](https://www.churchofjesuschrist.org/study/scriptures/ot/job/4.17?lang=eng#p17)
 
 
-[^a]: TG [[God, Justice of]].
+[^a]: [[Justice|TG Justice]].  

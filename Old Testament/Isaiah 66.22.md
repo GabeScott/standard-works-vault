@@ -5,5 +5,5 @@
 [Isaiah 66:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.22?lang=eng#p22)
 
 
-[^a]: TG [[Earth, Renewal of]].
-[^b]: TG [[Israel, Blessings of]].
+[^a]: [[Earth, Renewal of|TG Earth, Renewal of]].  
+[^b]: [[Israel, Blessings of|TG Israel, Blessings of]].  

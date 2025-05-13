@@ -5,4 +5,4 @@
 [Genesis 42:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.9?lang=eng#p9)
 
 
-[^a]: TG [[Dream]].
+[^a]: [[Dream|TG Dream]].  

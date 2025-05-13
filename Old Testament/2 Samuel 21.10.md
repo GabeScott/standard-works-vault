@@ -5,4 +5,4 @@
 [2 Samuel 21:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/21.10?lang=eng#p10)
 
 
-[^a]: [[Mosiah 11.25|Mosiah 11:25.]]
+[^a]: [[Mosiah 11.25|Mosiah 11:25]].  

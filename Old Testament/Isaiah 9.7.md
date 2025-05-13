@@ -5,8 +5,8 @@
 [Isaiah 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.7?lang=eng#p7)
 
 
-[^a]: TG [[Governments]]; [[Kingdom of God, on Earth]].
-[^b]: [[Luke 1.33|Luke 1:33 (32-33).]]
-[^c]: TG [[Jesus Christ, Davidic Descent of]].
-[^d]: TG [[God, Justice of]]; [[God, Justice of]].
-[^e]: TG [[Zeal, Zealous]].
+[^a]: [[Governments|TG Governments]]; [[Kingdom of God, on Earth|Kingdom of God, on Earth]].  
+[^b]: [[Luke 1.32|Luke 1:33 (32–33)]][[Luke 1.33|]].  
+[^c]: [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  
+[^d]: [[God, Justice of|TG God, Justice of]]; [[Justice|Justice]].  
+[^e]: [[Zeal, Zealous|TG Zeal]].  

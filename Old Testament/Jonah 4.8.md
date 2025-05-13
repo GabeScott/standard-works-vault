@@ -5,4 +5,4 @@
 [Jonah 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/4.8?lang=eng#p8)
 
 
-[^a]: [[Mosiah 7.31|Mosiah 7:31]]; [[Mosiah 12.6|12:6.]]
+[^a]: [[Mosiah 7.31|Mosiah 7:31]]; [[Mosiah 12.6|12:6]].  

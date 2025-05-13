@@ -5,7 +5,7 @@
 [Genesis 17:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.7?lang=eng#p7)
 
 
-[^a]: JST Gen. 17:11-12 (Appendix).
-[^b]: TG [[Israel, Mission of]]; [[New and Everlasting Covenant]].
-[^c]: [[2 Nephi 29.14|2 Ne. 29:14 (13-14).]]
-[^d]: [[Genesis 24.12|Gen. 24:12.]]
+[^a]: [[JST Genesis 17.11|JST Gen. 17:11–12 (Appendix)]][[JST Genesis 17.12|]].  
+[^b]: [[Israel, Mission of|TG Israel, Mission of]]; [[New and Everlasting Covenant|New and Everlasting Covenant]].  
+[^c]: [[2 Nephi 29.13|2 Ne. 29:14 (13–14)]][[2 Nephi 29.14|]].  
+[^d]: [[Genesis 24.12|Gen. 24:12]].  

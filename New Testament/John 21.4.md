@@ -5,4 +5,4 @@
 [John 21:4](https://www.churchofjesuschrist.org/study/scriptures/nt/john/21.4?lang=eng#p4)
 
 
-[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^a]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  

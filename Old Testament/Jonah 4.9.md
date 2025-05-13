@@ -5,4 +5,4 @@
 [Jonah 4:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/4.9?lang=eng#p9)
 
 
-[^a]: TG [[Anger]].
+[^a]: [[Anger|TG Anger]].  

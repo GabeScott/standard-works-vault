@@ -5,4 +5,4 @@
 [Genesis 48:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.22?lang=eng#p22)
 
 
-[^a]: TG [[Inheritance]].
+[^a]: [[Inheritance|TG Inheritance]].  

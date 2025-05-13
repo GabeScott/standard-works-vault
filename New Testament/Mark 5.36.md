@@ -5,4 +5,4 @@
 [Mark 5:36](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.36?lang=eng#p36)
 
 
-[^a]: GR exercise faith.
+[^a]: GR exercise faith.  

@@ -5,5 +5,5 @@
 [Jacob 4:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/4?lang=eng&id=p1#p1)
 
 
-[^a]: [[1 Nephi 6.6|1 Ne. 6:6]]; [[Jarom 1.14|Jarom 1:14]]; [[Omni 1.30|Omni 1:30.]]
-[^b]: [[Ether 12.24|Ether 12:24 (23-26).]]
+[^a]: [[1 Nephi 6.6|1 Ne. 6:6]]; [[Jarom 1.14|Jarom 1:14]]; [[Omni 1.30|Omni 1:30]].  
+[^b]: [[Ether 12.23|Ether 12:24 (23–26)]][[Ether 12.24|]][[Ether 12.25|]][[Ether 12.26|]].  

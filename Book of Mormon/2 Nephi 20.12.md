@@ -5,4 +5,4 @@
 [2 Nephi 20:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p12#p12)
 
 
-[^a]: [[2 Kings 16.7|2 Kgs. 16:7 (7-18)]]; Zeph. 2:13; [[2 Nephi 18.4|2 Ne. 18:4 (4-7).]]
+[^a]: [[2 Kings 16.7|2 Kgs. 16:7 (7–18)]][[2 Kings 16.8|]][[2 Kings 16.9|]][[2 Kings 16.10|]][[2 Kings 16.11|]][[2 Kings 16.12|]][[2 Kings 16.13|]][[2 Kings 16.14|]][[2 Kings 16.15|]][[2 Kings 16.16|]][[2 Kings 16.17|]][[2 Kings 16.18|]]; [[Zephaniah 2.13|Zeph. 2:13]]; [[2 Nephi 18.4|2 Ne. 18:4 (4–7)]][[2 Nephi 18.5|]][[2 Nephi 18.6|]][[2 Nephi 18.7|]].  

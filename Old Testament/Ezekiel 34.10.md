@@ -5,5 +5,5 @@
 [Ezekiel 34:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.10?lang=eng#p10)
 
 
-[^a]: [[Jacob 1.19|Jacob 1:19]]; [[D&C 72.3|D&C 72:3]]; [[D&C 112.33|112:33.]]
-[^b]: [[D&C 107.100|D&C 107:100 (99-100).]]
+[^a]: [[Jacob 1.19|Jacob 1:19]]; [[D&C 72.3|D&C 72:3]]; [[D&C 112.33|112:33]].  
+[^b]: [[D&C 107.99|D&C 107:100 (99–100)]][[D&C 107.100|]].  

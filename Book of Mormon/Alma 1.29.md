@@ -5,6 +5,6 @@
 [Alma 1:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p29#p29)
 
 
-[^a]: TG [[Riches]]; [[Treasure]].
-[^b]: [[Alma 4.6|Alma 4:6.]]
-[^c]: [[Mosiah 10.5|Mosiah 10:5]]; [[Helaman 6.13|Hel. 6:13]]. TG [[Clothing]].
+[^a]: [[Riches|TG Riches]]; [[Treasure|Treasure]].  
+[^b]: [[Alma 4.6|Alma 4:6]].  
+[^c]: [[Mosiah 10.5|Mosiah 10:5]]; [[Helaman 6.13|Hel. 6:13]]. [[Clothing|TG Clothing]].  

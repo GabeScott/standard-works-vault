@@ -5,5 +5,5 @@
 [Nehemiah 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/1.5?lang=eng#p5)
 
 
-[^a]: HEB the God, the great, and the revered.
-[^b]: [[Deuteronomy 7.9|Deut. 7:9]]; Dan. 9:4.
+[^a]: HEB the God, the great, and the revered.  
+[^b]: [[Deuteronomy 7.9|Deut. 7:9]]; [[Daniel 9.4|Dan. 9:4]].  

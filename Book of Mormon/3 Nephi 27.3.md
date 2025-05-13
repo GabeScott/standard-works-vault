@@ -5,4 +5,4 @@
 [3 Nephi 27:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p3#p3)
 
 
-[^a]: [[D&C 1.1|D&C 1:1]]; [[D&C 20.1|20:1.]]
+[^a]: [[D&C 1.1|D&C 1:1]]; [[D&C 20.1|20:1]].  

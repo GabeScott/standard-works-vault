@@ -5,6 +5,6 @@
 [2 Timothy 2:23](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.23?lang=eng#p23)
 
 
-[^a]: [[Titus 3.9|Titus 3:9.]]
-[^b]: [[D&C 19.31|D&C 19:31 (29-31).]]
-[^c]: TG [[Strife]].
+[^a]: [[Titus 3.9|Titus 3:9]].  
+[^b]: [[D&C 19.29|D&C 19:31 (29–31)]][[D&C 19.30|]][[D&C 19.31|]].  
+[^c]: [[Strife|TG Strife]].  

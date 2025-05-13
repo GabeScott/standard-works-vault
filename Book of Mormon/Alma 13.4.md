@@ -5,6 +5,6 @@
 [Alma 13:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p4#p4)
 
 
-[^a]: [[Ether 12.10|Ether 12:10.]]
-[^b]: TG [[Spiritual Blindness]].
-[^c]: [[1 Nephi 17.35|1 Ne. 17:35 (32-35).]]
+[^a]: [[Ether 12.10|Ether 12:10]].  
+[^b]: [[Spiritual Blindness|TG Spiritual Blindness]].  
+[^c]: [[1 Nephi 17.32|1 Ne. 17:35 (32–35)]][[1 Nephi 17.33|]][[1 Nephi 17.34|]][[1 Nephi 17.35|]].  

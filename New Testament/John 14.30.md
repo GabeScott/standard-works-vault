@@ -5,6 +5,6 @@
 [John 14:30](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.30?lang=eng#p30)
 
 
-[^a]: JST John 14:30 … for the prince of darkness, who is of this world, cometh, but hath no power over me, but he hath power over you.
-[^b]: TG [[Devil, Church of]].
-[^c]: TG [[Worldliness]].
+[^a]: [[JST John 14.30|JST John 14:30]] … for the prince of darkness, who is of this world, cometh, but hath no power over me, but he hath power over you.  
+[^b]: [[Devil|TG Devil]].  
+[^c]: [[Worldliness|TG Worldliness]].  

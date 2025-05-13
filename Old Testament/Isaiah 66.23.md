@@ -5,4 +5,4 @@
 [Isaiah 66:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.23?lang=eng#p23)
 
 
-[^a]: [[Zechariah 14.16|Zech. 14:16.]]
+[^a]: [[Zechariah 14.16|Zech. 14:16]].  

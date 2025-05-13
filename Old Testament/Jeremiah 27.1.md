@@ -5,4 +5,4 @@
 [Jeremiah 27:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.1?lang=eng#p1)
 
 
-[^a]: [[Jeremiah 26.1|Jer. 26:1 (1, 21).]]
+[^a]: [[Jeremiah 26.1|Jer. 26:1 (1, 21)]][[Jeremiah 26.21|]].  

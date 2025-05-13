@@ -5,4 +5,4 @@
 [Genesis 21:32](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.32?lang=eng#p32)
 
 
-[^a]: JST Gen. 21:31-32 (Appendix).
+[^a]: [[JST Genesis 21.31|JST Gen. 21:31–32 (Appendix)]][[JST Genesis 21.32|]].  

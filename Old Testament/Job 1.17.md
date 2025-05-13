@@ -5,4 +5,4 @@
 [Job 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.17?lang=eng#p17)
 
 
-[^a]: [[Genesis 11.28|Gen. 11:28]]; [[2 Kings 24.2|2 Kgs. 24:2]]; [[Abraham 1.30|Abr. 1:30 (29-30).]]
+[^a]: [[Genesis 11.28|Gen. 11:28]]; [[2 Kings 24.2|2 Kgs. 24:2]]; [[Abraham 1.29|Abr. 1:30 (29–30)]][[Abraham 1.30|]].  

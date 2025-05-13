@@ -5,4 +5,4 @@
 [Judges 6:32](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.32?lang=eng#p32)
 
 
-[^a]: [[1 Samuel 12.11|1 Sam. 12:11.]]
+[^a]: [[1 Samuel 12.11|1 Sam. 12:11]].  

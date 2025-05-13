@@ -5,5 +5,5 @@
 [1 Timothy 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.8?lang=eng#p8)
 
 
-[^a]: GR a little while.
-[^b]: [[Luke 12.31|Luke 12:31]]. TG [[Mysteries of Godliness]].
+[^a]: GR a little while.  
+[^b]: [[Luke 12.31|Luke 12:31]]. [[Godliness, Godly|TG Godliness]].  

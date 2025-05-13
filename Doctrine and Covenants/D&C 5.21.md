@@ -5,6 +5,6 @@
 [D&C 5:21](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.21?lang=eng#p21)
 
 
-[^a]: [[D&C 3.6|D&C 3:6]]; [[D&C 20.5|20:5]]; JS—H 1:28 (28-29).
-[^b]: [[1 Nephi 16.3|1 Ne. 16:3.]]
-[^c]: TG [[Peer Influence]].
+[^a]: [[D&C 3.6|D&C 3:6]]; [[D&C 20.5|20:5]]; [[Joseph Smith History 1.28|JS—H 1:28 (28–29)]][[Joseph Smith History 1.29|]].  
+[^b]: [[1 Nephi 16.3|1 Ne. 16:3]].  
+[^c]: [[Peer Influence|TG Peer Influence]].  

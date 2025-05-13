@@ -5,4 +5,4 @@
 [Exodus 13:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 12.29|Ex. 12:29.]]
+[^a]: [[Exodus 12.29|Ex. 12:29]].  

@@ -5,4 +5,4 @@
 [1 Kings 15:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.13?lang=eng#p13)
 
 
-[^a]: IE for Asherah (Canaanite goddess).
+[^a]: IE for Asherah (Canaanite goddess).  

@@ -5,6 +5,6 @@
 [Ezekiel 20:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.13?lang=eng#p13)
 
 
-[^a]: [[1 Corinthians 10.5|1 Cor. 10:5 (5-10).]]
-[^b]: [[1 Nephi 17.30|1 Ne. 17:30 (30-31)]]; [[Jacob 4.14|Jacob 4:14.]]
-[^c]: [[Numbers 14.29|Num. 14:29]]; [[Numbers 26.65|26:65.]]
+[^a]: [[1 Corinthians 10.5|1 Cor. 10:5 (5–10)]][[1 Corinthians 10.6|]][[1 Corinthians 10.7|]][[1 Corinthians 10.8|]][[1 Corinthians 10.9|]][[1 Corinthians 10.10|]].  
+[^b]: [[1 Nephi 17.30|1 Ne. 17:30 (30–31)]][[1 Nephi 17.31|]]; [[Jacob 4.14|Jacob 4:14]].  
+[^c]: [[Numbers 14.29|Num. 14:29]]; [[Numbers 26.65|26:65]].  

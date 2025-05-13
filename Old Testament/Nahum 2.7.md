@@ -5,4 +5,4 @@
 [Nahum 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/2.7?lang=eng#p7)
 
 
-[^a]: OR the queen.
+[^a]: OR the queen.  

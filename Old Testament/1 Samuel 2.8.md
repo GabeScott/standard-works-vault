@@ -5,6 +5,6 @@
 [1 Samuel 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.8?lang=eng#p8)
 
 
-[^a]: [[Psalms 113.7|Ps. 113:7 (7-8).]]
-[^b]: TG [[Poor]].
-[^c]: [[Psalms 75.3|Ps. 75:3.]]
+[^a]: [[Psalms 113.7|Ps. 113:7 (7–8)]][[Psalms 113.8|]].  
+[^b]: [[Poor|TG Poor]].  
+[^c]: [[Psalms 75.3|Ps. 75:3]].  

@@ -5,4 +5,4 @@
 [Judges 9:53](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.53?lang=eng#p53)
 
 
-[^a]: [[2 Samuel 11.21|2 Sam. 11:21.]]
+[^a]: [[2 Samuel 11.21|2 Sam. 11:21]].  

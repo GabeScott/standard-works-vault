@@ -5,4 +5,4 @@
 [Isaiah 13:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.7?lang=eng#p7)
 
 
-[^a]: [[Moses 7.66|Moses 7:66.]]
+[^a]: [[Moses 7.66|Moses 7:66]].  

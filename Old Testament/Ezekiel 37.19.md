@@ -5,4 +5,4 @@
 [Ezekiel 37:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.19?lang=eng#p19)
 
 
-[^a]: TG [[Book of Mormon]].
+[^a]: [[Book of Mormon|TG Book of Mormon]].  

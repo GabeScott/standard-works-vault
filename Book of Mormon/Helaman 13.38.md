@@ -5,7 +5,7 @@
 [Helaman 13:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p38#p38)
 
 
-[^a]: [[Mormon 2.15|Morm. 2:15 (10-15)]]. TG [[Probation, Probationary]].
-[^b]: [[Alma 34.33|Alma 34:33 (33-34)]]. TG [[Apathy]]; [[Procrastination, Procrastinate]].
-[^c]: [[Alma 41.10|Alma 41:10]]. TG [[Abundant Life]]; [[Happiness, Happy]].
-[^d]: [[Alma 41.11|Alma 41:11 (10-12).]]
+[^a]: [[Mormon 2.10|Morm. 2:15 (10–15)]][[Mormon 2.11|]][[Mormon 2.12|]][[Mormon 2.13|]][[Mormon 2.14|]][[Mormon 2.15|]]. [[Probation, Probationary|TG Probation]].  
+[^b]: [[Alma 34.33|Alma 34:33 (33–34)]][[Alma 34.34|]]. [[Apathy|TG Apathy]]; [[Procrastination, Procrastinate|Procrastination]].  
+[^c]: [[Alma 41.10|Alma 41:10]]. [[Abundant Life|TG Abundant Life]]; [[Happiness, Happy|Happiness]].  
+[^d]: [[Alma 41.10|Alma 41:11 (10–12)]][[Alma 41.11|]][[Alma 41.12|]].  

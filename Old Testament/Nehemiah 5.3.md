@@ -5,4 +5,4 @@
 [Nehemiah 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/5.3?lang=eng#p3)
 
 
-[^a]: OR famine.
+[^a]: OR famine.  

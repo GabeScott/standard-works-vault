@@ -5,4 +5,4 @@
 [Deuteronomy 32:24](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.24?lang=eng#p24)
 
 
-[^a]: HEB exhausted, spent.
+[^a]: HEB exhausted, spent.  

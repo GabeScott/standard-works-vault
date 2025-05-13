@@ -5,5 +5,5 @@
 [Acts 14:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.12?lang=eng#p12)
 
 
-[^a]: GR Zeus.
-[^b]: GR Hermes.
+[^a]: GR Zeus.  
+[^b]: GR Hermes.  

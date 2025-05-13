@@ -5,4 +5,4 @@
 [Job 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/3.12?lang=eng#p12)
 
 
-[^a]: HEB receive.
+[^a]: HEB receive.  

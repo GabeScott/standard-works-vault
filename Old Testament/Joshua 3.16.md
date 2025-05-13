@@ -5,8 +5,8 @@
 [Joshua 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 14.21|Ex. 14:21]]; [[2 Kings 2.8|2 Kgs. 2:8.]]
-[^b]: IE up the river.
-[^c]: OR stopped.
-[^d]: Hab. 3:15.
-[^e]: IE Dead Sea. Num. 34:12 (3, 12); [[Joshua 15.2|Josh. 15:2.]]
+[^a]: [[Exodus 14.21|Ex. 14:21]]; [[2 Kings 2.8|2 Kgs. 2:8]].  
+[^b]: IE up the river.  
+[^c]: OR stopped.  
+[^d]: [[Habakkuk 3.15|Hab. 3:15]].  
+[^e]: IE Dead Sea. [[Numbers 34.3|Num. 34:12 (3, 12)]][[Numbers 34.12|]]; [[Joshua 15.2|Josh. 15:2]].  

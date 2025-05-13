@@ -5,4 +5,4 @@
 [Hebrews 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.8?lang=eng#p8)
 
 
-[^a]: [[Matthew 28.18|Matt. 28:18]]; [[1 Corinthians 15.25|1 Cor. 15:25]]; [[Ephesians 1.22|Eph. 1:22.]]
+[^a]: [[Matthew 28.18|Matt. 28:18]]; [[1 Corinthians 15.25|1 Cor. 15:25]]; [[Ephesians 1.22|Eph. 1:22]].  

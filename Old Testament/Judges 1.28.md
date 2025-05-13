@@ -5,4 +5,4 @@
 [Judges 1:28](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/1.28?lang=eng#p28)
 
 
-[^a]: [[Joshua 17.13|Josh. 17:13 (12-13).]]
+[^a]: [[Joshua 17.12|Josh. 17:13 (12–13)]][[Joshua 17.13|]].  

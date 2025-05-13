@@ -5,4 +5,4 @@
 [Proverbs 28:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.27?lang=eng#p27)
 
 
-[^a]: TG [[Almsgiving]]; [[Poor]]; [[Welfare]].
+[^a]: [[Almsgiving|TG Almsgiving]]; [[Poor|Poor]]; [[Welfare|Welfare]].  

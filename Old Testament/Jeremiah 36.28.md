@@ -5,4 +5,4 @@
 [Jeremiah 36:28](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.28?lang=eng#p28)
 
 
-[^a]: TG [[Scriptures, Preservation of]].
+[^a]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  

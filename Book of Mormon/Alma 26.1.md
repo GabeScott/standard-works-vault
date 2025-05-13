@@ -5,4 +5,4 @@
 [Alma 26:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mosiah 28.9|Mosiah 28:9]]; [[Alma 17.6|Alma 17:6 (6-11).]]
+[^a]: [[Mosiah 28.9|Mosiah 28:9]]; [[Alma 17.6|Alma 17:6 (6–11)]][[Alma 17.7|]][[Alma 17.8|]][[Alma 17.9|]][[Alma 17.10|]][[Alma 17.11|]].  

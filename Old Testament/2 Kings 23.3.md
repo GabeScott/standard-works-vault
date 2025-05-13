@@ -5,6 +5,6 @@
 [2 Kings 23:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.3?lang=eng#p3)
 
 
-[^a]: [[2 Kings 11.14|2 Kgs. 11:14.]]
-[^b]: TG [[Commitment]].
-[^c]: [[Jeremiah 36.7|Jer. 36:7]]. TG [[Walking with God]].
+[^a]: [[2 Kings 11.14|2 Kgs. 11:14]].  
+[^b]: [[Commitment|TG Commitment]].  
+[^c]: [[Jeremiah 36.7|Jer. 36:7]]. [[Walking with God|TG Walking with God]].  

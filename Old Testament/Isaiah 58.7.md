@@ -5,6 +5,6 @@
 [Isaiah 58:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.7?lang=eng#p7)
 
 
-[^a]: TG [[Almsgiving]].
-[^b]: TG [[Poor]]; [[Welfare]].
-[^c]: IE thy brother, or relative.
+[^a]: [[Almsgiving|TG Almsgiving]].  
+[^b]: [[Poor|TG Poor]]; [[Welfare|Welfare]].  
+[^c]: IE thy brother, or relative.  

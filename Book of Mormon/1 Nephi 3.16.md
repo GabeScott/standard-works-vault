@@ -5,5 +5,5 @@
 [1 Nephi 3:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p16#p16)
 
 
-[^a]: [[1 Nephi 2.4|1 Ne. 2:4.]]
-[^b]: [[1 Nephi 2.2|1 Ne. 2:2]]; [[1 Nephi 4.34|4:34.]]
+[^a]: [[1 Nephi 2.4|1 Ne. 2:4]].  
+[^b]: [[1 Nephi 2.2|1 Ne. 2:2]]; [[1 Nephi 4.34|4:34]].  

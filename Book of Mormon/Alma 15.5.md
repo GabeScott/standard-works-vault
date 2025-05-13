@@ -5,4 +5,4 @@
 [Alma 15:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/15?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 14.6|Alma 14:6.]]
+[^a]: [[Alma 14.6|Alma 14:6]].  

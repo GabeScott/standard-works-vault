@@ -5,4 +5,4 @@
 [1 Nephi 7:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/7?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Guidance, Divine]].
+[^a]: [[Guidance, Divine|TG Guidance, Divine]].  

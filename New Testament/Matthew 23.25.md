@@ -5,5 +5,5 @@
 [Matthew 23:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.25?lang=eng#p25)
 
 
-[^a]: GR rapacity, greediness.
-[^b]: GR self-indulgence, lack of self-control. TG [[Temperance, Temperate]].
+[^a]: GR rapacity, greediness.  
+[^b]: GR self-indulgence, lack of self-control. [[Temperance, Temperate|TG Temperance]].  

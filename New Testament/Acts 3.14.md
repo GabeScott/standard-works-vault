@@ -5,4 +5,4 @@
 [Acts 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.14?lang=eng#p14)
 
 
-[^a]: [[Luke 23.25|Luke 23:25 (17-19, 25).]]
+[^a]: [[Luke 23.17|Luke 23:25 (17–19, 25)]][[Luke 23.18|]][[Luke 23.19|]][[Luke 23.25|]].  

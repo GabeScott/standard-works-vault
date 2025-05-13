@@ -5,4 +5,4 @@
 [Hebrews 2:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.3?lang=eng#p3)
 
 
-[^a]: [[Hebrews 10.29|Heb. 10:29]]; [[Hebrews 12.25|12:25.]]
+[^a]: [[Hebrews 10.29|Heb. 10:29]]; [[Hebrews 12.25|12:25]].  

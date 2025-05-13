@@ -5,6 +5,6 @@
 [Isaiah 23:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/23.8?lang=eng#p8)
 
 
-[^a]: [[Ezekiel 26.16|Ezek. 26:16.]]
-[^b]: IE traders.
-[^c]: HEB ones honored, i.e., famous.
+[^a]: [[Ezekiel 26.16|Ezek. 26:16]].  
+[^b]: IE traders.  
+[^c]: HEB ones honored, i.e., famous.  

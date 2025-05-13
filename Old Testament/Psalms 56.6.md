@@ -5,4 +5,4 @@
 [Psalms 56:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/56.6?lang=eng#p6)
 
 
-[^a]: OR hope to take my life.
+[^a]: OR hope to take my life.  

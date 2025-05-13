@@ -5,5 +5,5 @@
 [Deuteronomy 6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 13.14|Ex. 13:14.]]
-[^b]: TG [[Testimony]].
+[^a]: [[Exodus 13.14|Ex. 13:14]].  
+[^b]: [[Testimony|TG Testimony]].  

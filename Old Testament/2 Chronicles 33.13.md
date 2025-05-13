@@ -5,5 +5,5 @@
 [2 Chronicles 33:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 25.21|Gen. 25:21.]]
-[^b]: [[Helaman 12.3|Hel. 12:3 (2-3).]]
+[^a]: [[Genesis 25.21|Gen. 25:21]].  
+[^b]: [[Helaman 12.2|Hel. 12:3 (2–3)]][[Helaman 12.3|]].  

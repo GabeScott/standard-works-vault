@@ -5,5 +5,5 @@
 [1 John 2:29](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.29?lang=eng#p29)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Man, New, Spiritually Reborn]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  

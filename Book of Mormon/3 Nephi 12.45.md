@@ -5,4 +5,4 @@
 [3 Nephi 12:45](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p45#p45)
 
 
-[^a]: [[Matthew 5.45|Matt. 5:45.]]
+[^a]: [[Matthew 5.45|Matt. 5:45]].  

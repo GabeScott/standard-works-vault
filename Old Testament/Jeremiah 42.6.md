@@ -5,4 +5,4 @@
 [Jeremiah 42:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.6?lang=eng#p6)
 
 
-[^a]: [[D&C 25.16|D&C 25:16.]]
+[^a]: [[D&C 25.16|D&C 25:16]].  

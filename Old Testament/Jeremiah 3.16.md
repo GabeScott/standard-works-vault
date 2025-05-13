@@ -5,4 +5,4 @@
 [Jeremiah 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.16?lang=eng#p16)
 
 
-[^a]: TG [[Ark of the Covenant]].
+[^a]: [[Ark of the Covenant|TG Ark of the Covenant]].  

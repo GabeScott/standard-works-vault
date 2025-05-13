@@ -5,4 +5,4 @@
 [Alma 41:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/41?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 40.23|Alma 40:23.]]
+[^a]: [[Alma 40.23|Alma 40:23]].  

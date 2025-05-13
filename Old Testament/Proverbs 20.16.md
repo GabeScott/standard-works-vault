@@ -5,4 +5,4 @@
 [Proverbs 20:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.16?lang=eng#p16)
 
 
-[^a]: [[Proverbs 27.13|Prov. 27:13.]]
+[^a]: [[Proverbs 27.13|Prov. 27:13]].  

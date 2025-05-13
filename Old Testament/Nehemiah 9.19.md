@@ -5,4 +5,4 @@
 [Nehemiah 9:19](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.19?lang=eng#p19)
 
 
-[^a]: [[Jacob 6.4|Jacob 6:4.]]
+[^a]: [[Jacob 6.4|Jacob 6:4]].  

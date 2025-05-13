@@ -5,4 +5,4 @@
 [Isaiah 62:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/62.7?lang=eng#p7)
 
 
-[^a]: Zeph. 3:20.
+[^a]: [[Zephaniah 3.20|Zeph. 3:20]].  

@@ -5,5 +5,5 @@
 [2 Kings 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.3?lang=eng#p3)
 
 
-[^a]: [[2 Kings 21.11|2 Kgs. 21:11.]]
-[^b]: [[Jeremiah 15.4|Jer. 15:4.]]
+[^a]: [[2 Kings 21.11|2 Kgs. 21:11]].  
+[^b]: [[Jeremiah 15.4|Jer. 15:4]].  

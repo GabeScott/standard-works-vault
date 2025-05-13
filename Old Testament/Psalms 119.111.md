@@ -5,4 +5,4 @@
 [Psalms 119:111](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.111?lang=eng#p111)
 
 
-[^a]: TG [[Cheerful, Cheerfulness]].
+[^a]: [[Cheerful, Cheerfulness|TG Cheerful]].  

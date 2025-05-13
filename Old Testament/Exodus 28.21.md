@@ -5,5 +5,5 @@
 [Exodus 28:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.21?lang=eng#p21)
 
 
-[^a]: OR its name.
-[^b]: TG [[Israel, Twelve Tribes of]].
+[^a]: OR its name.  
+[^b]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  

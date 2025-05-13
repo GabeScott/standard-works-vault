@@ -5,4 +5,4 @@
 [3 Nephi 18:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p33#p33)
 
 
-[^a]: TG [[Condemnation]].
+[^a]: [[Condemnation|TG Condemnation]].  

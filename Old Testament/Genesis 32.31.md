@@ -5,4 +5,4 @@
 [Genesis 32:31](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.31?lang=eng#p31)
 
 
-[^a]: Variant of Peniel.
+[^a]: Variant of Peniel.  

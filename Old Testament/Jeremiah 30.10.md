@@ -5,4 +5,4 @@
 [Jeremiah 30:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.10?lang=eng#p10)
 
 
-[^a]: [[Hosea 13.9|Hosea 13:9]]; [[D&C 38.33|D&C 38:33]]; [[D&C 136.22|136:22.]]
+[^a]: [[Hosea 13.9|Hosea 13:9]]; [[D&C 38.33|D&C 38:33]]; [[D&C 136.22|136:22]].  

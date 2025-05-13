@@ -5,6 +5,6 @@
 [Nehemiah 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.1?lang=eng#p1)
 
 
-[^a]: [[Nehemiah 3.26|Neh. 3:26.]]
-[^b]: [[Ezra 7.6|Ezra 7:6.]]
-[^c]: TG [[Scribe]].
+[^a]: [[Nehemiah 3.26|Neh. 3:26]].  
+[^b]: [[Ezra 7.6|Ezra 7:6]].  
+[^c]: [[Scribe|TG Scribe]].  

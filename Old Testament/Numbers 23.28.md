@@ -5,4 +5,4 @@
 [Numbers 23:28](https://www.churchofjesuschrist.org/study/scriptures/ot/num/23.28?lang=eng#p28)
 
 
-[^a]: HEB overlooks the desert.
+[^a]: HEB overlooks the desert.  

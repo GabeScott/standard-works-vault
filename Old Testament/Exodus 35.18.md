@@ -5,4 +5,4 @@
 [Exodus 35:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.18?lang=eng#p18)
 
 
-[^a]: OR pegs.
+[^a]: OR pegs.  

@@ -5,4 +5,4 @@
 [2 Kings 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.9?lang=eng#p9)
 
 
-[^a]: [[Helaman 12.14|Hel. 12:14 (14-15).]]
+[^a]: [[Helaman 12.14|Hel. 12:14 (14–15)]][[Helaman 12.15|]].  

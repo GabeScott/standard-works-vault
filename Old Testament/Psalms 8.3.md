@@ -5,7 +5,7 @@
 [Psalms 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/8.3?lang=eng#p3)
 
 
-[^a]: TG [[Beauty]].
-[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
-[^c]: TG [[God, Works of]].
-[^d]: TG [[Astronomy]].
+[^a]: [[Beauty|TG Beauty]].  
+[^b]: [[Heaven|TG Heaven]].  
+[^c]: [[God, Works of|TG God, Works of]].  
+[^d]: [[Astronomy|TG Astronomy]].  

@@ -5,4 +5,4 @@
 [Luke 1:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.28?lang=eng#p28)
 
 
-[^a]: TG [[Woman, Women]].
+[^a]: [[Woman, Women|TG Woman]].  

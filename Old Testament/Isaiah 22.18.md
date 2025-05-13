@@ -5,4 +5,4 @@
 [Isaiah 22:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.18?lang=eng#p18)
 
 
-[^a]: IE probably Assyria.
+[^a]: IE probably Assyria.  

@@ -5,4 +5,4 @@
 [Acts 27:40](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.40?lang=eng#p40)
 
 
-[^a]: GR cut off anchors (they left them in the sea).
+[^a]: GR cut off anchors (they left them in the sea).  

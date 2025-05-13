@@ -5,6 +5,6 @@
 [Exodus 21:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.22?lang=eng#p22)
 
 
-[^a]: TG [[Birth Control]].
-[^b]: IE she has a miscarriage.
-[^c]: OR other harm.
+[^a]: [[Birth Control|TG Birth Control]].  
+[^b]: IE she has a miscarriage.  
+[^c]: OR other harm.  

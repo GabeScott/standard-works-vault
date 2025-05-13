@@ -5,5 +5,5 @@
 [Deuteronomy 6:25](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.25?lang=eng#p25)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: [[Exodus 34.11|Ex. 34:11]]. TG [[Watch, Watchfulness]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Exodus 34.11|Ex. 34:11]]. [[Watch, Watchfulness|TG Watch]].  

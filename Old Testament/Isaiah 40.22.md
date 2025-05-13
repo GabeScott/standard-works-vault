@@ -5,4 +5,4 @@
 [Isaiah 40:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.22?lang=eng#p22)
 
 
-[^a]: [[Job 9.8|Job 9:8]]; [[Psalms 104.2|Ps. 104:2.]]
+[^a]: [[Job 9.8|Job 9:8]]; [[Psalms 104.2|Ps. 104:2]].  

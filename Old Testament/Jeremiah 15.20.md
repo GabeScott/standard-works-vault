@@ -5,5 +5,5 @@
 [Jeremiah 15:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/15.20?lang=eng#p20)
 
 
-[^a]: HEB fortified wall of brass.
-[^b]: TG [[Protection, Divine]].
+[^a]: HEB fortified wall of brass.  
+[^b]: [[Protection, Divine|TG Protection, Divine]].  

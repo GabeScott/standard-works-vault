@@ -5,9 +5,9 @@
 [Alma 32:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p28#p28)
 
 
-[^a]: [[Alma 33.1|Alma 33:1.]]
-[^b]: [[Luke 8.11|Luke 8:11 (11-15).]]
-[^c]: TG [[Heart]].
-[^d]: TG [[Doubt, Doubtful]]; [[Unbelief, Unbelievers]].
-[^e]: TG [[Discernment, Spiritual]]; [[Edification, Edify]].
-[^f]: TG [[Intelligence]]; [[Testimony]]; [[Understanding]].
+[^a]: [[Alma 33.1|Alma 33:1]].  
+[^b]: [[Luke 8.11|Luke 8:11 (11–15)]][[Luke 8.12|]][[Luke 8.13|]][[Luke 8.14|]][[Luke 8.15|]].  
+[^c]: [[Heart|TG Heart]].  
+[^d]: [[Doubt, Doubtful|TG Doubt]]; [[Unbelief, Unbelievers|Unbelief]].  
+[^e]: [[Discernment, Spiritual|TG Discernment, Spiritual]]; [[Edification, Edify|Edification]].  
+[^f]: [[Intelligence|TG Intelligence]]; [[Testimony|Testimony]]; [[Understanding|Understanding]].  

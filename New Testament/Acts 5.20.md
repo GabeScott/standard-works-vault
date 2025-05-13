@@ -5,4 +5,4 @@
 [Acts 5:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.20?lang=eng#p20)
 
 
-[^a]: [[John 6.68|John 6:68 (63, 68).]]
+[^a]: [[John 6.63|John 6:68 (63, 68)]][[John 6.68|]].  

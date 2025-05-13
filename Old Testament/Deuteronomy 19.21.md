@@ -5,4 +5,4 @@
 [Deuteronomy 19:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.21?lang=eng#p21)
 
 
-[^a]: IE not literally; interpreted by the Rabbis to be symbolic of equal compensation.
+[^a]: IE not literally; interpreted by the Rabbis to be symbolic of equal compensation.  

@@ -5,4 +5,4 @@
 [Daniel 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.11?lang=eng#p11)
 
 
-[^a]: Dan. 4:8; 5:14 (11, 14).
+[^a]: [[Daniel 4.8|Dan. 4:8]]; [[Daniel 5.11|5:14 (11, 14)]][[Daniel 5.14|]].  

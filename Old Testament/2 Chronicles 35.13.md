@@ -5,4 +5,4 @@
 [2 Chronicles 35:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/35.13?lang=eng#p13)
 
 
-[^a]: IE boiled.
+[^a]: IE boiled.  

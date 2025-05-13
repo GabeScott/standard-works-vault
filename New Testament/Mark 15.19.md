@@ -5,4 +5,4 @@
 [Mark 15:19](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.19?lang=eng#p19)
 
 
-[^a]: [[1 Nephi 11.32|1 Ne. 11:32.]]
+[^a]: [[1 Nephi 11.32|1 Ne. 11:32]].  

@@ -5,4 +5,4 @@
 [Psalms 78:54](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.54?lang=eng#p54)
 
 
-[^a]: OR into His holy land.
+[^a]: OR into His holy land.  

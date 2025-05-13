@@ -5,4 +5,4 @@
 [Romans 14:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.3?lang=eng#p3)
 
 
-[^a]: Col. 2:16.
+[^a]: [[Colossians 2.16|Col. 2:16]].  

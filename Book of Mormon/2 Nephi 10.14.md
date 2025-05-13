@@ -5,6 +5,6 @@
 [2 Nephi 10:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Kings, Earthly]].
-[^b]: [[Joshua 2.11|Josh. 2:11]]; [[Psalms 44.4|Ps. 44:4]]; [[Matthew 2.2|Matt. 2:2]]; [[Alma 5.50|Alma 5:50]]; [[D&C 20.17|D&C 20:17]]; [[D&C 38.21|38:21 (21-22)]]; [[D&C 128.22|128:22 (22-23)]]; [[Moses 7.53|Moses 7:53.]]
-[^c]: TG [[Jesus Christ, Light of the World]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  
+[^b]: [[Joshua 2.11|Josh. 2:11]]; [[Psalms 44.4|Ps. 44:4]]; [[Matthew 2.2|Matt. 2:2]]; [[Alma 5.50|Alma 5:50]]; [[D&C 20.17|D&C 20:17]]; [[D&C 38.21|38:21 (21–22)]][[D&C 38.22|]]; [[D&C 128.22|128:22 (22–23)]][[D&C 128.23|]]; [[Moses 7.53|Moses 7:53]].  
+[^c]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]].  

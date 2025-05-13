@@ -5,4 +5,4 @@
 [Exodus 16:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.31?lang=eng#p31)
 
 
-[^a]: [[Numbers 11.7|Num. 11:7 (7-8).]]
+[^a]: [[Numbers 11.7|Num. 11:7 (7–8)]][[Numbers 11.8|]].  

@@ -5,4 +5,4 @@
 [Jacob 5:74](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p74#p74)
 
 
-[^a]: [[D&C 38.27|D&C 38:27.]]
+[^a]: [[D&C 38.27|D&C 38:27]].  

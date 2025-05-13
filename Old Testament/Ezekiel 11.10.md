@@ -5,4 +5,4 @@
 [Ezekiel 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.10?lang=eng#p10)
 
 
-[^a]: [[2 Kings 25.21|2 Kgs. 25:21 (19-21)]]; [[Jeremiah 39.6|Jer. 39:6]]; [[Jeremiah 52.10|52:10.]]
+[^a]: [[2 Kings 25.19|2 Kgs. 25:21 (19–21)]][[2 Kings 25.20|]][[2 Kings 25.21|]]; [[Jeremiah 39.6|Jer. 39:6]]; [[Jeremiah 52.10|52:10]].  

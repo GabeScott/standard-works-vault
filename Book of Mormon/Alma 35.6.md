@@ -5,4 +5,4 @@
 [Alma 35:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/35?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 35.14|Alma 35:14.]]
+[^a]: [[Alma 35.14|Alma 35:14]].  

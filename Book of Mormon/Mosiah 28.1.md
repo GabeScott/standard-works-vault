@@ -5,6 +5,6 @@
 [Mosiah 28:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/28?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mosiah 27.34|Mosiah 27:34.]]
-[^b]: [[Alma 17.8|Alma 17:8.]]
-[^c]: [[Mosiah 9.1|Mosiah 9:1 (1, 3-4, 14)]]; [[Alma 50.8|Alma 50:8 (8, 11).]]
+[^a]: [[Mosiah 27.34|Mosiah 27:34]].  
+[^b]: [[Alma 17.8|Alma 17:8]].  
+[^c]: [[Mosiah 9.1|Mosiah 9:1 (1, 3–4, 14)]][[Mosiah 9.3|]][[Mosiah 9.4|]][[Mosiah 9.14|]]; [[Alma 50.8|Alma 50:8 (8, 11)]][[Alma 50.11|]].  

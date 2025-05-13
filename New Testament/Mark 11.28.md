@@ -5,4 +5,4 @@
 [Mark 11:28](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/11.28?lang=eng#p28)
 
 
-[^a]: TG [[Priesthood, Authority]].
+[^a]: [[Priesthood, Authority|TG Priesthood, Authority]].  

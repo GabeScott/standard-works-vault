@@ -5,4 +5,4 @@
 [Psalms 69:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.5?lang=eng#p5)
 
 
-[^a]: TG [[Foolishness]].
+[^a]: [[Foolishness|TG Foolishness]].  

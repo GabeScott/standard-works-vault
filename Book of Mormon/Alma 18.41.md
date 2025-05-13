@@ -5,4 +5,4 @@
 [Alma 18:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p41#p41)
 
 
-[^a]: TG [[God, Mercy of]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  

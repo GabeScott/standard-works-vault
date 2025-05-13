@@ -5,6 +5,6 @@
 [Ezekiel 11:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.12?lang=eng#p12)
 
 
-[^a]: [[Ezekiel 5.7|Ezek. 5:7.]]
-[^b]: TG [[Apostasy of Israel]].
-[^c]: TG [[Heathen]].
+[^a]: [[Ezekiel 5.7|Ezek. 5:7]].  
+[^b]: [[Apostasy of Israel|TG Apostasy of Israel]].  
+[^c]: [[Heathen|TG Heathen]].  

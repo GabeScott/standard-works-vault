@@ -5,7 +5,7 @@
 [Acts 20:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.7?lang=eng#p7)
 
 
-[^a]: TG [[Sabbath]].
-[^c]: TG [[Assembly for Worship]]; [[Meetings]].
-[^d]: [[D&C 20.75|D&C 20:75]]. TG [[Sacrament]].
-[^e]: TG [[Bread]].
+[^a]: [[Sabbath|TG Sabbath]].  
+[^c]: [[Assembly for Worship|TG Assembly for Worship]]; [[Meetings|Meetings]].  
+[^d]: [[D&C 20.75|D&C 20:75]]. [[Sacrament|TG Sacrament]].  
+[^e]: [[Bread|TG Bread]].  

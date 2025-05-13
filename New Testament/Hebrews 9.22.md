@@ -5,5 +5,5 @@
 [Hebrews 9:22](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.22?lang=eng#p22)
 
 
-[^a]: TG [[Blood, Symbolism of]].
-[^b]: TG [[Remission of Sins]].
+[^a]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  
+[^b]: [[Remission of Sins|TG Remission of Sins]].  

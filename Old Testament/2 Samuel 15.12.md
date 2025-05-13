@@ -5,7 +5,7 @@
 [2 Samuel 15:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/15.12?lang=eng#p12)
 
 
-[^a]: [[2 Samuel 16.23|2 Sam. 16:23]]; [[1 Chronicles 27.33|1 Chr. 27:33.]]
-[^b]: TG [[Counselor]].
-[^c]: [[2 Samuel 17.23|2 Sam. 17:23.]]
-[^d]: TG [[Conspiracy]].
+[^a]: [[2 Samuel 16.23|2 Sam. 16:23]]; [[1 Chronicles 27.33|1 Chr. 27:33]].  
+[^b]: [[Counselor|TG Counselor]].  
+[^c]: [[2 Samuel 17.23|2 Sam. 17:23]].  
+[^d]: [[Conspiracy|TG Conspiracy]].  

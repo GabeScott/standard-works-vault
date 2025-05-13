@@ -5,4 +5,4 @@
 [Colossians 4:13](https://www.churchofjesuschrist.org/study/scriptures/nt/col/4.13?lang=eng#p13)
 
 
-[^a]: TG [[Zeal, Zealous]].
+[^a]: [[Zeal, Zealous|TG Zeal]].  

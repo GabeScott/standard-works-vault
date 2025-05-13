@@ -5,6 +5,6 @@
 [Isaiah 11:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.14?lang=eng#p14)
 
 
-[^a]: HEB fly down on the shoulder; i.e., attack the western slopes that were Philistine territory.
-[^b]: [[2 Nephi 10.8|2 Ne. 10:8 (8-9).]]
-[^c]: HEB together (i.e., Ephraim and Judah) they shall spoil.
+[^a]: HEB fly down on the shoulder; i.e., attack the western slopes that were Philistine territory.  
+[^b]: [[2 Nephi 10.8|2 Ne. 10:8 (8–9)]][[2 Nephi 10.9|]].  
+[^c]: HEB together (i.e., Ephraim and Judah) they shall spoil.  

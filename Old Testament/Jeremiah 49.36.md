@@ -5,4 +5,4 @@
 [Jeremiah 49:36](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.36?lang=eng#p36)
 
 
-[^a]: HEB ends or extremities.
+[^a]: HEB ends or extremities.  

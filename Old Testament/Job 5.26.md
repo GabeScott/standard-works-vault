@@ -5,4 +5,4 @@
 [Job 5:26](https://www.churchofjesuschrist.org/study/scriptures/ot/job/5.26?lang=eng#p26)
 
 
-[^a]: OR grain.
+[^a]: OR grain.  

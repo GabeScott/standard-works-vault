@@ -5,4 +5,4 @@
 [Alma 13:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p26#p26)
 
 
-[^a]: [[Exodus 22.31|Ex. 22:31]]; [[Amos 3.7|Amos 3:7]]; W of M 1:17; [[D&C 49.8|D&C 49:8]]; [[D&C 107.29|107:29.]]
+[^a]: [[Exodus 22.31|Ex. 22:31]]; [[Amos 3.7|Amos 3:7]]; [[Words of Mormon 1.17|W of M 1:17]]; [[D&C 49.8|D&C 49:8]]; [[D&C 107.29|107:29]].  

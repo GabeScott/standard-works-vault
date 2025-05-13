@@ -5,5 +5,5 @@
 [Deuteronomy 30:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.19?lang=eng#p19)
 
 
-[^a]: TG [[Curse]].
-[^b]: TG [[Agency]]; [[God, Justice of]].
+[^a]: [[Curse|TG Curse]].  
+[^b]: [[Agency|TG Agency]]; [[Justice|Justice]].  

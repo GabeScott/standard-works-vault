@@ -5,4 +5,4 @@
 [3 John 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/3-jn/1.10?lang=eng#p10)
 
 
-[^a]: [[Numbers 16.3|Num. 16:3.]]
+[^a]: [[Numbers 16.3|Num. 16:3]].  

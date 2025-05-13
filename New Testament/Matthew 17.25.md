@@ -5,5 +5,5 @@
 [Matthew 17:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.25?lang=eng#p25)
 
 
-[^a]: GR spoke to him first.
-[^b]: TG [[Kings, Earthly]].
+[^a]: GR spoke to him first.  
+[^b]: [[Kings, Earthly|TG Kings, Earthly]].  

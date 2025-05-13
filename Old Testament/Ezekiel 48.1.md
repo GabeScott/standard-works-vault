@@ -5,5 +5,5 @@
 [Ezekiel 48:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.1?lang=eng#p1)
 
 
-[^a]: TG [[Israel, Twelve Tribes of]].
-[^b]: [[Numbers 2.25|Num. 2:25 (25-31).]]
+[^a]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  
+[^b]: [[Numbers 2.25|Num. 2:25 (25–31)]][[Numbers 2.26|]][[Numbers 2.27|]][[Numbers 2.28|]][[Numbers 2.29|]][[Numbers 2.30|]][[Numbers 2.31|]].  

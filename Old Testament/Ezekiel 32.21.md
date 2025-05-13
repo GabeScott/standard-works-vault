@@ -5,4 +5,4 @@
 [Ezekiel 32:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/32.21?lang=eng#p21)
 
 
-[^a]: TG [[Hell]].
+[^a]: [[Hell|TG Hell]].  

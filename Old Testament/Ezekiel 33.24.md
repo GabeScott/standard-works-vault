@@ -5,4 +5,4 @@
 [Ezekiel 33:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.24?lang=eng#p24)
 
 
-[^a]: [[Ezekiel 36.4|Ezek. 36:4.]]
+[^a]: [[Ezekiel 36.4|Ezek. 36:4]].  

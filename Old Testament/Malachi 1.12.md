@@ -5,4 +5,4 @@
 [Malachi 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/1.12?lang=eng#p12)
 
 
-[^a]: [[Ezekiel 41.22|Ezek. 41:22]]; [[Ezekiel 44.16|44:16.]]
+[^a]: [[Ezekiel 41.22|Ezek. 41:22]]; [[Ezekiel 44.16|44:16]].  

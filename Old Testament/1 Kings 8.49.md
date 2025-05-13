@@ -5,5 +5,5 @@
 [1 Kings 8:49](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.49?lang=eng#p49)
 
 
-[^a]: [[Mosiah 21.15|Mosiah 21:15.]]
-[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Mosiah 21.15|Mosiah 21:15]].  
+[^b]: [[Heaven|TG Heaven]].  

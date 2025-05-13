@@ -5,5 +5,5 @@
 [Alma 36:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p7#p7)
 
 
-[^a]: [[Isaiah 6.4|Isa. 6:4]]; [[Mosiah 27.18|Mosiah 27:18.]]
-[^b]: [[Proverbs 2.5|Prov. 2:5]]. TG [[Fear of God]].
+[^a]: [[Isaiah 6.4|Isa. 6:4]]; [[Mosiah 27.18|Mosiah 27:18]].  
+[^b]: [[Proverbs 2.5|Prov. 2:5]]. [[Fear of God|TG Fear of God]].  

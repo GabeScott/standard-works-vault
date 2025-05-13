@@ -5,4 +5,4 @@
 [Daniel 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.1?lang=eng#p1)
 
 
-[^a]: Dan. 11:1.
+[^a]: [[Daniel 11.1|Dan. 11:1]].  

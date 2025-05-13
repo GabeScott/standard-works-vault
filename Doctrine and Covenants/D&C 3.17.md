@@ -5,4 +5,4 @@
 [D&C 3:17](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.17?lang=eng#p17)
 
 
-[^a]: [[1 Nephi 13.30|1 Ne. 13:30]]; [[2 Nephi 29.12|2 Ne. 29:12 (12-13)]]; [[Alma 45.14|Alma 45:14 (10-14).]]
+[^a]: [[1 Nephi 13.30|1 Ne. 13:30]]; [[2 Nephi 29.12|2 Ne. 29:12 (12–13)]][[2 Nephi 29.13|]]; [[Alma 45.10|Alma 45:14 (10–14)]][[Alma 45.11|]][[Alma 45.12|]][[Alma 45.13|]][[Alma 45.14|]].  

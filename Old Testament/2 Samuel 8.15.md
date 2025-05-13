@@ -5,4 +5,4 @@
 [2 Samuel 8:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/8.15?lang=eng#p15)
 
 
-[^a]: [[2 Samuel 5.4|2 Sam. 5:4.]]
+[^a]: [[2 Samuel 5.4|2 Sam. 5:4]].  

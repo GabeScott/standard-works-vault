@@ -5,4 +5,4 @@
 [1 Kings 14:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.31?lang=eng#p31)
 
 
-[^a]: OR Abijah (see 2 Chr. 12:16) or Abia (see Matt. 1:7).
+[^a]: OR Abijah (see [[2 Chronicles 12.16|2 Chr. 12:16]]) or Abia (see [[Matthew 1.7|Matt. 1:7]]).  

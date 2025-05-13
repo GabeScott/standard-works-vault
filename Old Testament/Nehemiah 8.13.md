@@ -5,4 +5,4 @@
 [Nehemiah 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.13?lang=eng#p13)
 
 
-[^a]: TG [[Study]].
+[^a]: [[Study|TG Study]].  

@@ -5,4 +5,4 @@
 [Hosea 8:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/8.4?lang=eng#p4)
 
 
-[^a]: IE I acknowledged them not.
+[^a]: IE I acknowledged them not.  

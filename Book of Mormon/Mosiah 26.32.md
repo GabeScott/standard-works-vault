@@ -5,4 +5,4 @@
 [Mosiah 26:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p32#p32)
 
 
-[^a]: [[Alma 1.24|Alma 1:24]]. TG [[Excommunication]].
+[^a]: [[Alma 1.24|Alma 1:24]]. [[Excommunication|TG Excommunication]].  

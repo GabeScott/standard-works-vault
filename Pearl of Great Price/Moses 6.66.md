@@ -5,5 +5,5 @@
 [Moses 6:66](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.66?lang=eng#p66)
 
 
-[^a]: [[D&C 19.31|D&C 19:31.]]
-[^b]: [[2 Nephi 31.18|2 Ne. 31:18 (17-21)]]; [[3 Nephi 28.11|3 Ne. 28:11.]]
+[^a]: [[D&C 19.31|D&C 19:31]].  
+[^b]: [[2 Nephi 31.17|2 Ne. 31:18 (17–21)]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 28.11|3 Ne. 28:11]].  

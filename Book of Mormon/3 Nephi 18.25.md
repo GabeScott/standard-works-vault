@@ -5,5 +5,5 @@
 [3 Nephi 18:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p25#p25)
 
 
-[^a]: [[Alma 5.33|Alma 5:33]]; [[Alma 19.36|19:36.]]
-[^b]: [[3 Nephi 11.15|3 Ne. 11:15 (14-16).]]
+[^a]: [[Alma 5.33|Alma 5:33]]; [[Alma 19.36|19:36]].  
+[^b]: [[3 Nephi 11.14|3 Ne. 11:15 (14–16)]][[3 Nephi 11.15|]][[3 Nephi 11.16|]].  

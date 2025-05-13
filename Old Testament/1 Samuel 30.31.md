@@ -5,4 +5,4 @@
 [1 Samuel 30:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/30.31?lang=eng#p31)
 
 
-[^a]: IE where they usually went.
+[^a]: IE where they usually went.  

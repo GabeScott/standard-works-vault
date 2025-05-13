@@ -5,4 +5,4 @@
 [1 Nephi 20:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p15#p15)
 
 
-[^a]: [[Isaiah 45.1|Isa. 45:1 (1-4).]]
+[^a]: [[Isaiah 45.1|Isa. 45:1 (1–4)]][[Isaiah 45.2|]][[Isaiah 45.3|]][[Isaiah 45.4|]].  

@@ -5,4 +5,4 @@
 [Proverbs 28:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.26?lang=eng#p26)
 
 
-[^a]: TG [[Trust Not in the Arm of Flesh]].
+[^a]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  

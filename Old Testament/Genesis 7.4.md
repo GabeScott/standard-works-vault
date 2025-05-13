@@ -5,4 +5,4 @@
 [Genesis 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/7.4?lang=eng#p4)
 
 
-[^a]: TG [[Earth, Cleansing of]].
+[^a]: [[Earth, Cleansing of|TG Earth, Cleansing of]].  

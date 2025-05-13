@@ -5,4 +5,4 @@
 [Psalms 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.12?lang=eng#p12)
 
 
-[^a]: [[Moses 1.26|Moses 1:26 (25-26).]]
+[^a]: [[Moses 1.25|Moses 1:26 (25–26)]][[Moses 1.26|]].  

@@ -5,7 +5,7 @@
 [Ether 2:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p24#p24)
 
 
-[^a]: [[Genesis 1.21|Gen. 1:21]]; [[Ether 6.10|Ether 6:10.]]
-[^b]: [[Ether 6.5|Ether 6:5.]]
-[^c]: [[Job 37.2|Job 37:2 (2-13).]]
-[^d]: [[Psalms 148.8|Ps. 148:8]]; [[D&C 117.1|D&C 117:1.]]
+[^a]: [[Genesis 1.21|Gen. 1:21]]; [[Ether 6.10|Ether 6:10]].  
+[^b]: [[Ether 6.5|Ether 6:5]].  
+[^c]: [[Job 37.2|Job 37:2 (2–13)]][[Job 37.3|]][[Job 37.4|]][[Job 37.5|]][[Job 37.6|]][[Job 37.7|]][[Job 37.8|]][[Job 37.9|]][[Job 37.10|]][[Job 37.11|]][[Job 37.12|]][[Job 37.13|]].  
+[^d]: [[Psalms 148.8|Ps. 148:8]]; [[D&C 117.1|D&C 117:1]].  

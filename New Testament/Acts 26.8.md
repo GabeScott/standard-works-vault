@@ -5,4 +5,4 @@
 [Acts 26:8](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.8?lang=eng#p8)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Resurrection|TG Resurrection]].  

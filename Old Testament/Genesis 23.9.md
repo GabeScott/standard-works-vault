@@ -5,4 +5,4 @@
 [Genesis 23:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.9?lang=eng#p9)
 
 
-[^a]: [[Genesis 25.9|Gen. 25:9]]; [[Genesis 49.30|49:30.]]
+[^a]: [[Genesis 25.9|Gen. 25:9]]; [[Genesis 49.30|49:30]].  

@@ -5,4 +5,4 @@
 [Isaiah 28:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.4?lang=eng#p4)
 
 
-[^a]: HEB first or early fruit.
+[^a]: HEB first or early fruit.  

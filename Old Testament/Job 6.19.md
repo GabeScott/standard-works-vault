@@ -5,4 +5,4 @@
 [Job 6:19](https://www.churchofjesuschrist.org/study/scriptures/ot/job/6.19?lang=eng#p19)
 
 
-[^a]: HEB caravans.
+[^a]: HEB caravans.  

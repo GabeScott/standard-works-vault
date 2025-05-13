@@ -5,4 +5,4 @@
 [1 Chronicles 29:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.12?lang=eng#p12)
 
 
-[^a]: TG [[Treasure]].
+[^a]: [[Treasure|TG Treasure]].  

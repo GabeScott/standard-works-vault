@@ -5,4 +5,4 @@
 [Joshua 20:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/20.6?lang=eng#p6)
 
 
-[^a]: [[Numbers 35.25|Num. 35:25.]]
+[^a]: [[Numbers 35.25|Num. 35:25]].  

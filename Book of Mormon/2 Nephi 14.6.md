@@ -5,4 +5,4 @@
 [2 Nephi 14:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/14?lang=eng&id=p6#p6)
 
 
-[^a]: [[Isaiah 25.4|Isa. 25:4]]. TG [[Refuge]].
+[^a]: [[Isaiah 25.4|Isa. 25:4]]. [[Refuge|TG Refuge]].  

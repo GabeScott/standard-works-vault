@@ -5,7 +5,7 @@
 [Genesis 28:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.14?lang=eng#p14)
 
 
-[^a]: TG [[Israel, Ten Lost Tribes of]].
-[^b]: TG [[Priesthood, History of]]; [[Seed of Abraham]].
-[^c]: TG [[Abrahamic Covenant]].
-[^d]: TG [[Israel, Blessings of]]; [[Israel, Mission of]].
+[^a]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  
+[^b]: [[Priesthood, History of|TG Priesthood, History of]]; [[Seed of Abraham|Seed of Abraham]].  
+[^c]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  
+[^d]: [[Israel, Blessings of|TG Israel, Blessings of]]; [[Israel, Mission of|Israel, Mission of]].  

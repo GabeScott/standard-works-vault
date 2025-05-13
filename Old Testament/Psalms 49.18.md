@@ -5,4 +5,4 @@
 [Psalms 49:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/49.18?lang=eng#p18)
 
 
-[^a]: [[Deuteronomy 29.19|Deut. 29:19 (18-20).]]
+[^a]: [[Deuteronomy 29.18|Deut. 29:19 (18–20)]][[Deuteronomy 29.19|]][[Deuteronomy 29.20|]].  

@@ -5,4 +5,4 @@
 [3 Nephi 18:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p38#p38)
 
 
-[^a]: [[Exodus 19.9|Ex. 19:9 (9, 16)]]; [[2 Chronicles 5.14|2 Chr. 5:14 (11-14).]]
+[^a]: [[Exodus 19.9|Ex. 19:9 (9, 16)]][[Exodus 19.16|]]; [[2 Chronicles 5.11|2 Chr. 5:14 (11–14)]][[2 Chronicles 5.12|]][[2 Chronicles 5.13|]][[2 Chronicles 5.14|]].  

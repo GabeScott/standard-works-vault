@@ -5,4 +5,4 @@
 [Matthew 26:52](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.52?lang=eng#p52)
 
 
-[^a]: TG [[Punish, Punishment]]; [[Retribution]].
+[^a]: [[Punish, Punishment|TG Punish]]; [[Retribution|Retribution]].  

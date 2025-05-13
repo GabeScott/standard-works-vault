@@ -5,5 +5,5 @@
 [1 Samuel 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/5.1?lang=eng#p1)
 
 
-[^a]: [[1 Chronicles 13.3|1 Chr. 13:3.]]
-[^b]: [[1 Samuel 4.1|1 Sam. 4:1]]; [[1 Samuel 7.12|7:12.]]
+[^a]: [[1 Chronicles 13.3|1 Chr. 13:3]].  
+[^b]: [[1 Samuel 4.1|1 Sam. 4:1]]; [[1 Samuel 7.12|7:12]].  

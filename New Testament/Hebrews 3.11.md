@@ -5,5 +5,5 @@
 [Hebrews 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.11?lang=eng#p11)
 
 
-[^a]: [[Psalms 95.11|Ps. 95:11.]]
-[^b]: [[D&C 84.24|D&C 84:24]]. TG [[God, Presence of]]; [[God, Privilege of Seeing]]; [[Restoration of the Gospel]].
+[^a]: [[Psalms 95.11|Ps. 95:11]].  
+[^b]: [[D&C 84.24|D&C 84:24]]. [[God, Presence of|TG God, Presence of]]; [[God, Privilege of Seeing|God, Privilege of Seeing]]; [[Rest|Rest]].  

@@ -5,4 +5,4 @@
 [Acts 18:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.19?lang=eng#p19)
 
 
-[^a]: [[Acts 17.2|Acts 17:2.]]
+[^a]: [[Acts 17.2|Acts 17:2]].  

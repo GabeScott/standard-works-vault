@@ -5,4 +5,4 @@
 [Isaiah 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 48.33|Jer. 48:33.]]
+[^a]: [[Jeremiah 48.33|Jer. 48:33]].  

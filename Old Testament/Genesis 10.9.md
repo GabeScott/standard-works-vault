@@ -5,4 +5,4 @@
 [Genesis 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.9?lang=eng#p9)
 
 
-[^a]: [[Micah 5.6|Micah 5:6.]]
+[^a]: [[Micah 5.6|Micah 5:6]].  

@@ -5,4 +5,4 @@
 [Psalms 49:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/49.6?lang=eng#p6)
 
 
-[^a]: TG [[Treasure]].
+[^a]: [[Treasure|TG Treasure]].  

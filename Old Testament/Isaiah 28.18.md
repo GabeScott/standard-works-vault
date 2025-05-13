@@ -5,4 +5,4 @@
 [Isaiah 28:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.18?lang=eng#p18)
 
 
-[^a]: IE the evil and conspiring people’s plans.
+[^a]: IE the evil and conspiring people’s plans.  

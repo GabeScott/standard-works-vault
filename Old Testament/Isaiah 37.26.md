@@ -5,4 +5,4 @@
 [Isaiah 37:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/37.26?lang=eng#p26)
 
 
-[^a]: IE The prophet speaks for the Lord who created everything.
+[^a]: IE The prophet speaks for the Lord who created everything.  

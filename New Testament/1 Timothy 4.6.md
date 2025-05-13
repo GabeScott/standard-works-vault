@@ -5,4 +5,4 @@
 [1 Timothy 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.6?lang=eng#p6)
 
 
-[^a]: GR which thou hast followed closely.
+[^a]: GR which thou hast followed closely.  

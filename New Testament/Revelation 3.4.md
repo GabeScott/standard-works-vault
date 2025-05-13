@@ -5,7 +5,7 @@
 [Revelation 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.4?lang=eng#p4)
 
 
-[^a]: TG [[Sacrilege]].
-[^b]: TG [[Walking with God]].
-[^c]: [[Revelation 6.11|Rev. 6:11.]]
-[^d]: TG [[Worthiness, Worthy]].
+[^a]: [[Sacrilege|TG Sacrilege]].  
+[^b]: [[Walking with God|TG Walking with God]].  
+[^c]: [[Revelation 6.11|Rev. 6:11]].  
+[^d]: [[Worthiness, Worthy|TG Worthiness]].  

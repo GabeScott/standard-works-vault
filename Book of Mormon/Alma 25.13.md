@@ -5,5 +5,5 @@
 [Alma 25:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/25?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 22.1|Alma 22:1 (1, 4).]]
-[^b]: [[Alma 24.1|Alma 24:1 (1-3, 5, 20)]]; [[Alma 27.21|27:21 (2, 21, 25).]]
+[^a]: [[Alma 22.1|Alma 22:1 (1, 4)]][[Alma 22.4|]].  
+[^b]: [[Alma 24.1|Alma 24:1 (1–3, 5, 20)]][[Alma 24.2|]][[Alma 24.3|]][[Alma 24.5|]][[Alma 24.20|]]; [[Alma 27.2|27:21 (2, 21, 25)]][[Alma 27.21|]][[Alma 27.25|]].  

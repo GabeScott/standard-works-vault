@@ -5,4 +5,4 @@
 [3 Nephi 7:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p22#p22)
 
 
-[^a]: [[Mark 2.11|Mark 2:11 (11-12)]]; [[Acts 8.7|Acts 8:7.]]
+[^a]: [[Mark 2.11|Mark 2:11 (11–12)]][[Mark 2.12|]]; [[Acts 8.7|Acts 8:7]].  

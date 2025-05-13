@@ -5,4 +5,4 @@
 [Ezekiel 27:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.34?lang=eng#p34)
 
 
-[^a]: [[Ezekiel 26.19|Ezek. 26:19.]]
+[^a]: [[Ezekiel 26.19|Ezek. 26:19]].  

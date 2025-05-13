@@ -5,4 +5,4 @@
 [Matthew 17:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.22?lang=eng#p22)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  

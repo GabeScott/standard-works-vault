@@ -5,5 +5,5 @@
 [Isaiah 37:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/37.7?lang=eng#p7)
 
 
-[^a]: HEB put a spirit in him.
-[^b]: OR report or tidings.
+[^a]: HEB put a spirit in him.  
+[^b]: OR report or tidings.  

@@ -5,4 +5,4 @@
 [Alma 7:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 9.26|Alma 9:26.]]
+[^a]: [[Alma 9.26|Alma 9:26]].  

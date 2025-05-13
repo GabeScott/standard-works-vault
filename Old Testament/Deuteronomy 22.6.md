@@ -5,5 +5,5 @@
 [Deuteronomy 22:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.6?lang=eng#p6)
 
 
-[^a]: OR mother (also v. 7).
-[^b]: [[Leviticus 22.28|Lev. 22:28.]]
+[^a]: OR mother (also [[Deuteronomy 22.7|v. 7]]).  
+[^b]: [[Leviticus 22.28|Lev. 22:28]].  

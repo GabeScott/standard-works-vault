@@ -5,4 +5,4 @@
 [Leviticus 7:36](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.36?lang=eng#p36)
 
 
-[^a]: [[Exodus 40.15|Ex. 40:15 (13-15).]]
+[^a]: [[Exodus 40.13|Ex. 40:15 (13–15)]][[Exodus 40.14|]][[Exodus 40.15|]].  

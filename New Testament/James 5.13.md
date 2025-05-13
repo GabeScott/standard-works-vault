@@ -5,4 +5,4 @@
 [James 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.13?lang=eng#p13)
 
 
-[^a]: TG [[Affliction]].
+[^a]: [[Affliction|TG Affliction]].  

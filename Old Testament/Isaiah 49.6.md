@@ -5,6 +5,6 @@
 [Isaiah 49:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.6?lang=eng#p6)
 
 
-[^a]: [[D&C 86.11|D&C 86:11 (8-11)]]. TG [[Abrahamic Covenant]]; [[Election, Elect]]; [[Israel, Blessings of]]; [[Israel, Mission of]]; [[Missionary Work]].
-[^b]: TG [[Gentiles]]; [[Nations]].
-[^c]: TG [[Priesthood, Power of]]; [[Salvation, Plan of]].
+[^a]: [[D&C 86.8|D&C 86:11 (8–11)]][[D&C 86.9|]][[D&C 86.10|]][[D&C 86.11|]]. [[Abrahamic Covenant|TG Abrahamic Covenant]]; [[Election, Elect|Election]]; [[Israel, Blessings of|Israel, Blessings of]]; [[Israel, Mission of|Israel, Mission of]]; [[Missionary Work|Missionary Work]].  
+[^b]: [[Gentiles|TG Gentiles]]; [[Nations|Nations]].  
+[^c]: [[Priesthood, Power of|TG Priesthood, Power of]]; [[Salvation, Plan of|Salvation, Plan of]].  

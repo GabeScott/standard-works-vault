@@ -5,4 +5,4 @@
 [Isaiah 59:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.10?lang=eng#p10)
 
 
-[^a]: [[Deuteronomy 28.29|Deut. 28:29.]]
+[^a]: [[Deuteronomy 28.29|Deut. 28:29]].  

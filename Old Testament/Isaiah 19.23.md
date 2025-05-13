@@ -5,4 +5,4 @@
 [Isaiah 19:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.23?lang=eng#p23)
 
 
-[^a]: [[Isaiah 11.16|Isa. 11:16]]; [[2 Nephi 21.16|2 Ne. 21:16.]]
+[^a]: [[Isaiah 11.16|Isa. 11:16]]; [[2 Nephi 21.16|2 Ne. 21:16]].  

@@ -5,4 +5,4 @@
 [Psalms 102:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/102.6?lang=eng#p6)
 
 
-[^a]: HEB vulture, hawk.
+[^a]: HEB vulture, hawk.  

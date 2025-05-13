@@ -5,5 +5,5 @@
 [Alma 5:51](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p51#p51)
 
 
-[^a]: TG [[Kingdom of God, in Heaven]].
-[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  
+[^b]: [[Heaven|TG Heaven]].  

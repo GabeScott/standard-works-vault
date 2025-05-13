@@ -5,5 +5,5 @@
 [Ezekiel 17:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.21?lang=eng#p21)
 
 
-[^a]: [[Ezekiel 12.14|Ezek. 12:14.]]
-[^b]: [[Zechariah 2.6|Zech. 2:6.]]
+[^a]: [[Ezekiel 12.14|Ezek. 12:14]].  
+[^b]: [[Zechariah 2.6|Zech. 2:6]].  

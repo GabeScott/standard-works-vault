@@ -5,4 +5,4 @@
 [Exodus 21:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.17?lang=eng#p17)
 
 
-[^a]: TG [[Curse]]; [[Honoring Father and Mother]].
+[^a]: [[Curse|TG Curse]]; [[Honoring Father and Mother|Honoring Father and Mother]].  

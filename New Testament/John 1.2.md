@@ -5,4 +5,4 @@
 [John 1:2](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.2?lang=eng#p2)
 
 
-[^a]: 1 Jn. 1:1. TG [[Man, Antemortal Existence of]].
+[^a]: [[1 John 1.1|1 Jn. 1:1]]. [[Man, Antemortal Existence of|TG Man, Antemortal Existence of]].  

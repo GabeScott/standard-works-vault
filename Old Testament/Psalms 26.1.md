@@ -5,4 +5,4 @@
 [Psalms 26:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/26.1?lang=eng#p1)
 
 
-[^a]: TG [[Trust in God]].
+[^a]: [[Trust in God|TG Trust in God]].  

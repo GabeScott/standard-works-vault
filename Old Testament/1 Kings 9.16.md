@@ -5,5 +5,5 @@
 [1 Kings 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.16?lang=eng#p16)
 
 
-[^a]: [[1 Kings 3.1|1 Kgs. 3:1.]]
-[^b]: [[1 Kings 7.8|1 Kgs. 7:8]]; [[1 Kings 11.1|11:1 (1-3).]]
+[^a]: [[1 Kings 3.1|1 Kgs. 3:1]].  
+[^b]: [[1 Kings 7.8|1 Kgs. 7:8]]; [[1 Kings 11.1|11:1 (1–3)]][[1 Kings 11.2|]][[1 Kings 11.3|]].  

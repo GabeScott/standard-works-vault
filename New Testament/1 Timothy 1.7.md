@@ -5,4 +5,4 @@
 [1 Timothy 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.7?lang=eng#p7)
 
 
-[^a]: GR strongly assert.
+[^a]: GR strongly assert.  

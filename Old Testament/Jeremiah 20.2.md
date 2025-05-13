@@ -5,4 +5,4 @@
 [Jeremiah 20:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.2?lang=eng#p2)
 
 
-[^a]: [[1 Nephi 16.2|1 Ne. 16:2]]; [[Helaman 13.24|Hel. 13:24 (24-27).]]
+[^a]: [[1 Nephi 16.2|1 Ne. 16:2]]; [[Helaman 13.24|Hel. 13:24 (24–27)]][[Helaman 13.25|]][[Helaman 13.26|]][[Helaman 13.27|]].  

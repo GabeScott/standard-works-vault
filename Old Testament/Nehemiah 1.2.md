@@ -5,4 +5,4 @@
 [Nehemiah 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/1.2?lang=eng#p2)
 
 
-[^a]: [[Nehemiah 7.2|Neh. 7:2.]]
+[^a]: [[Nehemiah 7.2|Neh. 7:2]].  

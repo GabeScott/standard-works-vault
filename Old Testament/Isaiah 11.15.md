@@ -5,5 +5,5 @@
 [Isaiah 11:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.15?lang=eng#p15)
 
 
-[^a]: [[Zechariah 10.11|Zech. 10:11.]]
-[^b]: IE facilitate the return, as in the days of Moses.
+[^a]: [[Zechariah 10.11|Zech. 10:11]].  
+[^b]: IE facilitate the return, as in the days of Moses.  

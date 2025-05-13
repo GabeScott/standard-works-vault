@@ -5,4 +5,4 @@
 [Jeremiah 12:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/12.9?lang=eng#p9)
 
 
-[^a]: IE Babylon and others.
+[^a]: IE Babylon and others.  

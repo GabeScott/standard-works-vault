@@ -5,4 +5,4 @@
 [Psalms 149:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/149.4?lang=eng#p4)
 
 
-[^a]: TG [[Beauty]].
+[^a]: [[Beauty|TG Beauty]].  

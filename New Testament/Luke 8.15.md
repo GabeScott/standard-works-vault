@@ -5,6 +5,6 @@
 [Luke 8:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.15?lang=eng#p15)
 
 
-[^a]: [[D&C 11.10|D&C 11:10.]]
-[^b]: TG [[Heart]].
-[^c]: [[Alma 12.30|Alma 12:30 (29-30).]]
+[^a]: [[D&C 11.10|D&C 11:10]].  
+[^b]: [[Heart|TG Heart]].  
+[^c]: [[Alma 12.29|Alma 12:30 (29–30)]][[Alma 12.30|]].  

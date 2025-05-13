@@ -5,5 +5,5 @@
 [1 Nephi 7:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/7?lang=eng&id=p22#p22)
 
 
-[^a]: TG [[Thanksgiving]].
-[^b]: [[1 Nephi 5.9|1 Ne. 5:9.]]
+[^a]: [[Thanksgiving|TG Thanksgiving]].  
+[^b]: [[1 Nephi 5.9|1 Ne. 5:9]].  

@@ -5,5 +5,5 @@
 [Matthew 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.6?lang=eng#p6)
 
 
-[^a]: JST Matt. 4:6 Then the devil came unto him and said, If …
-[^b]: [[Matthew 27.40|Matt. 27:40]]; [[D&C 20.22|D&C 20:22.]]
+[^a]: [[JST Matthew 4.6|JST Matt. 4:6]] Then the devil came unto him and said, If …  
+[^b]: [[Matthew 27.40|Matt. 27:40]]; [[D&C 20.22|D&C 20:22]].  

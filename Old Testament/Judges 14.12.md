@@ -5,4 +5,4 @@
 [Judges 14:12](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/14.12?lang=eng#p12)
 
 
-[^a]: HEB linen garments or tunics (also v. 13).
+[^a]: HEB linen garments or tunics (also [[Judges 14.13|v. 13]]).  

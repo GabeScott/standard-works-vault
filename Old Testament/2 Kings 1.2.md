@@ -5,4 +5,4 @@
 [2 Kings 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/1.2?lang=eng#p2)
 
 
-[^a]: [[Matthew 12.24|Matt. 12:24.]]
+[^a]: [[Matthew 12.24|Matt. 12:24]].  

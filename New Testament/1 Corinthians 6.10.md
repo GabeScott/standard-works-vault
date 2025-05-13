@@ -5,7 +5,7 @@
 [1 Corinthians 6:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/6.10?lang=eng#p10)
 
 
-[^a]: TG [[Stealing, Stolen]].
-[^b]: TG [[Drunkenness]]; [[Word of Wisdom]].
-[^c]: TG [[Reviling, Revile]].
-[^d]: GR robbers.
+[^a]: [[Stealing, Stolen|TG Stealing]].  
+[^b]: [[Drunkenness|TG Drunkenness]]; [[Word of Wisdom|Word of Wisdom]].  
+[^c]: [[Reviling, Revile|TG Reviling]].  
+[^d]: GR robbers.  

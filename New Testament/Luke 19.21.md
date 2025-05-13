@@ -5,5 +5,5 @@
 [Luke 19:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.21?lang=eng#p21)
 
 
-[^a]: TG [[Courage, Courageous]]; [[Fearful]].
-[^b]: GR harsh, ungenerous.
+[^a]: [[Courage, Courageous|TG Courage]]; [[Fearful|Fearful]].  
+[^b]: GR harsh, ungenerous.  

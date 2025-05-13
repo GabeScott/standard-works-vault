@@ -5,4 +5,4 @@
 [Isaiah 19:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.10?lang=eng#p10)
 
 
-[^a]: HEB her foundations shall be crushed.
+[^a]: HEB her foundations shall be crushed.  

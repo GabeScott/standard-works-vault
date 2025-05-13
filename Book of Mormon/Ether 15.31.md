@@ -5,4 +5,4 @@
 [Ether 15:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/15?lang=eng&id=p31#p31)
 
 
-[^a]: [[Judges 5.27|Judg. 5:27 (26-27).]]
+[^a]: [[Judges 5.26|Judg. 5:27 (26–27)]][[Judges 5.27|]].  

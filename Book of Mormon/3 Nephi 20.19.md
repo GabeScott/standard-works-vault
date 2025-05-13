@@ -5,6 +5,6 @@
 [3 Nephi 20:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p19#p19)
 
 
-[^a]: [[Leviticus 26.12|Lev. 26:12]]; [[D&C 63.1|D&C 63:1 (1-6).]]
-[^b]: TG [[Last Days]].
-[^c]: [[Micah 4.13|Micah 4:13.]]
+[^a]: [[Leviticus 26.12|Lev. 26:12]]; [[D&C 63.1|D&C 63:1 (1–6)]][[D&C 63.2|]][[D&C 63.3|]][[D&C 63.4|]][[D&C 63.5|]][[D&C 63.6|]].  
+[^b]: [[Last Days|TG Last Days]].  
+[^c]: [[Micah 4.13|Micah 4:13]].  

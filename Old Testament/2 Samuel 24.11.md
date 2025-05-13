@@ -5,5 +5,5 @@
 [2 Samuel 24:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/24.11?lang=eng#p11)
 
 
-[^a]: [[Amos 3.7|Amos 3:7.]]
-[^b]: TG [[Seer]].
+[^a]: [[Amos 3.7|Amos 3:7]].  
+[^b]: [[Seer|TG Seer]].  

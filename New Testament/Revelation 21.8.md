@@ -5,10 +5,10 @@
 [Revelation 21:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.8?lang=eng#p8)
 
 
-[^a]: TG [[Stiffnecked, Stiffneckedness]].
-[^b]: TG [[Murder, Murderer]].
-[^c]: TG [[Adulterer, Adultery]]; [[Chastity, Chaste]].
-[^d]: TG [[Sorcery]].
-[^e]: TG [[Lying, Liar, Lie]].
-[^f]: TG [[Hell]].
-[^g]: TG [[Death, Spiritual, Second]].
+[^a]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  
+[^b]: [[Murder, Murderer|TG Murder]].  
+[^c]: [[Adulterer, Adultery|TG Adulterer]]; [[Chastity, Chaste|Chastity]].  
+[^d]: [[Sorcery|TG Sorcery]].  
+[^e]: [[Lying, Liar, Lie|TG Lying]].  
+[^f]: [[Hell|TG Hell]].  
+[^g]: [[Death, Spiritual, Second|TG Death, Spiritual, Second]].  

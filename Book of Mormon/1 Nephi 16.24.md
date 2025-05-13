@@ -5,5 +5,5 @@
 [1 Nephi 16:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[Guidance, Divine]]; [[Prayer, Pray]].
-[^b]: [[1 Nephi 15.20|1 Ne. 15:20]]; [[1 Nephi 16.5|16:5.]]
+[^a]: [[Guidance, Divine|TG Guidance, Divine]]; [[Prayer, Pray|Prayer]].  
+[^b]: [[1 Nephi 15.20|1 Ne. 15:20]]; [[1 Nephi 16.5|16:5]].  

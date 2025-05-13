@@ -5,4 +5,4 @@
 [Revelation 18:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.5?lang=eng#p5)
 
 
-[^a]: [[Jeremiah 51.9|Jer. 51:9 (8-9).]]
+[^a]: [[Jeremiah 51.8|Jer. 51:9 (8–9)]][[Jeremiah 51.9|]].  

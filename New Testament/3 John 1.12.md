@@ -5,4 +5,4 @@
 [3 John 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/3-jn/1.12?lang=eng#p12)
 
 
-[^a]: GR witness, testimony.
+[^a]: GR witness, testimony.  

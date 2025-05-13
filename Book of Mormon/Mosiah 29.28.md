@@ -5,4 +5,4 @@
 [Mosiah 29:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p28#p28)
 
 
-[^a]: [[Deuteronomy 17.8|Deut. 17:8 (8-9).]]
+[^a]: [[Deuteronomy 17.8|Deut. 17:8 (8–9)]][[Deuteronomy 17.9|]].  

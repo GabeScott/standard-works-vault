@@ -5,6 +5,6 @@
 [3 John 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/3-jn/1.4?lang=eng#p4)
 
 
-[^a]: TG [[Joy]].
-[^b]: 1 Jn. 5:21.
-[^c]: TG [[Walking with God]].
+[^a]: [[Joy|TG Joy]].  
+[^b]: [[1 John 5.21|1 Jn. 5:21]].  
+[^c]: [[Walking with God|TG Walking with God]].  

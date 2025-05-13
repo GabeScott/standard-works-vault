@@ -5,4 +5,4 @@
 [Acts 19:33](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.33?lang=eng#p33)
 
 
-[^a]: [[1 Timothy 1.20|1 Tim. 1:20.]]
+[^a]: [[1 Timothy 1.20|1 Tim. 1:20]].  

@@ -5,5 +5,5 @@
 [Daniel 2:26](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.26?lang=eng#p26)
 
 
-[^a]: Dan. 1:7.
-[^b]: Dan. 5:16.
+[^a]: [[Daniel 1.7|Dan. 1:7]].  
+[^b]: [[Daniel 5.16|Dan. 5:16]].  

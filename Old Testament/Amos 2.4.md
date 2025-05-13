@@ -5,4 +5,4 @@
 [Amos 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/2.4?lang=eng#p4)
 
 
-[^a]: [[Leviticus 26.14|Lev. 26:14 (14-15).]]
+[^a]: [[Leviticus 26.14|Lev. 26:14 (14–15)]][[Leviticus 26.15|]].  

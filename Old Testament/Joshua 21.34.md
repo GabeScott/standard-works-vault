@@ -5,4 +5,4 @@
 [Joshua 21:34](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.34?lang=eng#p34)
 
 
-[^a]: [[1 Chronicles 6.77|1 Chr. 6:77 (77-81).]]
+[^a]: [[1 Chronicles 6.77|1 Chr. 6:77 (77–81)]][[1 Chronicles 6.78|]][[1 Chronicles 6.79|]][[1 Chronicles 6.80|]][[1 Chronicles 6.81|]].  

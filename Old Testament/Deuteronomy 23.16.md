@@ -5,4 +5,4 @@
 [Deuteronomy 23:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.16?lang=eng#p16)
 
 
-[^a]: IE of the cities or towns.
+[^a]: IE of the cities or towns.  

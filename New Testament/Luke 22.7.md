@@ -5,5 +5,5 @@
 [Luke 22:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.7?lang=eng#p7)
 
 
-[^a]: TG [[Bread, Unleavened]].
-[^b]: TG [[Passover]].
+[^a]: [[Bread, Unleavened|TG Bread, Unleavened]].  
+[^b]: [[Passover|TG Passover]].  

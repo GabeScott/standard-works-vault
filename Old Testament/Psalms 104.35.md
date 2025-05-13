@@ -5,4 +5,4 @@
 [Psalms 104:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.35?lang=eng#p35)
 
 
-[^a]: HEB Hallelu-yah (Hallelujah), Praise ye Jehovah!
+[^a]: HEB Hallelu-yah (Hallelujah), Praise ye Jehovah!  

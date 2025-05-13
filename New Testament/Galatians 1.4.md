@@ -5,6 +5,6 @@
 [Galatians 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.4?lang=eng#p4)
 
 
-[^a]: TG [[Jesus Christ, Redeemer]].
-[^b]: TG [[Redemption]].
-[^c]: TG [[God, Will of]].
+[^a]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]].  
+[^b]: [[Redemption|TG Redemption]].  
+[^c]: [[God, Will of|TG God, Will of]].  

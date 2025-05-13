@@ -5,5 +5,5 @@
 [Isaiah 57:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.11?lang=eng#p11)
 
 
-[^a]: [[D&C 3.7|D&C 3:7.]]
-[^b]: [[Psalms 78.36|Ps. 78:36 (35-37).]]
+[^a]: [[D&C 3.7|D&C 3:7]].  
+[^b]: [[Psalms 78.35|Ps. 78:36 (35–37)]][[Psalms 78.36|]][[Psalms 78.37|]].  

@@ -5,4 +5,4 @@
 [Proverbs 26:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.13?lang=eng#p13)
 
 
-[^a]: TG [[Laziness]].
+[^a]: [[Laziness|TG Laziness]].  

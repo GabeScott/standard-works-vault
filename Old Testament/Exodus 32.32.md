@@ -5,7 +5,7 @@
 [Exodus 32:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.32?lang=eng#p32)
 
 
-[^a]: [[Deuteronomy 9.26|Deut. 9:26 (18, 26-29).]]
-[^b]: [[Romans 9.3|Rom. 9:3.]]
-[^c]: [[Psalms 139.16|Ps. 139:16.]]
-[^d]: [[Luke 10.20|Luke 10:20.]]
+[^a]: [[Deuteronomy 9.18|Deut. 9:26 (18, 26–29)]][[Deuteronomy 9.26|]][[Deuteronomy 9.27|]][[Deuteronomy 9.28|]][[Deuteronomy 9.29|]].  
+[^b]: [[Romans 9.3|Rom. 9:3]].  
+[^c]: [[Psalms 139.16|Ps. 139:16]].  
+[^d]: [[Luke 10.20|Luke 10:20]].  

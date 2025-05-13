@@ -5,5 +5,5 @@
 [3 Nephi 20:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p33#p33)
 
 
-[^a]: [[Isaiah 18.7|Isa. 18:7]]; [[D&C 84.2|D&C 84:2]]. TG [[Jerusalem]].
-[^b]: [[Deuteronomy 11.11|Deut. 11:11]]. TG [[Israel, Land of]]; [[Lands of Inheritance]].
+[^a]: [[Isaiah 18.7|Isa. 18:7]]; [[D&C 84.2|D&C 84:2]]. [[Jerusalem|TG Jerusalem]].  
+[^b]: [[Deuteronomy 11.11|Deut. 11:11]]. [[Israel, Land of|TG Israel, Land of]]; [[Lands of Inheritance|Lands of Inheritance]].  

@@ -5,6 +5,6 @@
 [James 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.19?lang=eng#p19)
 
 
-[^a]: [[Proverbs 17.27|Prov. 17:27.]]
-[^b]: TG [[Patience, Patient, Patiently]].
-[^c]: TG [[Anger]].
+[^a]: [[Proverbs 17.27|Prov. 17:27]].  
+[^b]: [[Patience, Patient, Patiently|TG Patience]].  
+[^c]: [[Anger|TG Anger]].  

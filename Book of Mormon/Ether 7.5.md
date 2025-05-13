@@ -5,5 +5,5 @@
 [Ether 7:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/7?lang=eng&id=p5#p5)
 
 
-[^a]: [[Ether 14.6|Ether 14:6 (6, 11).]]
-[^b]: [[Ether 6.23|Ether 6:23.]]
+[^a]: [[Ether 14.6|Ether 14:6 (6, 11)]][[Ether 14.11|]].  
+[^b]: [[Ether 6.23|Ether 6:23]].  

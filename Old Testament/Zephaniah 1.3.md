@@ -5,4 +5,4 @@
 [Zephaniah 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.3?lang=eng#p3)
 
 
-[^a]: OR idols. Ezek. 7:19.
+[^a]: OR idols. [[Ezekiel 7.19|Ezek. 7:19]].  

@@ -5,4 +5,4 @@
 [Ecclesiastes 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Vanity]].
+[^a]: [[Vanity|TG Vanity]].  

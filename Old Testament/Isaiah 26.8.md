@@ -5,4 +5,4 @@
 [Isaiah 26:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 33.2|Isa. 33:2.]]
+[^a]: [[Isaiah 33.2|Isa. 33:2]].  

@@ -5,5 +5,5 @@
 [Alma 45:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p1#p1)
 
 
-[^a]: TG [[Deliver, Deliverance]].
-[^b]: TG [[Fast, Fasting]].
+[^a]: [[Deliver, Deliverance|TG Deliver]].  
+[^b]: [[Fast, Fasting|TG Fast, Fasting]].  

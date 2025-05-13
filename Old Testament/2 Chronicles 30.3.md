@@ -5,4 +5,4 @@
 [2 Chronicles 30:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.3?lang=eng#p3)
 
 
-[^a]: IE in the first month, as required.
+[^a]: IE in the first month, as required.  

@@ -5,4 +5,4 @@
 [Alma 39:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 38.3|Alma 38:3.]]
+[^a]: [[Alma 38.3|Alma 38:3]].  

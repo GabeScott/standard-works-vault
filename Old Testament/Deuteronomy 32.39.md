@@ -5,6 +5,6 @@
 [Deuteronomy 32:39](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.39?lang=eng#p39)
 
 
-[^b]: OR beside me.
-[^c]: HEB I bring about death, and I bring about life. Ps. 68:20.
-[^d]: TG [[Jesus Christ, Resurrection]].
+[^b]: OR beside me.  
+[^c]: HEB I bring about death, and I bring about life. [[Psalms 68.20|Ps. 68:20]].  
+[^d]: [[Resurrection|TG Resurrection]].  

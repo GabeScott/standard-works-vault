@@ -5,9 +5,9 @@
 [1 Thessalonians 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.14?lang=eng#p14)
 
 
-[^a]: TG [[Warn, Warnings]].
-[^b]: 2 Thes. 3:11.
-[^c]: GR encourage, console.
-[^d]: GR faint-hearted, despondent.
-[^e]: GR care for.
-[^f]: GR infirm, doubting, timid.
+[^a]: [[Warn, Warnings|TG Warn]].  
+[^b]: [[2 Thessalonians 3.11|2 Thes. 3:11]].  
+[^c]: GR encourage, console.  
+[^d]: GR faint-hearted, despondent.  
+[^e]: GR care for.  
+[^f]: GR infirm, doubting, timid.  

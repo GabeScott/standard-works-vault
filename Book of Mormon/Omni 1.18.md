@@ -5,5 +5,5 @@
 [Omni 1:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p18#p18)
 
 
-[^a]: [[Mosiah 24.4|Mosiah 24:4.]]
-[^b]: [[1 Nephi 9.4|1 Ne. 9:4]]; W of M 1:10.
+[^a]: [[Mosiah 24.4|Mosiah 24:4]].  
+[^b]: [[1 Nephi 9.4|1 Ne. 9:4]]; [[Words of Mormon 1.10|W of M 1:10]].  

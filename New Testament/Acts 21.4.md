@@ -5,4 +5,4 @@
 [Acts 21:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.4?lang=eng#p4)
 
 
-[^a]: [[D&C 38.33|D&C 38:33.]]
+[^a]: [[D&C 38.33|D&C 38:33]].  

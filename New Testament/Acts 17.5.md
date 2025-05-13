@@ -5,7 +5,7 @@
 [Acts 17:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.5?lang=eng#p5)
 
 
-[^a]: [[2 Corinthians 11.26|2 Cor. 11:26.]]
-[^b]: GR wicked, evil.
-[^c]: TG [[Rioting and Reveling]].
-[^d]: 1 Thes. 1:6; 2:14.
+[^a]: [[2 Corinthians 11.26|2 Cor. 11:26]].  
+[^b]: GR wicked, evil.  
+[^c]: [[Rioting and Reveling|TG Rioting and Reveling]].  
+[^d]: [[1 Thessalonians 1.6|1 Thes. 1:6]]; [[1 Thessalonians 2.14|2:14]].  

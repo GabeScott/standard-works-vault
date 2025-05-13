@@ -5,6 +5,6 @@
 [2 Nephi 28:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Book of Mormon]]; [[Restoration of the Gospel]].
-[^b]: [[1 Nephi 13.39|1 Ne. 13:39 (34-42)]]; [[1 Nephi 14.5|14:5 (1-5)]]; [[1 Nephi 22.9|22:9]]; [[2 Nephi 30.3|2 Ne. 30:3]]; [[3 Nephi 21.6|3 Ne. 21:6.]]
-[^c]: TG [[Israel, Remnant of]].
+[^a]: [[Book of Mormon|TG Book of Mormon]]; [[Restoration of the Gospel|Restoration of the Gospel]].  
+[^b]: [[1 Nephi 13.34|1 Ne. 13:39 (34–42)]][[1 Nephi 13.35|]][[1 Nephi 13.36|]][[1 Nephi 13.37|]][[1 Nephi 13.38|]][[1 Nephi 13.39|]][[1 Nephi 13.40|]][[1 Nephi 13.41|]][[1 Nephi 13.42|]]; [[1 Nephi 14.1|14:5 (1–5)]][[1 Nephi 14.2|]][[1 Nephi 14.3|]][[1 Nephi 14.4|]][[1 Nephi 14.5|]]; [[1 Nephi 22.9|22:9]]; [[2 Nephi 30.3|2 Ne. 30:3]]; [[3 Nephi 21.6|3 Ne. 21:6]].  
+[^c]: [[Israel, Remnant of|TG Israel, Remnant of]].  

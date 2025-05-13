@@ -5,5 +5,5 @@
 [Exodus 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.2?lang=eng#p2)
 
 
-[^a]: HEB return. Num. 33:7 (7-8).
-[^b]: [[Jeremiah 44.1|Jer. 44:1.]]
+[^a]: HEB return. [[Numbers 33.7|Num. 33:7 (7–8)]][[Numbers 33.8|]].  
+[^b]: [[Jeremiah 44.1|Jer. 44:1]].  

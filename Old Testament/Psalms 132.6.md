@@ -5,4 +5,4 @@
 [Psalms 132:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/132.6?lang=eng#p6)
 
 
-[^a]: HEB Yaʼar (a place).
+[^a]: HEB Yaʼar (a place).  

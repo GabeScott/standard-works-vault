@@ -5,5 +5,5 @@
 [Alma 31:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p38#p38)
 
 
-[^a]: [[Matthew 5.10|Matt. 5:10 (10-12)]]; [[Mosiah 24.15|Mosiah 24:15 (13-15)]]; [[Alma 33.23|Alma 33:23.]]
-[^b]: TG [[Faith]].
+[^a]: [[Matthew 5.10|Matt. 5:10 (10–12)]][[Matthew 5.11|]][[Matthew 5.12|]]; [[Mosiah 24.13|Mosiah 24:15 (13–15)]][[Mosiah 24.14|]][[Mosiah 24.15|]]; [[Alma 33.23|Alma 33:23]].  
+[^b]: [[Faith|TG Faith]].  

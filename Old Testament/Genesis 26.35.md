@@ -5,4 +5,4 @@
 [Genesis 26:35](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.35?lang=eng#p35)
 
 
-[^a]: HEB bitterness of spirit (meaning great sorrow or grief).
+[^a]: HEB bitterness of spirit (meaning great sorrow or grief).  

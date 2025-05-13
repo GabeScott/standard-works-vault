@@ -5,5 +5,5 @@
 [Exodus 12:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.16?lang=eng#p16)
 
 
-[^a]: OR assembly. TG [[Meetings]].
-[^b]: [[John 19.31|John 19:31.]]
+[^a]: OR assembly. [[Meetings|TG Meetings]].  
+[^b]: [[John 19.31|John 19:31]].  

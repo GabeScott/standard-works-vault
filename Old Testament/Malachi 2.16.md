@@ -5,4 +5,4 @@
 [Malachi 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.16?lang=eng#p16)
 
 
-[^a]: TG [[Divorce, Divorcement]].
+[^a]: [[Divorce, Divorcement|TG Divorce]].  

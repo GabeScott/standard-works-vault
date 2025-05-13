@@ -5,5 +5,5 @@
 [Ether 10:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p19#p19)
 
 
-[^a]: [[Ether 9.31|Ether 9:31.]]
-[^b]: [[Genesis 25.27|Gen. 25:27]]; [[Ether 2.1|Ether 2:1.]]
+[^a]: [[Ether 9.31|Ether 9:31]].  
+[^b]: [[Genesis 25.27|Gen. 25:27]]; [[Ether 2.1|Ether 2:1]].  

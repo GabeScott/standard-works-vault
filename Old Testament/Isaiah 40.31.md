@@ -5,8 +5,8 @@
 [Isaiah 40:31](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.31?lang=eng#p31)
 
 
-[^a]: HEB hope for or anticipate. Ps. 25:5; [[Proverbs 20.22|Prov. 20:22]]; [[2 Nephi 6.13|2 Ne. 6:13 (7, 13).]]
-[^b]: [[Isaiah 41.1|Isa. 41:1.]]
-[^c]: TG [[Health]]; [[Strength]].
-[^d]: [[Psalms 103.5|Ps. 103:5.]]
-[^e]: [[D&C 89.20|D&C 89:20.]]
+[^a]: HEB hope for or anticipate. [[Psalms 25.5|Ps. 25:5]]; [[Proverbs 20.22|Prov. 20:22]]; [[2 Nephi 6.7|2 Ne. 6:13 (7, 13)]][[2 Nephi 6.13|]].  
+[^b]: [[Isaiah 41.1|Isa. 41:1]].  
+[^c]: [[Health|TG Health]]; [[Strength|Strength]].  
+[^d]: [[Psalms 103.5|Ps. 103:5]].  
+[^e]: [[D&C 89.20|D&C 89:20]].  

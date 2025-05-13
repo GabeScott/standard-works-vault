@@ -5,4 +5,4 @@
 [2 Chronicles 36:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.7?lang=eng#p7)
 
 
-[^a]: [[2 Kings 24.13|2 Kgs. 24:13.]]
+[^a]: [[2 Kings 24.13|2 Kgs. 24:13]].  

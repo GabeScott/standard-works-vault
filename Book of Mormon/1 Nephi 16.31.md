@@ -5,4 +5,4 @@
 [1 Nephi 16:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p31#p31)
 
 
-[^a]: [[Genesis 9.3|Gen. 9:3.]]
+[^a]: [[Genesis 9.3|Gen. 9:3]].  

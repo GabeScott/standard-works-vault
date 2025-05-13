@@ -5,4 +5,4 @@
 [Leviticus 16:1](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.1?lang=eng#p1)
 
 
-[^a]: [[Leviticus 10.1|Lev. 10:1 (1-2).]]
+[^a]: [[Leviticus 10.1|Lev. 10:1 (1–2)]][[Leviticus 10.2|]].  

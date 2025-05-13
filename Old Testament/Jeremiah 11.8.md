@@ -5,4 +5,4 @@
 [Jeremiah 11:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.8?lang=eng#p8)
 
 
-[^a]: OR brought.
+[^a]: OR brought.  

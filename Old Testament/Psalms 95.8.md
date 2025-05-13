@@ -5,7 +5,7 @@
 [Psalms 95:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/95.8?lang=eng#p8)
 
 
-[^a]: TG [[Hardheartedness, Harden, Hardness]].
-[^b]: HEB at Meribah.
-[^c]: TG [[Provoking, Provoke]].
-[^d]: TG [[Testament]].
+[^a]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  
+[^b]: HEB at Meribah.  
+[^c]: [[Provoking, Provoke|TG Provoking]].  
+[^d]: [[Test, Try, Prove|TG Test]].  

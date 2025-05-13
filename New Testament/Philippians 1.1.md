@@ -5,6 +5,6 @@
 [Philippians 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.1?lang=eng#p1)
 
 
-[^a]: TG [[Servant]].
-[^b]: TG [[Bishop]]; [[Church Organization]].
-[^c]: TG [[Deacon]].
+[^a]: [[Servant|TG Servant]].  
+[^b]: [[Bishop|TG Bishop]]; [[Church Organization|Church Organization]].  
+[^c]: [[Deacon|TG Deacon]].  

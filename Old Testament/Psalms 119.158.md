@@ -5,4 +5,4 @@
 [Psalms 119:158](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.158?lang=eng#p158)
 
 
-[^a]: [[Psalms 95.10|Ps. 95:10.]]
+[^a]: [[Psalms 95.10|Ps. 95:10]].  

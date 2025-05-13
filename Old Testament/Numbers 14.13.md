@@ -5,4 +5,4 @@
 [Numbers 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.13?lang=eng#p13)
 
 
-[^a]: [[Exodus 32.12|Ex. 32:12.]]
+[^a]: [[Exodus 32.12|Ex. 32:12]].  

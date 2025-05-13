@@ -5,4 +5,4 @@
 [Genesis 35:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 32.7|Gen. 32:7 (7, 24)]]; [[Psalms 4.1|Ps. 4:1.]]
+[^a]: [[Genesis 32.7|Gen. 32:7 (7, 24)]][[Genesis 32.24|]]; [[Psalms 4.1|Ps. 4:1]].  

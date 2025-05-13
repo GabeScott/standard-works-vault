@@ -5,4 +5,4 @@
 [Luke 12:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.28?lang=eng#p28)
 
 
-[^a]: JST Luke 12:30 … how much more will he provide for you, if ye are not of little faith?
+[^a]: JST Luke 12:30 … how much more will he provide for you, if ye are not of little faith?  

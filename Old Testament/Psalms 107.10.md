@@ -5,4 +5,4 @@
 [Psalms 107:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.10?lang=eng#p10)
 
 
-[^a]: TG [[Darkness, Spiritual]].
+[^a]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  

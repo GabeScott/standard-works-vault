@@ -5,4 +5,4 @@
 [1 Chronicles 1:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/1.29?lang=eng#p29)
 
 
-[^a]: [[Genesis 25.13|Gen. 25:13 (13-16).]]
+[^a]: [[Genesis 25.13|Gen. 25:13 (13–16)]][[Genesis 25.14|]][[Genesis 25.15|]][[Genesis 25.16|]].  

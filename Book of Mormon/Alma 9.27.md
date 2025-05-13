@@ -5,5 +5,5 @@
 [Alma 9:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p27#p27)
 
 
-[^a]: TG [[Redemption]].
-[^b]: TG [[Baptism, Essential]].
+[^a]: [[Redemption|TG Redemption]].  
+[^b]: [[Baptism, Essential|TG Baptism, Essential]].  

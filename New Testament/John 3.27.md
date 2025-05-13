@@ -5,4 +5,4 @@
 [John 3:27](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.27?lang=eng#p27)
 
 
-[^a]: [[James 1.17|James 1:17 (17-18).]]
+[^a]: [[James 1.17|James 1:17 (17–18)]][[James 1.18|]].  

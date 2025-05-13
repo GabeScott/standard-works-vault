@@ -5,4 +5,4 @@
 [Helaman 14:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 3.8|Mosiah 3:8]]; [[Mosiah 15.4|15:4]]; [[3 Nephi 9.15|3 Ne. 9:15]]; [[Ether 4.7|Ether 4:7]]. TG [[Jesus Christ, Creator]].
+[^a]: [[Mosiah 3.8|Mosiah 3:8]]; [[Mosiah 15.4|15:4]]; [[3 Nephi 9.15|3 Ne. 9:15]]; [[Ether 4.7|Ether 4:7]]. [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  

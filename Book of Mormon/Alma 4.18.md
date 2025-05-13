@@ -5,5 +5,5 @@
 [Alma 4:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p18#p18)
 
 
-[^a]: TG [[High Priest, Melchizedek Priesthood]].
-[^b]: [[Alma 7.2|Alma 7:2.]]
+[^a]: [[High Priest, Melchizedek Priesthood|TG High Priest, Melchizedek Priesthood]].  
+[^b]: [[Alma 7.2|Alma 7:2]].  

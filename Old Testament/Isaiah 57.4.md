@@ -5,4 +5,4 @@
 [Isaiah 57:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.4?lang=eng#p4)
 
 
-[^a]: [[Isaiah 1.4|Isa. 1:4.]]
+[^a]: [[Isaiah 1.4|Isa. 1:4]].  

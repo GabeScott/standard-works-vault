@@ -5,5 +5,5 @@
 [Zechariah 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.17?lang=eng#p17)
 
 
-[^a]: [[Isaiah 51.3|Isa. 51:3.]]
-[^b]: [[Isaiah 14.1|Isa. 14:1.]]
+[^a]: [[Isaiah 51.3|Isa. 51:3]].  
+[^b]: [[Isaiah 14.1|Isa. 14:1]].  

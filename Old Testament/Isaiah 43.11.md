@@ -5,5 +5,5 @@
 [Isaiah 43:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.11?lang=eng#p11)
 
 
-[^a]: [[Hosea 13.4|Hosea 13:4]]; [[D&C 76.1|D&C 76:1.]]
-[^b]: TG [[Jesus Christ, Jehovah]].
+[^a]: [[Hosea 13.4|Hosea 13:4]]; [[D&C 76.1|D&C 76:1]].  
+[^b]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  

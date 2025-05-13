@@ -5,5 +5,5 @@
 [Jeremiah 43:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/43.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 12.12|Ex. 12:12]]; [[Isaiah 19.1|Isa. 19:1]]; [[Jeremiah 46.25|Jer. 46:25]]; [[Ezekiel 30.13|Ezek. 30:13.]]
-[^b]: [[Jeremiah 48.7|Jer. 48:7.]]
+[^a]: [[Exodus 12.12|Ex. 12:12]]; [[Isaiah 19.1|Isa. 19:1]]; [[Jeremiah 46.25|Jer. 46:25]]; [[Ezekiel 30.13|Ezek. 30:13]].  
+[^b]: [[Jeremiah 48.7|Jer. 48:7]].  

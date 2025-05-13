@@ -5,4 +5,4 @@
 [Ezekiel 22:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.30?lang=eng#p30)
 
 
-[^a]: [[Genesis 18.26|Gen. 18:26]]; [[Jeremiah 5.1|Jer. 5:1.]]
+[^a]: [[Genesis 18.26|Gen. 18:26]]; [[Jeremiah 5.1|Jer. 5:1]].  

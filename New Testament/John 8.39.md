@@ -5,6 +5,6 @@
 [John 8:39](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.39?lang=eng#p39)
 
 
-[^a]: TG [[Abrahamic Covenant]].
-[^b]: TG [[Seed of Abraham]].
-[^c]: TG [[Good Works]].
+[^a]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  
+[^b]: [[Seed of Abraham|TG Seed of Abraham]].  
+[^c]: [[Good Works|TG Good Works]].  

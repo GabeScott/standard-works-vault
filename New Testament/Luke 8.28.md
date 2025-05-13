@@ -5,4 +5,4 @@
 [Luke 8:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.28?lang=eng#p28)
 
 
-[^a]: [[James 2.19|James 2:19 (19-20).]]
+[^a]: [[James 2.19|James 2:19 (19–20)]][[James 2.20|]].  

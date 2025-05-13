@@ -5,4 +5,4 @@
 [Abraham 4:22](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.22?lang=eng#p22)
 
 
-[^a]: [[Abraham 4.10|Abr. 4:10.]]
+[^a]: [[Abraham 4.10|Abr. 4:10]].  

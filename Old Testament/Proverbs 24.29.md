@@ -5,4 +5,4 @@
 [Proverbs 24:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.29?lang=eng#p29)
 
 
-[^a]: [[Matthew 7.12|Matt. 7:12]]. TG [[Forbear, Forbearance]].
+[^a]: [[Matthew 7.12|Matt. 7:12]]. [[Forbear, Forbearance|TG Forbear]].  

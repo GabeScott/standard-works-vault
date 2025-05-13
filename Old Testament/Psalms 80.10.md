@@ -5,4 +5,4 @@
 [Psalms 80:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/80.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 13.16|Gen. 13:16 (14-16).]]
+[^a]: [[Genesis 13.14|Gen. 13:16 (14–16)]][[Genesis 13.15|]][[Genesis 13.16|]].  

@@ -5,4 +5,4 @@
 [Nahum 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/1.10?lang=eng#p10)
 
 
-[^a]: [[2 Nephi 26.6|2 Ne. 26:6 (4-6)]]; [[D&C 29.9|D&C 29:9]]; JS—H 1:37.
+[^a]: [[2 Nephi 26.4|2 Ne. 26:6 (4–6)]][[2 Nephi 26.5|]][[2 Nephi 26.6|]]; [[D&C 29.9|D&C 29:9]]; [[Joseph Smith History 1.37|JS—H 1:37]].  

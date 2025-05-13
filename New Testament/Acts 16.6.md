@@ -5,4 +5,4 @@
 [Acts 16:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.6?lang=eng#p6)
 
 
-[^a]: [[Alma 21.16|Alma 21:16 (16-17)]]; [[Alma 22.1|22:1 (1-4).]]
+[^a]: [[Alma 21.16|Alma 21:16 (16–17)]][[Alma 21.17|]]; [[Alma 22.1|22:1 (1–4)]][[Alma 22.2|]][[Alma 22.3|]][[Alma 22.4|]].  

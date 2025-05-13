@@ -5,4 +5,4 @@
 [Mosiah 24:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mosiah 23.31|Mosiah 23:31]]; [[Alma 21.3|Alma 21:3 (2-4).]]
+[^a]: [[Mosiah 23.31|Mosiah 23:31]]; [[Alma 21.2|Alma 21:3 (2–4)]][[Alma 21.3|]][[Alma 21.4|]].  

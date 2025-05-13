@@ -5,6 +5,6 @@
 [Genesis 28:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.15?lang=eng#p15)
 
 
-[^a]: [[Genesis 26.24|Gen. 26:24]]; [[Genesis 46.4|46:4.]]
-[^b]: TG [[Israel, Bondage of, in Egypt]].
-[^c]: TG [[Israel, Land of]].
+[^a]: [[Genesis 26.24|Gen. 26:24]]; [[Genesis 46.4|46:4]].  
+[^b]: [[Israel, Bondage of, in Egypt|TG Israel, Bondage of, in Egypt]].  
+[^c]: [[Israel, Land of|TG Israel, Land of]].  

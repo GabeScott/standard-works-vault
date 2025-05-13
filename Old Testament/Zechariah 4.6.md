@@ -5,4 +5,4 @@
 [Zechariah 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/4.6?lang=eng#p6)
 
 
-[^a]: TG [[God, Spirit of]].
+[^a]: [[God, Spirit of|TG God, Spirit of]].  

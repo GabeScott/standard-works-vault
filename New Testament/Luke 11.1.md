@@ -5,5 +5,5 @@
 [Luke 11:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.1?lang=eng#p1)
 
 
-[^a]: TG [[Teaching with the Spirit]].
-[^b]: TG [[Prayer, Pray]].
+[^a]: [[Teaching, Teach, Taught|TG Teaching]].  
+[^b]: [[Prayer, Pray|TG Prayer]].  

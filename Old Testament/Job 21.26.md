@@ -5,4 +5,4 @@
 [Job 21:26](https://www.churchofjesuschrist.org/study/scriptures/ot/job/21.26?lang=eng#p26)
 
 
-[^a]: TG [[Mortality]].
+[^a]: [[Mortality|TG Mortality]].  

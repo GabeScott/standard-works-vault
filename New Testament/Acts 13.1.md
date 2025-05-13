@@ -5,4 +5,4 @@
 [Acts 13:1](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.1?lang=eng#p1)
 
 
-[^a]: [[Acts 11.27|Acts 11:27]]. TG [[Church Organization]].
+[^a]: [[Acts 11.27|Acts 11:27]]. [[Church Organization|TG Church Organization]].  

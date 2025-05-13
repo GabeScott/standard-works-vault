@@ -5,4 +5,4 @@
 [Daniel 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.22?lang=eng#p22)
 
 
-[^a]: Dan. 11:4.
+[^a]: [[Daniel 11.4|Dan. 11:4]].  

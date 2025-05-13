@@ -5,6 +5,6 @@
 [Revelation 19:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.9?lang=eng#p9)
 
 
-[^a]: [[D&C 58.11|D&C 58:11.]]
-[^b]: [[Luke 14.15|Luke 14:15]]; [[Luke 22.30|22:30.]]
-[^c]: TG [[Jesus Christ, Lamb of God]].
+[^a]: [[D&C 58.11|D&C 58:11]].  
+[^b]: [[Luke 14.15|Luke 14:15]]; [[Luke 22.30|22:30]].  
+[^c]: [[Jesus Christ, Lamb of God|TG Jesus Christ, Lamb of God]].  

@@ -5,4 +5,4 @@
 [Exodus 29:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.28?lang=eng#p28)
 
 
-[^a]: [[Exodus 27.21|Ex. 27:21.]]
+[^a]: [[Exodus 27.21|Ex. 27:21]].  

@@ -5,4 +5,4 @@
 [Zechariah 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.13?lang=eng#p13)
 
 
-[^a]: [[Haggai 2.22|Hag. 2:22]]; [[D&C 45.68|D&C 45:68 (33, 68).]]
+[^a]: [[Haggai 2.22|Hag. 2:22]]; [[D&C 45.33|D&C 45:68 (33, 68)]][[D&C 45.68|]].  

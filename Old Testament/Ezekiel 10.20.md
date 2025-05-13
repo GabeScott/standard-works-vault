@@ -5,4 +5,4 @@
 [Ezekiel 10:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/10.20?lang=eng#p20)
 
 
-[^a]: [[Ezekiel 1.22|Ezek. 1:22.]]
+[^a]: [[Ezekiel 1.22|Ezek. 1:22]].  

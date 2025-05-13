@@ -5,6 +5,6 @@
 [Daniel 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/1.5?lang=eng#p5)
 
 
-[^a]: [[2 Chronicles 31.16|2 Chr. 31:16.]]
-[^b]: HEB delicacies.
-[^c]: [[1 Kings 10.8|1 Kgs. 10:8.]]
+[^a]: [[2 Chronicles 31.16|2 Chr. 31:16]].  
+[^b]: HEB delicacies.  
+[^c]: [[1 Kings 10.8|1 Kgs. 10:8]].  

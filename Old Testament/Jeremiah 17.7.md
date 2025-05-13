@@ -5,5 +5,5 @@
 [Jeremiah 17:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.7?lang=eng#p7)
 
 
-[^a]: TG [[Trust in God]].
-[^b]: TG [[Hope]].
+[^a]: [[Trust in God|TG Trust in God]].  
+[^b]: [[Hope|TG Hope]].  

@@ -5,6 +5,6 @@
 [Genesis 14:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.19?lang=eng#p19)
 
 
-[^a]: TG [[Israel, Blessings of]].
-[^b]: TG [[God the Father, Elohim]].
-[^c]: OR creator.
+[^a]: [[Blessing|TG Blessing]].  
+[^b]: [[God the Father, Elohim|TG God the Father, Elohim]].  
+[^c]: OR creator.  

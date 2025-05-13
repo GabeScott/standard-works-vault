@@ -5,4 +5,4 @@
 [1 Kings 13:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/13.21?lang=eng#p21)
 
 
-[^a]: TG [[Disobedience, Disobey]].
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  

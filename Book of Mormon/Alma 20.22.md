@@ -5,4 +5,4 @@
 [Alma 20:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/20?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 20.4|Alma 20:4.]]
+[^a]: [[Alma 20.4|Alma 20:4]].  

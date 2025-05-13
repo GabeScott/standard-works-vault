@@ -5,4 +5,4 @@
 [Matthew 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.5?lang=eng#p5)
 
 
-[^a]: [[Ruth 4.21|Ruth 4:21.]]
+[^a]: [[Ruth 4.21|Ruth 4:21]].  

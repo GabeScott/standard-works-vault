@@ -5,4 +5,4 @@
 [2 Chronicles 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Prudence, Prudent]].
+[^a]: [[Prudence, Prudent|TG Prudence]].  

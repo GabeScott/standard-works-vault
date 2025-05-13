@@ -5,5 +5,5 @@
 [Psalms 37:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.9?lang=eng#p9)
 
 
-[^a]: TG [[Death, Spiritual, First]].
-[^b]: TG [[Earth, Destiny of]].
+[^a]: [[Death, Spiritual, First|TG Death, Spiritual, First]].  
+[^b]: [[Earth, Destiny of|TG Earth, Destiny of]].  

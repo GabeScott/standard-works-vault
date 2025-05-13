@@ -5,5 +5,5 @@
 [2 Kings 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/16.3?lang=eng#p3)
 
 
-[^a]: [[Leviticus 18.21|Lev. 18:21]]; [[2 Kings 17.17|2 Kgs. 17:17.]]
-[^b]: TG [[Heathen]].
+[^a]: [[Leviticus 18.21|Lev. 18:21]]; [[2 Kings 17.17|2 Kgs. 17:17]].  
+[^b]: [[Heathen|TG Heathen]].  

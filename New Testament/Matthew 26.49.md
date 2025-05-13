@@ -5,4 +5,4 @@
 [Matthew 26:49](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.49?lang=eng#p49)
 
 
-[^a]: GR immediately.
+[^a]: GR immediately.  

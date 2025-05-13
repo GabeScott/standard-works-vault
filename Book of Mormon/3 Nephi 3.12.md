@@ -5,5 +5,5 @@
 [3 Nephi 3:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p12#p12)
 
 
-[^a]: [[1 Kings 20.3|1 Kgs. 20:3 (2-3)]]; [[Alma 54.7|Alma 54:7 (5-11).]]
-[^b]: TG [[Strength]].
+[^a]: [[1 Kings 20.2|1 Kgs. 20:3 (2–3)]][[1 Kings 20.3|]]; [[Alma 54.5|Alma 54:7 (5–11)]][[Alma 54.6|]][[Alma 54.7|]][[Alma 54.8|]][[Alma 54.9|]][[Alma 54.10|]][[Alma 54.11|]].  
+[^b]: [[Strength|TG Strength]].  

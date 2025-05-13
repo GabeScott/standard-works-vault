@@ -5,5 +5,5 @@
 [Alma 17:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 20.29|Alma 20:29]]; [[Alma 26.27|26:27]]. TG [[Forbear, Forbearance]]; [[Patience, Patient, Patiently]].
-[^b]: TG [[Example, Ensample]].
+[^a]: [[Alma 20.29|Alma 20:29]]; [[Alma 26.27|26:27]]. [[Forbear, Forbearance|TG Forbear]]; [[Patience, Patient, Patiently|Patience]].  
+[^b]: [[Example, Ensample|TG Example]].  

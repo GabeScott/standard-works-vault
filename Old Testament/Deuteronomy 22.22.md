@@ -5,4 +5,4 @@
 [Deuteronomy 22:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.22?lang=eng#p22)
 
 
-[^a]: TG [[Adulterer, Adultery]].
+[^a]: [[Adulterer, Adultery|TG Adulterer]].  

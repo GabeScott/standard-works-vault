@@ -5,5 +5,5 @@
 [1 Kings 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.11?lang=eng#p11)
 
 
-[^a]: TG [[Governments]].
-[^b]: HEB stinging whips.
+[^a]: [[Governments|TG Governments]].  
+[^b]: HEB stinging whips.  

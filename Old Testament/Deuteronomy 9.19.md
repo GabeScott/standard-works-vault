@@ -5,5 +5,5 @@
 [Deuteronomy 9:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.19?lang=eng#p19)
 
 
-[^a]: [[Exodus 32.10|Ex. 32:10 (10-11).]]
-[^b]: [[Exodus 32.12|Ex. 32:12.]]
+[^a]: [[Exodus 32.10|Ex. 32:10 (10–11)]][[Exodus 32.11|]].  
+[^b]: [[Exodus 32.12|Ex. 32:12]].  

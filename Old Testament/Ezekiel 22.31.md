@@ -5,4 +5,4 @@
 [Ezekiel 22:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.31?lang=eng#p31)
 
 
-[^a]: [[Ezekiel 7.4|Ezek. 7:4.]]
+[^a]: [[Ezekiel 7.4|Ezek. 7:4]].  

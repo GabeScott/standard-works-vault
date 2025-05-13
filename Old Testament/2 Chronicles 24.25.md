@@ -5,5 +5,5 @@
 [2 Chronicles 24:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/24.25?lang=eng#p25)
 
 
-[^a]: IE severely wounded.
-[^b]: [[2 Chronicles 28.27|2 Chr. 28:27.]]
+[^a]: IE severely wounded.  
+[^b]: [[2 Chronicles 28.27|2 Chr. 28:27]].  

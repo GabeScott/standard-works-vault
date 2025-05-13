@@ -5,4 +5,4 @@
 [Exodus 36:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.13?lang=eng#p13)
 
 
-[^a]: OR clasps.
+[^a]: OR clasps.  

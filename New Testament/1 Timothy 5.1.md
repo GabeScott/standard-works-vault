@@ -5,5 +5,5 @@
 [1 Timothy 5:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.1?lang=eng#p1)
 
 
-[^a]: TG [[Chastening]].
-[^b]: TG [[Respecter]].
+[^a]: [[Chastening|TG Chastening]].  
+[^b]: [[Respect|TG Respect]].  

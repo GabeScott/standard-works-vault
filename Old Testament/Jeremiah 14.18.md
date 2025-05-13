@@ -5,5 +5,5 @@
 [Jeremiah 14:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.18?lang=eng#p18)
 
 
-[^a]: Lam. 2:21.
-[^b]: TG [[Israel, Scattering of]].
+[^a]: [[Lamentations 2.21|Lam. 2:21]].  
+[^b]: [[Israel, Scattering of|TG Israel, Scattering of]].  

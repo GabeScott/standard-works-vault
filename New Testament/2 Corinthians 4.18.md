@@ -5,6 +5,6 @@
 [2 Corinthians 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/4.18?lang=eng#p18)
 
 
-[^a]: [[Romans 8.24|Rom. 8:24.]]
-[^b]: [[Ether 12.6|Ether 12:6.]]
-[^c]: TG [[Eternity]].
+[^a]: [[Romans 8.24|Rom. 8:24]].  
+[^b]: [[Ether 12.6|Ether 12:6]].  
+[^c]: [[Eternity|TG Eternity]].  

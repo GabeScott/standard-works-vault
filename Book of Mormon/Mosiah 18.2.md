@@ -5,5 +5,5 @@
 [Mosiah 18:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Jesus Christ, Redeemer]].
-[^b]: TG [[Jesus Christ, Ascension of]]; [[Jesus Christ, Death of]].
+[^a]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]].  
+[^b]: [[Jesus Christ, Ascension of|TG Jesus Christ, Ascension of]]; [[Jesus Christ, Death of|Jesus Christ, Death of]].  

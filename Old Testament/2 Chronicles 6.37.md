@@ -5,4 +5,4 @@
 [2 Chronicles 6:37](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/6.37?lang=eng#p37)
 
 
-[^a]: IE recall in their mind.
+[^a]: IE recall in their mind.  

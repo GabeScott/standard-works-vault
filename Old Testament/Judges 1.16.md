@@ -5,5 +5,5 @@
 [Judges 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/1.16?lang=eng#p16)
 
 
-[^a]: [[1 Samuel 15.6|1 Sam. 15:6]]; [[1 Chronicles 2.55|1 Chr. 2:55.]]
-[^b]: [[Deuteronomy 34.3|Deut. 34:3.]]
+[^a]: [[1 Samuel 15.6|1 Sam. 15:6]]; [[1 Chronicles 2.55|1 Chr. 2:55]].  
+[^b]: [[Deuteronomy 34.3|Deut. 34:3]].  

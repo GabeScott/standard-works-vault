@@ -5,5 +5,5 @@
 [Jeremiah 2:34](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.34?lang=eng#p34)
 
 
-[^a]: [[Psalms 106.38|Ps. 106:38]]; [[Jeremiah 19.4|Jer. 19:4.]]
-[^b]: IE their clothing.
+[^a]: [[Psalms 106.38|Ps. 106:38]]; [[Jeremiah 19.4|Jer. 19:4]].  
+[^b]: IE their clothing.  

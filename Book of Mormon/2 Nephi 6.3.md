@@ -5,5 +5,5 @@
 [2 Nephi 6:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/6?lang=eng&id=p3#p3)
 
 
-[^a]: [[Jacob 2.3|Jacob 2:3]]; [[Mosiah 25.11|Mosiah 25:11.]]
-[^b]: TG [[Scriptures, Value of]].
+[^a]: [[Jacob 2.3|Jacob 2:3]]; [[Mosiah 25.11|Mosiah 25:11]].  
+[^b]: [[Scriptures, Value of|TG Scriptures, Value of]].  

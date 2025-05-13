@@ -5,5 +5,5 @@
 [Matthew 14:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.31?lang=eng#p31)
 
 
-[^a]: [[Mark 4.40|Mark 4:40]]; [[Mark 16.14|16:14]]; [[Luke 24.25|Luke 24:25.]]
-[^b]: TG [[Doubt, Doubtful]].
+[^a]: [[Mark 4.40|Mark 4:40]]; [[Mark 16.14|16:14]]; [[Luke 24.25|Luke 24:25]].  
+[^b]: [[Doubt, Doubtful|TG Doubt]].  

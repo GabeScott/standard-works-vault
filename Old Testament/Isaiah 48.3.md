@@ -5,5 +5,5 @@
 [Isaiah 48:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.3?lang=eng#p3)
 
 
-[^a]: TG [[God, Omniscience of]].
-[^b]: TG [[God, Foreknowledge of]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^b]: [[God, Foreknowledge of|TG God, Foreknowledge of]].  

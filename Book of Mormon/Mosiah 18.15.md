@@ -5,4 +5,4 @@
 [Mosiah 18:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p15#p15)
 
 
-[^a]: JS—H 1:71 (70-71).
+[^a]: [[Joseph Smith History 1.70|JS—H 1:71 (70–71)]][[Joseph Smith History 1.71|]].  

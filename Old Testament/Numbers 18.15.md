@@ -5,5 +5,5 @@
 [Numbers 18:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.15?lang=eng#p15)
 
 
-[^a]: OR womb.
-[^b]: TG [[Firstborn]].
+[^a]: OR womb.  
+[^b]: [[Firstborn|TG Firstborn]].  

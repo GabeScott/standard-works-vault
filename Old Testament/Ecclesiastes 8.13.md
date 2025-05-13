@@ -5,4 +5,4 @@
 [Ecclesiastes 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/8.13?lang=eng#p13)
 
 
-[^a]: OR is not reverent before God. Jer. 44:10 (10-11); [[D&C 10.56|D&C 10:56.]]
+[^a]: OR is not reverent before God. [[Jeremiah 44.10|Jer. 44:10 (10–11)]][[Jeremiah 44.11|]]; [[D&C 10.56|D&C 10:56]].  

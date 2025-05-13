@@ -5,4 +5,4 @@
 [Proverbs 17:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.2?lang=eng#p2)
 
 
-[^a]: TG [[Servant]].
+[^a]: [[Servant|TG Servant]].  

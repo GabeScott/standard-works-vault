@@ -5,4 +5,4 @@
 [2 Nephi 30:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/30?lang=eng&id=p17#p17)
 
 
-[^a]: [[Luke 12.2|Luke 12:2 (2-3)]]; [[D&C 1.3|D&C 1:3 (1-3).]]
+[^a]: [[Luke 12.2|Luke 12:2 (2–3)]][[Luke 12.3|]]; [[D&C 1.1|D&C 1:3 (1–3)]][[D&C 1.2|]][[D&C 1.3|]].  

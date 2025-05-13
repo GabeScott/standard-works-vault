@@ -5,4 +5,4 @@
 [Nehemiah 12:25](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/12.25?lang=eng#p25)
 
 
-[^a]: OR storehouses.
+[^a]: OR storehouses.  

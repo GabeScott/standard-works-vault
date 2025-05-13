@@ -5,5 +5,5 @@
 [Matthew 21:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.9?lang=eng#p9)
 
 
-[^a]: [[Luke 19.40|Luke 19:40.]]
-[^b]: Ps. 118:25-26.
+[^a]: [[Luke 19.40|Luke 19:40]].  
+[^b]: [[Psalms 118.25|Ps. 118:25–26]][[Psalms 118.26|]].  

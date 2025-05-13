@@ -5,5 +5,5 @@
 [Acts 6:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.6?lang=eng#p6)
 
 
-[^a]: TG [[Church Organization]]; [[Hands, Laying on of]]; [[Priesthood, History of]]; [[Priesthood, History of]], Authority.
-[^b]: TG [[Setting Apart]].
+[^a]: [[Church Organization|TG Church Organization]]; [[Hands, Laying on of|Hands, Laying on of]]; [[Priesthood|Priesthood]]; [[Priesthood, Authority|Priesthood, Authority]].  
+[^b]: [[Setting Apart|TG Setting Apart]].  

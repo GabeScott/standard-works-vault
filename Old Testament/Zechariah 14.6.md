@@ -5,4 +5,4 @@
 [Zechariah 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.6?lang=eng#p6)
 
 
-[^a]: TG [[Light]].
+[^a]: [[Light [noun]|TG Light [noun]]].  

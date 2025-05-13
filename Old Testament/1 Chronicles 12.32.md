@@ -5,4 +5,4 @@
 [1 Chronicles 12:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/12.32?lang=eng#p32)
 
 
-[^a]: [[Esther 1.13|Esth. 1:13.]]
+[^a]: [[Esther 1.13|Esth. 1:13]].  

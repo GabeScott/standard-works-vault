@@ -5,4 +5,4 @@
 [Omni 1:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Confession]]; [[Honesty]]; [[Humility, Humble]].
+[^a]: [[Confession|TG Confession]]; [[Honesty|Honesty]]; [[Humility, Humble|Humility]].  

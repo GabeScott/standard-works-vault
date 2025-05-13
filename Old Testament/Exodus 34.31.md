@@ -5,4 +5,4 @@
 [Exodus 34:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.31?lang=eng#p31)
 
 
-[^a]: OR leaders.
+[^a]: OR leaders.  

@@ -5,4 +5,4 @@
 [Job 10:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/10.21?lang=eng#p21)
 
 
-[^a]: TG [[Death]].
+[^a]: [[Death|TG Death]].  

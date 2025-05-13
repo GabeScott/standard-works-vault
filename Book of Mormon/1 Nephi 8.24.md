@@ -5,5 +5,5 @@
 [1 Nephi 8:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[Diligence, Diligent, Diligently]]; [[Perseverance]].
-[^b]: [[1 Nephi 8.10|1 Ne. 8:10.]]
+[^a]: [[Diligence, Diligent, Diligently|TG Diligence]]; [[Perseverance|Perseverance]].  
+[^b]: [[1 Nephi 8.10|1 Ne. 8:10]].  

@@ -5,5 +5,5 @@
 [Helaman 8:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p24#p24)
 
 
-[^a]: [[2 Kings 17.13|2 Kgs. 17:13]]; [[1 Nephi 10.5|1 Ne. 10:5.]]
-[^b]: [[Alma 30.44|Alma 30:44]]; [[Moses 6.63|Moses 6:63.]]
+[^a]: [[2 Kings 17.13|2 Kgs. 17:13]]; [[1 Nephi 10.5|1 Ne. 10:5]].  
+[^b]: [[Alma 30.44|Alma 30:44]]; [[Moses 6.63|Moses 6:63]].  

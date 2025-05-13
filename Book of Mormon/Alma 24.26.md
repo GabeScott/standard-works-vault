@@ -5,4 +5,4 @@
 [Alma 24:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p26#p26)
 
 
-[^a]: [[Isaiah 57.1|Isa. 57:1]]; [[Revelation 14.13|Rev. 14:13.]]
+[^a]: [[Isaiah 57.1|Isa. 57:1]]; [[Revelation 14.13|Rev. 14:13]].  

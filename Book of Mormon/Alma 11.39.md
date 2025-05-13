@@ -5,5 +5,5 @@
 [Alma 11:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p39#p39)
 
 
-[^a]: [[Isaiah 9.6|Isa. 9:6]]; [[Isaiah 64.8|64:8]]; [[Mosiah 15.4|Mosiah 15:4 (2-4)]]; [[Moroni 7.22|Moro. 7:22]]; [[Moroni 8.18|8:18.]]
-[^b]: Col. 1:16; [[Mosiah 4.2|Mosiah 4:2.]]
+[^a]: [[Isaiah 9.6|Isa. 9:6]]; [[Isaiah 64.8|64:8]]; [[Mosiah 15.2|Mosiah 15:4 (2–4)]][[Mosiah 15.3|]][[Mosiah 15.4|]]; [[Moroni 7.22|Moro. 7:22]]; [[Moroni 8.18|8:18]].  
+[^b]: [[Colossians 1.16|Col. 1:16]]; [[Mosiah 4.2|Mosiah 4:2]].  

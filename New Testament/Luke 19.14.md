@@ -5,5 +5,5 @@
 [Luke 19:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.14?lang=eng#p14)
 
 
-[^a]: TG [[Citizenship]].
-[^b]: GR ambassador.
+[^a]: [[Citizenship|TG Citizenship]].  
+[^b]: GR ambassador.  

@@ -5,5 +5,5 @@
 [Revelation 17:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.8?lang=eng#p8)
 
 
-[^a]: TG [[Death, Spiritual, Second]]; [[Hell]].
-[^b]: [[Psalms 139.16|Ps. 139:16.]]
+[^a]: [[Death, Spiritual, Second|TG Death, Spiritual, Second]]; [[Hell|Hell]].  
+[^b]: [[Psalms 139.16|Ps. 139:16]].  

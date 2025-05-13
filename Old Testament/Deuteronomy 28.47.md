@@ -5,5 +5,5 @@
 [Deuteronomy 28:47](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.47?lang=eng#p47)
 
 
-[^a]: TG [[Joy]].
-[^b]: TG [[Cheerful, Cheerfulness]].
+[^a]: [[Joy|TG Joy]].  
+[^b]: [[Cheerful, Cheerfulness|TG Cheerful]].  

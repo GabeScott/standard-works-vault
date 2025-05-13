@@ -5,5 +5,5 @@
 [Helaman 9:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/9?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Mourning, Mourn]].
-[^b]: TG [[Fast, Fasting]].
+[^a]: [[Mourning, Mourn|TG Mourning]].  
+[^b]: [[Fast, Fasting|TG Fast, Fasting]].  

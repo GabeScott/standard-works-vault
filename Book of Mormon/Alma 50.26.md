@@ -5,4 +5,4 @@
 [Alma 50:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p26#p26)
 
 
-[^a]: [[3 Nephi 11.29|3 Ne. 11:29.]]
+[^a]: [[3 Nephi 11.29|3 Ne. 11:29]].  

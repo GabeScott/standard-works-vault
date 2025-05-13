@@ -5,5 +5,5 @@
 [John 6:35](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.35?lang=eng#p35)
 
 
-[^a]: TG [[Bread of Life]].
-[^b]: [[John 4.14|John 4:14]]; [[John 7.37|7:37 (37-39).]]
+[^a]: [[Bread of Life|TG Bread of Life]].  
+[^b]: [[John 4.14|John 4:14]]; [[John 7.37|7:37 (37–39)]][[John 7.38|]][[John 7.39|]].  

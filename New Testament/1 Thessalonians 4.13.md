@@ -5,5 +5,5 @@
 [1 Thessalonians 4:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/4.13?lang=eng#p13)
 
 
-[^a]: TG [[Despair]]; [[Mourning, Mourn]]; [[Sorrow]].
-[^b]: [[Ephesians 2.12|Eph. 2:12.]]
+[^a]: [[Despair|TG Despair]]; [[Mourning, Mourn|Mourning]]; [[Sorrow|Sorrow]].  
+[^b]: [[Ephesians 2.12|Eph. 2:12]].  

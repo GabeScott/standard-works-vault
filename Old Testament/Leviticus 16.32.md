@@ -5,6 +5,6 @@
 [Leviticus 16:32](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.32?lang=eng#p32)
 
 
-[^a]: [[Numbers 27.21|Num. 27:21.]]
-[^b]: TG [[Priesthood, Aaronic]].
-[^c]: [[2 Nephi 5.26|2 Ne. 5:26]]; [[Mosiah 23.17|Mosiah 23:17.]]
+[^a]: [[Numbers 27.21|Num. 27:21]].  
+[^b]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  
+[^c]: [[2 Nephi 5.26|2 Ne. 5:26]]; [[Mosiah 23.17|Mosiah 23:17]].  

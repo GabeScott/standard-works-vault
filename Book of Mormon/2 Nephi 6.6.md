@@ -5,5 +5,5 @@
 [2 Nephi 6:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/6?lang=eng&id=p6#p6)
 
 
-[^a]: [[Isaiah 49.22|Isa. 49:22 (22-23)]]; [[2 Nephi 10.9|2 Ne. 10:9.]]
-[^b]: TG [[Ensign]].
+[^a]: [[Isaiah 49.22|Isa. 49:22 (22–23)]][[Isaiah 49.23|]]; [[2 Nephi 10.9|2 Ne. 10:9]].  
+[^b]: [[Ensign|TG Ensign]].  

@@ -5,4 +5,4 @@
 [1 Samuel 10:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.5?lang=eng#p5)
 
 
-[^a]: [[2 Kings 3.15|2 Kgs. 3:15.]]
+[^a]: [[2 Kings 3.15|2 Kgs. 3:15]].  

@@ -5,5 +5,5 @@
 [Genesis 27:33](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.33?lang=eng#p33)
 
 
-[^a]: HEB hunted game.
-[^b]: [[Genesis 28.3|Gen. 28:3.]]
+[^a]: HEB hunted game.  
+[^b]: [[Genesis 28.3|Gen. 28:3]].  

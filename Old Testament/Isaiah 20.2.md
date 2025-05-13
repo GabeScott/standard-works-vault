@@ -5,4 +5,4 @@
 [Isaiah 20:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/20.2?lang=eng#p2)
 
 
-[^a]: IE without an upper garment, like a slave or exile.
+[^a]: IE without an upper garment, like a slave or exile.  

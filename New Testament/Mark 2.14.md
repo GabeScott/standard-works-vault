@@ -5,4 +5,4 @@
 [Mark 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/2.14?lang=eng#p14)
 
 
-[^a]: GR tax office.
+[^a]: GR tax office.  

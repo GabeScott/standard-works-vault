@@ -5,5 +5,5 @@
 [Genesis 29:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.20?lang=eng#p20)
 
 
-[^a]: [[Hosea 12.12|Hosea 12:12.]]
-[^b]: TG [[Love]].
+[^a]: [[Hosea 12.12|Hosea 12:12]].  
+[^b]: [[Love|TG Love]].  

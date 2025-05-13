@@ -5,5 +5,5 @@
 [John 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.8?lang=eng#p8)
 
 
-[^a]: GR wind, spirit.
-[^b]: [[Ecclesiastes 11.5|Eccl. 11:5.]]
+[^a]: GR wind, spirit.  
+[^b]: [[Ecclesiastes 11.5|Eccl. 11:5]].  

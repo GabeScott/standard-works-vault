@@ -5,4 +5,4 @@
 [2 Samuel 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.8?lang=eng#p8)
 
 
-[^a]: IE sheepfold.
+[^a]: IE sheepfold.  

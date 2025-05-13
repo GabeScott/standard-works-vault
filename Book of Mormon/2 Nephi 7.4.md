@@ -5,4 +5,4 @@
 [2 Nephi 7:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/7?lang=eng&id=p4#p4)
 
 
-[^a]: [[Luke 21.15|Luke 21:15.]]
+[^a]: [[Luke 21.15|Luke 21:15]].  

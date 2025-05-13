@@ -5,4 +5,4 @@
 [Alma 2:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p27#p27)
 
 
-[^a]: [[Jarom 1.6|Jarom 1:6.]]
+[^a]: [[Jarom 1.6|Jarom 1:6]].  

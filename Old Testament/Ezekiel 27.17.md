@@ -5,5 +5,5 @@
 [Ezekiel 27:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.17?lang=eng#p17)
 
 
-[^a]: TG [[Israel, Land of]].
-[^b]: [[Judges 11.33|Judg. 11:33.]]
+[^a]: [[Israel, Land of|TG Israel, Land of]].  
+[^b]: [[Judges 11.33|Judg. 11:33]].  

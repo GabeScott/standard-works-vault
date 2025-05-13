@@ -5,5 +5,5 @@
 [Revelation 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.13?lang=eng#p13)
 
 
-[^a]: TG [[Jesus Christ, Son of Man]].
-[^b]: Dan. 10:5.
+[^a]: [[Jesus Christ, Son of Man|TG Jesus Christ, Son of Man]].  
+[^b]: [[Daniel 10.5|Dan. 10:5]].  

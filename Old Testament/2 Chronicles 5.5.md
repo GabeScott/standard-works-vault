@@ -5,4 +5,4 @@
 [2 Chronicles 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/5.5?lang=eng#p5)
 
 
-[^a]: [[1 Kings 8.3|1 Kgs. 8:3.]]
+[^a]: [[1 Kings 8.3|1 Kgs. 8:3]].  

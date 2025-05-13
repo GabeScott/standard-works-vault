@@ -5,4 +5,4 @@
 [Alma 10:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Mysteries of Godliness]].
+[^a]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  

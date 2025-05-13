@@ -5,4 +5,4 @@
 [Isaiah 58:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.14?lang=eng#p14)
 
 
-[^a]: [[Deuteronomy 32.13|Deut. 32:13 (7-14).]]
+[^a]: [[Deuteronomy 32.7|Deut. 32:13 (7–14)]][[Deuteronomy 32.8|]][[Deuteronomy 32.9|]][[Deuteronomy 32.10|]][[Deuteronomy 32.11|]][[Deuteronomy 32.12|]][[Deuteronomy 32.13|]][[Deuteronomy 32.14|]].  

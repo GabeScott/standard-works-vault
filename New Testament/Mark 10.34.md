@@ -5,5 +5,5 @@
 [Mark 10:34](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.34?lang=eng#p34)
 
 
-[^a]: TG [[Mocking, Mock, Mocker, Mockery]].
-[^b]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Mocking, Mock, Mocker, Mockery|TG Mocking]].  
+[^b]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

@@ -5,6 +5,6 @@
 [Mosiah 1:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p16#p16)
 
 
-[^a]: [[Mosiah 1.3|Mosiah 1:3.]]
-[^b]: [[Jacob 1.10|Jacob 1:10]]; W of M 1:13; [[D&C 17.1|D&C 17:1.]]
-[^c]: [[2 Nephi 5.12|2 Ne. 5:12.]]
+[^a]: [[Mosiah 1.3|Mosiah 1:3]].  
+[^b]: [[Jacob 1.10|Jacob 1:10]]; [[Words of Mormon 1.13|W of M 1:13]]; [[D&C 17.1|D&C 17:1]].  
+[^c]: [[2 Nephi 5.12|2 Ne. 5:12]].  

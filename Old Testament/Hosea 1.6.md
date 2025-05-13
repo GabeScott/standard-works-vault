@@ -5,6 +5,6 @@
 [Hosea 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/1.6?lang=eng#p6)
 
 
-[^a]: IE Not having obtained mercy.
-[^b]: [[D&C 109.61|D&C 109:61 (60-62).]]
-[^c]: [[2 Kings 17.23|2 Kgs. 17:23.]]
+[^a]: IE Not having obtained mercy.  
+[^b]: [[D&C 109.60|D&C 109:61 (60–62)]][[D&C 109.61|]][[D&C 109.62|]].  
+[^c]: [[2 Kings 17.23|2 Kgs. 17:23]].  

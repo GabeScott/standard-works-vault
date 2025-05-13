@@ -5,5 +5,5 @@
 [Alma 57:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/57?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Trustworthiness]].
-[^b]: [[Alma 56.47|Alma 56:47 (47-48).]]
+[^a]: [[Trustworthiness|TG Trustworthiness]].  
+[^b]: [[Alma 56.47|Alma 56:47 (47–48)]][[Alma 56.48|]].  

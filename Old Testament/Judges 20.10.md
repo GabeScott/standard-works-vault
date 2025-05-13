@@ -5,4 +5,4 @@
 [Judges 20:10](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/20.10?lang=eng#p10)
 
 
-[^a]: [[Joshua 1.11|Josh. 1:11.]]
+[^a]: [[Joshua 1.11|Josh. 1:11]].  

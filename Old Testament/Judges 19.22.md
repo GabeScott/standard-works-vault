@@ -5,4 +5,4 @@
 [Judges 19:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/19.22?lang=eng#p22)
 
 
-[^a]: [[Genesis 19.5|Gen. 19:5]]; [[Romans 1.26|Rom. 1:26 (26-27).]]
+[^a]: [[Genesis 19.5|Gen. 19:5]]; [[Romans 1.26|Rom. 1:26 (26–27)]][[Romans 1.27|]].  

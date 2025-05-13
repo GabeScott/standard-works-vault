@@ -5,4 +5,4 @@
 [Psalms 119:147](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.147?lang=eng#p147)
 
 
-[^a]: HEB I arose before the dawning.
+[^a]: HEB I arose before the dawning.  

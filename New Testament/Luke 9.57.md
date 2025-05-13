@@ -5,4 +5,4 @@
 [Luke 9:57](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.57?lang=eng#p57)
 
 
-[^a]: [[Matthew 8.19|Matt. 8:19.]]
+[^a]: [[Matthew 8.19|Matt. 8:19]].  

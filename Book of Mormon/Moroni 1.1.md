@@ -5,4 +5,4 @@
 [Moroni 1:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/1?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mormon 8.5|Morm. 8:5]]; [[Moroni 10.1|Moro. 10:1 (1-2).]]
+[^a]: [[Mormon 8.5|Morm. 8:5]]; [[Moroni 10.1|Moro. 10:1 (1–2)]][[Moroni 10.2|]].  

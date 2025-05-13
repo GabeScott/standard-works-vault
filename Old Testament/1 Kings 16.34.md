@@ -5,5 +5,5 @@
 [1 Kings 16:34](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.34?lang=eng#p34)
 
 
-[^a]: [[Joshua 6.26|Josh. 6:26]]; [[2 Kings 2.4|2 Kgs. 2:4.]]
-[^b]: [[Exodus 33.11|Ex. 33:11]]; [[Numbers 11.28|Num. 11:28]]; [[Nehemiah 8.17|Neh. 8:17.]]
+[^a]: [[Joshua 6.26|Josh. 6:26]]; [[2 Kings 2.4|2 Kgs. 2:4]].  
+[^b]: [[Exodus 33.11|Ex. 33:11]]; [[Numbers 11.28|Num. 11:28]]; [[Nehemiah 8.17|Neh. 8:17]].  

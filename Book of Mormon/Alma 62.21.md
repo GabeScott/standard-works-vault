@@ -5,4 +5,4 @@
 [Alma 62:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p21#p21)
 
 
-[^a]: [[Alma 49.13|Alma 49:13 (13, 18-24).]]
+[^a]: [[Alma 49.13|Alma 49:13 (13, 18–24)]][[Alma 49.18|]][[Alma 49.19|]][[Alma 49.20|]][[Alma 49.21|]][[Alma 49.22|]][[Alma 49.23|]][[Alma 49.24|]].  

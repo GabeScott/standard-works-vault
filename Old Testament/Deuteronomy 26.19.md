@@ -5,5 +5,5 @@
 [Deuteronomy 26:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.19?lang=eng#p19)
 
 
-[^a]: [[Deuteronomy 28.1|Deut. 28:1.]]
-[^b]: TG [[Israel, Blessings of]].
+[^a]: [[Deuteronomy 28.1|Deut. 28:1]].  
+[^b]: [[Israel, Blessings of|TG Israel, Blessings of]].  

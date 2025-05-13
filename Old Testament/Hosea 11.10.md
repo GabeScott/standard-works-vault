@@ -5,5 +5,5 @@
 [Hosea 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/11.10?lang=eng#p10)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: [[Isaiah 31.4|Isa. 31:4.]]
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Isaiah 31.4|Isa. 31:4]].  

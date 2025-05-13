@@ -5,6 +5,6 @@
 [Alma 36:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p2#p2)
 
 
-[^a]: [[Mosiah 23.23|Mosiah 23:23]]; [[Mosiah 24.17|24:17 (17-21)]]. TG [[Israel, Bondage of, in Egypt]].
-[^b]: [[Deuteronomy 26.8|Deut. 26:8.]]
-[^c]: [[Exodus 3.6|Ex. 3:6]]; [[Alma 29.11|Alma 29:11.]]
+[^a]: [[Mosiah 23.23|Mosiah 23:23]]; [[Mosiah 24.17|24:17 (17–21)]][[Mosiah 24.18|]][[Mosiah 24.19|]][[Mosiah 24.20|]][[Mosiah 24.21|]]. [[Israel, Bondage of, in Egypt|TG Israel, Bondage of, in Egypt]].  
+[^b]: [[Deuteronomy 26.8|Deut. 26:8]].  
+[^c]: [[Exodus 3.6|Ex. 3:6]]; [[Alma 29.11|Alma 29:11]].  

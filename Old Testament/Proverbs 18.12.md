@@ -5,5 +5,5 @@
 [Proverbs 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.12?lang=eng#p12)
 
 
-[^a]: [[Proverbs 29.23|Prov. 29:23.]]
-[^b]: [[Alma 7.23|Alma 7:23 (23-24)]]; [[D&C 112.10|D&C 112:10.]]
+[^a]: [[Proverbs 29.23|Prov. 29:23]].  
+[^b]: [[Alma 7.23|Alma 7:23 (23–24)]][[Alma 7.24|]]; [[D&C 112.10|D&C 112:10]].  

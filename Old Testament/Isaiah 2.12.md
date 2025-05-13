@@ -5,6 +5,6 @@
 [Isaiah 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Day of the Lord]].
-[^b]: TG [[Pride]].
-[^c]: [[Job 40.11|Job 40:11.]]
+[^a]: [[Day of the Lord|TG Day of the Lord]].  
+[^b]: [[Pride|TG Pride]].  
+[^c]: [[Job 40.11|Job 40:11]].  

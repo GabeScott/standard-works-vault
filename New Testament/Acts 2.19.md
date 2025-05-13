@@ -5,5 +5,5 @@
 [Acts 2:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.19?lang=eng#p19)
 
 
-[^a]: TG [[Last Days]].
-[^b]: TG [[Signs]].
+[^a]: [[Last Days|TG Last Days]].  
+[^b]: [[Signs|TG Signs]].  

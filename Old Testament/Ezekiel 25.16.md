@@ -5,4 +5,4 @@
 [Ezekiel 25:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/25.16?lang=eng#p16)
 
 
-[^a]: Zeph. 2:5 (4-5).
+[^a]: [[Zephaniah 2.4|Zeph. 2:5 (4–5)]][[Zephaniah 2.5|]].  

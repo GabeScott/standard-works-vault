@@ -5,5 +5,5 @@
 [Joshua 4:22](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.22?lang=eng#p22)
 
 
-[^a]: TG [[Children]].
-[^b]: TG [[Teaching with the Spirit]].
+[^a]: [[Children|TG Children]].  
+[^b]: [[Teaching, Teach, Taught|TG Teaching]].  

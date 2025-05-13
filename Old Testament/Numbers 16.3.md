@@ -5,5 +5,5 @@
 [Numbers 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.3?lang=eng#p3)
 
 
-[^a]: 3 Jn. 1:10 (9-10).
-[^b]: TG [[God, Presence of]].
+[^a]: [[3 John 1.9|3 Jn. 1:10 (9–10)]][[3 John 1.10|]].  
+[^b]: [[God, Presence of|TG God, Presence of]].  

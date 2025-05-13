@@ -5,5 +5,5 @@
 [John 7:1](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.1?lang=eng#p1)
 
 
-[^a]: [[John 5.16|John 5:16 (16, 18).]]
-[^b]: [[John 11.53|John 11:53 (53-54).]]
+[^a]: [[John 5.16|John 5:16 (16, 18)]][[John 5.18|]].  
+[^b]: [[John 11.53|John 11:53 (53–54)]][[John 11.54|]].  

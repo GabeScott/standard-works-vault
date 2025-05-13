@@ -5,5 +5,5 @@
 [Alma 32:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p12#p12)
 
 
-[^a]: [[Ecclesiastes 4.13|Eccl. 4:13.]]
-[^b]: [[Proverbs 16.8|Prov. 16:8]]; [[Proverbs 28.11|28:11.]]
+[^a]: [[Ecclesiastes 4.13|Eccl. 4:13]].  
+[^b]: [[Proverbs 16.8|Prov. 16:8]]; [[Proverbs 28.11|28:11]].  

@@ -5,5 +5,5 @@
 [Isaiah 47:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.8?lang=eng#p8)
 
 
-[^a]: Lam. 1:1.
-[^b]: IE Babylon will be depopulated and its king will be destroyed.
+[^a]: [[Lamentations 1.1|Lam. 1:1]].  
+[^b]: IE Babylon will be depopulated and its king will be destroyed.  

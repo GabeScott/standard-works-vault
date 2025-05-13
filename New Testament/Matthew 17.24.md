@@ -5,4 +5,4 @@
 [Matthew 17:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.24?lang=eng#p24)
 
 
-[^a]: [[D&C 58.21|D&C 58:21 (21-22).]]
+[^a]: [[D&C 58.21|D&C 58:21 (21–22)]][[D&C 58.22|]].  

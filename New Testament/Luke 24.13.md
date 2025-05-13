@@ -5,4 +5,4 @@
 [Luke 24:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.13?lang=eng#p13)
 
 
-[^a]: The distance here indicated is about 7½ miles or 12 kilometers.
+[^a]: The distance here indicated is about 7½ miles or 12 kilometers.  

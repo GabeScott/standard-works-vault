@@ -5,6 +5,6 @@
 [Isaiah 45:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.3?lang=eng#p3)
 
 
-[^a]: OR hidden treasures (probably of Babylonia). Jer. 50:37; 51:13.
-[^b]: [[Exodus 33.12|Ex. 33:12 (12, 17)]]; JS—H 1:33 (17, 33, 49).
-[^c]: [[Isaiah 29.23|Isa. 29:23]]; [[3 Nephi 11.14|3 Ne. 11:14]]; [[D&C 36.1|D&C 36:1]]; [[D&C 127.3|127:3.]]
+[^a]: OR hidden treasures (probably of Babylonia). [[Jeremiah 50.37|Jer. 50:37]]; [[Jeremiah 51.13|51:13]].  
+[^b]: [[Exodus 33.12|Ex. 33:12 (12, 17)]][[Exodus 33.17|]]; [[Joseph Smith History 1.17|JS—H 1:33 (17, 33, 49)]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.49|]].  
+[^c]: [[Isaiah 29.23|Isa. 29:23]]; [[3 Nephi 11.14|3 Ne. 11:14]]; [[D&C 36.1|D&C 36:1]]; [[D&C 127.3|127:3]].  

@@ -5,4 +5,4 @@
 [1 Timothy 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.5?lang=eng#p5)
 
 
-[^a]: GR left alone.
+[^a]: GR left alone.  

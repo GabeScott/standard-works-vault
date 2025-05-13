@@ -5,4 +5,4 @@
 [Leviticus 13:55](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.55?lang=eng#p55)
 
 
-[^a]: HEB it is a decay, whether it be bald in the head thereof, or in the forehead thereof.
+[^a]: HEB it is a decay, whether it be bald in the head thereof, or in the forehead thereof.  

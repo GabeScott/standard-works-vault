@@ -5,4 +5,4 @@
 [Alma 19:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p31#p31)
 
 
-[^a]: [[Alma 18.39|Alma 18:39 (36-39).]]
+[^a]: [[Alma 18.36|Alma 18:39 (36–39)]][[Alma 18.37|]][[Alma 18.38|]][[Alma 18.39|]].  

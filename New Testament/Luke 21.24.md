@@ -5,8 +5,8 @@
 [Luke 21:24](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.24?lang=eng#p24)
 
 
-[^a]: Dan. 12:7. TG [[Israel, Scattering of]].
-[^b]: TG [[Israel, Bondage of, in Other Lands]].
-[^c]: TG [[Israel, Twelve Tribes of]].
-[^d]: Dan. 9:27 (24-27).
-[^e]: [[D&C 45.25|D&C 45:25]]. TG [[Gentiles]].
+[^a]: [[Daniel 12.7|Dan. 12:7]]. [[Israel, Scattering of|TG Israel, Scattering of]].  
+[^b]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  
+[^c]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  
+[^d]: [[Daniel 9.24|Dan. 9:27 (24–27)]][[Daniel 9.25|]][[Daniel 9.26|]][[Daniel 9.27|]].  
+[^e]: [[D&C 45.25|D&C 45:25]]. [[Gentiles|TG Gentiles]].  

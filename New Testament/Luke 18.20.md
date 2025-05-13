@@ -5,7 +5,7 @@
 [Luke 18:20](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.20?lang=eng#p20)
 
 
-[^a]: [[D&C 42.24|D&C 42:24 (23-25).]]
-[^b]: [[D&C 42.79|D&C 42:79.]]
-[^c]: [[D&C 42.21|D&C 42:21.]]
-[^d]: TG [[Honoring Father and Mother]].
+[^a]: [[D&C 42.23|D&C 42:24 (23–25)]][[D&C 42.24|]][[D&C 42.25|]].  
+[^b]: [[D&C 42.79|D&C 42:79]].  
+[^c]: [[D&C 42.21|D&C 42:21]].  
+[^d]: [[Honoring Father and Mother|TG Honoring Father and Mother]].  

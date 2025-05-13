@@ -5,6 +5,6 @@
 [Revelation 21:24](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.24?lang=eng#p24)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: TG [[Kings, Earthly]].
-[^c]: [[Isaiah 49.22|Isa. 49:22]]; [[Isaiah 60.5|60:5.]]
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Kings, Earthly|TG Kings, Earthly]].  
+[^c]: [[Isaiah 49.22|Isa. 49:22]]; [[Isaiah 60.5|60:5]].  

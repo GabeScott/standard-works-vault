@@ -5,4 +5,4 @@
 [Psalms 75:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/75.3?lang=eng#p3)
 
 
-[^a]: [[1 Samuel 2.8|1 Sam. 2:8.]]
+[^a]: [[1 Samuel 2.8|1 Sam. 2:8]].  

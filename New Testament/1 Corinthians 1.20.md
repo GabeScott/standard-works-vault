@@ -5,8 +5,8 @@
 [1 Corinthians 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.20?lang=eng#p20)
 
 
-[^a]: TG [[Scribe]].
-[^b]: TG [[Disputations, Dispute]].
-[^c]: GR age.
-[^d]: [[Isaiah 44.25|Isa. 44:25]]; [[Jeremiah 8.8|Jer. 8:8 (8-9)]]; [[D&C 133.58|D&C 133:58.]]
-[^e]: TG [[Worldliness]].
+[^a]: [[Scribe|TG Scribe]].  
+[^b]: [[Disputations, Dispute|TG Disputations]].  
+[^c]: GR age.  
+[^d]: [[Isaiah 44.25|Isa. 44:25]]; [[Jeremiah 8.8|Jer. 8:8 (8–9)]][[Jeremiah 8.9|]]; [[D&C 133.58|D&C 133:58]].  
+[^e]: [[Worldliness|TG Worldliness]].  

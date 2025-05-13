@@ -5,6 +5,6 @@
 [Zechariah 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 78.8|Ps. 78:8.]]
-[^b]: [[2 Nephi 27.5|2 Ne. 27:5]]; [[Jacob 4.14|Jacob 4:14]]; [[D&C 136.36|D&C 136:36.]]
-[^c]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[Psalms 78.8|Ps. 78:8]].  
+[^b]: [[2 Nephi 27.5|2 Ne. 27:5]]; [[Jacob 4.14|Jacob 4:14]]; [[D&C 136.36|D&C 136:36]].  
+[^c]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

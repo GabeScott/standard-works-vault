@@ -5,6 +5,6 @@
 [Leviticus 22:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.2?lang=eng#p2)
 
 
-[^a]: [[Ezra 2.63|Ezra 2:63.]]
-[^b]: [[D&C 88.74|D&C 88:74.]]
-[^c]: HEB which they sanctify for me. Deut. 15:19.
+[^a]: [[Ezra 2.63|Ezra 2:63]].  
+[^b]: [[D&C 88.74|D&C 88:74]].  
+[^c]: HEB which they sanctify for me. [[Deuteronomy 15.19|Deut. 15:19]].  

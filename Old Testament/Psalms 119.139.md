@@ -5,4 +5,4 @@
 [Psalms 119:139](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.139?lang=eng#p139)
 
 
-[^a]: TG [[Zeal, Zealous]].
+[^a]: [[Zeal, Zealous|TG Zeal]].  

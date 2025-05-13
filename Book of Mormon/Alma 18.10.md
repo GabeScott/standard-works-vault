@@ -5,4 +5,4 @@
 [Alma 18:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 20.6|Alma 20:6]]; [[3 Nephi 3.22|3 Ne. 3:22.]]
+[^a]: [[Alma 20.6|Alma 20:6]]; [[3 Nephi 3.22|3 Ne. 3:22]].  

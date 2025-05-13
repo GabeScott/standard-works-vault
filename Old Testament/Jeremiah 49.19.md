@@ -5,4 +5,4 @@
 [Jeremiah 49:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.19?lang=eng#p19)
 
 
-[^a]: [[Jeremiah 4.7|Jer. 4:7.]]
+[^a]: [[Jeremiah 4.7|Jer. 4:7]].  

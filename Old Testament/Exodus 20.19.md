@@ -5,4 +5,4 @@
 [Exodus 20:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.19?lang=eng#p19)
 
 
-[^a]: [[Deuteronomy 5.25|Deut. 5:25]]; [[Deuteronomy 18.16|18:16]]; [[Hebrews 12.19|Heb. 12:19]]; [[D&C 84.22|D&C 84:22 (21-26)]]; [[Moses 1.11|Moses 1:11 (11, 14).]]
+[^a]: [[Deuteronomy 5.25|Deut. 5:25]]; [[Deuteronomy 18.16|18:16]]; [[Hebrews 12.19|Heb. 12:19]]; [[D&C 84.21|D&C 84:22 (21–26)]][[D&C 84.22|]][[D&C 84.23|]][[D&C 84.24|]][[D&C 84.25|]][[D&C 84.26|]]; [[Moses 1.11|Moses 1:11 (11, 14)]][[Moses 1.14|]].  

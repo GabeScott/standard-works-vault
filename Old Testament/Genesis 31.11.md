@@ -5,4 +5,4 @@
 [Genesis 31:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.11?lang=eng#p11)
 
 
-[^a]: TG [[Angels]].
+[^a]: [[Angels|TG Angels]].  

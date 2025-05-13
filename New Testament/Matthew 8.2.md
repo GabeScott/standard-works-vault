@@ -5,4 +5,4 @@
 [Matthew 8:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.2?lang=eng#p2)
 
 
-[^a]: TG [[Leprosy, Leper, Leprous]].
+[^a]: [[Leprosy, Leper, Leprous|TG Leprosy]].  

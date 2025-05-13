@@ -5,5 +5,5 @@
 [Zechariah 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/2.5?lang=eng#p5)
 
 
-[^a]: TG [[God, Presence of]]; [[Protection, Divine]].
-[^b]: TG [[Jesus Christ, Glory of]].
+[^a]: [[God, Presence of|TG God, Presence of]]; [[Protection, Divine|Protection, Divine]].  
+[^b]: [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  

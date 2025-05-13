@@ -5,4 +5,4 @@
 [Psalms 22:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 23.9|Jer. 23:9.]]
+[^a]: [[Jeremiah 23.9|Jer. 23:9]].  

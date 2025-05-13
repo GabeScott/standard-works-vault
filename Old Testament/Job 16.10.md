@@ -5,4 +5,4 @@
 [Job 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/job/16.10?lang=eng#p10)
 
 
-[^a]: TG [[Reproach]].
+[^a]: [[Reproach|TG Reproach]].  

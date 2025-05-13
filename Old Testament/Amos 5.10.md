@@ -5,4 +5,4 @@
 [Amos 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.10?lang=eng#p10)
 
 
-[^a]: [[2 Nephi 27.32|2 Ne. 27:32.]]
+[^a]: [[2 Nephi 27.32|2 Ne. 27:32]].  

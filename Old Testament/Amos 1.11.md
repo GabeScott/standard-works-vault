@@ -5,4 +5,4 @@
 [Amos 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/1.11?lang=eng#p11)
 
 
-[^a]: [[Jeremiah 49.7|Jer. 49:7.]]
+[^a]: [[Jeremiah 49.7|Jer. 49:7]].  

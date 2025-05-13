@@ -5,4 +5,4 @@
 [Mosiah 13:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p34#p34)
 
 
-[^a]: [[Mosiah 7.27|Mosiah 7:27]]; [[Mosiah 15.1|15:1]]; [[Mosiah 17.8|17:8]]; [[Alma 10.21|Alma 10:21]]. TG [[Jesus Christ, Jehovah]].
+[^a]: [[Mosiah 7.27|Mosiah 7:27]]; [[Mosiah 15.1|15:1]]; [[Mosiah 17.8|17:8]]; [[Alma 10.21|Alma 10:21]]. [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  

@@ -5,4 +5,4 @@
 [Ezekiel 39:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 38.2|Ezek. 38:2 (2-3).]]
+[^a]: [[Ezekiel 38.2|Ezek. 38:2 (2–3)]][[Ezekiel 38.3|]].  

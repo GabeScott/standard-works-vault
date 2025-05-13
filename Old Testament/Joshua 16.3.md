@@ -5,5 +5,5 @@
 [Joshua 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/16.3?lang=eng#p3)
 
 
-[^a]: OR border.
-[^b]: OR lower.
+[^a]: OR border.  
+[^b]: OR lower.  

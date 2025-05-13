@@ -5,4 +5,4 @@
 [2 Nephi 12:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 21.3|2 Ne. 21:3 (2-5, 9).]]
+[^a]: [[2 Nephi 21.2|2 Ne. 21:3 (2–5, 9)]][[2 Nephi 21.3|]][[2 Nephi 21.4|]][[2 Nephi 21.5|]][[2 Nephi 21.9|]].  

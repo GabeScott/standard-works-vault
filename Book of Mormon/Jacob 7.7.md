@@ -5,6 +5,6 @@
 [Jacob 7:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p7#p7)
 
 
-[^a]: [[Jacob 4.5|Jacob 4:5.]]
-[^b]: TG [[Blaspheme, Blasphemous, Blasphemy]].
-[^c]: [[Alma 30.13|Alma 30:13.]]
+[^a]: [[Jacob 4.5|Jacob 4:5]].  
+[^b]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  
+[^c]: [[Alma 30.13|Alma 30:13]].  

@@ -5,4 +5,4 @@
 [Galatians 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.9?lang=eng#p9)
 
 
-[^a]: TG [[Israel, Blessings of]].
+[^a]: [[Israel, Blessings of|TG Israel, Blessings of]].  

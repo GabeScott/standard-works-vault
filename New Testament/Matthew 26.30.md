@@ -5,4 +5,4 @@
 [Matthew 26:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.30?lang=eng#p30)
 
 
-[^a]: TG [[Singing, Sing, Sang, Sung]].
+[^a]: [[Singing, Sing, Sang, Sung|TG Singing]].  

@@ -5,4 +5,4 @@
 [Job 9:34](https://www.churchofjesuschrist.org/study/scriptures/ot/job/9.34?lang=eng#p34)
 
 
-[^a]: HEB the dread of Him.
+[^a]: HEB the dread of Him.  

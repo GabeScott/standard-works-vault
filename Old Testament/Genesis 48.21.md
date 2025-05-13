@@ -5,6 +5,6 @@
 [Genesis 48:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.21?lang=eng#p21)
 
 
-[^a]: [[Genesis 46.4|Gen. 46:4.]]
-[^b]: TG [[Israel, Bondage of, in Egypt]].
-[^c]: TG [[Israel, Land of]]; [[Promised Lands]].
+[^a]: [[Genesis 46.4|Gen. 46:4]].  
+[^b]: [[Israel, Bondage of, in Egypt|TG Israel, Bondage of, in Egypt]].  
+[^c]: [[Israel, Land of|TG Israel, Land of]]; [[Promised Lands|Promised Lands]].  

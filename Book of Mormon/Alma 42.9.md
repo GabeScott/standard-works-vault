@@ -5,5 +5,5 @@
 [Alma 42:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[Fall of Man]].
-[^b]: [[Moses 5.4|Moses 5:4]]. TG [[Death, Spiritual, First]].
+[^a]: [[Fall of Man|TG Fall of Man]].  
+[^b]: [[Moses 5.4|Moses 5:4]]. [[Death, Spiritual, First|TG Death, Spiritual, First]].  

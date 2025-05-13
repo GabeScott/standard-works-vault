@@ -5,6 +5,6 @@
 [Alma 42:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Carnal Mind]].
-[^b]: TG [[Man, Natural, Not Spiritually Reborn]].
-[^c]: TG [[Mortality]]; [[Probation, Probationary]].
+[^a]: [[Carnal Mind|TG Carnal Mind]].  
+[^b]: [[Man, Natural, Not Spiritually Reborn|TG Man, Natural, Not Spiritually Reborn]].  
+[^c]: [[Mortality|TG Mortality]]; [[Probation, Probationary|Probation]].  

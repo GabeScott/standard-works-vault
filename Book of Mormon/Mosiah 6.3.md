@@ -5,9 +5,9 @@
 [Mosiah 6:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/6?lang=eng&id=p3#p3)
 
 
-[^a]: [[Mosiah 1.10|Mosiah 1:10]]; [[Mosiah 2.30|2:30.]]
-[^b]: TG [[Priesthood, Ordination]].
-[^c]: [[Mosiah 29.42|Mosiah 29:42.]]
-[^d]: [[Alma 4.7|Alma 4:7.]]
-[^e]: [[Mosiah 5.5|Mosiah 5:5 (5-7).]]
-[^f]: [[Numbers 1.2|Num. 1:2]]; [[Ether 1.41|Ether 1:41]]; [[D&C 48.6|D&C 48:6.]]
+[^a]: [[Mosiah 1.10|Mosiah 1:10]]; [[Mosiah 2.30|2:30]].  
+[^b]: [[Priesthood, Ordination|TG Priesthood, Ordination]].  
+[^c]: [[Mosiah 29.42|Mosiah 29:42]].  
+[^d]: [[Alma 4.7|Alma 4:7]].  
+[^e]: [[Mosiah 5.5|Mosiah 5:5 (5–7)]][[Mosiah 5.6|]][[Mosiah 5.7|]].  
+[^f]: [[Numbers 1.2|Num. 1:2]]; [[Ether 1.41|Ether 1:41]]; [[D&C 48.6|D&C 48:6]].  

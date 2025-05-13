@@ -5,4 +5,4 @@
 [Numbers 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.6?lang=eng#p6)
 
 
-[^a]: TG [[Priesthood, Aaronic]].
+[^a]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  

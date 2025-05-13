@@ -5,5 +5,5 @@
 [2 Chronicles 12:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/12.15?lang=eng#p15)
 
 
-[^a]: [[1 Kings 12.22|1 Kgs. 12:22]]. TG [[Scriptures, Lost]].
-[^b]: TG [[Seer]].
+[^a]: [[1 Kings 12.22|1 Kgs. 12:22]]. [[Scriptures, Lost|TG Scriptures, Lost]].  
+[^b]: [[Seer|TG Seer]].  

@@ -5,4 +5,4 @@
 [1 Samuel 20:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/20.31?lang=eng#p31)
 
 
-[^a]: [[1 Samuel 23.17|1 Sam. 23:17.]]
+[^a]: [[1 Samuel 23.17|1 Sam. 23:17]].  

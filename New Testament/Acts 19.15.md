@@ -5,4 +5,4 @@
 [Acts 19:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.15?lang=eng#p15)
 
 
-[^a]: TG [[Spirits, Evil or Unclean]].
+[^a]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

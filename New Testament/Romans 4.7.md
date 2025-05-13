@@ -5,4 +5,4 @@
 [Romans 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 32.1|Ps. 32:1.]]
+[^a]: [[Psalms 32.1|Ps. 32:1]].  

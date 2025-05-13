@@ -5,6 +5,6 @@
 [Exodus 16:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 12.4|Ex. 12:4.]]
-[^b]: OR what he could eat.
-[^c]: [[Exodus 16.36|Ex. 16:36.]]
+[^a]: [[Exodus 12.4|Ex. 12:4]].  
+[^b]: OR what he could eat.  
+[^c]: [[Exodus 16.36|Ex. 16:36]].  

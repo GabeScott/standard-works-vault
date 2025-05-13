@@ -5,4 +5,4 @@
 [Alma 6:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/6?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Fast, Fasting]].
+[^a]: [[Fast, Fasting|TG Fast, Fasting]].  

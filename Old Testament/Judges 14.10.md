@@ -5,4 +5,4 @@
 [Judges 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/14.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 29.22|Gen. 29:22.]]
+[^a]: [[Genesis 29.22|Gen. 29:22]].  

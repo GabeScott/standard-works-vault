@@ -5,4 +5,4 @@
 [Revelation 13:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/13.7?lang=eng#p7)
 
 
-[^a]: TG [[False Priesthoods]].
+[^a]: [[False Priesthoods|TG False Priesthoods]].  

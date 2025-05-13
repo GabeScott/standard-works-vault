@@ -5,5 +5,5 @@
 [Romans 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.24?lang=eng#p24)
 
 
-[^a]: [[Acts 7.42|Acts 7:42.]]
-[^b]: TG [[Uncleanness, Unclean]].
+[^a]: [[Acts 7.42|Acts 7:42]].  
+[^b]: [[Uncleanness, Unclean|TG Uncleanness]].  

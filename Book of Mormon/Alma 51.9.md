@@ -5,5 +5,5 @@
 [Alma 51:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 63.14|Alma 63:14.]]
-[^b]: [[Acts 23.12|Acts 23:12]]; [[Alma 49.27|Alma 49:27 (26-27).]]
+[^a]: [[Alma 63.14|Alma 63:14]].  
+[^b]: [[Acts 23.12|Acts 23:12]]; [[Alma 49.26|Alma 49:27 (26–27)]][[Alma 49.27|]].  

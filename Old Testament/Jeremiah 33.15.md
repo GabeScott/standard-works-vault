@@ -5,7 +5,7 @@
 [Jeremiah 33:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/33.15?lang=eng#p15)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
-[^b]: TG [[Jesus Christ, Davidic Descent of]].
-[^c]: OR do justice.
-[^d]: OR earth.
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^b]: [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  
+[^c]: OR do justice.  
+[^d]: OR earth.  

@@ -5,4 +5,4 @@
 [Jeremiah 6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.20?lang=eng#p20)
 
 
-[^a]: TG [[Hypocrisy, Hypocrite]].
+[^a]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  

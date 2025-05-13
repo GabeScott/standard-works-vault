@@ -5,4 +5,4 @@
 [Psalms 71:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/71.20?lang=eng#p20)
 
 
-[^a]: [[D&C 33.16|D&C 33:16.]]
+[^a]: [[D&C 33.16|D&C 33:16]].  

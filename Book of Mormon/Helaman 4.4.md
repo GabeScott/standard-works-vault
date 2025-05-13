@@ -5,5 +5,5 @@
 [Helaman 4:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p4#p4)
 
 
-[^a]: [[Helaman 5.17|Hel. 5:17.]]
-[^b]: [[Alma 63.14|Alma 63:14.]]
+[^a]: [[Helaman 5.17|Hel. 5:17]].  
+[^b]: [[Alma 63.14|Alma 63:14]].  

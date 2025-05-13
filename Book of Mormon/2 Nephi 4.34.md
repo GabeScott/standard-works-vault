@@ -5,7 +5,7 @@
 [2 Nephi 4:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p34#p34)
 
 
-[^a]: TG [[Trustworthiness]].
-[^b]: TG [[Trust in God]].
-[^c]: [[Psalms 33.16|Ps. 33:16]]; [[Psalms 44.6|44:6 (6-8)]]. TG [[Trust Not in the Arm of Flesh]].
-[^d]: [[Proverbs 14.16|Prov. 14:16]]; [[Jeremiah 17.5|Jer. 17:5]]; [[Mormon 3.9|Morm. 3:9]]; [[Mormon 4.8|4:8.]]
+[^a]: [[Trustworthiness|TG Trustworthiness]].  
+[^b]: [[Trust in God|TG Trust in God]].  
+[^c]: [[Psalms 33.16|Ps. 33:16]]; [[Psalms 44.6|44:6 (6–8)]][[Psalms 44.7|]][[Psalms 44.8|]]. [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  
+[^d]: [[Proverbs 14.16|Prov. 14:16]]; [[Jeremiah 17.5|Jer. 17:5]]; [[Mormon 3.9|Morm. 3:9]]; [[Mormon 4.8|4:8]].  

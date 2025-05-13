@@ -5,4 +5,4 @@
 [1 Corinthians 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.21?lang=eng#p21)
 
 
-[^a]: [[1 Corinthians 5.6|1 Cor. 5:6]]; [[D&C 76.61|D&C 76:61 (58-62).]]
+[^a]: [[1 Corinthians 5.6|1 Cor. 5:6]]; [[D&C 76.58|D&C 76:61 (58–62)]][[D&C 76.59|]][[D&C 76.60|]][[D&C 76.61|]][[D&C 76.62|]].  

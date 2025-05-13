@@ -5,8 +5,8 @@
 [2 Corinthians 11:3](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.3?lang=eng#p3)
 
 
-[^a]: TG [[Devil, Church of]].
-[^b]: TG [[Fall of Man]]; [[Temptation]].
-[^c]: [[Genesis 3.1|Gen. 3:1.]]
-[^d]: [[Hebrews 13.9|Heb. 13:9.]]
-[^e]: [[Jacob 4.14|Jacob 4:14.]]
+[^a]: [[Devil|TG Devil]].  
+[^b]: [[Fall of Man|TG Fall of Man]]; [[Temptation|Temptation]].  
+[^c]: [[Genesis 3.1|Gen. 3:1]].  
+[^d]: [[Hebrews 13.9|Heb. 13:9]].  
+[^e]: [[Jacob 4.14|Jacob 4:14]].  

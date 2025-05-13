@@ -5,4 +5,4 @@
 [John 19:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.9?lang=eng#p9)
 
 
-[^a]: [[Mosiah 14.7|Mosiah 14:7]]; [[Mosiah 15.6|15:6.]]
+[^a]: [[Mosiah 14.7|Mosiah 14:7]]; [[Mosiah 15.6|15:6]].  

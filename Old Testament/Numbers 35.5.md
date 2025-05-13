@@ -5,4 +5,4 @@
 [Numbers 35:5](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.5?lang=eng#p5)
 
 
-[^a]: HEB the outside of.
+[^a]: HEB the outside of.  

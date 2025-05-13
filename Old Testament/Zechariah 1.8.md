@@ -5,4 +5,4 @@
 [Zechariah 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.8?lang=eng#p8)
 
 
-[^a]: IE of the valley.
+[^a]: IE of the valley.  

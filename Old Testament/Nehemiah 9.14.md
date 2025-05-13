@@ -5,4 +5,4 @@
 [Nehemiah 9:14](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.14?lang=eng#p14)
 
 
-[^a]: TG [[Sabbath]].
+[^a]: [[Sabbath|TG Sabbath]].  

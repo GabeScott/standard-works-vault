@@ -5,5 +5,5 @@
 [Mormon 4:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/4?lang=eng&id=p23#p23)
 
 
-[^a]: [[Words of Mormon 1.3|Morm. 1:3]]; [[Ether 9.3|Ether 9:3.]]
-[^b]: W of M 1:3.
+[^a]: [[Mormon 1.3|Morm. 1:3]]; [[Ether 9.3|Ether 9:3]].  
+[^b]: [[Words of Mormon 1.3|W of M 1:3]].  

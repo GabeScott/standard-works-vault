@@ -5,4 +5,4 @@
 [1 Samuel 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/5.9?lang=eng#p9)
 
 
-[^a]: [[1 Samuel 7.13|1 Sam. 7:13]]; [[Mormon 5.23|Morm. 5:23]]; [[Ether 1.1|Ether 1:1]]; [[D&C 87.6|D&C 87:6 (6-7).]]
+[^a]: [[1 Samuel 7.13|1 Sam. 7:13]]; [[Mormon 5.23|Morm. 5:23]]; [[Ether 1.1|Ether 1:1]]; [[D&C 87.6|D&C 87:6 (6–7)]][[D&C 87.7|]].  

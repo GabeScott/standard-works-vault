@@ -5,6 +5,6 @@
 [Helaman 16:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/16?lang=eng&id=p6#p6)
 
 
-[^a]: [[Helaman 15.5|Hel. 15:5]]; [[3 Nephi 1.22|3 Ne. 1:22.]]
-[^b]: [[Helaman 13.24|Hel. 13:24.]]
-[^c]: [[John 7.20|John 7:20.]]
+[^a]: [[Helaman 15.5|Hel. 15:5]]; [[3 Nephi 1.22|3 Ne. 1:22]].  
+[^b]: [[Helaman 13.24|Hel. 13:24]].  
+[^c]: [[John 7.20|John 7:20]].  

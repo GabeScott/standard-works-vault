@@ -5,5 +5,5 @@
 [Titus 2:3](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.3?lang=eng#p3)
 
 
-[^a]: GR slanderers, traitors, devils.
-[^b]: TG [[Gossip]].
+[^a]: GR slanderers, traitors, devils.  
+[^b]: [[Gossip|TG Gossip]].  

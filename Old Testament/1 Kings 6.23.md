@@ -5,5 +5,5 @@
 [1 Kings 6:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.23?lang=eng#p23)
 
 
-[^a]: TG [[Art]].
-[^b]: TG [[Cherubim]].
+[^a]: [[Art|TG Art]].  
+[^b]: [[Cherubim|TG Cherubim]].  

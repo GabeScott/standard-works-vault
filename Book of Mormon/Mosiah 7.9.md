@@ -5,7 +5,7 @@
 [Mosiah 7:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 11.1|Mosiah 11:1]]; [[Mosiah 19.16|19:16.]]
-[^b]: [[Omni 1.13|Omni 1:13.]]
-[^c]: TG [[Kings, Earthly]].
-[^d]: [[Mosiah 19.26|Mosiah 19:26.]]
+[^a]: [[Mosiah 11.1|Mosiah 11:1]]; [[Mosiah 19.16|19:16]].  
+[^b]: [[Omni 1.13|Omni 1:13]].  
+[^c]: [[Kings, Earthly|TG Kings, Earthly]].  
+[^d]: [[Mosiah 19.26|Mosiah 19:26]].  

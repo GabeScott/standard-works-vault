@@ -5,4 +5,4 @@
 [Nehemiah 10:30](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.30?lang=eng#p30)
 
 
-[^a]: TG [[Marriage, Interfaith]].
+[^a]: [[Marriage, Interfaith|TG Marriage, Interfaith]].  

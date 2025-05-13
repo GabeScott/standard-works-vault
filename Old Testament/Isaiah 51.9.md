@@ -5,5 +5,5 @@
 [Isaiah 51:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.9?lang=eng#p9)
 
 
-[^a]: TG [[Strength]].
-[^b]: [[Psalms 74.13|Ps. 74:13]]; [[Isaiah 27.1|Isa. 27:1.]]
+[^a]: [[Strength|TG Strength]].  
+[^b]: [[Psalms 74.13|Ps. 74:13]]; [[Isaiah 27.1|Isa. 27:1]].  

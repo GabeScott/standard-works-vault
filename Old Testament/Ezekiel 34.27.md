@@ -5,7 +5,7 @@
 [Ezekiel 34:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.27?lang=eng#p27)
 
 
-[^a]: TG [[Earth, Destiny of]].
-[^b]: [[Psalms 119.117|Ps. 119:117.]]
-[^c]: TG [[Bondage, Physical]]; [[Bondage, Spiritual]].
-[^d]: HEB enslaved them.
+[^a]: [[Earth, Destiny of|TG Earth, Destiny of]].  
+[^b]: [[Psalms 119.117|Ps. 119:117]].  
+[^c]: [[Bondage, Physical|TG Bondage, Physical]]; [[Bondage, Spiritual|Bondage, Spiritual]].  
+[^d]: HEB enslaved them.  

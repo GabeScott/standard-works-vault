@@ -5,4 +5,4 @@
 [Genesis 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.2?lang=eng#p2)
 
 
-[^a]: TG [[Wash, Washing]].
+[^a]: [[Wash, Washing|TG Wash]].  

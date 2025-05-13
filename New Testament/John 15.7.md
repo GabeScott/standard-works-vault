@@ -5,5 +5,5 @@
 [John 15:7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.7?lang=eng#p7)
 
 
-[^a]: TG [[Problem-Solving]].
-[^b]: TG [[Prayer, Pray]].
+[^a]: [[Problem-Solving|TG Problem-Solving]].  
+[^b]: [[Prayer, Pray|TG Prayer]].  

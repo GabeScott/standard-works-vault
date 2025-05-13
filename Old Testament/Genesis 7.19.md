@@ -5,5 +5,5 @@
 [Genesis 7:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/7.19?lang=eng#p19)
 
 
-[^a]: [[Psalms 104.6|Ps. 104:6]]; 2 Pet. 3:6.
-[^b]: [[Ether 13.2|Ether 13:2.]]
+[^a]: [[Psalms 104.6|Ps. 104:6]]; [[2 Peter 3.6|2 Pet. 3:6]].  
+[^b]: [[Ether 13.2|Ether 13:2]].  

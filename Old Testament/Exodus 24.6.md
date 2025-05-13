@@ -5,4 +5,4 @@
 [Exodus 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.6?lang=eng#p6)
 
 
-[^a]: [[Hebrews 9.19|Heb. 9:19 (18-22).]]
+[^a]: [[Hebrews 9.18|Heb. 9:19 (18–22)]][[Hebrews 9.19|]][[Hebrews 9.20|]][[Hebrews 9.21|]][[Hebrews 9.22|]].  

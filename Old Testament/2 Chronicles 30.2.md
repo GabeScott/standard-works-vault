@@ -5,4 +5,4 @@
 [2 Chronicles 30:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.2?lang=eng#p2)
 
 
-[^a]: [[Numbers 9.11|Num. 9:11 (10-11).]]
+[^a]: [[Numbers 9.10|Num. 9:11 (10–11)]][[Numbers 9.11|]].  

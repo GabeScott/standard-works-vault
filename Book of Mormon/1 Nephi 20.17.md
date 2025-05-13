@@ -5,5 +5,5 @@
 [1 Nephi 20:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Jesus Christ, Jehovah]].
-[^b]: TG [[Guidance, Divine]].
+[^a]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^b]: [[Guidance, Divine|TG Guidance, Divine]].  

@@ -5,5 +5,5 @@
 [John 12:7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.7?lang=eng#p7)
 
 
-[^a]: JST John 12:7 … for she hath preserved this ointment until now, that she might anoint me in token of my burial.
-[^b]: [[Mark 14.9|Mark 14:9.]]
+[^a]: JST John 12:7 … for she hath preserved this ointment until now, that she might anoint me in token of my burial.  
+[^b]: [[Mark 14.9|Mark 14:9]].  

@@ -5,4 +5,4 @@
 [3 Nephi 8:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/8?lang=eng&id=p25#p25)
 
 
-[^a]: [[3 Nephi 8.10|3 Ne. 8:10]]; [[3 Nephi 9.5|9:5.]]
+[^a]: [[3 Nephi 8.10|3 Ne. 8:10]]; [[3 Nephi 9.5|9:5]].  

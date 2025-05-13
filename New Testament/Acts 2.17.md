@@ -5,8 +5,8 @@
 [Acts 2:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.17?lang=eng#p17)
 
 
-[^a]: TG [[Last Days]].
-[^b]: [[Joel 2.28|Joel 2:28.]]
-[^c]: [[Isaiah 44.3|Isa. 44:3]]; [[Ezekiel 36.27|Ezek. 36:27 (26-27)]]; [[D&C 19.38|D&C 19:38]]; [[D&C 44.2|44:2]]; [[D&C 95.4|95:4.]]
-[^d]: [[Acts 21.9|Acts 21:9]]. TG [[Holy Ghost, Gifts of]].
-[^e]: TG [[Dream]].
+[^a]: [[Last Days|TG Last Days]].  
+[^b]: [[Joel 2.28|Joel 2:28]].  
+[^c]: [[Isaiah 44.3|Isa. 44:3]]; [[Ezekiel 36.26|Ezek. 36:27 (26–27)]][[Ezekiel 36.27|]]; [[D&C 19.38|D&C 19:38]]; [[D&C 44.2|44:2]]; [[D&C 95.4|95:4]].  
+[^d]: [[Acts 21.9|Acts 21:9]]. [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  
+[^e]: [[Dream|TG Dream]].  

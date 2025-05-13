@@ -5,5 +5,5 @@
 [D&C 8:11](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/8.11?lang=eng#p11)
 
 
-[^a]: [[D&C 1.29|D&C 1:29]]; 9:1, 10.
-[^b]: TG [[Sacred]].
+[^a]: [[D&C 1.29|D&C 1:29]]; [[D&C 9.1|9:1, 10]][[D&C 9.10|]].  
+[^b]: [[Sacred|TG Sacred]].  

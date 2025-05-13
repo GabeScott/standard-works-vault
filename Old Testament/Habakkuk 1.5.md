@@ -5,4 +5,4 @@
 [Habakkuk 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/1.5?lang=eng#p5)
 
 
-[^a]: [[Acts 13.41|Acts 13:41 (40-41).]]
+[^a]: [[Acts 13.40|Acts 13:41 (40–41)]][[Acts 13.41|]].  

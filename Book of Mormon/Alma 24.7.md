@@ -5,4 +5,4 @@
 [Alma 24:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p7#p7)
 
 
-[^a]: [[Mosiah 1.5|Mosiah 1:5.]]
+[^a]: [[Mosiah 1.5|Mosiah 1:5]].  

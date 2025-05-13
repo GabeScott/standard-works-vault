@@ -5,6 +5,6 @@
 [Matthew 8:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.17?lang=eng#p17)
 
 
-[^a]: GR He Himself.
-[^b]: TG [[Jesus Christ, Atonement through]].
-[^c]: TG [[Sickness, Sick]].
+[^a]: GR He Himself.  
+[^b]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  
+[^c]: [[Sickness, Sick|TG Sickness]].  

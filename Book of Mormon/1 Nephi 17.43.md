@@ -5,4 +5,4 @@
 [1 Nephi 17:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p43#p43)
 
 
-[^a]: [[Hosea 7.13|Hosea 7:13]]. TG [[Israel, Scattering of]].
+[^a]: [[Hosea 7.13|Hosea 7:13]]. [[Israel, Scattering of|TG Israel, Scattering of]].  

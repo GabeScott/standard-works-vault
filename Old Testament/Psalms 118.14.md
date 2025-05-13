@@ -5,5 +5,5 @@
 [Psalms 118:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.14?lang=eng#p14)
 
 
-[^a]: TG [[Strength]].
-[^b]: TG [[Salvation for the Dead]].
+[^a]: [[Strength|TG Strength]].  
+[^b]: [[Salvation|TG Salvation]].  

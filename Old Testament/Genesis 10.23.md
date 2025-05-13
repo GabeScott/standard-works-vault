@@ -5,4 +5,4 @@
 [Genesis 10:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.23?lang=eng#p23)
 
 
-[^a]: [[Job 1.1|Job 1:1.]]
+[^a]: [[Job 1.1|Job 1:1]].  

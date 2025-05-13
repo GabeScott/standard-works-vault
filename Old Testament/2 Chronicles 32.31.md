@@ -5,4 +5,4 @@
 [2 Chronicles 32:31](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.31?lang=eng#p31)
 
 
-[^a]: [[Deuteronomy 8.2|Deut. 8:2 (2-6).]]
+[^a]: [[Deuteronomy 8.2|Deut. 8:2 (2–6)]][[Deuteronomy 8.3|]][[Deuteronomy 8.4|]][[Deuteronomy 8.5|]][[Deuteronomy 8.6|]].  

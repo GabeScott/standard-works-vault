@@ -5,4 +5,4 @@
 [Ezra 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.7?lang=eng#p7)
 
 
-[^a]: HEB shame.
+[^a]: HEB shame.  

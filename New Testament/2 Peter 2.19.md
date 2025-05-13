@@ -5,7 +5,7 @@
 [2 Peter 2:19](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.19?lang=eng#p19)
 
 
-[^a]: TG [[Liberty]].
-[^b]: GR slaves. Jude 1:4.
-[^c]: TG [[Sin]].
-[^d]: TG [[Bondage, Spiritual]].
+[^a]: [[Liberty|TG Liberty]].  
+[^b]: GR slaves. [[Jude 1.4|Jude 1:4]].  
+[^c]: [[Sin|TG Sin]].  
+[^d]: [[Bondage, Spiritual|TG Bondage, Spiritual]].  

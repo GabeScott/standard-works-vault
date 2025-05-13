@@ -5,4 +5,4 @@
 [Alma 8:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p24#p24)
 
 
-[^a]: [[Alma 8.13|Alma 8:13.]]
+[^a]: [[Alma 8.13|Alma 8:13]].  

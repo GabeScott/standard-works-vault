@@ -5,5 +5,5 @@
 [Exodus 7:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.15?lang=eng#p15)
 
 
-[^a]: HEB to meet him.
-[^b]: [[Exodus 4.17|Ex. 4:17.]]
+[^a]: HEB to meet him.  
+[^b]: [[Exodus 4.17|Ex. 4:17]].  

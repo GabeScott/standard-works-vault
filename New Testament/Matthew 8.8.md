@@ -5,5 +5,5 @@
 [Matthew 8:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.8?lang=eng#p8)
 
 
-[^a]: GR fit, qualified.
-[^b]: TG [[Health]].
+[^a]: GR fit, qualified.  
+[^b]: [[Heal, Healing|TG Heal]].  

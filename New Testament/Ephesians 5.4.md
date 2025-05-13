@@ -5,6 +5,6 @@
 [Ephesians 5:4](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.4?lang=eng#p4)
 
 
-[^a]: TG [[Filthiness, Filthy]].
-[^b]: TG [[Levity]].
-[^c]: [[Ecclesiastes 5.2|Eccl. 5:2]]; [[Matthew 12.36|Matt. 12:36.]]
+[^a]: [[Filthiness, Filthy|TG Filthiness]].  
+[^b]: [[Levity|TG Levity]].  
+[^c]: [[Ecclesiastes 5.2|Eccl. 5:2]]; [[Matthew 12.36|Matt. 12:36]].  

@@ -5,4 +5,4 @@
 [Joshua 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 13.15|Gen. 13:15 (14-17)]]; [[Genesis 15.18|15:18 (18-21).]]
+[^a]: [[Genesis 13.14|Gen. 13:15 (14–17)]][[Genesis 13.15|]][[Genesis 13.16|]][[Genesis 13.17|]]; [[Genesis 15.18|15:18 (18–21)]][[Genesis 15.19|]][[Genesis 15.20|]][[Genesis 15.21|]].  

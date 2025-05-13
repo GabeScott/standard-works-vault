@@ -5,4 +5,4 @@
 [Alma 63:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/63?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 1.2|Alma 1:2 (1-2).]]
+[^a]: [[Alma 1.1|Alma 1:2 (1–2)]][[Alma 1.2|]].  

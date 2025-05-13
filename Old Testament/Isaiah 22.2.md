@@ -5,4 +5,4 @@
 [Isaiah 22:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.2?lang=eng#p2)
 
 
-[^a]: OR noise.
+[^a]: OR noise.  

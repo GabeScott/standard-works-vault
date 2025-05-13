@@ -5,6 +5,6 @@
 [Galatians 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.10?lang=eng#p10)
 
 
-[^a]: TG [[Dependability]].
-[^b]: GR will take no other view, will not have a different opinion.
-[^c]: [[Galatians 1.7|Gal. 1:7.]]
+[^a]: [[Dependability|TG Dependability]].  
+[^b]: GR will take no other view, will not have a different opinion.  
+[^c]: [[Galatians 1.7|Gal. 1:7]].  

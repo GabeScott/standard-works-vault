@@ -5,5 +5,5 @@
 [Jeremiah 52:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.18?lang=eng#p18)
 
 
-[^a]: OR pans.
-[^b]: IE instruments to extinguish lamps.
+[^a]: OR pans.  
+[^b]: IE instruments to extinguish lamps.  

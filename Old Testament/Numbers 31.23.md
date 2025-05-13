@@ -5,4 +5,4 @@
 [Numbers 31:23](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.23?lang=eng#p23)
 
 
-[^a]: HEB impurity; i.e., water for cleansing impurity.
+[^a]: HEB impurity; i.e., water for cleansing impurity.  

@@ -5,4 +5,4 @@
 [Genesis 31:54](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.54?lang=eng#p54)
 
 
-[^a]: [[Ezekiel 44.3|Ezek. 44:3 (1-3).]]
+[^a]: [[Ezekiel 44.1|Ezek. 44:3 (1–3)]][[Ezekiel 44.2|]][[Ezekiel 44.3|]].  

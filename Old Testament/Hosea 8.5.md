@@ -5,5 +5,5 @@
 [Hosea 8:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/8.5?lang=eng#p5)
 
 
-[^a]: [[1 Kings 12.28|1 Kgs. 12:28 (28-30)]]; [[Acts 7.41|Acts 7:41.]]
-[^b]: OR before they become clean.
+[^a]: [[1 Kings 12.28|1 Kgs. 12:28 (28–30)]][[1 Kings 12.29|]][[1 Kings 12.30|]]; [[Acts 7.41|Acts 7:41]].  
+[^b]: OR before they become clean.  

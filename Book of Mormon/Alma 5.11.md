@@ -5,4 +5,4 @@
 [Alma 5:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p11#p11)
 
 
-[^a]: [[Mosiah 17.2|Mosiah 17:2 (2-4).]]
+[^a]: [[Mosiah 17.2|Mosiah 17:2 (2–4)]][[Mosiah 17.3|]][[Mosiah 17.4|]].  

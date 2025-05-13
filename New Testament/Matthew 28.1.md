@@ -5,5 +5,5 @@
 [Matthew 28:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.1?lang=eng#p1)
 
 
-[^a]: GR After the sabbath.
-[^b]: TG [[Sabbath]].
+[^a]: GR After the sabbath.  
+[^b]: [[Sabbath|TG Sabbath]].  

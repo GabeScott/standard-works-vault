@@ -5,4 +5,4 @@
 [Acts 16:18](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.18?lang=eng#p18)
 
 
-[^a]: TG [[Spirits, Evil or Unclean]].
+[^a]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

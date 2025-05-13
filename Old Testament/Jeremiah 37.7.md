@@ -5,5 +5,5 @@
 [Jeremiah 37:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/37.7?lang=eng#p7)
 
 
-[^a]: [[Ezekiel 17.17|Ezek. 17:17.]]
-[^b]: Lam. 4:17.
+[^a]: [[Ezekiel 17.17|Ezek. 17:17]].  
+[^b]: [[Lamentations 4.17|Lam. 4:17]].  

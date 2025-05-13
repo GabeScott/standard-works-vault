@@ -5,4 +5,4 @@
 [Alma 32:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p11#p11)
 
 
-[^a]: [[Mosiah 18.25|Mosiah 18:25.]]
+[^a]: [[Mosiah 18.25|Mosiah 18:25]].  

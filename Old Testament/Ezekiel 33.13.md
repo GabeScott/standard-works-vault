@@ -5,5 +5,5 @@
 [Ezekiel 33:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.13?lang=eng#p13)
 
 
-[^a]: TG [[Trustworthiness]].
-[^b]: TG [[Apostasy of Individuals]].
+[^a]: [[Trustworthiness|TG Trustworthiness]].  
+[^b]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  

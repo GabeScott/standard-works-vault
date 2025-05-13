@@ -5,4 +5,4 @@
 [Ezra 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/5.3?lang=eng#p3)
 
 
-[^a]: IE on the west side of the Euphrates River, including Syria and Cilicia.
+[^a]: IE on the west side of the Euphrates River, including Syria and Cilicia.  

@@ -5,5 +5,5 @@
 [1 Nephi 20:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p13#p13)
 
 
-[^a]: [[Psalms 102.25|Ps. 102:25]]. TG [[God the Father, Jehovah]]; [[Jesus Christ, Creator]].
-[^b]: [[Psalms 148.8|Ps. 148:8 (5-10).]]
+[^a]: [[Psalms 102.25|Ps. 102:25]]. [[God the Father, Jehovah|TG God the Father, Jehovah]]; [[Jesus Christ, Creator|Jesus Christ, Creator]].  
+[^b]: [[Psalms 148.5|Ps. 148:8 (5–10)]][[Psalms 148.6|]][[Psalms 148.7|]][[Psalms 148.8|]][[Psalms 148.9|]][[Psalms 148.10|]].  

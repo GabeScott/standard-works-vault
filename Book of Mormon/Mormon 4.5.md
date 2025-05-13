@@ -5,5 +5,5 @@
 [Mormon 4:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/4?lang=eng&id=p5#p5)
 
 
-[^a]: [[Nahum 1.3|Nahum 1:3.]]
-[^b]: 2 Pet. 2:12; [[D&C 63.33|D&C 63:33.]]
+[^a]: [[Nahum 1.3|Nahum 1:3]].  
+[^b]: [[2 Peter 2.12|2 Pet. 2:12]]; [[D&C 63.33|D&C 63:33]].  

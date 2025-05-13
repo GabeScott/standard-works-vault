@@ -5,4 +5,4 @@
 [Jeremiah 25:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.17?lang=eng#p17)
 
 
-[^a]: [[Isaiah 51.23|Isa. 51:23.]]
+[^a]: [[Isaiah 51.23|Isa. 51:23]].  

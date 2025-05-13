@@ -5,4 +5,4 @@
 [Ezekiel 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.18?lang=eng#p18)
 
 
-[^a]: HEB bands or coverings to all elbows (trappings for magical arts).
+[^a]: HEB bands or coverings to all elbows (trappings for magical arts).  

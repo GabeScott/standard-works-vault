@@ -5,5 +5,5 @@
 [Luke 17:3](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.3?lang=eng#p3)
 
 
-[^a]: [[Matthew 18.15|Matt. 18:15 (15-17).]]
-[^b]: TG [[Forgive, Forgiveness]].
+[^a]: [[Matthew 18.15|Matt. 18:15 (15–17)]][[Matthew 18.16|]][[Matthew 18.17|]].  
+[^b]: [[Forgive, Forgiveness|TG Forgive]].  

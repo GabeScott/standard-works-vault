@@ -5,4 +5,4 @@
 [Jeremiah 34:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 26.3|Ezek. 26:3.]]
+[^a]: [[Ezekiel 26.3|Ezek. 26:3]].  

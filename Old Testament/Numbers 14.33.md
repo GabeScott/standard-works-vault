@@ -5,5 +5,5 @@
 [Numbers 14:33](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.33?lang=eng#p33)
 
 
-[^a]: [[Psalms 95.10|Ps. 95:10]]; [[Amos 2.10|Amos 2:10.]]
-[^b]: OR suffer for your faithlessness.
+[^a]: [[Psalms 95.10|Ps. 95:10]]; [[Amos 2.10|Amos 2:10]].  
+[^b]: OR suffer for your faithlessness.  

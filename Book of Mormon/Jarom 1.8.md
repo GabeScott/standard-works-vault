@@ -5,7 +5,7 @@
 [Jarom 1:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/jarom/1?lang=eng&id=p8#p8)
 
 
-[^a]: [[2 Nephi 5.15|2 Ne. 5:15.]]
-[^b]: TG [[Art]].
-[^c]: TG [[Skill]].
-[^d]: [[2 Nephi 5.14|2 Ne. 5:14]]; [[Mosiah 10.8|Mosiah 10:8.]]
+[^a]: [[2 Nephi 5.15|2 Ne. 5:15]].  
+[^b]: [[Art|TG Art]].  
+[^c]: [[Skill|TG Skill]].  
+[^d]: [[2 Nephi 5.14|2 Ne. 5:14]]; [[Mosiah 10.8|Mosiah 10:8]].  

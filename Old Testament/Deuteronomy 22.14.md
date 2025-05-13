@@ -5,5 +5,5 @@
 [Deuteronomy 22:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.14?lang=eng#p14)
 
 
-[^a]: OR charge her with misconduct (also v. 17).
-[^b]: HEB virgin (also v. 17).
+[^a]: OR charge her with misconduct (also [[Deuteronomy 22.17|v. 17]]).  
+[^b]: HEB virgin (also [[Deuteronomy 22.17|v. 17]]).  

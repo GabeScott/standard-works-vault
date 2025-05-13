@@ -5,5 +5,5 @@
 [Alma 48:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Strength]].
-[^b]: [[Alma 18.22|Alma 18:22]]. TG [[Understanding]].
+[^a]: [[Strength|TG Strength]].  
+[^b]: [[Alma 18.22|Alma 18:22]]. [[Understanding|TG Understanding]].  

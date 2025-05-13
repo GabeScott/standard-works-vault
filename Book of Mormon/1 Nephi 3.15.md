@@ -5,5 +5,5 @@
 [1 Nephi 3:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Oath]]; [[Promise]].
-[^b]: TG [[Commitment]]; [[Dedication, Dedicate]].
+[^a]: [[Oath|TG Oath]]; [[Promise|Promise]].  
+[^b]: [[Commitment|TG Commitment]]; [[Dedication, Dedicate|Dedication]].  

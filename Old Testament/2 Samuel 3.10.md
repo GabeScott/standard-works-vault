@@ -5,4 +5,4 @@
 [2 Samuel 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/3.10?lang=eng#p10)
 
 
-[^a]: OR transfer.
+[^a]: OR transfer.  

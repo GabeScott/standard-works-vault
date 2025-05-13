@@ -5,4 +5,4 @@
 [2 Corinthians 13:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/13.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 19.15|Deut. 19:15]]; [[D&C 6.28|D&C 6:28]]. TG [[Book of Mormon]]; [[Witness, Witnesses]].
+[^a]: [[Deuteronomy 19.15|Deut. 19:15]]; [[D&C 6.28|D&C 6:28]]. [[Book of Mormon|TG Book of Mormon]]; [[Witness, Witnesses|Witness]].  

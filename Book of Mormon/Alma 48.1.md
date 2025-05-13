@@ -5,6 +5,6 @@
 [Alma 48:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 52.3|Alma 52:3 (1-3)]]; [[Alma 54.5|54:5.]]
-[^b]: [[Alma 62.35|Alma 62:35.]]
-[^c]: [[Mosiah 2.8|Mosiah 2:8.]]
+[^a]: [[Alma 52.1|Alma 52:3 (1–3)]][[Alma 52.2|]][[Alma 52.3|]]; [[Alma 54.5|54:5]].  
+[^b]: [[Alma 62.35|Alma 62:35]].  
+[^c]: [[Mosiah 2.8|Mosiah 2:8]].  

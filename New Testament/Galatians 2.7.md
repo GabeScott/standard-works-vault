@@ -5,6 +5,6 @@
 [Galatians 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.7?lang=eng#p7)
 
 
-[^a]: [[1 Corinthians 9.17|1 Cor. 9:17.]]
-[^b]: TG [[Circumcision]].
-[^c]: [[1 Corinthians 9.1|1 Cor. 9:1.]]
+[^a]: [[1 Corinthians 9.17|1 Cor. 9:17]].  
+[^b]: [[Circumcision|TG Circumcision]].  
+[^c]: [[1 Corinthians 9.1|1 Cor. 9:1]].  

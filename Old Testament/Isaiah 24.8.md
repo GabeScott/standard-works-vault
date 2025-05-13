@@ -5,5 +5,5 @@
 [Isaiah 24:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.8?lang=eng#p8)
 
 
-[^a]: HEB drums.
-[^b]: [[Hosea 2.11|Hosea 2:11.]]
+[^a]: HEB drums.  
+[^b]: [[Hosea 2.11|Hosea 2:11]].  

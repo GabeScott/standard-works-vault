@@ -5,4 +5,4 @@
 [Numbers 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/12.1?lang=eng#p1)
 
 
-[^a]: HEB Cushite.
+[^a]: HEB Cushite.  

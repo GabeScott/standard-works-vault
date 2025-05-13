@@ -5,4 +5,4 @@
 [Ecclesiastes 2:26](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.26?lang=eng#p26)
 
 
-[^a]: [[Proverbs 13.22|Prov. 13:22.]]
+[^a]: [[Proverbs 13.22|Prov. 13:22]].  

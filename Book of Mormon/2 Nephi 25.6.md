@@ -5,4 +5,4 @@
 [2 Nephi 25:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p6#p6)
 
 
-[^a]: [[2 Nephi 6.8|2 Ne. 6:8]]; [[Helaman 8.20|Hel. 8:20 (20-21).]]
+[^a]: [[2 Nephi 6.8|2 Ne. 6:8]]; [[Helaman 8.20|Hel. 8:20 (20–21)]][[Helaman 8.21|]].  

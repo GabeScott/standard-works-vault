@@ -5,6 +5,6 @@
 [1 Corinthians 5:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/5.7?lang=eng#p7)
 
 
-[^a]: [[D&C 43.11|D&C 43:11.]]
-[^b]: TG [[Bread, Unleavened]].
-[^c]: TG [[Jesus Christ, Types of, in Anticipation]]; [[Passover]].
+[^a]: [[D&C 43.11|D&C 43:11]].  
+[^b]: [[Bread, Unleavened|TG Bread, Unleavened]].  
+[^c]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]]; [[Passover|Passover]].  

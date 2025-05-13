@@ -5,4 +5,4 @@
 [Nahum 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/3.13?lang=eng#p13)
 
 
-[^a]: [[Jeremiah 51.30|Jer. 51:30.]]
+[^a]: [[Jeremiah 51.30|Jer. 51:30]].  

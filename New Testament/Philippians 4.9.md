@@ -5,4 +5,4 @@
 [Philippians 4:9](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.9?lang=eng#p9)
 
 
-[^a]: 1 Thes. 4:1.
+[^a]: [[1 Thessalonians 4.1|1 Thes. 4:1]].  

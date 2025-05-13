@@ -5,4 +5,4 @@
 [Alma 5:61](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p61#p61)
 
 
-[^a]: [[Alma 5.1|Alma 5:1 (1, 44).]]
+[^a]: [[Alma 5.1|Alma 5:1 (1, 44)]][[Alma 5.44|]].  

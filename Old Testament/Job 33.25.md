@@ -5,4 +5,4 @@
 [Job 33:25](https://www.churchofjesuschrist.org/study/scriptures/ot/job/33.25?lang=eng#p25)
 
 
-[^a]: [[2 Kings 5.14|2 Kgs. 5:14.]]
+[^a]: [[2 Kings 5.14|2 Kgs. 5:14]].  

@@ -5,7 +5,7 @@
 [1 Nephi 1:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Apostasy of Israel]].
-[^b]: [[2 Chronicles 36.16|2 Chr. 36:16]]; [[Jeremiah 25.4|Jer. 25:4 (1-4)]]; [[Ezekiel 5.6|Ezek. 5:6]]; [[1 Nephi 2.13|1 Ne. 2:13]]; [[1 Nephi 7.14|7:14.]]
-[^c]: [[1 Nephi 17.22|1 Ne. 17:22.]]
-[^d]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  
+[^b]: [[2 Chronicles 36.16|2 Chr. 36:16]]; [[Jeremiah 25.1|Jer. 25:4 (1–4)]][[Jeremiah 25.2|]][[Jeremiah 25.3|]][[Jeremiah 25.4|]]; [[Ezekiel 5.6|Ezek. 5:6]]; [[1 Nephi 2.13|1 Ne. 2:13]]; [[1 Nephi 7.14|7:14]].  
+[^c]: [[1 Nephi 17.22|1 Ne. 17:22]].  
+[^d]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

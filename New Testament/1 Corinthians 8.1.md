@@ -5,7 +5,7 @@
 [1 Corinthians 8:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/8.1?lang=eng#p1)
 
 
-[^a]: GR concerning.
-[^b]: [[Acts 15.29|Acts 15:29.]]
-[^c]: GR love. TG [[Charity]].
-[^d]: GR builds up, strengthens, establishes, repairs. TG [[Edification, Edify]].
+[^a]: GR concerning.  
+[^b]: [[Acts 15.29|Acts 15:29]].  
+[^c]: GR love. [[Charity|TG Charity]].  
+[^d]: GR builds up, strengthens, establishes, repairs. [[Edification, Edify|TG Edification]].  

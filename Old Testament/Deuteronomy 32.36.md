@@ -5,6 +5,6 @@
 [Deuteronomy 32:36](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.36?lang=eng#p36)
 
 
-[^a]: TG [[Jesus Christ, Judge]].
-[^b]: [[Numbers 23.19|Num. 23:19.]]
-[^c]: HEB left, bond or free.
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  
+[^b]: [[Numbers 23.19|Num. 23:19]].  
+[^c]: HEB left, bond or free.  

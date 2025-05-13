@@ -5,7 +5,7 @@
 [Galatians 2:9](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.9?lang=eng#p9)
 
 
-[^a]: [[John 1.42|John 1:42.]]
-[^b]: TG [[Grace]].
-[^c]: TG [[Fellowshipping]].
-[^d]: GR nations, Gentiles.
+[^a]: [[John 1.42|John 1:42]].  
+[^b]: [[Grace|TG Grace]].  
+[^c]: [[Fellowshipping|TG Fellowshipping]].  
+[^d]: GR nations, Gentiles.  

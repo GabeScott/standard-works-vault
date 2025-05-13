@@ -5,6 +5,6 @@
 [Acts 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.18?lang=eng#p18)
 
 
-[^a]: TG [[Foreordination]].
-[^b]: [[Luke 24.27|Luke 24:27]]; [[Acts 28.23|Acts 28:23]]; [[Alma 18.36|Alma 18:36.]]
-[^c]: [[1 Corinthians 15.3|1 Cor. 15:3.]]
+[^a]: [[Foreordination|TG Foreordination]].  
+[^b]: [[Luke 24.27|Luke 24:27]]; [[Acts 28.23|Acts 28:23]]; [[Alma 18.36|Alma 18:36]].  
+[^c]: [[1 Corinthians 15.3|1 Cor. 15:3]].  

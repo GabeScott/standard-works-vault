@@ -5,5 +5,5 @@
 [Abraham 2:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/2.4?lang=eng#p4)
 
 
-[^a]: [[Nehemiah 9.7|Neh. 9:7]]; Abr. 1:1, 20, 29-30.
-[^b]: [[Genesis 11.31|Gen. 11:31 (31-32).]]
+[^a]: [[Nehemiah 9.7|Neh. 9:7]]; [[Abraham 1.1|Abr. 1:1, 20, 29–30]][[Abraham 1.20|]][[Abraham 1.29|]][[Abraham 1.30|]].  
+[^b]: [[Genesis 11.31|Gen. 11:31 (31–32)]][[Genesis 11.32|]].  

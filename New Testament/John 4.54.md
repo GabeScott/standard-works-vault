@@ -5,4 +5,4 @@
 [John 4:54](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.54?lang=eng#p54)
 
 
-[^a]: [[John 2.11|John 2:11.]]
+[^a]: [[John 2.11|John 2:11]].  

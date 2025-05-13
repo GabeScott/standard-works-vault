@@ -5,6 +5,6 @@
 [Numbers 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/num/12.6?lang=eng#p6)
 
 
-[^a]: TG [[Prophets, Mission of]].
-[^b]: TG [[Vision]].
-[^c]: TG [[Dream]].
+[^a]: [[Prophets, Mission of|TG Prophets, Mission of]].  
+[^b]: [[Vision|TG Vision]].  
+[^c]: [[Dream|TG Dream]].  

@@ -5,5 +5,5 @@
 [Ezekiel 26:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 23.1|Isa. 23:1]]; [[Amos 1.9|Amos 1:9.]]
-[^b]: TG [[Jerusalem]].
+[^a]: [[Isaiah 23.1|Isa. 23:1]]; [[Amos 1.9|Amos 1:9]].  
+[^b]: [[Jerusalem|TG Jerusalem]].  

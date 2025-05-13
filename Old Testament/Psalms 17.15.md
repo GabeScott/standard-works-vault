@@ -5,5 +5,5 @@
 [Psalms 17:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/17.15?lang=eng#p15)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Resurrection|TG Resurrection]].  

@@ -5,7 +5,7 @@
 [Hebrews 13:4](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.4?lang=eng#p4)
 
 
-[^a]: TG [[Marriage, Marry]]; [[Marriage, Temporal]].
-[^b]: TG [[Whore, Whoredom]].
-[^c]: TG [[Adulterer, Adultery]].
-[^d]: TG [[Jesus Christ, Judge]].
+[^a]: [[Marriage, Marry|TG Marriage, Marry]]; [[Marriage, Temporal|Marriage, Temporal]].  
+[^b]: [[Whore, Whoredom|TG Whore]].  
+[^c]: [[Adulterer, Adultery|TG Adulterer]].  
+[^d]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

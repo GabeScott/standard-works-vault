@@ -5,5 +5,5 @@
 [Deuteronomy 28:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.11?lang=eng#p11)
 
 
-[^a]: [[Deuteronomy 30.9|Deut. 30:9 (8-10).]]
-[^b]: TG [[Birth Control]].
+[^a]: [[Deuteronomy 30.8|Deut. 30:9 (8–10)]][[Deuteronomy 30.9|]][[Deuteronomy 30.10|]].  
+[^b]: [[Birth Control|TG Birth Control]].  

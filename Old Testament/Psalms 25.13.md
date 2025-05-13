@@ -5,4 +5,4 @@
 [Psalms 25:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.13?lang=eng#p13)
 
 
-[^a]: TG [[Earth, Destiny of]].
+[^a]: [[Earth, Destiny of|TG Earth, Destiny of]].  

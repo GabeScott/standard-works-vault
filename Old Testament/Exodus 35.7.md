@@ -5,4 +5,4 @@
 [Exodus 35:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.7?lang=eng#p7)
 
 
-[^a]: HEB acacia (also v. 24).
+[^a]: HEB acacia (also [[Exodus 35.24|v. 24]]).  

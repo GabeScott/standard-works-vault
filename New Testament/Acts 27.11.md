@@ -5,4 +5,4 @@
 [Acts 27:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.11?lang=eng#p11)
 
 
-[^a]: GR ship master, captain.
+[^a]: GR ship master, captain.  

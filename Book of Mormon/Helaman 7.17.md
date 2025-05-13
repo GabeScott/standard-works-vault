@@ -5,4 +5,4 @@
 [Helaman 7:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p17#p17)
 
 
-[^a]: [[Isaiah 1.5|Isa. 1:5 (5-6)]]; [[Ezekiel 18.23|Ezek. 18:23 (23, 32).]]
+[^a]: [[Isaiah 1.5|Isa. 1:5 (5–6)]][[Isaiah 1.6|]]; [[Ezekiel 18.23|Ezek. 18:23 (23, 32)]][[Ezekiel 18.32|]].  

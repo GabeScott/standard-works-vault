@@ -5,8 +5,8 @@
 [1 Peter 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.5?lang=eng#p5)
 
 
-[^a]: GR living.
-[^b]: TG [[Spirituality]].
-[^c]: [[Hebrews 3.6|Heb. 3:6.]]
-[^d]: TG [[Priesthood, Magnifying Callings within]].
-[^e]: TG [[Jesus Christ, Types of, in Memory]]; [[Self-Sacrifice]].
+[^a]: GR living.  
+[^b]: [[Spirituality|TG Spirituality]].  
+[^c]: [[Hebrews 3.6|Heb. 3:6]].  
+[^d]: [[Priesthood, Magnifying Callings within|TG Priesthood, Magnifying Callings within]].  
+[^e]: [[Jesus Christ, Types of, in Memory|TG Jesus Christ, Types of, in Memory]]; [[Sacrifice|Sacrifice]].  

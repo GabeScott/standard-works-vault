@@ -5,4 +5,4 @@
 [Ether 13:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Covet, Covetousness]]; [[Selfishness]].
+[^a]: [[Covet, Covetousness|TG Covet]]; [[Selfishness|Selfishness]].  

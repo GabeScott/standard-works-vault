@@ -5,8 +5,8 @@
 [Matthew 27:52](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.52?lang=eng#p52)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
-[^b]: [[D&C 129.1|D&C 129:1.]]
-[^c]: TG [[Mission of Latter-day Saints]].
-[^d]: GR who had died.
-[^e]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^b]: [[D&C 129.1|D&C 129:1]].  
+[^c]: [[Saints|TG Saints]].  
+[^d]: GR who had died.  
+[^e]: [[Resurrection|TG Resurrection]].  

@@ -5,4 +5,4 @@
 [Isaiah 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.9?lang=eng#p9)
 
 
-[^a]: HEB fine linen.
+[^a]: HEB fine linen.  

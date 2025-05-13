@@ -5,6 +5,6 @@
 [Isaiah 55:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.2?lang=eng#p2)
 
 
-[^a]: TG [[Waste]].
-[^b]: TG [[Labor]].
-[^c]: TG [[Diligence, Diligent, Diligently]].
+[^a]: [[Waste|TG Waste]].  
+[^b]: [[Labor|TG Labor]].  
+[^c]: [[Diligence, Diligent, Diligently|TG Diligence]].  

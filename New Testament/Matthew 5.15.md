@@ -5,4 +5,4 @@
 [Matthew 5:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.15?lang=eng#p15)
 
 
-[^a]: [[Luke 11.33|Luke 11:33 (33-34).]]
+[^a]: [[Luke 11.33|Luke 11:33 (33–34)]][[Luke 11.34|]].  

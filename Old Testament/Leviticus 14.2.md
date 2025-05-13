@@ -5,5 +5,5 @@
 [Leviticus 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.2?lang=eng#p2)
 
 
-[^a]: TG [[Leprosy, Leper, Leprous]].
-[^b]: [[Luke 5.14|Luke 5:14.]]
+[^a]: [[Leprosy, Leper, Leprous|TG Leprosy]].  
+[^b]: [[Luke 5.14|Luke 5:14]].  

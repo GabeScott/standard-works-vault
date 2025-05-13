@@ -5,4 +5,4 @@
 [Luke 13:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.19?lang=eng#p19)
 
 
-[^a]: GR became.
+[^a]: GR became.  

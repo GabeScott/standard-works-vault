@@ -5,4 +5,4 @@
 [Jeremiah 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.4?lang=eng#p4)
 
 
-[^a]: TG [[Bishop]]; [[Shepherd]].
+[^a]: [[Bishop|TG Bishop]]; [[Shepherd|Shepherd]].  

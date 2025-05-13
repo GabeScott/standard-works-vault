@@ -5,5 +5,5 @@
 [Genesis 27:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 25.27|Gen. 25:27.]]
-[^b]: HEB hunt.
+[^a]: [[Genesis 25.27|Gen. 25:27]].  
+[^b]: HEB hunt.  

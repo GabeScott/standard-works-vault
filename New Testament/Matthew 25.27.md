@@ -5,4 +5,4 @@
 [Matthew 25:27](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.27?lang=eng#p27)
 
 
-[^a]: TG [[Usury]].
+[^a]: [[Usury|TG Usury]].  

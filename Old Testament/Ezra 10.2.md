@@ -5,4 +5,4 @@
 [Ezra 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/10.2?lang=eng#p2)
 
 
-[^a]: OR foreign wives (also vv. 11, 14, 17, 44).
+[^a]: OR foreign wives (also [[Ezra 10.11|vv. 11, 14, 17, 44]][[Ezra 10.14|]][[Ezra 10.17|]][[Ezra 10.44|]]).  

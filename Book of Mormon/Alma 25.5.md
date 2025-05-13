@@ -5,5 +5,5 @@
 [Alma 25:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/25?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Authority]].
-[^b]: [[Mosiah 17.15|Mosiah 17:15.]]
+[^a]: [[Authority|TG Authority]].  
+[^b]: [[Mosiah 17.15|Mosiah 17:15]].  

@@ -5,4 +5,4 @@
 [Helaman 5:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p26#p26)
 
 
-[^a]: Dan. 10:12.
+[^a]: [[Daniel 10.12|Dan. 10:12]].  

@@ -5,4 +5,4 @@
 [Hebrews 4:16](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.16?lang=eng#p16)
 
 
-[^a]: TG [[Grace]].
+[^a]: [[Grace|TG Grace]].  

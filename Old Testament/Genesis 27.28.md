@@ -5,4 +5,4 @@
 [Genesis 27:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.28?lang=eng#p28)
 
 
-[^a]: Deut. 33:13, 28; [[D&C 121.45|D&C 121:45.]]
+[^a]: [[Deuteronomy 33.13|Deut. 33:13, 28]][[Deuteronomy 33.28|]]; [[D&C 121.45|D&C 121:45]].  

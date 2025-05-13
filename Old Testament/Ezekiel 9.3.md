@@ -5,4 +5,4 @@
 [Ezekiel 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/9.3?lang=eng#p3)
 
 
-[^a]: TG [[Cherubim]].
+[^a]: [[Cherubim|TG Cherubim]].  

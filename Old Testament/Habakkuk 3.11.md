@@ -5,4 +5,4 @@
 [Habakkuk 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.11?lang=eng#p11)
 
 
-[^a]: [[Joshua 10.12|Josh. 10:12 (12-13)]]; [[Helaman 12.15|Hel. 12:15.]]
+[^a]: [[Joshua 10.12|Josh. 10:12 (12–13)]][[Joshua 10.13|]]; [[Helaman 12.15|Hel. 12:15]].  

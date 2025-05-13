@@ -5,4 +5,4 @@
 [Psalms 103:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/103.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 40.31|Isa. 40:31.]]
+[^a]: [[Isaiah 40.31|Isa. 40:31]].  

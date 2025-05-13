@@ -5,4 +5,4 @@
 [Ether 9:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p18#p18)
 
 
-[^a]: [[Ether 6.4|Ether 6:4.]]
+[^a]: [[Ether 6.4|Ether 6:4]].  

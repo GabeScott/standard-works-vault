@@ -5,5 +5,5 @@
 [2 Kings 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/1.17?lang=eng#p17)
 
 
-[^a]: [[2 Kings 1.4|2 Kgs. 1:4 (1-4).]]
-[^b]: [[2 Kings 3.1|2 Kgs. 3:1.]]
+[^a]: [[2 Kings 1.1|2 Kgs. 1:4 (1–4)]][[2 Kings 1.2|]][[2 Kings 1.3|]][[2 Kings 1.4|]].  
+[^b]: [[2 Kings 3.1|2 Kgs. 3:1]].  

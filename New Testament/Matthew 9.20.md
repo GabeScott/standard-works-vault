@@ -5,5 +5,5 @@
 [Matthew 9:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.20?lang=eng#p20)
 
 
-[^a]: GR hemorrhage.
-[^b]: [[Leviticus 15.25|Lev. 15:25.]]
+[^a]: GR hemorrhage.  
+[^b]: [[Leviticus 15.25|Lev. 15:25]].  

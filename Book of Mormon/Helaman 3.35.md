@@ -5,9 +5,9 @@
 [Helaman 3:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p35#p35)
 
 
-[^a]: TG [[Fast, Fasting]].
-[^b]: TG [[Prayer, Pray]].
-[^c]: TG [[Humility, Humble]].
-[^d]: TG [[Cleanliness]]; [[Purification, Purify, Purifying]]; [[Purity, Pure]].
-[^e]: TG [[Sanctification, Sanctify]].
-[^f]: [[2 Chronicles 30.8|2 Chr. 30:8]]; [[Romans 6.13|Rom. 6:13 (12-14)]]. TG [[Submissiveness, Submit]]; [[Teachable]].
+[^a]: [[Fast, Fasting|TG Fast, Fasting]].  
+[^b]: [[Prayer, Pray|TG Prayer]].  
+[^c]: [[Humility, Humble|TG Humility]].  
+[^d]: [[Cleanliness|TG Cleanliness]]; [[Purification, Purify, Purifying|Purification]]; [[Purity, Pure|Purity]].  
+[^e]: [[Sanctification, Sanctify|TG Sanctification]].  
+[^f]: [[2 Chronicles 30.8|2 Chr. 30:8]]; [[Romans 6.12|Rom. 6:13 (12–14)]][[Romans 6.13|]][[Romans 6.14|]]. [[Submissiveness, Submit|TG Submissiveness]]; [[Teachable|Teachable]].  

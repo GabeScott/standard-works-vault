@@ -5,5 +5,5 @@
 [Exodus 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 78.18|Ps. 78:18.]]
-[^b]: [[Psalms 78.19|Ps. 78:19.]]
+[^a]: [[Psalms 78.18|Ps. 78:18]].  
+[^b]: [[Psalms 78.19|Ps. 78:19]].  

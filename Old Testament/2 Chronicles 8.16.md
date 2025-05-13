@@ -5,5 +5,5 @@
 [2 Chronicles 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/8.16?lang=eng#p16)
 
 
-[^a]: Septuagint: from.
-[^b]: IE completed.
+[^a]: Septuagint: from.  
+[^b]: IE completed.  

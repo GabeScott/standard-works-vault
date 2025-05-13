@@ -5,5 +5,5 @@
 [Helaman 1:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 1.14|Alma 1:14 (10-15).]]
-[^b]: TG [[Liberty]].
+[^a]: [[Alma 1.10|Alma 1:14 (10–15)]][[Alma 1.11|]][[Alma 1.12|]][[Alma 1.13|]][[Alma 1.14|]][[Alma 1.15|]].  
+[^b]: [[Liberty|TG Liberty]].  

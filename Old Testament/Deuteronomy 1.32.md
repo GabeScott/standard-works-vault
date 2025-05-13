@@ -5,4 +5,4 @@
 [Deuteronomy 1:32](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.32?lang=eng#p32)
 
 
-[^a]: TG [[Doubt, Doubtful]]; [[Unbelief, Unbelievers]].
+[^a]: [[Doubt, Doubtful|TG Doubt]]; [[Unbelief, Unbelievers|Unbelief]].  

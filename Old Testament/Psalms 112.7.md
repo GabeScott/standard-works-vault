@@ -5,4 +5,4 @@
 [Psalms 112:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/112.7?lang=eng#p7)
 
 
-[^a]: TG [[Commitment]].
+[^a]: [[Commitment|TG Commitment]].  

@@ -5,4 +5,4 @@
 [Jeremiah 27:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.22?lang=eng#p22)
 
 
-[^a]: [[Ezra 1.7|Ezra 1:7.]]
+[^a]: [[Ezra 1.7|Ezra 1:7]].  

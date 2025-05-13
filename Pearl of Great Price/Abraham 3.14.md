@@ -5,6 +5,6 @@
 [Abraham 3:14](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.14?lang=eng#p14)
 
 
-[^a]: [[Abraham 2.9|Abr. 2:9.]]
-[^b]: [[Genesis 13.16|Gen. 13:16]]; [[D&C 132.30|D&C 132:30.]]
-[^c]: [[Genesis 22.17|Gen. 22:17]]; [[Hosea 1.10|Hosea 1:10.]]
+[^a]: [[Abraham 2.9|Abr. 2:9]].  
+[^b]: [[Genesis 13.16|Gen. 13:16]]; [[D&C 132.30|D&C 132:30]].  
+[^c]: [[Genesis 22.17|Gen. 22:17]]; [[Hosea 1.10|Hosea 1:10]].  

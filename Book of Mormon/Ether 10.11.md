@@ -5,4 +5,4 @@
 [Ether 10:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Whore, Whoredom]].
+[^a]: [[Whore, Whoredom|TG Whore]].  

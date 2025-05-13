@@ -5,4 +5,4 @@
 [1 Corinthians 6:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/6.16?lang=eng#p16)
 
 
-[^a]: TG [[Marriage, Marry]].
+[^a]: [[Marriage, Marry|TG Marriage, Marry]].  

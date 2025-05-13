@@ -5,4 +5,4 @@
 [Mark 1:43](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.43?lang=eng#p43)
 
 
-[^a]: GR warned him sternly.
+[^a]: GR warned him sternly.  

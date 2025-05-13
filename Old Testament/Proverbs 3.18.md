@@ -5,4 +5,4 @@
 [Proverbs 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.18?lang=eng#p18)
 
 
-[^a]: [[Ecclesiastes 7.12|Eccl. 7:12.]]
+[^a]: [[Ecclesiastes 7.12|Eccl. 7:12]].  

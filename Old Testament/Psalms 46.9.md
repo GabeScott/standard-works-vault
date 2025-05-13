@@ -5,4 +5,4 @@
 [Psalms 46:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/46.9?lang=eng#p9)
 
 
-[^a]: TG [[Peace of God]].
+[^a]: [[Peace|TG Peace]].  

@@ -5,5 +5,5 @@
 [Proverbs 21:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.26?lang=eng#p26)
 
 
-[^a]: TG [[Covet, Covetousness]].
-[^b]: [[Proverbs 3.27|Prov. 3:27 (27-28)]]; [[Luke 6.30|Luke 6:30]]; [[Ephesians 4.28|Eph. 4:28.]]
+[^a]: [[Covet, Covetousness|TG Covet]].  
+[^b]: [[Proverbs 3.27|Prov. 3:27 (27–28)]][[Proverbs 3.28|]]; [[Luke 6.30|Luke 6:30]]; [[Ephesians 4.28|Eph. 4:28]].  

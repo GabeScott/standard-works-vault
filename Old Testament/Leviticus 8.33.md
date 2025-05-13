@@ -5,5 +5,5 @@
 [Leviticus 8:33](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.33?lang=eng#p33)
 
 
-[^a]: [[Luke 1.23|Luke 1:23.]]
-[^b]: [[Exodus 29.35|Ex. 29:35 (35-36)]]; [[Ezekiel 43.25|Ezek. 43:25.]]
+[^a]: [[Luke 1.23|Luke 1:23]].  
+[^b]: [[Exodus 29.35|Ex. 29:35 (35–36)]][[Exodus 29.36|]]; [[Ezekiel 43.25|Ezek. 43:25]].  

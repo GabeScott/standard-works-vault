@@ -5,6 +5,6 @@
 [2 Peter 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.5?lang=eng#p5)
 
 
-[^a]: TG [[Ignorance, Ignorant]].
-[^b]: TG [[Jesus Christ, Creator]].
-[^c]: TG [[Creation, Create]].
+[^a]: [[Ignorance, Ignorant|TG Ignorance]].  
+[^b]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  
+[^c]: [[Creation, Create|TG Creation]].  

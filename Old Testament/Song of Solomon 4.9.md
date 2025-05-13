@@ -5,5 +5,5 @@
 [Song of Solomon 4:9](https://www.churchofjesuschrist.org/study/scriptures/ot/song/4.9?lang=eng#p9)
 
 
-[^a]: This form of address is an idiom to express tenderness. See also v. 12.
-[^b]: Song 5:1.
+[^a]: This form of address is an idiom to express tenderness. See also [[Song of Solomon 4.12|v. 12]].  
+[^b]: [[Song of Solomon 5.1|Song 5:1]].  

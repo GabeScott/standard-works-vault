@@ -5,4 +5,4 @@
 [John 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.3?lang=eng#p3)
 
 
-[^a]: TG [[Creation, Create]]; [[God, Power of]]; [[Jesus Christ, Creator]]; [[Jesus Christ, Mission of]]; [[Jesus Christ, Power of]].
+[^a]: [[Creation, Create|TG Creation]]; [[God, Power of|God, Power of]]; [[Jesus Christ, Creator|Jesus Christ, Creator]]; [[Jesus Christ, Mission of|Jesus Christ, Mission of]]; [[Jesus Christ, Power of|Jesus Christ, Power of]].  

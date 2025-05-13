@@ -5,4 +5,4 @@
 [Genesis 41:36](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.36?lang=eng#p36)
 
 
-[^a]: [[3 Nephi 4.18|3 Ne. 4:18]]; [[D&C 4.4|D&C 4:4]]. TG [[Welfare]].
+[^a]: [[3 Nephi 4.18|3 Ne. 4:18]]; [[D&C 4.4|D&C 4:4]]. [[Welfare|TG Welfare]].  

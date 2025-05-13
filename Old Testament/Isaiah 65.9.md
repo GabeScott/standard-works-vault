@@ -5,6 +5,6 @@
 [Isaiah 65:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.9?lang=eng#p9)
 
 
-[^a]: [[Psalms 69.35|Ps. 69:35 (35-36).]]
-[^b]: TG [[Election, Elect]].
-[^c]: [[Deuteronomy 18.9|Deut. 18:9.]]
+[^a]: [[Psalms 69.35|Ps. 69:35 (35–36)]][[Psalms 69.36|]].  
+[^b]: [[Election, Elect|TG Election]].  
+[^c]: [[Deuteronomy 18.9|Deut. 18:9]].  

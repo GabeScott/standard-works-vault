@@ -5,4 +5,4 @@
 [Mark 6:37](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.37?lang=eng#p37)
 
 
-[^a]: GR denarii; one denarius was a workman’s daily wage.
+[^a]: GR denarii; one denarius was a workman’s daily wage.  

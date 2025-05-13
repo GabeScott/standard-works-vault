@@ -5,4 +5,4 @@
 [Luke 8:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.16?lang=eng#p16)
 
 
-[^a]: [[3 Nephi 12.15|3 Ne. 12:15 (14-16)]]; [[D&C 60.2|D&C 60:2 (2-3).]]
+[^a]: [[3 Nephi 12.14|3 Ne. 12:15 (14–16)]][[3 Nephi 12.15|]][[3 Nephi 12.16|]]; [[D&C 60.2|D&C 60:2 (2–3)]][[D&C 60.3|]].  

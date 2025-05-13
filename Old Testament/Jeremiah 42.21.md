@@ -5,4 +5,4 @@
 [Jeremiah 42:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.21?lang=eng#p21)
 
 
-[^a]: TG [[Disobedience, Disobey]].
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  

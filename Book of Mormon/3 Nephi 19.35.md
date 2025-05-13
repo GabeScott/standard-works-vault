@@ -5,7 +5,7 @@
 [3 Nephi 19:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p35#p35)
 
 
-[^a]: [[Matthew 8.10|Matt. 8:10.]]
-[^b]: TG [[Faith]].
-[^c]: [[John 11.47|John 11:47 (47-48).]]
-[^d]: [[Matthew 13.58|Matt. 13:58]]. TG [[Doubt, Doubtful]]; [[Unbelief, Unbelievers]].
+[^a]: [[Matthew 8.10|Matt. 8:10]].  
+[^b]: [[Faith|TG Faith]].  
+[^c]: [[John 11.47|John 11:47 (47–48)]][[John 11.48|]].  
+[^d]: [[Matthew 13.58|Matt. 13:58]]. [[Doubt, Doubtful|TG Doubt]]; [[Unbelief, Unbelievers|Unbelief]].  

@@ -5,4 +5,4 @@
 [2 Kings 25:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.19?lang=eng#p19)
 
 
-[^a]: [[Jeremiah 52.25|Jer. 52:25.]]
+[^a]: [[Jeremiah 52.25|Jer. 52:25]].  

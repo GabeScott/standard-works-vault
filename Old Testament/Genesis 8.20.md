@@ -5,6 +5,6 @@
 [Genesis 8:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.20?lang=eng#p20)
 
 
-[^a]: JST Gen. 9:4-6 (Appendix).
-[^b]: TG [[Food]].
-[^c]: TG [[Self-Sacrifice]].
+[^a]: [[JST Genesis 9.4|JST Gen. 9:4–6 (Appendix)]][[JST Genesis 9.5|]][[JST Genesis 9.6|]].  
+[^b]: [[Food|TG Food]].  
+[^c]: [[Sacrifice|TG Sacrifice]].  

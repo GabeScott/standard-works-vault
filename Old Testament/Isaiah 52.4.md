@@ -5,4 +5,4 @@
 [Isaiah 52:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.4?lang=eng#p4)
 
 
-[^b]: [[Genesis 46.6|Gen. 46:6 (2-7).]]
+[^b]: [[Genesis 46.2|Gen. 46:6 (2–7)]][[Genesis 46.3|]][[Genesis 46.4|]][[Genesis 46.5|]][[Genesis 46.6|]][[Genesis 46.7|]].  

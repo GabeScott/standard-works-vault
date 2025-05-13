@@ -5,5 +5,5 @@
 [Deuteronomy 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.13?lang=eng#p13)
 
 
-[^a]: HEB appoint them as your heads.
-[^b]: TG [[Delegation of Responsibility]].
+[^a]: HEB appoint them as your heads.  
+[^b]: [[Delegation of Responsibility|TG Delegation of Responsibility]].  

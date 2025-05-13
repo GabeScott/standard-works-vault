@@ -5,4 +5,4 @@
 [Ezekiel 33:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.33?lang=eng#p33)
 
 
-[^a]: [[Ezekiel 2.5|Ezek. 2:5.]]
+[^a]: [[Ezekiel 2.5|Ezek. 2:5]].  

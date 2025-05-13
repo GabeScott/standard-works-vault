@@ -5,4 +5,4 @@
 [Acts 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.14?lang=eng#p14)
 
 
-[^a]: [[Acts 2.47|Acts 2:47.]]
+[^a]: [[Acts 2.47|Acts 2:47]].  

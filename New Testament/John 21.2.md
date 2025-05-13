@@ -5,4 +5,4 @@
 [John 21:2](https://www.churchofjesuschrist.org/study/scriptures/nt/john/21.2?lang=eng#p2)
 
 
-[^a]: [[Matthew 4.21|Matt. 4:21.]]
+[^a]: [[Matthew 4.21|Matt. 4:21]].  

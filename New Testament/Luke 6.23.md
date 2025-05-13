@@ -5,6 +5,6 @@
 [Luke 6:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.23?lang=eng#p23)
 
 
-[^a]: [[Acts 5.41|Acts 5:41.]]
-[^b]: TG [[Joy]].
-[^c]: TG [[Reward]].
+[^a]: [[Acts 5.41|Acts 5:41]].  
+[^b]: [[Joy|TG Joy]].  
+[^c]: [[Reward|TG Reward]].  

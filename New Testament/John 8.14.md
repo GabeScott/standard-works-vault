@@ -5,5 +5,5 @@
 [John 8:14](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.14?lang=eng#p14)
 
 
-[^a]: [[John 16.28|John 16:28.]]
-[^b]: [[John 9.29|John 9:29.]]
+[^a]: [[John 16.28|John 16:28]].  
+[^b]: [[John 9.29|John 9:29]].  

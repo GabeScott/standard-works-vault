@@ -5,5 +5,5 @@
 [Alma 56:56](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p56#p56)
 
 
-[^a]: [[Alma 57.25|Alma 57:25]]; [[Alma 58.39|58:39.]]
-[^b]: TG [[Strength]].
+[^a]: [[Alma 57.25|Alma 57:25]]; [[Alma 58.39|58:39]].  
+[^b]: [[Strength|TG Strength]].  

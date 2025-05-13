@@ -5,4 +5,4 @@
 [2 Chronicles 25:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/25.11?lang=eng#p11)
 
 
-[^a]: IE by the Dead Sea.
+[^a]: IE by the Dead Sea.  

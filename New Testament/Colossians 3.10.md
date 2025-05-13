@@ -5,6 +5,6 @@
 [Colossians 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.10?lang=eng#p10)
 
 
-[^a]: TG [[Man, New, Spiritually Reborn]].
-[^b]: [[Romans 8.29|Rom. 8:29.]]
-[^c]: TG [[Jesus Christ, Creator]]; [[Man, Physical Creation of]].
+[^a]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  
+[^b]: [[Romans 8.29|Rom. 8:29]].  
+[^c]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]]; [[Man, Physical Creation of|Man, Physical Creation of]].  

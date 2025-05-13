@@ -5,4 +5,4 @@
 [Job 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/job/6.2?lang=eng#p2)
 
 
-[^a]: TG [[Despair]].
+[^a]: [[Despair|TG Despair]].  

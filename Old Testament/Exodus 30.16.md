@@ -5,5 +5,5 @@
 [Exodus 30:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.16?lang=eng#p16)
 
 
-[^a]: [[2 Chronicles 24.6|2 Chr. 24:6 (6-9).]]
-[^b]: HEB tent of meeting (also vv. 18, 20, 26, 36).
+[^a]: [[2 Chronicles 24.6|2 Chr. 24:6 (6–9)]][[2 Chronicles 24.7|]][[2 Chronicles 24.8|]][[2 Chronicles 24.9|]].  
+[^b]: HEB tent of meeting (also [[Exodus 30.18|vv. 18, 20, 26, 36]][[Exodus 30.20|]][[Exodus 30.26|]][[Exodus 30.36|]]).  

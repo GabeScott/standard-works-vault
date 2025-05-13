@@ -5,4 +5,4 @@
 [Acts 25:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/25.20?lang=eng#p20)
 
 
-[^a]: GR was perplexed concerning this inquiry or dispute.
+[^a]: GR was perplexed concerning this inquiry or dispute.  

@@ -5,6 +5,6 @@
 [1 John 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.1?lang=eng#p1)
 
 
-[^a]: TG [[God, Love of]].
-[^b]: GR children, people. Isa. 56:5.
-[^c]: TG [[World, End of]].
+[^a]: [[God, Love of|TG God, Love of]].  
+[^b]: GR children, people. [[Isaiah 56.5|Isa. 56:5]].  
+[^c]: [[World|TG World]].  

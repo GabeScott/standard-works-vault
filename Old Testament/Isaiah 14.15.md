@@ -5,4 +5,4 @@
 [Isaiah 14:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.15?lang=eng#p15)
 
 
-[^a]: TG [[Damnation, Damned]]; [[Death, Spiritual, First]]; [[Hell]]; [[Spirits in Prison]].
+[^a]: [[Damnation, Damned|TG Damnation]]; [[Death, Spiritual, First|Death, Spiritual, First]]; [[Hell|Hell]]; [[Spirits in Prison|Spirits in Prison]].  

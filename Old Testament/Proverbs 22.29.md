@@ -5,5 +5,5 @@
 [Proverbs 22:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.29?lang=eng#p29)
 
 
-[^a]: TG [[Diligence, Diligent, Diligently]].
-[^b]: OR obscure, or wicked (men).
+[^a]: [[Diligence, Diligent, Diligently|TG Diligence]].  
+[^b]: OR obscure, or wicked (men).  

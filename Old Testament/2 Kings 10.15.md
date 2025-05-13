@@ -5,5 +5,5 @@
 [2 Kings 10:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.15?lang=eng#p15)
 
 
-[^a]: [[Jeremiah 35.6|Jer. 35:6.]]
-[^b]: [[1 Chronicles 2.55|1 Chr. 2:55]]; [[Jeremiah 35.2|Jer. 35:2.]]
+[^a]: [[Jeremiah 35.6|Jer. 35:6]].  
+[^b]: [[1 Chronicles 2.55|1 Chr. 2:55]]; [[Jeremiah 35.2|Jer. 35:2]].  

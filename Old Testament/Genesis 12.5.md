@@ -5,8 +5,8 @@
 [Genesis 12:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.5?lang=eng#p5)
 
 
-[^a]: [[Genesis 11.29|Gen. 11:29]]; [[Abraham 2.2|Abr. 2:2.]]
-[^b]: [[Genesis 14.12|Gen. 14:12]]; [[Abraham 2.15|Abr. 2:15.]]
-[^c]: [[Genesis 13.8|Gen. 13:8.]]
-[^d]: HEB made; i.e., converted. Abr. 2:15.
-[^e]: [[Genesis 11.31|Gen. 11:31.]]
+[^a]: [[Genesis 11.29|Gen. 11:29]]; [[Abraham 2.2|Abr. 2:2]].  
+[^b]: [[Genesis 14.12|Gen. 14:12]]; [[Abraham 2.15|Abr. 2:15]].  
+[^c]: [[Genesis 13.8|Gen. 13:8]].  
+[^d]: HEB made; i.e., converted. [[Abraham 2.15|Abr. 2:15]].  
+[^e]: [[Genesis 11.31|Gen. 11:31]].  

@@ -5,6 +5,6 @@
 [3 Nephi 28:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p39#p39)
 
 
-[^a]: TG [[Temptation]]; [[Testament]].
-[^b]: TG [[Sanctification, Sanctify]].
-[^c]: TG [[Holiness]].
+[^a]: [[Temptation|TG Temptation]]; [[Test, Try, Prove|Test]].  
+[^b]: [[Sanctification, Sanctify|TG Sanctification]].  
+[^c]: [[Holiness|TG Holiness]].  

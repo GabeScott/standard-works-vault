@@ -5,6 +5,6 @@
 [2 Kings 5:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/5.15?lang=eng#p15)
 
 
-[^a]: [[Alma 24.27|Alma 24:27.]]
-[^b]: Dan. 2:47.
-[^c]: [[Genesis 14.21|Gen. 14:21 (21-24).]]
+[^a]: [[Alma 24.27|Alma 24:27]].  
+[^b]: [[Daniel 2.47|Dan. 2:47]].  
+[^c]: [[Genesis 14.21|Gen. 14:21 (21–24)]][[Genesis 14.22|]][[Genesis 14.23|]][[Genesis 14.24|]].  

@@ -5,5 +5,5 @@
 [Isaiah 27:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/27.9?lang=eng#p9)
 
 
-[^a]: OR atoned for.
-[^b]: TG [[Idolatry, Idol]].
+[^a]: OR atoned for.  
+[^b]: [[Idolatry, Idol|TG Idolatry]].  

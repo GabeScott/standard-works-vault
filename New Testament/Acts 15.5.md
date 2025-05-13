@@ -5,4 +5,4 @@
 [Acts 15:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.5?lang=eng#p5)
 
 
-[^a]: [[Galatians 5.18|Gal. 5:18 (16-18).]]
+[^a]: [[Galatians 5.16|Gal. 5:18 (16–18)]][[Galatians 5.17|]][[Galatians 5.18|]].  

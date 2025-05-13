@@ -5,7 +5,7 @@
 [James 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.12?lang=eng#p12)
 
 
-[^a]: [[1 Peter 3.14|1 Pet. 3:14]]. TG [[Israel, Blessings of]].
-[^b]: JST James 1:12 … resisteth temptation … TG [[Steadfastness, Steadfast]].
-[^c]: TG [[Testament]].
-[^d]: TG [[Exaltation]]; [[Reward]].
+[^a]: [[1 Peter 3.14|1 Pet. 3:14]]. [[Blessing|TG Blessing]].  
+[^b]: JST James 1:12 … resisteth temptation … [[Steadfastness, Steadfast|TG Steadfastness]].  
+[^c]: [[Test, Try, Prove|TG Test]].  
+[^d]: [[Exaltation|TG Exaltation]]; [[Reward|Reward]].  

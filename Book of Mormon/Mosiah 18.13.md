@@ -5,7 +5,7 @@
 [Mosiah 18:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Holy Ghost, Mission of]].
-[^b]: [[Mosiah 21.33|Mosiah 21:33]]; [[Alma 5.3|Alma 5:3]]; [[3 Nephi 11.25|3 Ne. 11:25.]]
-[^c]: [[Mosiah 21.31|Mosiah 21:31]]. TG [[Covenants]].
-[^d]: [[Mosiah 4.6|Mosiah 4:6]]; [[Alma 12.30|Alma 12:30 (25, 30).]]
+[^a]: [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  
+[^b]: [[Mosiah 21.33|Mosiah 21:33]]; [[Alma 5.3|Alma 5:3]]; [[3 Nephi 11.25|3 Ne. 11:25]].  
+[^c]: [[Mosiah 21.31|Mosiah 21:31]]. [[Covenants|TG Covenants]].  
+[^d]: [[Mosiah 4.6|Mosiah 4:6]]; [[Alma 12.25|Alma 12:30 (25, 30)]][[Alma 12.30|]].  

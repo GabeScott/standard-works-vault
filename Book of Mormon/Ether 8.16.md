@@ -5,4 +5,4 @@
 [Ether 8:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p16#p16)
 
 
-[^a]: [[Moses 4.6|Moses 4:6]]; [[Moses 5.13|5:13.]]
+[^a]: [[Moses 4.6|Moses 4:6]]; [[Moses 5.13|5:13]].  

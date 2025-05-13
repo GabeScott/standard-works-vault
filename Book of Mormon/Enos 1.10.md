@@ -5,7 +5,7 @@
 [Enos 1:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Inspiration, Inspire]]; [[Mind, Minded]].
-[^b]: [[1 Nephi 2.20|1 Ne. 2:20.]]
-[^c]: [[Genesis 8.21|Gen. 8:21 (20-22)]]; [[Ether 2.9|Ether 2:9 (7-12).]]
-[^d]: TG [[Transgressor]].
+[^a]: [[Inspiration, Inspire|TG Inspiration]]; [[Mind, Minded|Mind]].  
+[^b]: [[1 Nephi 2.20|1 Ne. 2:20]].  
+[^c]: [[Genesis 8.20|Gen. 8:21 (20–22)]][[Genesis 8.21|]][[Genesis 8.22|]]; [[Ether 2.7|Ether 2:9 (7–12)]][[Ether 2.8|]][[Ether 2.9|]][[Ether 2.10|]][[Ether 2.11|]][[Ether 2.12|]].  
+[^d]: [[Transgress, Transgression|TG Transgress]].  

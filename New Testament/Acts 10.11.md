@@ -5,5 +5,5 @@
 [Acts 10:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.11?lang=eng#p11)
 
 
-[^a]: [[D&C 107.19|D&C 107:19.]]
-[^b]: GR bound.
+[^a]: [[D&C 107.19|D&C 107:19]].  
+[^b]: GR bound.  

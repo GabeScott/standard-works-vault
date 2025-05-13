@@ -5,6 +5,6 @@
 [Matthew 8:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.16?lang=eng#p16)
 
 
-[^a]: [[Matthew 4.24|Matt. 4:24]]; [[Matthew 9.32|9:32 (32-34).]]
-[^b]: TG [[Spirits, Evil or Unclean]].
-[^c]: TG [[Health]].
+[^a]: [[Matthew 4.24|Matt. 4:24]]; [[Matthew 9.32|9:32 (32–34)]][[Matthew 9.33|]][[Matthew 9.34|]].  
+[^b]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  
+[^c]: [[Heal, Healing|TG Heal]].  

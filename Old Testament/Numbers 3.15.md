@@ -5,4 +5,4 @@
 [Numbers 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.15?lang=eng#p15)
 
 
-[^a]: [[Numbers 26.57|Num. 26:57 (57-62).]]
+[^a]: [[Numbers 26.57|Num. 26:57 (57–62)]][[Numbers 26.58|]][[Numbers 26.59|]][[Numbers 26.60|]][[Numbers 26.61|]][[Numbers 26.62|]].  

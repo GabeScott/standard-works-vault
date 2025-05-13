@@ -5,4 +5,4 @@
 [1 Kings 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.17?lang=eng#p17)
 
 
-[^a]: [[D&C 109.8|D&C 109:8.]]
+[^a]: [[D&C 109.8|D&C 109:8]].  

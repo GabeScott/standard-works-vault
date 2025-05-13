@@ -5,6 +5,6 @@
 [Acts 1:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.22?lang=eng#p22)
 
 
-[^a]: GR become a witness.
-[^b]: TG [[Witness, Witnesses]].
-[^c]: TG [[Jesus Christ, Resurrection]].
+[^a]: GR become a witness.  
+[^b]: [[Witness, Witnesses|TG Witness]].  
+[^c]: [[Resurrection|TG Resurrection]].  

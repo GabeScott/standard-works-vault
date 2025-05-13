@@ -5,4 +5,4 @@
 [John 12:47](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.47?lang=eng#p47)
 
 
-[^a]: [[Luke 4.19|Luke 4:19]]; [[John 8.15|John 8:15.]]
+[^a]: [[Luke 4.19|Luke 4:19]]; [[John 8.15|John 8:15]].  

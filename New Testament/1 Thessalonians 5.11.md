@@ -5,5 +5,5 @@
 [1 Thessalonians 5:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.11?lang=eng#p11)
 
 
-[^a]: GR exhort, console, encourage.
-[^b]: TG [[Edification, Edify]].
+[^a]: GR exhort, console, encourage.  
+[^b]: [[Edification, Edify|TG Edification]].  

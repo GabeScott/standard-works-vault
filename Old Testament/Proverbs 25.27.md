@@ -5,4 +5,4 @@
 [Proverbs 25:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.27?lang=eng#p27)
 
 
-[^a]: TG [[Telestial Glory]].
+[^a]: [[Glory|TG Glory]].  

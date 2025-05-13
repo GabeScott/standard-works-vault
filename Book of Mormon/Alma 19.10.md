@@ -5,4 +5,4 @@
 [Alma 19:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p10#p10)
 
 
-[^a]: [[Luke 7.9|Luke 7:9.]]
+[^a]: [[Luke 7.9|Luke 7:9]].  

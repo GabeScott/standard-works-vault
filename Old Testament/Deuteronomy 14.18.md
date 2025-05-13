@@ -5,4 +5,4 @@
 [Deuteronomy 14:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.18?lang=eng#p18)
 
 
-[^a]: HEB hoopoe bird.
+[^a]: HEB hoopoe bird.  

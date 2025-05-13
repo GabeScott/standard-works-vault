@@ -5,4 +5,4 @@
 [Isaiah 44:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.10?lang=eng#p10)
 
 
-[^a]: Hab. 2:18.
+[^a]: [[Habakkuk 2.18|Hab. 2:18]].  

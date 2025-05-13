@@ -5,4 +5,4 @@
 [Matthew 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.6?lang=eng#p6)
 
 
-[^a]: [[2 Samuel 12.24|2 Sam. 12:24 (24-25)]]; [[1 Chronicles 3.5|1 Chr. 3:5.]]
+[^a]: [[2 Samuel 12.24|2 Sam. 12:24 (24–25)]][[2 Samuel 12.25|]]; [[1 Chronicles 3.5|1 Chr. 3:5]].  

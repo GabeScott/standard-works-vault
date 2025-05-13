@@ -5,4 +5,4 @@
 [Deuteronomy 30:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.11?lang=eng#p11)
 
 
-[^a]: OR too hard for you. 1 Ne. 20:16; [[D&C 84.23|D&C 84:23]]; [[D&C 93.31|93:31.]]
+[^a]: OR too hard for you. [[1 Nephi 20.16|1 Ne. 20:16]]; [[D&C 84.23|D&C 84:23]]; [[D&C 93.31|93:31]].  

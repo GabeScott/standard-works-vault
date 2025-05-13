@@ -5,4 +5,4 @@
 [1 Kings 8:40](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.40?lang=eng#p40)
 
 
-[^a]: [[Psalms 130.4|Ps. 130:4.]]
+[^a]: [[Psalms 130.4|Ps. 130:4]].  

@@ -5,5 +5,5 @@
 [Psalms 111:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/111.3?lang=eng#p3)
 
 
-[^a]: [[1 Chronicles 16.12|1 Chr. 16:12.]]
-[^b]: TG [[Honorable]].
+[^a]: [[1 Chronicles 16.12|1 Chr. 16:12]].  
+[^b]: [[Honor|TG Honor]].  

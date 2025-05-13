@@ -5,4 +5,4 @@
 [Psalms 22:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.20?lang=eng#p20)
 
 
-[^a]: IE my life (idiom).
+[^a]: IE my life (idiom).  

@@ -5,5 +5,5 @@
 [Mosiah 2:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p36#p36)
 
 
-[^a]: TG [[Disobedience, Disobey]].
-[^b]: TG [[Holy Ghost, Loss of]].
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  
+[^b]: [[Holy Ghost, Loss of|TG Holy Ghost, Loss of]].  

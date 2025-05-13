@@ -5,4 +5,4 @@
 [Zechariah 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/9.7?lang=eng#p7)
 
 
-[^a]: [[Judges 1.21|Judg. 1:21.]]
+[^a]: [[Judges 1.21|Judg. 1:21]].  

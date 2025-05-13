@@ -5,4 +5,4 @@
 [John 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.1?lang=eng#p1)
 
 
-[^a]: JST John 4:1-4 (Appendix).
+[^a]: [[JST John 4.1|JST John 4:1–4 (Appendix)]][[JST John 4.2|]][[JST John 4.3|]][[JST John 4.4|]].  

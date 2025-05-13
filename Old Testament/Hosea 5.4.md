@@ -5,4 +5,4 @@
 [Hosea 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/5.4?lang=eng#p4)
 
 
-[^a]: HEB Their behavior does not permit them to return to their God.
+[^a]: HEB Their behavior does not permit them to return to their God.  

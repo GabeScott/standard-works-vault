@@ -5,4 +5,4 @@
 [Psalms 38:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/38.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 88.9|Ps. 88:9.]]
+[^a]: [[Psalms 88.9|Ps. 88:9]].  

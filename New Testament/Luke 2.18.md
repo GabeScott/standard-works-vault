@@ -5,4 +5,4 @@
 [Luke 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.18?lang=eng#p18)
 
 
-[^a]: OR marveled.
+[^a]: OR marveled.  

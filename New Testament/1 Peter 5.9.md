@@ -5,5 +5,5 @@
 [1 Peter 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/5.9?lang=eng#p9)
 
 
-[^a]: TG [[Perseverance]]; [[Steadfastness, Steadfast]].
-[^b]: GR laid upon, endured by.
+[^a]: [[Perseverance|TG Perseverance]]; [[Steadfastness, Steadfast|Steadfastness]].  
+[^b]: GR laid upon, endured by.  

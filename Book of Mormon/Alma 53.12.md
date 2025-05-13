@@ -5,4 +5,4 @@
 [Alma 53:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 27.23|Alma 27:23.]]
+[^a]: [[Alma 27.23|Alma 27:23]].  

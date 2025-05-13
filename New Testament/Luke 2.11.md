@@ -5,6 +5,6 @@
 [Luke 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.11?lang=eng#p11)
 
 
-[^a]: TG [[Jesus Christ, Birth of]].
-[^b]: TG [[Jesus Christ, Savior]].
-[^c]: TG [[Jesus Christ, Lord]].
+[^a]: [[Jesus Christ, Birth of|TG Jesus Christ, Birth of]].  
+[^b]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]].  
+[^c]: [[Jesus Christ, Lord|TG Jesus Christ, Lord]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 33:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 3.2|Ex. 3:2 (2, 4).]]
+[^a]: [[Exodus 3.2|Ex. 3:2 (2, 4)]][[Exodus 3.4|]].  

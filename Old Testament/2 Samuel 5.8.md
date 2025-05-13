@@ -5,4 +5,4 @@
 [2 Samuel 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.8?lang=eng#p8)
 
 
-[^a]: [[1 Chronicles 11.4|1 Chr. 11:4.]]
+[^a]: [[1 Chronicles 11.4|1 Chr. 11:4]].  

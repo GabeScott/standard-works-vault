@@ -5,4 +5,4 @@
 [1 Samuel 28:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/28.2?lang=eng#p2)
 
 
-[^a]: IE captain of the bodyguard.
+[^a]: IE captain of the bodyguard.  

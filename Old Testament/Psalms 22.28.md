@@ -5,5 +5,5 @@
 [Psalms 22:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.28?lang=eng#p28)
 
 
-[^a]: [[1 Chronicles 29.11|1 Chr. 29:11]]; Obad. 1:21; [[D&C 6.13|D&C 6:13.]]
-[^b]: TG [[Governments]].
+[^a]: [[1 Chronicles 29.11|1 Chr. 29:11]]; [[Obadiah 1.21|Obad. 1:21]]; [[D&C 6.13|D&C 6:13]].  
+[^b]: [[Governments|TG Governments]].  

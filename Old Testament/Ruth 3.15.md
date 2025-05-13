@@ -5,4 +5,4 @@
 [Ruth 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/3.15?lang=eng#p15)
 
 
-[^a]: OR cloak, mantle; a square piece of cloth used as an outer robe.
+[^a]: OR cloak, mantle; a square piece of cloth used as an outer robe.  

@@ -5,5 +5,5 @@
 [Ezekiel 45:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.20?lang=eng#p20)
 
 
-[^a]: [[Leviticus 4.27|Lev. 4:27.]]
-[^b]: TG [[Reconciliation, Reconcile]].
+[^a]: [[Leviticus 4.27|Lev. 4:27]].  
+[^b]: [[Reconciliation, Reconcile|TG Reconciliation]].  

@@ -5,4 +5,4 @@
 [Galatians 6:16](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/6.16?lang=eng#p16)
 
 
-[^a]: [[Psalms 125.5|Ps. 125:5.]]
+[^a]: [[Psalms 125.5|Ps. 125:5]].  

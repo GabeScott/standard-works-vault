@@ -5,4 +5,4 @@
 [Mosiah 15:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p27#p27)
 
 
-[^a]: [[Alma 12.32|Alma 12:32]]; [[Alma 34.16|34:16 (15-16)]]; [[Alma 42.1|42:1.]]
+[^a]: [[Alma 12.32|Alma 12:32]]; [[Alma 34.15|34:16 (15–16)]][[Alma 34.16|]]; [[Alma 42.1|42:1]].  

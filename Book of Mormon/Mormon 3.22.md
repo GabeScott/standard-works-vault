@@ -5,4 +5,4 @@
 [Mormon 3:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 29.1|Alma 29:1.]]
+[^a]: [[Alma 29.1|Alma 29:1]].  

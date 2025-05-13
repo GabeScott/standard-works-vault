@@ -5,5 +5,5 @@
 [Alma 49:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p25#p25)
 
 
-[^a]: [[Alma 46.3|Alma 46:3.]]
-[^b]: [[Alma 51.11|Alma 51:11.]]
+[^a]: [[Alma 46.3|Alma 46:3]].  
+[^b]: [[Alma 51.11|Alma 51:11]].  

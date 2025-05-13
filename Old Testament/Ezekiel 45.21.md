@@ -5,5 +5,5 @@
 [Ezekiel 45:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.21?lang=eng#p21)
 
 
-[^a]: [[Leviticus 23.5|Lev. 23:5.]]
-[^b]: TG [[Bread, Unleavened]].
+[^a]: [[Leviticus 23.5|Lev. 23:5]].  
+[^b]: [[Bread, Unleavened|TG Bread, Unleavened]].  

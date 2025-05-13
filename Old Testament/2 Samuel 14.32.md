@@ -5,4 +5,4 @@
 [2 Samuel 14:32](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/14.32?lang=eng#p32)
 
 
-[^a]: [[2 Samuel 3.3|2 Sam. 3:3.]]
+[^a]: [[2 Samuel 3.3|2 Sam. 3:3]].  

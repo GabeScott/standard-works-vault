@@ -5,5 +5,5 @@
 [John 5:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.26?lang=eng#p26)
 
 
-[^a]: TG [[Jesus Christ, Divine Sonship]].
-[^b]: [[John 6.57|John 6:57.]]
+[^a]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  
+[^b]: [[John 6.57|John 6:57]].  

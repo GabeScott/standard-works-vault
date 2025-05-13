@@ -5,4 +5,4 @@
 [Jeremiah 34:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.2?lang=eng#p2)
 
 
-[^a]: [[Jeremiah 21.10|Jer. 21:10]]; [[Jeremiah 38.3|38:3]]; [[Jeremiah 52.13|52:13.]]
+[^a]: [[Jeremiah 21.10|Jer. 21:10]]; [[Jeremiah 38.3|38:3]]; [[Jeremiah 52.13|52:13]].  

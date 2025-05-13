@@ -5,5 +5,5 @@
 [2 Chronicles 11:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/11.15?lang=eng#p15)
 
 
-[^a]: TG [[Apostasy of Israel]]; [[Idolatry, Idol]].
-[^b]: HEB satyrs, demons (an epithet for idols).
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]]; [[Idolatry, Idol|Idolatry]].  
+[^b]: HEB satyrs, demons (an epithet for idols).  

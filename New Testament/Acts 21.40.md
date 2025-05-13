@@ -5,5 +5,5 @@
 [Acts 21:40](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.40?lang=eng#p40)
 
 
-[^a]: [[Acts 12.17|Acts 12:17.]]
-[^b]: TG [[Silence, Silent]].
+[^a]: [[Acts 12.17|Acts 12:17]].  
+[^b]: [[Silence, Silent|TG Silence]].  

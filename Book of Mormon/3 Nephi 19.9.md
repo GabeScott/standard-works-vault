@@ -5,4 +5,4 @@
 [3 Nephi 19:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p9#p9)
 
 
-[^a]: [[3 Nephi 9.20|3 Ne. 9:20.]]
+[^a]: [[3 Nephi 9.20|3 Ne. 9:20]].  

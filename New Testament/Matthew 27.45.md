@@ -5,4 +5,4 @@
 [Matthew 27:45](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.45?lang=eng#p45)
 
 
-[^a]: TG [[Darkness, Physical]].
+[^a]: [[Darkness, Physical|TG Darkness, Physical]].  

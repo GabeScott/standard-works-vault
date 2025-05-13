@@ -5,5 +5,5 @@
 [Ezekiel 37:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.24?lang=eng#p24)
 
 
-[^a]: [[Jeremiah 30.9|Jer. 30:9]]; [[Ezekiel 34.23|Ezek. 34:23.]]
-[^b]: TG [[Shepherd]].
+[^a]: [[Jeremiah 30.9|Jer. 30:9]]; [[Ezekiel 34.23|Ezek. 34:23]].  
+[^b]: [[Shepherd|TG Shepherd]].  

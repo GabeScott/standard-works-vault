@@ -5,4 +5,4 @@
 [1 Kings 15:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.10?lang=eng#p10)
 
 
-[^a]: IE grandmother’s name (vv. 2, 13; 2 Kgs. 8:26).
+[^a]: IE grandmother’s name ([[1 Kings 15.2|vv. 2, 13]][[1 Kings 15.13|]]; [[2 Kings 8.26|2 Kgs. 8:26]]).  

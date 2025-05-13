@@ -5,4 +5,4 @@
 [Hebrews 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.10?lang=eng#p10)
 
 
-[^a]: [[Proverbs 30.12|Prov. 30:12 (11-14).]]
+[^a]: [[Proverbs 30.11|Prov. 30:12 (11–14)]][[Proverbs 30.12|]][[Proverbs 30.13|]][[Proverbs 30.14|]].  

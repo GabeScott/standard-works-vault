@@ -5,6 +5,6 @@
 [Isaiah 44:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 41.29|Isa. 41:29 (24, 29)]]; [[3 Nephi 21.17|3 Ne. 21:17 (17-19)]]; [[D&C 1.16|D&C 1:16.]]
-[^b]: HEB beloved things; i.e., their idols.
-[^c]: [[Psalms 115.5|Ps. 115:5 (5, 8).]]
+[^a]: [[Isaiah 41.24|Isa. 41:29 (24, 29)]][[Isaiah 41.29|]]; [[3 Nephi 21.17|3 Ne. 21:17 (17–19)]][[3 Nephi 21.18|]][[3 Nephi 21.19|]]; [[D&C 1.16|D&C 1:16]].  
+[^b]: HEB beloved things; i.e., their idols.  
+[^c]: [[Psalms 115.5|Ps. 115:5 (5, 8)]][[Psalms 115.8|]].  

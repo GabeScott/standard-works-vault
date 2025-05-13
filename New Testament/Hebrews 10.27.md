@@ -5,4 +5,4 @@
 [Hebrews 10:27](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.27?lang=eng#p27)
 
 
-[^a]: TG [[God, Indignation of]].
+[^a]: [[God, Indignation of|TG God, Indignation of]].  

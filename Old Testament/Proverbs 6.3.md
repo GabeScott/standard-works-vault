@@ -5,4 +5,4 @@
 [Proverbs 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.3?lang=eng#p3)
 
 
-[^a]: [[D&C 67.10|D&C 67:10.]]
+[^a]: [[D&C 67.10|D&C 67:10]].  

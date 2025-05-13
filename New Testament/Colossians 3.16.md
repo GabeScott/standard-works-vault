@@ -5,7 +5,7 @@
 [Colossians 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.16?lang=eng#p16)
 
 
-[^a]: [[2 Nephi 32.3|2 Ne. 32:3.]]
-[^b]: TG [[God, Intelligence of]].
-[^c]: TG [[Teaching with the Spirit]].
-[^d]: TG [[Singing, Sing, Sang, Sung]].
+[^a]: [[2 Nephi 32.3|2 Ne. 32:3]].  
+[^b]: [[God, Intelligence of|TG God, Intelligence of]].  
+[^c]: [[Teaching, Teach, Taught|TG Teaching]].  
+[^d]: [[Singing, Sing, Sang, Sung|TG Singing]].  

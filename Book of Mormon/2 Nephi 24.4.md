@@ -5,5 +5,5 @@
 [2 Nephi 24:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p4#p4)
 
 
-[^a]: Hab. 2:6 (6-8).
-[^b]: TG [[Babylon]].
+[^a]: [[Habakkuk 2.6|Hab. 2:6 (6–8)]][[Habakkuk 2.7|]][[Habakkuk 2.8|]].  
+[^b]: [[Babylon|TG Babylon]].  

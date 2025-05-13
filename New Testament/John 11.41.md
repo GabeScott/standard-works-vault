@@ -5,4 +5,4 @@
 [John 11:41](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.41?lang=eng#p41)
 
 
-[^a]: TG [[Thanksgiving]].
+[^a]: [[Thanksgiving|TG Thanksgiving]].  

@@ -5,4 +5,4 @@
 [1 Nephi 18:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p18#p18)
 
 
-[^a]: [[Genesis 42.38|Gen. 42:38.]]
+[^a]: [[Genesis 42.38|Gen. 42:38]].  

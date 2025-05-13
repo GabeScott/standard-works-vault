@@ -5,6 +5,6 @@
 [John 20:19](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.19?lang=eng#p19)
 
 
-[^a]: TG [[Assembly for Worship]]; [[Meetings]].
-[^b]: TG [[Jesus Christ, Appearances, Postmortal]].
-[^c]: TG [[Peace of God]].
+[^a]: [[Assembly for Worship|TG Assembly for Worship]]; [[Meetings|Meetings]].  
+[^b]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  
+[^c]: [[Peace of God|TG Peace of God]].  

@@ -5,5 +5,5 @@
 [Mosiah 2:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Boast, Boasting]].
-[^b]: TG [[Conscience]].
+[^a]: [[Boast, Boasting|TG Boast]].  
+[^b]: [[Conscience|TG Conscience]].  

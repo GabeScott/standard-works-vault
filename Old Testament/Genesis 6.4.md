@@ -5,4 +5,4 @@
 [Genesis 6:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.4?lang=eng#p4)
 
 
-[^a]: [[Genesis 14.5|Gen. 14:5]]; [[Numbers 13.33|Num. 13:33]]; [[Deuteronomy 3.11|Deut. 3:11]]; [[Moses 8.18|Moses 8:18 (18-21).]]
+[^a]: [[Genesis 14.5|Gen. 14:5]]; [[Numbers 13.33|Num. 13:33]]; [[Deuteronomy 3.11|Deut. 3:11]]; [[Moses 8.18|Moses 8:18 (18–21)]][[Moses 8.19|]][[Moses 8.20|]][[Moses 8.21|]].  

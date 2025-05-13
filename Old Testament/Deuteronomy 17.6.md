@@ -5,6 +5,6 @@
 [Deuteronomy 17:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/17.6?lang=eng#p6)
 
 
-[^a]: IE On the evidence.
-[^b]: TG [[Witness, Witnesses]].
-[^c]: TG [[Capital Punishment]].
+[^a]: IE On the evidence.  
+[^b]: [[Witness, Witnesses|TG Witness]].  
+[^c]: [[Capital Punishment|TG Capital Punishment]].  

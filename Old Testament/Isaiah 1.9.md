@@ -5,4 +5,4 @@
 [Isaiah 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.9?lang=eng#p9)
 
 
-[^a]: TG [[Israel, Remnant of]].
+[^a]: [[Israel, Remnant of|TG Israel, Remnant of]].  

@@ -5,4 +5,4 @@
 [Genesis 21:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.4?lang=eng#p4)
 
 
-[^a]: TG [[Circumcision]].
+[^a]: [[Circumcision|TG Circumcision]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/3.10?lang=eng#p10)
 
 
-[^a]: TG [[Cherubim]].
+[^a]: [[Cherubim|TG Cherubim]].  

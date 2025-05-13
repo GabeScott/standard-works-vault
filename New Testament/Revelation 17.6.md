@@ -5,6 +5,6 @@
 [Revelation 17:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.6?lang=eng#p6)
 
 
-[^a]: [[Revelation 18.24|Rev. 18:24 (22-24).]]
-[^b]: TG [[Martyrdom]].
-[^c]: GR astonishment, wonder.
+[^a]: [[Revelation 18.22|Rev. 18:24 (22–24)]][[Revelation 18.23|]][[Revelation 18.24|]].  
+[^b]: [[Martyrdom|TG Martyrdom]].  
+[^c]: GR astonishment, wonder.  

@@ -5,4 +5,4 @@
 [1 Kings 7:40](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.40?lang=eng#p40)
 
 
-[^a]: OR washbasins.
+[^a]: OR washbasins.  

@@ -5,4 +5,4 @@
 [Alma 33:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p20#p20)
 
 
-[^a]: [[Hosea 11.3|Hosea 11:3]]; [[1 Nephi 17.41|1 Ne. 17:41 (40-41).]]
+[^a]: [[Hosea 11.3|Hosea 11:3]]; [[1 Nephi 17.40|1 Ne. 17:41 (40–41)]][[1 Nephi 17.41|]].  

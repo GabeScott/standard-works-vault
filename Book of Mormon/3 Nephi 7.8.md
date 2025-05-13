@@ -5,4 +5,4 @@
 [3 Nephi 7:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p8#p8)
 
 
-[^a]: [[Proverbs 26.11|Prov. 26:11]]; 2 Pet. 2:22.
+[^a]: [[Proverbs 26.11|Prov. 26:11]]; [[2 Peter 2.22|2 Pet. 2:22]].  

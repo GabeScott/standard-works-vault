@@ -5,4 +5,4 @@
 [1 Kings 22:48](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.48?lang=eng#p48)
 
 
-[^a]: [[Numbers 33.36|Num. 33:36]]; [[1 Kings 9.26|1 Kgs. 9:26.]]
+[^a]: [[Numbers 33.36|Num. 33:36]]; [[1 Kings 9.26|1 Kgs. 9:26]].  

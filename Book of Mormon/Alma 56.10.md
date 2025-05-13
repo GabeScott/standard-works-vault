@@ -5,4 +5,4 @@
 [Alma 56:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 56.17|Alma 56:17.]]
+[^a]: [[Alma 56.17|Alma 56:17]].  

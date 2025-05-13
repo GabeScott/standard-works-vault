@@ -5,5 +5,5 @@
 [Alma 22:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Conversion, Convert]].
-[^b]: [[Ether 12.4|Ether 12:4.]]
+[^a]: [[Conversion, Convert|TG Conversion]].  
+[^b]: [[Ether 12.4|Ether 12:4]].  

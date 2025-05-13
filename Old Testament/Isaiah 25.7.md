@@ -5,4 +5,4 @@
 [Isaiah 25:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/25.7?lang=eng#p7)
 
 
-[^a]: TG [[Veil]].
+[^a]: [[Veil|TG Veil]].  

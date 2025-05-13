@@ -5,5 +5,5 @@
 [Revelation 10:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/10.6?lang=eng#p6)
 
 
-[^a]: Dan. 12:7.
-[^b]: TG [[Time]].
+[^a]: [[Daniel 12.7|Dan. 12:7]].  
+[^b]: [[Time|TG Time]].  

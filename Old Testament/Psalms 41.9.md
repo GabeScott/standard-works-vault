@@ -5,5 +5,5 @@
 [Psalms 41:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/41.9?lang=eng#p9)
 
 
-[^a]: [[Acts 1.16|Acts 1:16 (16-17).]]
-[^b]: TG [[Jesus Christ, Betrayal of]].
+[^a]: [[Acts 1.16|Acts 1:16 (16–17)]][[Acts 1.17|]].  
+[^b]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  

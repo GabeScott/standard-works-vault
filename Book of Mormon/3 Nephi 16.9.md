@@ -5,5 +5,5 @@
 [3 Nephi 16:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/16?lang=eng&id=p9#p9)
 
 
-[^a]: [[Amos 9.1|Amos 9:1 (1-4).]]
-[^b]: [[Jeremiah 23.40|Jer. 23:40]]; Lam. 2:16 (15-16); [[Joel 2.17|Joel 2:17]]; [[1 Nephi 19.14|1 Ne. 19:14.]]
+[^a]: [[Amos 9.1|Amos 9:1 (1–4)]][[Amos 9.2|]][[Amos 9.3|]][[Amos 9.4|]].  
+[^b]: [[Jeremiah 23.40|Jer. 23:40]]; [[Lamentations 2.15|Lam. 2:16 (15–16)]][[Lamentations 2.16|]]; [[Joel 2.17|Joel 2:17]]; [[1 Nephi 19.14|1 Ne. 19:14]].  

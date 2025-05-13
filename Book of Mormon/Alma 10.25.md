@@ -5,4 +5,4 @@
 [Alma 10:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p25#p25)
 
 
-[^a]: [[2 Corinthians 4.4|2 Cor. 4:4 (3-4)]]; [[Alma 14.6|Alma 14:6]]; [[Moses 6.27|Moses 6:27.]]
+[^a]: [[2 Corinthians 4.3|2 Cor. 4:4 (3–4)]][[2 Corinthians 4.4|]]; [[Alma 14.6|Alma 14:6]]; [[Moses 6.27|Moses 6:27]].  

@@ -5,5 +5,5 @@
 [Mosiah 15:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p11#p11)
 
 
-[^a]: [[Luke 10.16|Luke 10:16]]; [[D&C 84.36|D&C 84:36 (36-38).]]
-[^b]: TG [[Kingdom of God, in Heaven]]; [[Kingdom of God, on Earth]].
+[^a]: [[Luke 10.16|Luke 10:16]]; [[D&C 84.36|D&C 84:36 (36–38)]][[D&C 84.37|]][[D&C 84.38|]].  
+[^b]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]]; [[Kingdom of God, on Earth|Kingdom of God, on Earth]].  

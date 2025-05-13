@@ -5,5 +5,5 @@
 [Jeremiah 49:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.14?lang=eng#p14)
 
 
-[^a]: OR report.
-[^b]: HEB nations, or Gentiles.
+[^a]: OR report.  
+[^b]: HEB nations, or Gentiles.  

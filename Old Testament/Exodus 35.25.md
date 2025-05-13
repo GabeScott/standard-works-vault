@@ -5,4 +5,4 @@
 [Exodus 35:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.25?lang=eng#p25)
 
 
-[^a]: [[Exodus 28.3|Ex. 28:3.]]
+[^a]: [[Exodus 28.3|Ex. 28:3]].  

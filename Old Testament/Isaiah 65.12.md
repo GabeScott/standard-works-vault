@@ -5,4 +5,4 @@
 [Isaiah 65:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.12?lang=eng#p12)
 
 
-[^a]: [[Isaiah 66.4|Isa. 66:4.]]
+[^a]: [[Isaiah 66.4|Isa. 66:4]].  

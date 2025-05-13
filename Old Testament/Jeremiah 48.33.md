@@ -5,5 +5,5 @@
 [Jeremiah 48:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.33?lang=eng#p33)
 
 
-[^a]: [[Isaiah 16.10|Isa. 16:10.]]
-[^b]: OR cheering.
+[^a]: [[Isaiah 16.10|Isa. 16:10]].  
+[^b]: OR cheering.  

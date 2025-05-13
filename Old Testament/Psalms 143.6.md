@@ -5,4 +5,4 @@
 [Psalms 143:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/143.6?lang=eng#p6)
 
 
-[^b]: [[Psalms 63.1|Ps. 63:1.]]
+[^b]: [[Psalms 63.1|Ps. 63:1]].  

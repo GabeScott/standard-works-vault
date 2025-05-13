@@ -5,4 +5,4 @@
 [Ether 15:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/15?lang=eng&id=p11#p11)
 
 
-[^a]: [[Mormon 6.6|Morm. 6:6.]]
+[^a]: [[Mormon 6.6|Morm. 6:6]].  

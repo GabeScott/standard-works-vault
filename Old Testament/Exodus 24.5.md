@@ -5,4 +5,4 @@
 [Exodus 24:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 32.6|Ex. 32:6.]]
+[^a]: [[Exodus 32.6|Ex. 32:6]].  

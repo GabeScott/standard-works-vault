@@ -5,6 +5,6 @@
 [Genesis 27:43](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.43?lang=eng#p43)
 
 
-[^a]: [[Genesis 35.1|Gen. 35:1.]]
-[^b]: [[Genesis 24.4|Gen. 24:4.]]
-[^c]: [[Genesis 24.10|Gen. 24:10]]; [[Genesis 29.4|29:4.]]
+[^a]: [[Genesis 35.1|Gen. 35:1]].  
+[^b]: [[Genesis 24.4|Gen. 24:4]].  
+[^c]: [[Genesis 24.10|Gen. 24:10]]; [[Genesis 29.4|29:4]].  

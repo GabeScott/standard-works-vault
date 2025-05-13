@@ -5,7 +5,7 @@
 [2 Samuel 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.3?lang=eng#p3)
 
 
-[^a]: TG [[Faith]]; [[Trust in God]].
-[^b]: [[Deuteronomy 20.1|Deut. 20:1]]; [[D&C 35.14|D&C 35:14.]]
-[^c]: [[Proverbs 18.10|Prov. 18:10]]; [[D&C 97.20|D&C 97:20.]]
-[^d]: TG [[Refuge]].
+[^a]: [[Faith|TG Faith]]; [[Trust in God|Trust in God]].  
+[^b]: [[Deuteronomy 20.1|Deut. 20:1]]; [[D&C 35.14|D&C 35:14]].  
+[^c]: [[Proverbs 18.10|Prov. 18:10]]; [[D&C 97.20|D&C 97:20]].  
+[^d]: [[Refuge|TG Refuge]].  

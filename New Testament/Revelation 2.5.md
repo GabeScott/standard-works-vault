@@ -5,5 +5,5 @@
 [Revelation 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.5?lang=eng#p5)
 
 
-[^a]: [[Revelation 1.20|Rev. 1:20]]. TG [[Apostasy of the Early Christian Church]].
-[^b]: TG [[Repent, Repentance]].
+[^a]: [[Revelation 1.20|Rev. 1:20]]. [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  
+[^b]: [[Repent, Repentance|TG Repent]].  

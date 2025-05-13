@@ -5,4 +5,4 @@
 [Deuteronomy 32:30](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.30?lang=eng#p30)
 
 
-[^a]: [[D&C 133.58|D&C 133:58.]]
+[^a]: [[D&C 133.58|D&C 133:58]].  

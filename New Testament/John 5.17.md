@@ -5,5 +5,5 @@
 [John 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.17?lang=eng#p17)
 
 
-[^a]: TG [[God, Works of]].
-[^b]: [[John 9.4|John 9:4.]]
+[^a]: [[God, Works of|TG God, Works of]].  
+[^b]: [[John 9.4|John 9:4]].  

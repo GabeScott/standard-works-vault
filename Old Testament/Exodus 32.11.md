@@ -5,4 +5,4 @@
 [Exodus 32:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.11?lang=eng#p11)
 
 
-[^a]: [[Deuteronomy 9.18|Deut. 9:18 (18, 26-29).]]
+[^a]: [[Deuteronomy 9.18|Deut. 9:18 (18, 26–29)]][[Deuteronomy 9.26|]][[Deuteronomy 9.27|]][[Deuteronomy 9.28|]][[Deuteronomy 9.29|]].  

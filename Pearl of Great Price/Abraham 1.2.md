@@ -5,9 +5,9 @@
 [Abraham 1:2](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.2?lang=eng#p2)
 
 
-[^a]: TG [[Happiness, Happy]]; [[Priesthood, Qualifying for]]; [[Restoration of the Gospel]]; [[God, the Standard of Righteousness]].
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: [[Proverbs 19.2|Prov. 19:2]]; [[D&C 42.61|D&C 42:61.]]
-[^d]: [[Genesis 12.2|Gen. 12:2]]; [[Genesis 17.6|17:6]]; [[Genesis 18.18|18:18.]]
-[^e]: [[Genesis 13.4|Gen. 13:4.]]
-[^f]: TG [[High Priest, Melchizedek Priesthood]]; [[Priesthood, History of]]; [[Priesthood, Melchizedek]].
+[^a]: [[Happiness, Happy|TG Happiness]]; [[Priesthood, Qualifying for|Priesthood, Qualifying for]]; [[Rest|Rest]]; [[Righteousness|Righteousness]].  
+[^b]: [[God, the Standard of Righteousness|TG God, the Standard of Righteousness]].  
+[^c]: [[Proverbs 19.2|Prov. 19:2]]; [[D&C 42.61|D&C 42:61]].  
+[^d]: [[Genesis 12.2|Gen. 12:2]]; [[Genesis 17.6|17:6]]; [[Genesis 18.18|18:18]].  
+[^e]: [[Genesis 13.4|Gen. 13:4]].  
+[^f]: [[High Priest, Melchizedek Priesthood|TG High Priest, Melchizedek Priesthood]]; [[Priesthood, History of|Priesthood, History of]]; [[Priesthood, Melchizedek|Priesthood, Melchizedek]].  

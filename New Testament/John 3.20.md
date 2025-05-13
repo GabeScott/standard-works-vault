@@ -5,5 +5,5 @@
 [John 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.20?lang=eng#p20)
 
 
-[^a]: TG [[Evil]].
-[^b]: TG [[Hate]].
+[^a]: [[Evil|TG Evil]].  
+[^b]: [[Hate|TG Hate]].  

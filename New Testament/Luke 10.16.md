@@ -5,8 +5,8 @@
 [Luke 10:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.16?lang=eng#p16)
 
 
-[^a]: JST Luke 10:17 And he said unto his disciples, He that heareth …
-[^b]: [[Matthew 10.40|Matt. 10:40]]; [[Mosiah 15.11|Mosiah 15:11.]]
-[^c]: GR rejects. D&C 84:36 (35-39).
-[^d]: 1 Thes. 4:8.
-[^e]: [[John 5.23|John 5:23.]]
+[^a]: JST Luke 10:17 And he said unto his disciples, He that heareth …  
+[^b]: [[Matthew 10.40|Matt. 10:40]]; [[Mosiah 15.11|Mosiah 15:11]].  
+[^c]: GR rejects. [[D&C 84.35|D&C 84:36 (35–39)]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]].  
+[^d]: [[1 Thessalonians 4.8|1 Thes. 4:8]].  
+[^e]: [[John 5.23|John 5:23]].  

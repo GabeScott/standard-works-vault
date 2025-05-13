@@ -5,5 +5,5 @@
 [John 5:44](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.44?lang=eng#p44)
 
 
-[^a]: [[Luke 18.9|Luke 18:9]]; 1 Thes. 2:6; [[D&C 76.61|D&C 76:61.]]
-[^b]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Luke 18.9|Luke 18:9]]; [[1 Thessalonians 2.6|1 Thes. 2:6]]; [[D&C 76.61|D&C 76:61]].  
+[^b]: [[God, the Standard of Righteousness|TG God, the Standard of Righteousness]].  

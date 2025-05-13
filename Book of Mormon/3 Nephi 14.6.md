@@ -5,4 +5,4 @@
 [3 Nephi 14:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Holiness]].
+[^a]: [[Holiness|TG Holiness]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 4:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.20?lang=eng#p20)
 
 
-[^a]: TG [[Inheritance]].
+[^a]: [[Inheritance|TG Inheritance]].  

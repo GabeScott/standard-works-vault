@@ -5,4 +5,4 @@
 [2 Chronicles 28:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.6?lang=eng#p6)
 
 
-[^a]: [[2 Kings 15.27|2 Kgs. 15:27 (27-28).]]
+[^a]: [[2 Kings 15.27|2 Kgs. 15:27 (27–28)]][[2 Kings 15.28|]].  

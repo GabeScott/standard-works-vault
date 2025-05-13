@@ -5,5 +5,5 @@
 [Helaman 12:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p7#p7)
 
 
-[^a]: [[Isaiah 40.17|Isa. 40:17 (15, 17)]]; Dan. 4:35; [[Moses 1.10|Moses 1:10.]]
-[^b]: [[Genesis 18.27|Gen. 18:27.]]
+[^a]: [[Isaiah 40.15|Isa. 40:17 (15, 17)]][[Isaiah 40.17|]]; [[Daniel 4.35|Dan. 4:35]]; [[Moses 1.10|Moses 1:10]].  
+[^b]: [[Genesis 18.27|Gen. 18:27]].  

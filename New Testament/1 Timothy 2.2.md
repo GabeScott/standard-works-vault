@@ -5,7 +5,7 @@
 [1 Timothy 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/2.2?lang=eng#p2)
 
 
-[^a]: TG [[Governments]]; [[Kings, Earthly]].
-[^b]: TG [[Peace of God]]; [[Peace of God]]makers.
-[^c]: TG [[Citizenship]].
-[^d]: GR dignity, gravity. TG [[Honesty]].
+[^a]: [[Governments|TG Governments]]; [[Kings, Earthly|Kings, Earthly]].  
+[^b]: [[Peace|TG Peace]]; [[Peacemakers|Peacemakers]].  
+[^c]: [[Citizenship|TG Citizenship]].  
+[^d]: GR dignity, gravity. [[Honesty|TG Honesty]].  

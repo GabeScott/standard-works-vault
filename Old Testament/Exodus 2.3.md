@@ -5,4 +5,4 @@
 [Exodus 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.3?lang=eng#p3)
 
 
-[^a]: HEB among the reeds.
+[^a]: HEB among the reeds.  

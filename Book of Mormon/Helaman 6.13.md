@@ -5,5 +5,5 @@
 [Helaman 6:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Art]].
-[^b]: [[Mosiah 10.5|Mosiah 10:5]]; [[Alma 1.29|Alma 1:29.]]
+[^a]: [[Art|TG Art]].  
+[^b]: [[Mosiah 10.5|Mosiah 10:5]]; [[Alma 1.29|Alma 1:29]].  

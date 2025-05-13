@@ -5,4 +5,4 @@
 [Helaman 7:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p13#p13)
 
 
-[^a]: [[Matthew 3.7|Matt. 3:7 (5-8).]]
+[^a]: [[Matthew 3.5|Matt. 3:7 (5–8)]][[Matthew 3.6|]][[Matthew 3.7|]][[Matthew 3.8|]].  

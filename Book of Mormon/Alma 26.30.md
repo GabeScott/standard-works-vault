@@ -5,4 +5,4 @@
 [Alma 26:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p30#p30)
 
 
-[^a]: [[D&C 18.15|D&C 18:15 (15-16).]]
+[^a]: [[D&C 18.15|D&C 18:15 (15–16)]][[D&C 18.16|]].  

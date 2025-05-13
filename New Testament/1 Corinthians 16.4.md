@@ -5,4 +5,4 @@
 [1 Corinthians 16:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.4?lang=eng#p4)
 
 
-[^a]: GR suitable, worthwhile.
+[^a]: GR suitable, worthwhile.  

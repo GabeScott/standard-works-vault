@@ -5,6 +5,6 @@
 [2 Nephi 21:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/21?lang=eng&id=p11#p11)
 
 
-[^a]: [[2 Nephi 6.14|2 Ne. 6:14]]; [[2 Nephi 25.17|25:17]]; [[2 Nephi 29.1|29:1.]]
-[^b]: [[Zechariah 10.10|Zech. 10:10.]]
-[^c]: [[Genesis 10.10|Gen. 10:10.]]
+[^a]: [[2 Nephi 6.14|2 Ne. 6:14]]; [[2 Nephi 25.17|25:17]]; [[2 Nephi 29.1|29:1]].  
+[^b]: [[Zechariah 10.10|Zech. 10:10]].  
+[^c]: [[Genesis 10.10|Gen. 10:10]].  

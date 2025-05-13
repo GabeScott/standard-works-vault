@@ -5,4 +5,4 @@
 [Proverbs 11:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.24?lang=eng#p24)
 
 
-[^a]: [[Proverbs 13.7|Prov. 13:7.]]
+[^a]: [[Proverbs 13.7|Prov. 13:7]].  

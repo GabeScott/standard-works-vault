@@ -5,6 +5,6 @@
 [Malachi 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/1.8?lang=eng#p8)
 
 
-[^a]: [[Leviticus 22.22|Lev. 22:22.]]
-[^b]: TG [[Self-Sacrifice]].
-[^c]: IE lame or sick animals.
+[^a]: [[Leviticus 22.22|Lev. 22:22]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  
+[^c]: IE lame or sick animals.  

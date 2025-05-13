@@ -5,4 +5,4 @@
 [Moses 8:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.3?lang=eng#p3)
 
 
-[^a]: [[Moses 6.23|Moses 6:23.]]
+[^a]: [[Moses 6.23|Moses 6:23]].  

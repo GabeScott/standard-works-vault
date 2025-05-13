@@ -5,4 +5,4 @@
 [2 Kings 16:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/16.17?lang=eng#p17)
 
 
-[^a]: [[1 Kings 7.23|1 Kgs. 7:23 (23-26).]]
+[^a]: [[1 Kings 7.23|1 Kgs. 7:23 (23–26)]][[1 Kings 7.24|]][[1 Kings 7.25|]][[1 Kings 7.26|]].  

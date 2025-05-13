@@ -5,4 +5,4 @@
 [Matthew 14:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.15?lang=eng#p15)
 
 
-[^a]: GR food.
+[^a]: GR food.  

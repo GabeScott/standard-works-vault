@@ -5,4 +5,4 @@
 [Isaiah 13:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.20?lang=eng#p20)
 
 
-[^a]: [[Jeremiah 50.3|Jer. 50:3.]]
+[^a]: [[Jeremiah 50.3|Jer. 50:3]].  

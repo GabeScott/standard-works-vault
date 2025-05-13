@@ -5,4 +5,4 @@
 [1 Kings 2:39](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.39?lang=eng#p39)
 
 
-[^a]: [[1 Samuel 27.2|1 Sam. 27:2.]]
+[^a]: [[1 Samuel 27.2|1 Sam. 27:2]].  

@@ -5,4 +5,4 @@
 [Mark 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.2?lang=eng#p2)
 
 
-[^a]: GR watched carefully, maliciously.
+[^a]: GR watched carefully, maliciously.  

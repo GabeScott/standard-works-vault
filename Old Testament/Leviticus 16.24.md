@@ -5,4 +5,4 @@
 [Leviticus 16:24](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.24?lang=eng#p24)
 
 
-[^a]: HEB in a holy place.
+[^a]: HEB in a holy place.  

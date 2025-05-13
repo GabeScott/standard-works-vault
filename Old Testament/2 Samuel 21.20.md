@@ -5,4 +5,4 @@
 [2 Samuel 21:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/21.20?lang=eng#p20)
 
 
-[^a]: [[1 Samuel 17.4|1 Sam. 17:4.]]
+[^a]: [[1 Samuel 17.4|1 Sam. 17:4]].  

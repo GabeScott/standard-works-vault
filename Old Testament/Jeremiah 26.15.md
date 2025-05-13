@@ -5,4 +5,4 @@
 [Jeremiah 26:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.15?lang=eng#p15)
 
 
-[^a]: [[Mosiah 17.10|Mosiah 17:10.]]
+[^a]: [[Mosiah 17.10|Mosiah 17:10]].  

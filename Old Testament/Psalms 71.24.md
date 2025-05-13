@@ -5,4 +5,4 @@
 [Psalms 71:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/71.24?lang=eng#p24)
 
 
-[^a]: TG [[Shame]].
+[^a]: [[Shame|TG Shame]].  

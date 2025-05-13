@@ -5,5 +5,5 @@
 [Jeremiah 4:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.19?lang=eng#p19)
 
 
-[^a]: Lam. 1:20.
-[^b]: TG [[Pain]].
+[^a]: [[Lamentations 1.20|Lam. 1:20]].  
+[^b]: [[Pain|TG Pain]].  

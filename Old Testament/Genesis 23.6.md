@@ -5,4 +5,4 @@
 [Genesis 23:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.6?lang=eng#p6)
 
 
-[^a]: HEB a prince of God.
+[^a]: HEB a prince of God.  

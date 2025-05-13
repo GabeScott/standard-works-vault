@@ -5,4 +5,4 @@
 [Ezra 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.9?lang=eng#p9)
 
 
-[^a]: TG [[Bondage, Physical]].
+[^a]: [[Bondage, Physical|TG Bondage, Physical]].  

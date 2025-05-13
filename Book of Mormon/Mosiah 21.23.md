@@ -5,5 +5,5 @@
 [Mosiah 21:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p23#p23)
 
 
-[^a]: [[Mosiah 7.10|Mosiah 7:10.]]
-[^b]: [[Mosiah 7.7|Mosiah 7:7 (6-8)]]; [[Helaman 5.21|Hel. 5:21.]]
+[^a]: [[Mosiah 7.10|Mosiah 7:10]].  
+[^b]: [[Mosiah 7.6|Mosiah 7:7 (6–8)]][[Mosiah 7.7|]][[Mosiah 7.8|]]; [[Helaman 5.21|Hel. 5:21]].  

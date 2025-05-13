@@ -5,4 +5,4 @@
 [Leviticus 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/5.6?lang=eng#p6)
 
 
-[^a]: HEB guilt sacrifice. Ezek. 40:39.
+[^a]: HEB guilt sacrifice. [[Ezekiel 40.39|Ezek. 40:39]].  

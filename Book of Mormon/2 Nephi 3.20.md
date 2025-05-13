@@ -5,5 +5,5 @@
 [2 Nephi 3:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p20#p20)
 
 
-[^a]: [[2 Nephi 26.16|2 Ne. 26:16]]; [[Mormon 8.23|Morm. 8:23 (23, 26).]]
-[^b]: TG [[Book of Mormon]].
+[^a]: [[2 Nephi 26.16|2 Ne. 26:16]]; [[Mormon 8.23|Morm. 8:23 (23, 26)]][[Mormon 8.26|]].  
+[^b]: [[Book of Mormon|TG Book of Mormon]].  

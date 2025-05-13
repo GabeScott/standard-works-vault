@@ -5,5 +5,5 @@
 [Jeremiah 4:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.20?lang=eng#p20)
 
 
-[^a]: [[Ezekiel 7.26|Ezek. 7:26.]]
-[^b]: [[Jeremiah 10.20|Jer. 10:20.]]
+[^a]: [[Ezekiel 7.26|Ezek. 7:26]].  
+[^b]: [[Jeremiah 10.20|Jer. 10:20]].  

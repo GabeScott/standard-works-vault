@@ -5,4 +5,4 @@
 [1 Kings 2:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.31?lang=eng#p31)
 
 
-[^a]: [[Deuteronomy 19.13|Deut. 19:13.]]
+[^a]: [[Deuteronomy 19.13|Deut. 19:13]].  

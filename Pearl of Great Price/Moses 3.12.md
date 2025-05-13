@@ -5,4 +5,4 @@
 [Moses 3:12](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 25.7|Ex. 25:7.]]
+[^a]: [[Exodus 25.7|Ex. 25:7]].  

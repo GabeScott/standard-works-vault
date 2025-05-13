@@ -5,4 +5,4 @@
 [Alma 18:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p21#p21)
 
 
-[^a]: Dan. 5:16.
+[^a]: [[Daniel 5.16|Dan. 5:16]].  

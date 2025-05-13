@@ -5,4 +5,4 @@
 [Hosea 6:10](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/6.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 5.30|Jer. 5:30 (30-31).]]
+[^a]: [[Jeremiah 5.30|Jer. 5:30 (30–31)]][[Jeremiah 5.31|]].  

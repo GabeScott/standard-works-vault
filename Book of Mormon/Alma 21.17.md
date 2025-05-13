@@ -5,4 +5,4 @@
 [Alma 21:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 62.45|Alma 62:45]]; [[D&C 18.44|D&C 18:44.]]
+[^a]: [[Alma 62.45|Alma 62:45]]; [[D&C 18.44|D&C 18:44]].  

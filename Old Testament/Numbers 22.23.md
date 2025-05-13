@@ -5,4 +5,4 @@
 [Numbers 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/num/22.23?lang=eng#p23)
 
 
-[^a]: [[2 Kings 6.17|2 Kgs. 6:17.]]
+[^a]: [[2 Kings 6.17|2 Kgs. 6:17]].  

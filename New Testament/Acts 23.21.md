@@ -5,4 +5,4 @@
 [Acts 23:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.21?lang=eng#p21)
 
 
-[^a]: TG [[Vow]].
+[^a]: [[Vow|TG Vow]].  

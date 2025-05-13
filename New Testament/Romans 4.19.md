@@ -5,4 +5,4 @@
 [Romans 4:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.19?lang=eng#p19)
 
 
-[^a]: TG [[Old Age]].
+[^a]: [[Old Age|TG Old Age]].  

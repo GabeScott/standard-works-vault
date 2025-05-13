@@ -5,4 +5,4 @@
 [Alma 61:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/61?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 50.40|Alma 50:40.]]
+[^a]: [[Alma 50.40|Alma 50:40]].  

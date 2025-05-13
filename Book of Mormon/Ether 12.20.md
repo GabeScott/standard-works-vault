@@ -5,4 +5,4 @@
 [Ether 12:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p20#p20)
 
 
-[^a]: [[Ether 3.4|Ether 3:4.]]
+[^a]: [[Ether 3.4|Ether 3:4]].  

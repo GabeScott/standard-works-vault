@@ -5,4 +5,4 @@
 [Isaiah 36:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/36.19?lang=eng#p19)
 
 
-[^a]: IE the capital of northern Israel (ten tribes), which had already been captured.
+[^a]: IE the capital of northern Israel (ten tribes), which had already been captured.  

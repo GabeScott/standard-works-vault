@@ -5,4 +5,4 @@
 [Luke 8:48](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.48?lang=eng#p48)
 
 
-[^a]: GR courage, cheer.
+[^a]: GR courage, cheer.  

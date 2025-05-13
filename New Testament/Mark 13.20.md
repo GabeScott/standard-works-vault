@@ -5,4 +5,4 @@
 [Mark 13:20](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.20?lang=eng#p20)
 
 
-[^a]: [[D&C 29.7|D&C 29:7]]; [[D&C 84.34|84:34.]]
+[^a]: [[D&C 29.7|D&C 29:7]]; [[D&C 84.34|84:34]].  

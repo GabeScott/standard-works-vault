@@ -5,5 +5,5 @@
 [Deuteronomy 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.7?lang=eng#p7)
 
 
-[^a]: HEB in the lowlands.
-[^b]: HEB Negev.
+[^a]: HEB in the lowlands.  
+[^b]: HEB Negev.  

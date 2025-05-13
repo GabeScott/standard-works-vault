@@ -5,5 +5,5 @@
 [Romans 9:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.20?lang=eng#p20)
 
 
-[^a]: GR contradictest, disputest.
-[^b]: [[Job 9.12|Job 9:12.]]
+[^a]: GR contradictest, disputest.  
+[^b]: [[Job 9.12|Job 9:12]].  

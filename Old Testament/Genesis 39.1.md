@@ -5,5 +5,5 @@
 [Genesis 39:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 37.36|Gen. 37:36.]]
-[^b]: [[Genesis 37.28|Gen. 37:28.]]
+[^a]: [[Genesis 37.36|Gen. 37:36]].  
+[^b]: [[Genesis 37.28|Gen. 37:28]].  

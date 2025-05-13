@@ -5,5 +5,5 @@
 [Ether 13:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p21#p21)
 
 
-[^a]: [[Ether 11.21|Ether 11:21.]]
-[^b]: [[Ether 14.24|Ether 14:24]]; [[Ether 15.29|15:29 (29-32).]]
+[^a]: [[Ether 11.21|Ether 11:21]].  
+[^b]: [[Ether 14.24|Ether 14:24]]; [[Ether 15.29|15:29 (29–32)]][[Ether 15.30|]][[Ether 15.31|]][[Ether 15.32|]].  

@@ -5,6 +5,6 @@
 [Isaiah 44:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.21?lang=eng#p21)
 
 
-[^a]: IE these things.
-[^b]: [[Isaiah 44.1|Isa. 44:1 (1-2)]]; [[Isaiah 45.4|45:4]]; [[1 Nephi 20.20|1 Ne. 20:20.]]
-[^c]: [[3 Nephi 16.11|3 Ne. 16:11 (10-12)]]; [[3 Nephi 20.29|20:29 (28-31).]]
+[^a]: IE these things.  
+[^b]: [[Isaiah 44.1|Isa. 44:1 (1–2)]][[Isaiah 44.2|]]; [[Isaiah 45.4|45:4]]; [[1 Nephi 20.20|1 Ne. 20:20]].  
+[^c]: [[3 Nephi 16.10|3 Ne. 16:11 (10–12)]][[3 Nephi 16.11|]][[3 Nephi 16.12|]]; [[3 Nephi 20.28|20:29 (28–31)]][[3 Nephi 20.29|]][[3 Nephi 20.30|]][[3 Nephi 20.31|]].  

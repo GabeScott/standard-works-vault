@@ -5,8 +5,8 @@
 [Jeremiah 30:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.14?lang=eng#p14)
 
 
-[^a]: Lam. 1:2.
-[^b]: OR caused thee to be wounded.
-[^c]: [[Hosea 5.13|Hosea 5:13.]]
-[^d]: TG [[Cruelty, Cruel]].
-[^e]: Lam. 1:5.
+[^a]: [[Lamentations 1.2|Lam. 1:2]].  
+[^b]: OR caused thee to be wounded.  
+[^c]: [[Hosea 5.13|Hosea 5:13]].  
+[^d]: [[Cruelty, Cruel|TG Cruelty]].  
+[^e]: [[Lamentations 1.5|Lam. 1:5]].  

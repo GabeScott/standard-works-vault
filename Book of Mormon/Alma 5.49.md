@@ -5,5 +5,5 @@
 [Alma 5:49](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p49#p49)
 
 
-[^a]: TG [[Called of God]]; [[Priesthood, History of]].
-[^b]: TG [[Man, New, Spiritually Reborn]].
+[^a]: [[Called of God|TG Called of God]]; [[Priesthood|Priesthood]].  
+[^b]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  

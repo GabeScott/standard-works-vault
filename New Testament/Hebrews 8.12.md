@@ -5,5 +5,5 @@
 [Hebrews 8:12](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/8.12?lang=eng#p12)
 
 
-[^a]: [[D&C 38.14|D&C 38:14.]]
-[^b]: TG [[Forgive, Forgiveness]].
+[^a]: [[D&C 38.14|D&C 38:14]].  
+[^b]: [[Forgive, Forgiveness|TG Forgive]].  

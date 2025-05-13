@@ -5,4 +5,4 @@
 [Psalms 83:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/83.14?lang=eng#p14)
 
 
-[^a]: HEB forest.
+[^a]: HEB forest.  

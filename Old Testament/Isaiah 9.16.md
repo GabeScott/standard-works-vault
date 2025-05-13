@@ -5,5 +5,5 @@
 [Isaiah 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.16?lang=eng#p16)
 
 
-[^a]: TG [[Leadership]].
-[^b]: [[Isaiah 1.31|Isa. 1:31.]]
+[^a]: [[Leadership|TG Leadership]].  
+[^b]: [[Isaiah 1.31|Isa. 1:31]].  

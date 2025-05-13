@@ -5,4 +5,4 @@
 [Proverbs 27:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.22?lang=eng#p22)
 
 
-[^a]: OR pound, rub.
+[^a]: OR pound, rub.  

@@ -5,8 +5,8 @@
 [Matthew 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.15?lang=eng#p15)
 
 
-[^a]: JST Matt. 3:43-46 (Appendix).
-[^b]: GR Permit it now.
-[^c]: GR is fitting for us.
-[^d]: TG [[Baptism, Essential]].
-[^e]: TG [[Jesus Christ, Mission of]]; [[God, the Standard of Righteousness]].
+[^a]: [[JST Matthew 3.43|JST Matt. 3:43–46 (Appendix)]][[JST Matthew 3.44|]][[JST Matthew 3.45|]][[JST Matthew 3.46|]].  
+[^b]: GR Permit it now.  
+[^c]: GR is fitting for us.  
+[^d]: [[Baptism, Essential|TG Baptism, Essential]].  
+[^e]: [[Jesus Christ, Mission of|TG Jesus Christ, Mission of]]; [[Righteousness|Righteousness]].  

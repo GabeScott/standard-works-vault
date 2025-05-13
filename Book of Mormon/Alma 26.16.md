@@ -5,6 +5,6 @@
 [Alma 26:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p16#p16)
 
 
-[^a]: [[Romans 15.17|Rom. 15:17]]; [[1 Corinthians 1.31|1 Cor. 1:31.]]
-[^b]: [[Psalms 44.8|Ps. 44:8 (4-8)]]; [[2 Corinthians 10.17|2 Cor. 10:17 (15-18)]]; [[D&C 76.61|D&C 76:61.]]
-[^c]: [[Psalms 36.5|Ps. 36:5 (5-6)]]; [[Mormon 6.22|Morm. 6:22]]; [[D&C 97.6|D&C 97:6.]]
+[^a]: [[Romans 15.17|Rom. 15:17]]; [[1 Corinthians 1.31|1 Cor. 1:31]].  
+[^b]: [[Psalms 44.4|Ps. 44:8 (4–8)]][[Psalms 44.5|]][[Psalms 44.6|]][[Psalms 44.7|]][[Psalms 44.8|]]; [[2 Corinthians 10.15|2 Cor. 10:17 (15–18)]][[2 Corinthians 10.16|]][[2 Corinthians 10.17|]][[2 Corinthians 10.18|]]; [[D&C 76.61|D&C 76:61]].  
+[^c]: [[Psalms 36.5|Ps. 36:5 (5–6)]][[Psalms 36.6|]]; [[Mormon 6.22|Morm. 6:22]]; [[D&C 97.6|D&C 97:6]].  

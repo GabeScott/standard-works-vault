@@ -5,6 +5,6 @@
 [Isaiah 29:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.23?lang=eng#p23)
 
 
-[^a]: [[Isaiah 45.11|Isa. 45:11.]]
-[^b]: OR stand in awe of the God of Israel.
-[^c]: [[Isaiah 45.3|Isa. 45:3]]; [[3 Nephi 11.14|3 Ne. 11:14]]; [[D&C 36.1|D&C 36:1]]; [[D&C 127.3|127:3.]]
+[^a]: [[Isaiah 45.11|Isa. 45:11]].  
+[^b]: OR stand in awe of the God of Israel.  
+[^c]: [[Isaiah 45.3|Isa. 45:3]]; [[3 Nephi 11.14|3 Ne. 11:14]]; [[D&C 36.1|D&C 36:1]]; [[D&C 127.3|127:3]].  

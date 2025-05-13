@@ -5,4 +5,4 @@
 [Mosiah 27:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Persecution, Persecute]].
+[^a]: [[Persecution, Persecute|TG Persecution]].  

@@ -5,4 +5,4 @@
 [Jeremiah 2:26](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.26?lang=eng#p26)
 
 
-[^a]: TG [[Shame]].
+[^a]: [[Shame|TG Shame]].  

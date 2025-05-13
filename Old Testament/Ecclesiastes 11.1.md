@@ -5,4 +5,4 @@
 [Ecclesiastes 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/11.1?lang=eng#p1)
 
 
-[^a]: TG [[Bread]].
+[^a]: [[Bread|TG Bread]].  

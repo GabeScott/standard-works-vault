@@ -5,4 +5,4 @@
 [Colossians 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.7?lang=eng#p7)
 
 
-[^a]: GR formerly.
+[^a]: GR formerly.  

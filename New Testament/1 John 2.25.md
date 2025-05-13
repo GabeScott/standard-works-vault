@@ -5,5 +5,5 @@
 [1 John 2:25](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.25?lang=eng#p25)
 
 
-[^a]: [[D&C 88.4|D&C 88:4]]. TG [[Promise]].
-[^b]: [[John 17.3|John 17:3 (2-3)]]; [[2 Nephi 31.20|2 Ne. 31:20.]]
+[^a]: [[D&C 88.4|D&C 88:4]]. [[Promise|TG Promise]].  
+[^b]: [[John 17.2|John 17:3 (2–3)]][[John 17.3|]]; [[2 Nephi 31.20|2 Ne. 31:20]].  

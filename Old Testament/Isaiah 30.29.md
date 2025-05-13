@@ -5,7 +5,7 @@
 [Isaiah 30:29](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.29?lang=eng#p29)
 
 
-[^a]: IE the righteous survivors.
-[^b]: HEB the sanctifying of a feast day.
-[^c]: [[Isaiah 2.3|Isa. 2:3 (2-3)]]; [[D&C 49.25|D&C 49:25.]]
-[^d]: HEB rock.
+[^a]: IE the righteous survivors.  
+[^b]: HEB the sanctifying of a feast day.  
+[^c]: [[Isaiah 2.2|Isa. 2:3 (2–3)]][[Isaiah 2.3|]]; [[D&C 49.25|D&C 49:25]].  
+[^d]: HEB rock.  

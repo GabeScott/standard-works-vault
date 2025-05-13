@@ -5,4 +5,4 @@
 [3 Nephi 19:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p20#p20)
 
 
-[^a]: TG [[Church Organization]].
+[^a]: [[Church Organization|TG Church Organization]].  

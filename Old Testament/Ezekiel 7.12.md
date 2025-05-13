@@ -5,4 +5,4 @@
 [Ezekiel 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.12?lang=eng#p12)
 
 
-[^a]: [[Isaiah 24.2|Isa. 24:2 (1-3).]]
+[^a]: [[Isaiah 24.1|Isa. 24:2 (1–3)]][[Isaiah 24.2|]][[Isaiah 24.3|]].  

@@ -5,4 +5,4 @@
 [Leviticus 13:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.20?lang=eng#p20)
 
 
-[^a]: HEB its appearance is of a depression in the skin.
+[^a]: HEB its appearance is of a depression in the skin.  

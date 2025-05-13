@@ -5,6 +5,6 @@
 [Alma 45:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 48.19|Alma 48:19.]]
-[^b]: TG [[Church Organization]].
-[^c]: TG [[Teacher]].
+[^a]: [[Alma 48.19|Alma 48:19]].  
+[^b]: [[Church Organization|TG Church Organization]].  
+[^c]: [[Teacher|TG Teacher]].  

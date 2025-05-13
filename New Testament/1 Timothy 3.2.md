@@ -5,7 +5,7 @@
 [1 Timothy 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/3.2?lang=eng#p2)
 
 
-[^a]: TG [[Priesthood, Qualifying for]].
-[^b]: GR temperate, circumspect. TG [[Levity]].
-[^c]: TG [[Hospitality]].
-[^d]: 2 Tim. 2:24.
+[^a]: [[Priesthood, Qualifying for|TG Priesthood, Qualifying for]].  
+[^b]: GR temperate, circumspect. [[Levity|TG Levity]].  
+[^c]: [[Hospitality|TG Hospitality]].  
+[^d]: [[2 Timothy 2.24|2 Tim. 2:24]].  

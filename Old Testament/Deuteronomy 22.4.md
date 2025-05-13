@@ -5,4 +5,4 @@
 [Deuteronomy 22:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.4?lang=eng#p4)
 
 
-[^a]: [[D&C 58.28|D&C 58:28 (27-29).]]
+[^a]: [[D&C 58.27|D&C 58:28 (27–29)]][[D&C 58.28|]][[D&C 58.29|]].  

@@ -5,5 +5,5 @@
 [Hosea 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.5?lang=eng#p5)
 
 
-[^a]: TG [[Shame]].
-[^b]: [[Jeremiah 44.17|Jer. 44:17 (15-17).]]
+[^a]: [[Shame|TG Shame]].  
+[^b]: [[Jeremiah 44.15|Jer. 44:17 (15–17)]][[Jeremiah 44.16|]][[Jeremiah 44.17|]].  

@@ -5,5 +5,5 @@
 [Psalms 95:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/95.3?lang=eng#p3)
 
 
-[^a]: [[1 Chronicles 16.25|1 Chr. 16:25.]]
-[^b]: TG [[Kingdom of God, in Heaven]].
+[^a]: [[1 Chronicles 16.25|1 Chr. 16:25]].  
+[^b]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  

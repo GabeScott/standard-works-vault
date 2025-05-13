@@ -5,4 +5,4 @@
 [Leviticus 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.4?lang=eng#p4)
 
 
-[^a]: HEB cap.
+[^a]: HEB cap.  

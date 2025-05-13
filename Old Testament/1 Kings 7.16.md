@@ -5,4 +5,4 @@
 [1 Kings 7:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.16?lang=eng#p16)
 
 
-[^a]: IE the decorative carved head of a pillar.
+[^a]: IE the decorative carved head of a pillar.  

@@ -5,4 +5,4 @@
 [Proverbs 6:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.25?lang=eng#p25)
 
 
-[^a]: TG [[Chastity, Chaste]]; [[Lust]]; [[Sexual Immorality]].
+[^a]: [[Chastity, Chaste|TG Chastity]]; [[Lust|Lust]]; [[Sexual Immorality|Sexual Immorality]].  

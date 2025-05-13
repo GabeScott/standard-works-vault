@@ -5,5 +5,5 @@
 [Job 23:10](https://www.churchofjesuschrist.org/study/scriptures/ot/job/23.10?lang=eng#p10)
 
 
-[^a]: TG [[God, Omniscience of]].
-[^b]: TG [[Testament]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^b]: [[Test, Try, Prove|TG Test]].  

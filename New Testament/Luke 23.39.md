@@ -5,4 +5,4 @@
 [Luke 23:39](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.39?lang=eng#p39)
 
 
-[^a]: GR blasphemed, reproached.
+[^a]: GR blasphemed, reproached.  

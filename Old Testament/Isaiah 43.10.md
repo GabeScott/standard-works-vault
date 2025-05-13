@@ -5,7 +5,7 @@
 [Isaiah 43:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.10?lang=eng#p10)
 
 
-[^a]: IE Israel.
-[^b]: TG [[Israel, Mission of]].
-[^c]: [[Haggai 2.23|Hag. 2:23.]]
-[^d]: TG [[Faith]].
+[^a]: IE Israel.  
+[^b]: [[Israel, Mission of|TG Israel, Mission of]].  
+[^c]: [[Haggai 2.23|Hag. 2:23]].  
+[^d]: [[Faith|TG Faith]].  

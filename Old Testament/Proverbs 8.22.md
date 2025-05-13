@@ -5,4 +5,4 @@
 [Proverbs 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.22?lang=eng#p22)
 
 
-[^a]: TG [[Creation, Create]].
+[^a]: [[Creation, Create|TG Creation]].  

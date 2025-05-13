@@ -5,4 +5,4 @@
 [Mosiah 25:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/25?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mosiah 22.11|Mosiah 22:11 (11-13).]]
+[^a]: [[Mosiah 22.11|Mosiah 22:11 (11–13)]][[Mosiah 22.12|]][[Mosiah 22.13|]].  

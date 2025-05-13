@@ -5,5 +5,5 @@
 [Ezekiel 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/19.9?lang=eng#p9)
 
 
-[^a]: [[2 Chronicles 36.6|2 Chr. 36:6.]]
-[^b]: HEB strongholds.
+[^a]: [[2 Chronicles 36.6|2 Chr. 36:6]].  
+[^b]: HEB strongholds.  

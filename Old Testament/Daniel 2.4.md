@@ -5,5 +5,5 @@
 [Daniel 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.4?lang=eng#p4)
 
 
-[^a]: HEB Aramaic (a language related to Hebrew).
-[^b]: OR reveal or tell.
+[^a]: HEB Aramaic (a language related to Hebrew).  
+[^b]: OR reveal or tell.  

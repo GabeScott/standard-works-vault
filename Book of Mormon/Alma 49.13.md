@@ -5,5 +5,5 @@
 [Alma 49:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 48.8|Alma 48:8]]; [[Alma 50.10|50:10 (1-6, 10).]]
-[^b]: [[Alma 49.17|Alma 49:17.]]
+[^a]: [[Alma 48.8|Alma 48:8]]; [[Alma 50.1|50:10 (1–6, 10)]][[Alma 50.2|]][[Alma 50.3|]][[Alma 50.4|]][[Alma 50.5|]][[Alma 50.6|]][[Alma 50.10|]].  
+[^b]: [[Alma 49.17|Alma 49:17]].  

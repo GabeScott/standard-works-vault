@@ -5,4 +5,4 @@
 [2 Chronicles 21:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.17?lang=eng#p17)
 
 
-[^a]: OR Ahaziah (see 2 Chr. 22:1).
+[^a]: OR Ahaziah (see [[2 Chronicles 22.1|2 Chr. 22:1]]).  

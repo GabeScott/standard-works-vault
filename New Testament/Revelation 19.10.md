@@ -5,8 +5,8 @@
 [Revelation 19:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.10?lang=eng#p10)
 
 
-[^a]: [[Revelation 22.8|Rev. 22:8.]]
-[^b]: TG [[Assembly for Worship]].
-[^c]: [[Acts 10.26|Acts 10:26]]; [[Revelation 1.1|Rev. 1:1 (1-6).]]
-[^d]: TG [[Testimony]].
-[^e]: TG [[Prophecy]].
+[^a]: [[Revelation 22.8|Rev. 22:8]].  
+[^b]: [[Worship|TG Worship]].  
+[^c]: [[Acts 10.26|Acts 10:26]]; [[Revelation 1.1|Rev. 1:1 (1–6)]][[Revelation 1.2|]][[Revelation 1.3|]][[Revelation 1.4|]][[Revelation 1.5|]][[Revelation 1.6|]].  
+[^d]: [[Testimony|TG Testimony]].  
+[^e]: [[Prophecy|TG Prophecy]].  

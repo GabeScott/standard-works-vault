@@ -5,4 +5,4 @@
 [Ezekiel 38:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.18?lang=eng#p18)
 
 
-[^a]: [[Ezekiel 5.13|Ezek. 5:13.]]
+[^a]: [[Ezekiel 5.13|Ezek. 5:13]].  

@@ -5,5 +5,5 @@
 [Mosiah 22:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/22?lang=eng&id=p6#p6)
 
 
-[^a]: [[Mosiah 19.28|Mosiah 19:28]]; [[Mosiah 21.5|21:5.]]
-[^b]: [[Alma 55.14|Alma 55:14 (8-17).]]
+[^a]: [[Mosiah 19.28|Mosiah 19:28]]; [[Mosiah 21.5|21:5]].  
+[^b]: [[Alma 55.8|Alma 55:14 (8–17)]][[Alma 55.9|]][[Alma 55.10|]][[Alma 55.11|]][[Alma 55.12|]][[Alma 55.13|]][[Alma 55.14|]][[Alma 55.15|]][[Alma 55.16|]][[Alma 55.17|]].  

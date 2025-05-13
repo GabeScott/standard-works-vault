@@ -5,7 +5,7 @@
 [Helaman 14:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Jesus Christ, Savior]].
-[^b]: [[1 Corinthians 15.36|1 Cor. 15:36.]]
-[^c]: [[2 Nephi 9.4|2 Ne. 9:4]]; [[Alma 42.23|Alma 42:23]]; [[Mormon 9.13|Morm. 9:13]]. TG [[Jesus Christ, Resurrection]].
-[^d]: TG [[God, Presence of]].
+[^a]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]].  
+[^b]: [[1 Corinthians 15.36|1 Cor. 15:36]].  
+[^c]: [[2 Nephi 9.4|2 Ne. 9:4]]; [[Alma 42.23|Alma 42:23]]; [[Mormon 9.13|Morm. 9:13]]. [[Resurrection|TG Resurrection]].  
+[^d]: [[God, Presence of|TG God, Presence of]].  

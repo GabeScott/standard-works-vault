@@ -5,4 +5,4 @@
 [1 Samuel 12:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.14?lang=eng#p14)
 
 
-[^a]: TG [[Rebellion, Rebel]].
+[^a]: [[Rebellion, Rebel|TG Rebellion]].  

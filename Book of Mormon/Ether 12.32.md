@@ -5,5 +5,5 @@
 [Ether 12:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p32#p32)
 
 
-[^a]: [[John 14.2|John 14:2]]; [[Enos 1.27|Enos 1:27]]; [[D&C 72.4|D&C 72:4]]; [[D&C 98.18|98:18.]]
-[^b]: TG [[Hope]].
+[^a]: [[John 14.2|John 14:2]]; [[Enos 1.27|Enos 1:27]]; [[D&C 72.4|D&C 72:4]]; [[D&C 98.18|98:18]].  
+[^b]: [[Hope|TG Hope]].  

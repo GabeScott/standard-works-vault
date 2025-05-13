@@ -5,4 +5,4 @@
 [Genesis 31:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.14?lang=eng#p14)
 
 
-[^a]: TG [[Inheritance]].
+[^a]: [[Inheritance|TG Inheritance]].  

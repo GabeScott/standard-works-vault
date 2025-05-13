@@ -5,6 +5,6 @@
 [Revelation 18:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.3?lang=eng#p3)
 
 
-[^a]: [[Revelation 17.1|Rev. 17:1 (1-2)]]; [[D&C 35.11|D&C 35:11.]]
-[^b]: [[Isaiah 23.17|Isa. 23:17.]]
-[^c]: GR power of her wantonness.
+[^a]: [[Revelation 17.1|Rev. 17:1 (1–2)]][[Revelation 17.2|]]; [[D&C 35.11|D&C 35:11]].  
+[^b]: [[Isaiah 23.17|Isa. 23:17]].  
+[^c]: GR power of her wantonness.  

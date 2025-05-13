@@ -5,4 +5,4 @@
 [Jeremiah 43:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/43.11?lang=eng#p11)
 
 
-[^a]: [[Jeremiah 44.13|Jer. 44:13]]; [[2 Nephi 9.33|2 Ne. 9:33.]]
+[^a]: [[Jeremiah 44.13|Jer. 44:13]]; [[2 Nephi 9.33|2 Ne. 9:33]].  

@@ -5,4 +5,4 @@
 [Isaiah 62:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/62.6?lang=eng#p6)
 
 
-[^a]: TG [[Watchman, Watchmen]].
+[^a]: [[Watchman, Watchmen|TG Watchman]].  

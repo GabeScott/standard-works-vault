@@ -5,4 +5,4 @@
 [Psalms 51:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.18?lang=eng#p18)
 
 
-[^a]: TG [[Pleasure]].
+[^a]: [[Pleasure|TG Pleasure]].  

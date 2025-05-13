@@ -5,4 +5,4 @@
 [Psalms 51:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.16?lang=eng#p16)
 
 
-[^a]: [[1 Samuel 15.22|1 Sam. 15:22.]]
+[^a]: [[1 Samuel 15.22|1 Sam. 15:22]].  

@@ -5,6 +5,6 @@
 [1 Nephi 18:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Nephi 17.2|1 Ne. 17:2.]]
-[^b]: [[1 Nephi 8.1|1 Ne. 8:1]]; [[1 Nephi 16.11|16:11.]]
-[^c]: [[Genesis 7.7|Gen. 7:7.]]
+[^a]: [[1 Nephi 17.2|1 Ne. 17:2]].  
+[^b]: [[1 Nephi 8.1|1 Ne. 8:1]]; [[1 Nephi 16.11|16:11]].  
+[^c]: [[Genesis 7.7|Gen. 7:7]].  

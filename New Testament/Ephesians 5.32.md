@@ -5,4 +5,4 @@
 [Ephesians 5:32](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.32?lang=eng#p32)
 
 
-[^a]: TG [[Mysteries of Godliness]].
+[^a]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  

@@ -5,4 +5,4 @@
 [2 Nephi 28:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p26#p26)
 
 
-[^a]: [[2 Nephi 9.29|2 Ne. 9:29.]]
+[^a]: [[2 Nephi 9.29|2 Ne. 9:29]].  

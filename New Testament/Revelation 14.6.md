@@ -5,8 +5,8 @@
 [Revelation 14:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.6?lang=eng#p6)
 
 
-[^a]: [[D&C 133.36|D&C 133:36]]. TG [[Angels]].
-[^b]: [[D&C 79.1|D&C 79:1.]]
-[^c]: [[D&C 27.16|D&C 27:16]]. TG [[Book of Mormon]]; [[Gospel]]; Restoration of the [[Gospel]].
-[^d]: TG [[Missionary Work]].
-[^e]: TG [[Nations]].
+[^a]: [[D&C 133.36|D&C 133:36]]. [[Angels|TG Angels]].  
+[^b]: [[D&C 79.1|D&C 79:1]].  
+[^c]: [[D&C 27.16|D&C 27:16]]. [[Book of Mormon|TG Book of Mormon]]; [[Gospel|Gospel]]; [[Restoration of the Gospel|Restoration of the Gospel]].  
+[^d]: [[Missionary Work|TG Missionary Work]].  
+[^e]: [[Nations|TG Nations]].  

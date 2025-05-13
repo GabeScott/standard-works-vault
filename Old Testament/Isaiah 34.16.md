@@ -5,4 +5,4 @@
 [Isaiah 34:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/34.16?lang=eng#p16)
 
 
-[^a]: [[D&C 1.7|D&C 1:7 (7, 18, 37-38).]]
+[^a]: [[D&C 1.7|D&C 1:7 (7, 18, 37–38)]][[D&C 1.18|]][[D&C 1.37|]][[D&C 1.38|]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 25:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.18?lang=eng#p18)
 
 
-[^a]: HEB attacked your rear.
+[^a]: HEB attacked your rear.  

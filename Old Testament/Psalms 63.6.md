@@ -5,5 +5,5 @@
 [Psalms 63:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/63.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 42.8|Ps. 42:8]]; [[Psalms 119.55|119:55]]; [[Psalms 149.5|149:5.]]
-[^b]: TG [[Meditation, Meditate]].
+[^a]: [[Psalms 42.8|Ps. 42:8]]; [[Psalms 119.55|119:55]]; [[Psalms 149.5|149:5]].  
+[^b]: [[Meditation, Meditate|TG Meditation]].  

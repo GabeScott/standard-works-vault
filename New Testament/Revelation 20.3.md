@@ -5,5 +5,5 @@
 [Revelation 20:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/20.3?lang=eng#p3)
 
 
-[^a]: TG [[Nations]].
-[^b]: [[D&C 43.31|D&C 43:31.]]
+[^a]: [[Nations|TG Nations]].  
+[^b]: [[D&C 43.31|D&C 43:31]].  

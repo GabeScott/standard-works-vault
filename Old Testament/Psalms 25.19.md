@@ -5,4 +5,4 @@
 [Psalms 25:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.19?lang=eng#p19)
 
 
-[^a]: TG [[Cruelty, Cruel]].
+[^a]: [[Cruelty, Cruel|TG Cruelty]].  

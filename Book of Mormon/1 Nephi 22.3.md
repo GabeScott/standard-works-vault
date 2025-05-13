@@ -5,6 +5,6 @@
 [1 Nephi 22:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p3#p3)
 
 
-[^a]: [[D&C 29.34|D&C 29:34 (31-34).]]
-[^b]: [[1 Nephi 10.12|1 Ne. 10:12 (12-14)]]; [[2 Nephi 25.15|2 Ne. 25:15 (14-16)]]. TG [[Israel, Scattering of]].
-[^c]: TG [[Inspiration, Inspire]].
+[^a]: [[D&C 29.31|D&C 29:34 (31–34)]][[D&C 29.32|]][[D&C 29.33|]][[D&C 29.34|]].  
+[^b]: [[1 Nephi 10.12|1 Ne. 10:12 (12–14)]][[1 Nephi 10.13|]][[1 Nephi 10.14|]]; [[2 Nephi 25.14|2 Ne. 25:15 (14–16)]][[2 Nephi 25.15|]][[2 Nephi 25.16|]]. [[Israel, Scattering of|TG Israel, Scattering of]].  
+[^c]: [[Inspiration, Inspire|TG Inspiration]].  

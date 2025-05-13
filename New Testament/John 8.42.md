@@ -5,5 +5,5 @@
 [John 8:42](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.42?lang=eng#p42)
 
 
-[^a]: [[John 16.28|John 16:28 (27-28, 30)]]; [[John 17.8|17:8]]; [[Galatians 4.4|Gal. 4:4.]]
-[^b]: TG [[Jesus Christ, Messenger of the Covenant]].
+[^a]: [[John 16.27|John 16:28 (27–28, 30)]][[John 16.28|]][[John 16.30|]]; [[John 17.8|17:8]]; [[Galatians 4.4|Gal. 4:4]].  
+[^b]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  

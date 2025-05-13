@@ -5,8 +5,8 @@
 [Ezekiel 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.18?lang=eng#p18)
 
 
-[^a]: [[Ezekiel 33.14|Ezek. 33:14.]]
-[^b]: TG [[Watch, Watchfulness]].
-[^c]: TG [[God, Justice of]].
-[^d]: TG [[Sin]].
-[^e]: TG [[Accountability]].
+[^a]: [[Ezekiel 33.14|Ezek. 33:14]].  
+[^b]: [[Watch, Watchfulness|TG Watch]].  
+[^c]: [[Justice|TG Justice]].  
+[^d]: [[Sin|TG Sin]].  
+[^e]: [[Accountability|TG Accountability]].  

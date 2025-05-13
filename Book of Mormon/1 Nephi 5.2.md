@@ -5,5 +5,5 @@
 [1 Nephi 5:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Murmuring, Murmur]].
-[^b]: [[Genesis 37.19|Gen. 37:19 (8, 19).]]
+[^a]: [[Murmuring, Murmur|TG Murmuring]].  
+[^b]: [[Genesis 37.8|Gen. 37:19 (8, 19)]][[Genesis 37.19|]].  

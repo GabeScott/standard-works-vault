@@ -5,4 +5,4 @@
 [Galatians 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.18?lang=eng#p18)
 
 
-[^a]: TG [[Zeal, Zealous]].
+[^a]: [[Zeal, Zealous|TG Zeal]].  

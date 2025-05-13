@@ -5,5 +5,5 @@
 [Amos 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.11?lang=eng#p11)
 
 
-[^a]: Zeph. 1:13.
-[^b]: [[Deuteronomy 28.30|Deut. 28:30.]]
+[^a]: [[Zephaniah 1.13|Zeph. 1:13]].  
+[^b]: [[Deuteronomy 28.30|Deut. 28:30]].  

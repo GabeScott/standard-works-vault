@@ -5,6 +5,6 @@
 [2 Nephi 15:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p19#p19)
 
 
-[^a]: [[Jeremiah 17.15|Jer. 17:15.]]
-[^b]: TG [[Haste, Hasten, Hasty]].
-[^c]: TG [[Sign Seekers]].
+[^a]: [[Jeremiah 17.15|Jer. 17:15]].  
+[^b]: [[Haste, Hasten, Hasty|TG Haste]].  
+[^c]: [[Sign Seekers|TG Sign Seekers]].  

@@ -5,5 +5,5 @@
 [Joshua 23:16](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.16?lang=eng#p16)
 
 
-[^a]: [[Deuteronomy 17.2|Deut. 17:2]]; [[D&C 1.15|D&C 1:15]]; [[D&C 3.6|3:6 (6-8)]]; [[D&C 54.4|54:4 (3-6)]]; [[D&C 104.52|104:52.]]
-[^b]: [[1 Kings 14.15|1 Kgs. 14:15.]]
+[^a]: [[Deuteronomy 17.2|Deut. 17:2]]; [[D&C 1.15|D&C 1:15]]; [[D&C 3.6|3:6 (6–8)]][[D&C 3.7|]][[D&C 3.8|]]; [[D&C 54.3|54:4 (3–6)]][[D&C 54.4|]][[D&C 54.5|]][[D&C 54.6|]]; [[D&C 104.52|104:52]].  
+[^b]: [[1 Kings 14.15|1 Kgs. 14:15]].  

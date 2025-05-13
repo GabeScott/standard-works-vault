@@ -5,5 +5,5 @@
 [Ezekiel 46:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.20?lang=eng#p20)
 
 
-[^a]: [[Ezekiel 40.39|Ezek. 40:39.]]
-[^b]: [[Leviticus 2.4|Lev. 2:4.]]
+[^a]: [[Ezekiel 40.39|Ezek. 40:39]].  
+[^b]: [[Leviticus 2.4|Lev. 2:4]].  

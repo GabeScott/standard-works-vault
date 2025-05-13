@@ -5,5 +5,5 @@
 [Jeremiah 7:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.30?lang=eng#p30)
 
 
-[^a]: [[2 Kings 21.4|2 Kgs. 21:4 (4, 7).]]
-[^b]: TG [[Sacrilege]].
+[^a]: [[2 Kings 21.4|2 Kgs. 21:4 (4, 7)]][[2 Kings 21.7|]].  
+[^b]: [[Sacrilege|TG Sacrilege]].  

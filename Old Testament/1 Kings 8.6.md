@@ -5,5 +5,5 @@
 [1 Kings 8:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.6?lang=eng#p6)
 
 
-[^a]: [[Exodus 26.33|Ex. 26:33 (33-34).]]
-[^b]: [[1 Kings 6.16|1 Kgs. 6:16.]]
+[^a]: [[Exodus 26.33|Ex. 26:33 (33–34)]][[Exodus 26.34|]].  
+[^b]: [[1 Kings 6.16|1 Kgs. 6:16]].  

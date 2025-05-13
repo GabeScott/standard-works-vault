@@ -5,4 +5,4 @@
 [1 Samuel 27:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/27.10?lang=eng#p10)
 
 
-[^a]: HEB raid.
+[^a]: HEB raid.  

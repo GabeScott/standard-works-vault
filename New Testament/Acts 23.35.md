@@ -5,4 +5,4 @@
 [Acts 23:35](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.35?lang=eng#p35)
 
 
-[^a]: GR praetorium (the governor’s headquarters).
+[^a]: GR praetorium (the governor’s headquarters).  

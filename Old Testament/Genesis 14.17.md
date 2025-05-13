@@ -5,4 +5,4 @@
 [Genesis 14:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.17?lang=eng#p17)
 
 
-[^a]: [[2 Samuel 18.18|2 Sam. 18:18.]]
+[^a]: [[2 Samuel 18.18|2 Sam. 18:18]].  

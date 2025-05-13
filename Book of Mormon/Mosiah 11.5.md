@@ -5,4 +5,4 @@
 [Mosiah 11:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p5#p5)
 
 
-[^a]: [[1 Kings 12.31|1 Kgs. 12:31]]; [[2 Chronicles 11.14|2 Chr. 11:14 (13-14)]]; [[Mosiah 11.11|Mosiah 11:11]]; [[Mosiah 12.25|12:25 (17, 25).]]
+[^a]: [[1 Kings 12.31|1 Kgs. 12:31]]; [[2 Chronicles 11.13|2 Chr. 11:14 (13–14)]][[2 Chronicles 11.14|]]; [[Mosiah 11.11|Mosiah 11:11]]; [[Mosiah 12.17|12:25 (17, 25)]][[Mosiah 12.25|]].  

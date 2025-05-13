@@ -5,4 +5,4 @@
 [Proverbs 24:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.21?lang=eng#p21)
 
 
-[^a]: [[1 Peter 2.17|1 Pet. 2:17.]]
+[^a]: [[1 Peter 2.17|1 Pet. 2:17]].  

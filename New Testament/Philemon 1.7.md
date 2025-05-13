@@ -5,4 +5,4 @@
 [Philemon 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/philem/1.7?lang=eng#p7)
 
 
-[^a]: GR affections, compassion.
+[^a]: GR affections, compassion.  

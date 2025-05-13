@@ -5,4 +5,4 @@
 [Acts 24:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.21?lang=eng#p21)
 
 
-[^a]: [[Acts 23.6|Acts 23:6 (6-8).]]
+[^a]: [[Acts 23.6|Acts 23:6 (6–8)]][[Acts 23.7|]][[Acts 23.8|]].  

@@ -5,4 +5,4 @@
 [Isaiah 30:30](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.30?lang=eng#p30)
 
 
-[^a]: [[Isaiah 28.2|Isa. 28:2.]]
+[^a]: [[Isaiah 28.2|Isa. 28:2]].  

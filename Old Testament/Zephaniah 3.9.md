@@ -5,5 +5,5 @@
 [Zephaniah 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.9?lang=eng#p9)
 
 
-[^a]: TG [[Communication]]; [[Language]].
-[^b]: TG [[Common Consent]]; [[Unity]].
+[^a]: [[Communication|TG Communication]]; [[Language|Language]].  
+[^b]: [[Common Consent|TG Common Consent]]; [[Unity|Unity]].  

@@ -5,4 +5,4 @@
 [Helaman 5:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p28#p28)
 
 
-[^a]: [[Exodus 14.20|Ex. 14:20.]]
+[^a]: [[Exodus 14.20|Ex. 14:20]].  

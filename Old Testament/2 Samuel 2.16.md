@@ -5,4 +5,4 @@
 [2 Samuel 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/2.16?lang=eng#p16)
 
 
-[^a]: IE Field of foes.
+[^a]: IE Field of foes.  

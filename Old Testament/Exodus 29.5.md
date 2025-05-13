@@ -5,7 +5,7 @@
 [Exodus 29:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 28.2|Ex. 28:2 (1-5).]]
-[^b]: OR tunic. Lev. 8:7.
-[^c]: [[Exodus 35.9|Ex. 35:9.]]
-[^d]: OR skillfully woven.
+[^a]: [[Exodus 28.1|Ex. 28:2 (1–5)]][[Exodus 28.2|]][[Exodus 28.3|]][[Exodus 28.4|]][[Exodus 28.5|]].  
+[^b]: OR tunic. [[Leviticus 8.7|Lev. 8:7]].  
+[^c]: [[Exodus 35.9|Ex. 35:9]].  
+[^d]: OR skillfully woven.  

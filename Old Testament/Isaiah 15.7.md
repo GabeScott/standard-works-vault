@@ -5,4 +5,4 @@
 [Isaiah 15:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/15.7?lang=eng#p7)
 
 
-[^a]: IE probably the border between Moab and Edom.
+[^a]: IE probably the border between Moab and Edom.  

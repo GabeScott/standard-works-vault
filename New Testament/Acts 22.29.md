@@ -5,4 +5,4 @@
 [Acts 22:29](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.29?lang=eng#p29)
 
 
-[^a]: JST Acts 22:29-30 (Appendix).
+[^a]: [[JST Acts 22.29|JST Acts 22:29–30 (Appendix)]][[JST Acts 22.30|]].  

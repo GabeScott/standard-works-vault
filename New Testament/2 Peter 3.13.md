@@ -5,7 +5,7 @@
 [2 Peter 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.13?lang=eng#p13)
 
 
-[^a]: TG [[Man, a Spirit Child of Heavenly Father]].
-[^b]: TG [[Earth, Renewal of]]; [[Millennium, Preparing a People for]].
-[^c]: [[Ether 13.9|Ether 13:9.]]
-[^d]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Heaven|TG Heaven]].  
+[^b]: [[Earth, Renewal of|TG Earth, Renewal of]]; [[Millennium|Millennium]].  
+[^c]: [[Ether 13.9|Ether 13:9]].  
+[^d]: [[Righteousness|TG Righteousness]].  

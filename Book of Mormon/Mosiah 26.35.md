@@ -5,4 +5,4 @@
 [Mosiah 26:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p35#p35)
 
 
-[^a]: TG [[Confession]].
+[^a]: [[Confession|TG Confession]].  

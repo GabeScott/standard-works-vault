@@ -5,6 +5,6 @@
 [Galatians 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.4?lang=eng#p4)
 
 
-[^a]: JST Gal. 2:4 Notwithstanding, there were some brought in by false brethren unawares, who …
-[^b]: TG [[Liberty]].
-[^c]: TG [[Bondage, Spiritual]].
+[^a]: JST Gal. 2:4 Notwithstanding, there were some brought in by false brethren unawares, who …  
+[^b]: [[Liberty|TG Liberty]].  
+[^c]: [[Bondage, Spiritual|TG Bondage, Spiritual]].  

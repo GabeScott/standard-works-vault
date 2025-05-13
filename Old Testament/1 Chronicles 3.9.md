@@ -5,5 +5,5 @@
 [1 Chronicles 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/3.9?lang=eng#p9)
 
 
-[^a]: [[Jacob 1.15|Jacob 1:15.]]
-[^b]: [[2 Samuel 13.1|2 Sam. 13:1.]]
+[^a]: [[Jacob 1.15|Jacob 1:15]].  
+[^b]: [[2 Samuel 13.1|2 Sam. 13:1]].  

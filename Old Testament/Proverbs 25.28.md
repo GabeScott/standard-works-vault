@@ -5,4 +5,4 @@
 [Proverbs 25:28](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.28?lang=eng#p28)
 
 
-[^a]: TG [[Self-Mastery]].
+[^a]: [[Self-Mastery|TG Self-Mastery]].  

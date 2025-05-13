@@ -5,7 +5,7 @@
 [Colossians 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.10?lang=eng#p10)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: TG [[Worthiness, Worthy]].
-[^c]: 1 Thes. 4:1.
-[^d]: TG [[Education]].
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Worthiness, Worthy|TG Worthiness]].  
+[^c]: [[1 Thessalonians 4.1|1 Thes. 4:1]].  
+[^d]: [[Education|TG Education]].  

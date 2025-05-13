@@ -5,4 +5,4 @@
 [Deuteronomy 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.9?lang=eng#p9)
 
 
-[^a]: [[Ruth 4.7|Ruth 4:7 (6-8).]]
+[^a]: [[Ruth 4.6|Ruth 4:7 (6–8)]][[Ruth 4.7|]][[Ruth 4.8|]].  

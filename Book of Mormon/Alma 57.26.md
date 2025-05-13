@@ -5,6 +5,6 @@
 [Alma 57:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/57?lang=eng&id=p26#p26)
 
 
-[^a]: [[1 Chronicles 5.20|1 Chr. 5:20 (18-22).]]
-[^b]: TG [[God, Power of]].
-[^c]: TG [[Faith]].
+[^a]: [[1 Chronicles 5.18|1 Chr. 5:20 (18–22)]][[1 Chronicles 5.19|]][[1 Chronicles 5.20|]][[1 Chronicles 5.21|]][[1 Chronicles 5.22|]].  
+[^b]: [[God, Power of|TG God, Power of]].  
+[^c]: [[Faith|TG Faith]].  

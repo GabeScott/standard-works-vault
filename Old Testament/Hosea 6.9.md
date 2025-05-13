@@ -5,4 +5,4 @@
 [Hosea 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/6.9?lang=eng#p9)
 
 
-[^a]: HEB on the road to Shechem.
+[^a]: HEB on the road to Shechem.  

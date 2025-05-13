@@ -5,4 +5,4 @@
 [1 Nephi 16:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p21#p21)
 
 
-[^a]: [[Genesis 49.24|Gen. 49:24.]]
+[^a]: [[Genesis 49.24|Gen. 49:24]].  

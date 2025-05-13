@@ -5,5 +5,5 @@
 [Proverbs 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/7.22?lang=eng#p22)
 
 
-[^a]: OR suddenly; all at once.
-[^b]: TG [[Fornication]].
+[^a]: OR suddenly; all at once.  
+[^b]: [[Fornication|TG Fornication]].  

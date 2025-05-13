@@ -5,4 +5,4 @@
 [Proverbs 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.12?lang=eng#p12)
 
 
-[^a]: [[2 Nephi 23.11|2 Ne. 23:11.]]
+[^a]: [[2 Nephi 23.11|2 Ne. 23:11]].  

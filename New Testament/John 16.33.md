@@ -5,8 +5,8 @@
 [John 16:33](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.33?lang=eng#p33)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: TG [[Earth, Purpose of]]; [[World, End of]]; [[World, End of]]liness.
-[^c]: TG [[Affliction]]; [[Testament]]; [[Tribulation]].
-[^d]: TG [[Happiness, Happy]].
-[^e]: [[Revelation 12.11|Rev. 12:11 (10-12)]]; [[D&C 50.41|D&C 50:41]]; [[D&C 76.107|76:107.]]
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: [[Earth, Purpose of|TG Earth, Purpose of]]; [[World|World]]; [[Worldliness|Worldliness]].  
+[^c]: [[Affliction|TG Affliction]]; [[Test, Try, Prove|Test]]; [[Tribulation|Tribulation]].  
+[^d]: [[Happiness, Happy|TG Happiness]].  
+[^e]: [[Revelation 12.10|Rev. 12:11 (10–12)]][[Revelation 12.11|]][[Revelation 12.12|]]; [[D&C 50.41|D&C 50:41]]; [[D&C 76.107|76:107]].  

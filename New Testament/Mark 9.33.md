@@ -5,4 +5,4 @@
 [Mark 9:33](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.33?lang=eng#p33)
 
 
-[^a]: GR reasoned, disputed, pondered.
+[^a]: GR reasoned, disputed, pondered.  

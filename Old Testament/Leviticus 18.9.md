@@ -5,4 +5,4 @@
 [Leviticus 18:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.9?lang=eng#p9)
 
 
-[^a]: [[2 Samuel 13.12|2 Sam. 13:12.]]
+[^a]: [[2 Samuel 13.12|2 Sam. 13:12]].  

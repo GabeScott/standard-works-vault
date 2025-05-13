@@ -5,5 +5,5 @@
 [Psalms 37:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.22?lang=eng#p22)
 
 
-[^a]: TG [[Earth, Destiny of]].
-[^b]: TG [[Curse]].
+[^a]: [[Earth, Destiny of|TG Earth, Destiny of]].  
+[^b]: [[Curse|TG Curse]].  

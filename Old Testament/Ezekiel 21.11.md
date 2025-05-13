@@ -5,4 +5,4 @@
 [Ezekiel 21:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.11?lang=eng#p11)
 
 
-[^a]: HEB seized by hand.
+[^a]: HEB seized by hand.  

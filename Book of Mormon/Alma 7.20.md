@@ -5,4 +5,4 @@
 [Alma 7:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p20#p20)
 
 
-[^a]: [[1 Nephi 10.19|1 Ne. 10:19]]; [[Alma 37.12|Alma 37:12]]; [[D&C 3.2|D&C 3:2.]]
+[^a]: [[1 Nephi 10.19|1 Ne. 10:19]]; [[Alma 37.12|Alma 37:12]]; [[D&C 3.2|D&C 3:2]].  

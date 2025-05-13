@@ -5,5 +5,5 @@
 [Mormon 5:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p20#p20)
 
 
-[^a]: [[1 Nephi 13.31|1 Ne. 13:31]]; [[3 Nephi 16.11|3 Ne. 16:11 (8-12).]]
-[^b]: TG [[Abrahamic Covenant]].
+[^a]: [[1 Nephi 13.31|1 Ne. 13:31]]; [[3 Nephi 16.8|3 Ne. 16:11 (8–12)]][[3 Nephi 16.9|]][[3 Nephi 16.10|]][[3 Nephi 16.11|]][[3 Nephi 16.12|]].  
+[^b]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  

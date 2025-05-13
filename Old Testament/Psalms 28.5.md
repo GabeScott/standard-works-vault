@@ -5,4 +5,4 @@
 [Psalms 28:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/28.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 5.12|Isa. 5:12 (11-12).]]
+[^a]: [[Isaiah 5.11|Isa. 5:12 (11–12)]][[Isaiah 5.12|]].  

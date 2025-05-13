@@ -5,4 +5,4 @@
 [Genesis 30:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.4?lang=eng#p4)
 
 
-[^a]: [[D&C 132.37|D&C 132:37.]]
+[^a]: [[D&C 132.37|D&C 132:37]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 16:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.22?lang=eng#p22)
 
 
-[^a]: HEB pillar (for idol worship).
+[^a]: HEB pillar (for idol worship).  

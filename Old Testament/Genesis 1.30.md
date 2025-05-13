@@ -5,4 +5,4 @@
 [Genesis 1:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.30?lang=eng#p30)
 
 
-[^a]: HEB food.
+[^a]: HEB food.  

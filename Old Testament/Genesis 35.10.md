@@ -5,4 +5,4 @@
 [Genesis 35:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.10?lang=eng#p10)
 
 
-[^a]: TG [[Israel, Origins of]].
+[^a]: [[Israel, Origins of|TG Israel, Origins of]].  

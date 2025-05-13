@@ -5,4 +5,4 @@
 [Numbers 31:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.10?lang=eng#p10)
 
 
-[^a]: HEB closed encampments.
+[^a]: HEB closed encampments.  

@@ -5,5 +5,5 @@
 [Romans 3:31](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.31?lang=eng#p31)
 
 
-[^a]: GR May it not be!
-[^b]: GR but.
+[^a]: GR May it not be!  
+[^b]: GR but.  

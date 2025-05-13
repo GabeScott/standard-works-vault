@@ -5,5 +5,5 @@
 [3 Nephi 20:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p15#p15)
 
 
-[^a]: [[3 Nephi 16.10|3 Ne. 16:10 (10-14).]]
-[^b]: [[3 Nephi 20.27|3 Ne. 20:27.]]
+[^a]: [[3 Nephi 16.10|3 Ne. 16:10 (10–14)]][[3 Nephi 16.11|]][[3 Nephi 16.12|]][[3 Nephi 16.13|]][[3 Nephi 16.14|]].  
+[^b]: [[3 Nephi 20.27|3 Ne. 20:27]].  

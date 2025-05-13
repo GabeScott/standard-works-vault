@@ -5,4 +5,4 @@
 [Judges 9:13](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.13?lang=eng#p13)
 
 
-[^a]: HEB tirosh—fresh or new wine.
+[^a]: HEB tirosh—fresh or new wine.  

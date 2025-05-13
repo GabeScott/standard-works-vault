@@ -5,6 +5,6 @@
 [2 Nephi 9:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p19#p19)
 
 
-[^a]: [[Job 23.7|Job 23:7]]; [[D&C 108.8|D&C 108:8.]]
-[^b]: [[1 Nephi 15.35|1 Ne. 15:35.]]
-[^c]: TG [[Hell]].
+[^a]: [[Job 23.7|Job 23:7]]; [[D&C 108.8|D&C 108:8]].  
+[^b]: [[1 Nephi 15.35|1 Ne. 15:35]].  
+[^c]: [[Hell|TG Hell]].  

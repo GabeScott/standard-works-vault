@@ -5,5 +5,5 @@
 [Moses 8:14](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.14?lang=eng#p14)
 
 
-[^a]: [[Moses 5.52|Moses 5:52]]; [[Moses 6.15|6:15.]]
-[^b]: TG [[Marriage, Interfaith]]; [[Marriage, Marry]].
+[^a]: [[Moses 5.52|Moses 5:52]]; [[Moses 6.15|6:15]].  
+[^b]: [[Marriage, Interfaith|TG Marriage, Interfaith]]; [[Marriage, Marry|Marriage, Marry]].  

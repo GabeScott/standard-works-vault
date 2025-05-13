@@ -5,4 +5,4 @@
 [Nahum 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/2.12?lang=eng#p12)
 
 
-[^a]: HEB torn flesh.
+[^a]: HEB torn flesh.  

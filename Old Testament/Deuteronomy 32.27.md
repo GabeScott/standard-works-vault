@@ -5,4 +5,4 @@
 [Deuteronomy 32:27](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.27?lang=eng#p27)
 
 
-[^a]: OR victorious.
+[^a]: OR victorious.  

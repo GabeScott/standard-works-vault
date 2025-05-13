@@ -5,7 +5,7 @@
 [Helaman 5:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 2.9|Mosiah 2:9.]]
-[^b]: [[Mosiah 3.18|Mosiah 3:18]]; [[Mosiah 4.2|4:2]]. TG [[Jesus Christ, Atonement through]].
-[^c]: TG [[Jesus Christ, Redeemer]].
-[^d]: TG [[World, End of]].
+[^a]: [[Mosiah 2.9|Mosiah 2:9]].  
+[^b]: [[Mosiah 3.18|Mosiah 3:18]]; [[Mosiah 4.2|4:2]]. [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  
+[^c]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]].  
+[^d]: [[World|TG World]].  

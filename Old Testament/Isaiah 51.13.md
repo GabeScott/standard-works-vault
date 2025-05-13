@@ -5,5 +5,5 @@
 [Isaiah 51:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.13?lang=eng#p13)
 
 
-[^a]: TG [[Apathy]].
-[^b]: TG [[Creation, Create]].
+[^a]: [[Apathy|TG Apathy]].  
+[^b]: [[Creation, Create|TG Creation]].  

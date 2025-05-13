@@ -5,5 +5,5 @@
 [Alma 18:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p38#p38)
 
 
-[^a]: [[2 Nephi 1.2|2 Ne. 1:2.]]
-[^b]: [[1 Nephi 9.2|1 Ne. 9:2.]]
+[^a]: [[2 Nephi 1.2|2 Ne. 1:2]].  
+[^b]: [[1 Nephi 9.2|1 Ne. 9:2]].  

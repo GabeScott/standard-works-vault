@@ -5,4 +5,4 @@
 [Ether 8:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p24#p24)
 
 
-[^a]: [[D&C 42.64|D&C 42:64.]]
+[^a]: [[D&C 42.64|D&C 42:64]].  

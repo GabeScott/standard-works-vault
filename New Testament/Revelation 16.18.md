@@ -5,4 +5,4 @@
 [Revelation 16:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.18?lang=eng#p18)
 
 
-[^a]: Dan. 12:1; [[Revelation 6.12|Rev. 6:12]]; [[Revelation 11.13|11:13 (13-14).]]
+[^a]: [[Daniel 12.1|Dan. 12:1]]; [[Revelation 6.12|Rev. 6:12]]; [[Revelation 11.13|11:13 (13–14)]][[Revelation 11.14|]].  

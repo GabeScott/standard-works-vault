@@ -5,6 +5,6 @@
 [Philippians 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: TG [[Understanding]].
-[^c]: GR guard.
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: [[Understanding|TG Understanding]].  
+[^c]: GR guard.  

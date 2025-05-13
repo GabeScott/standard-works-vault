@@ -5,6 +5,6 @@
 [Acts 2:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.24?lang=eng#p24)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
-[^b]: TG [[Pain]].
-[^c]: TG [[Jesus Christ, Death of]].
+[^a]: [[Resurrection|TG Resurrection]].  
+[^b]: [[Pain|TG Pain]].  
+[^c]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

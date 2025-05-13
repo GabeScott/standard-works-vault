@@ -5,4 +5,4 @@
 [2 Nephi 12:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p14#p14)
 
 
-[^a]: [[Isaiah 30.25|Isa. 30:25.]]
+[^a]: [[Isaiah 30.25|Isa. 30:25]].  

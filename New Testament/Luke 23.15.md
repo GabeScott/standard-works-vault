@@ -5,4 +5,4 @@
 [Luke 23:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.15?lang=eng#p15)
 
 
-[^a]: GR by.
+[^a]: GR by.  

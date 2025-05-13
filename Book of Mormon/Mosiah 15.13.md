@@ -5,4 +5,4 @@
 [Mosiah 15:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p13#p13)
 
 
-[^a]: [[Zechariah 7.12|Zech. 7:12]]; [[Matthew 11.13|Matt. 11:13]]; [[1 Nephi 3.20|1 Ne. 3:20]]. TG [[Sons and Daughters of God]].
+[^a]: [[Zechariah 7.12|Zech. 7:12]]; [[Matthew 11.13|Matt. 11:13]]; [[1 Nephi 3.20|1 Ne. 3:20]]. [[Sons and Daughters of God|TG Sons and Daughters of God]].  

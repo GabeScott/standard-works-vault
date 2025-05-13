@@ -5,4 +5,4 @@
 [Psalms 145:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/145.19?lang=eng#p19)
 
 
-[^a]: 1 Jn. 5:15 (14-15).
+[^a]: [[1 John 5.14|1 Jn. 5:15 (14–15)]][[1 John 5.15|]].  

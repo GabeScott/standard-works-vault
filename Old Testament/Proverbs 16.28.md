@@ -5,4 +5,4 @@
 [Proverbs 16:28](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.28?lang=eng#p28)
 
 
-[^a]: TG [[Strife]].
+[^a]: [[Strife|TG Strife]].  

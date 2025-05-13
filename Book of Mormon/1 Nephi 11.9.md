@@ -5,4 +5,4 @@
 [1 Nephi 11:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p9#p9)
 
 
-[^a]: [[1 Nephi 11.22|1 Ne. 11:22 (22-25).]]
+[^a]: [[1 Nephi 11.22|1 Ne. 11:22 (22–25)]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]].  

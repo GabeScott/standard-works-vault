@@ -5,6 +5,6 @@
 [Deuteronomy 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.14?lang=eng#p14)
 
 
-[^a]: HEB time.
-[^b]: [[Numbers 14.35|Num. 14:35 (33-35)]]; [[Psalms 95.10|Ps. 95:10 (10-11).]]
-[^c]: HEB had perished from the camp.
+[^a]: HEB time.  
+[^b]: [[Numbers 14.33|Num. 14:35 (33–35)]][[Numbers 14.34|]][[Numbers 14.35|]]; [[Psalms 95.10|Ps. 95:10 (10–11)]][[Psalms 95.11|]].  
+[^c]: HEB had perished from the camp.  

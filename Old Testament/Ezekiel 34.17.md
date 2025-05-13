@@ -5,6 +5,6 @@
 [Ezekiel 34:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.17?lang=eng#p17)
 
 
-[^a]: TG [[Sheep]].
-[^b]: [[Ezekiel 20.38|Ezek. 20:38.]]
-[^c]: HEB between sheep and sheep; i.e., between one sheep and another.
+[^a]: [[Sheep|TG Sheep]].  
+[^b]: [[Ezekiel 20.38|Ezek. 20:38]].  
+[^c]: HEB between sheep and sheep; i.e., between one sheep and another.  

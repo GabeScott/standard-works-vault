@@ -5,4 +5,4 @@
 [Matthew 12:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.19?lang=eng#p19)
 
 
-[^a]: GR cry for help.
+[^a]: GR cry for help.  

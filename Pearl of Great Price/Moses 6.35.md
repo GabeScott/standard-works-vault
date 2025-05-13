@@ -5,4 +5,4 @@
 [Moses 6:35](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.35?lang=eng#p35)
 
 
-[^a]: [[John 9.6|John 9:6 (6, 15).]]
+[^a]: [[John 9.6|John 9:6 (6, 15)]][[John 9.15|]].  

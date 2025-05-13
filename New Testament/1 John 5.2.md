@@ -5,5 +5,5 @@
 [1 John 5:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.2?lang=eng#p2)
 
 
-[^a]: TG [[Family, Love within]].
-[^b]: TG [[Sons and Daughters of God]].
+[^a]: [[Family, Love within|TG Family, Love within]].  
+[^b]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  

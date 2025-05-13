@@ -5,4 +5,4 @@
 [Moses 5:27](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.27?lang=eng#p27)
 
 
-[^a]: TG [[Mourning, Mourn]].
+[^a]: [[Mourning, Mourn|TG Mourning]].  

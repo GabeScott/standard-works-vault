@@ -5,5 +5,5 @@
 [Exodus 17:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.2?lang=eng#p2)
 
 
-[^a]: HEB strove with, or complained to. Ex. 32:22.
-[^b]: HEB put the Lord to the test. TG [[Doubt, Doubtful]]; [[Testament]].
+[^a]: HEB strove with, or complained to. [[Exodus 32.22|Ex. 32:22]].  
+[^b]: HEB put the Lord to the test. [[Doubt, Doubtful|TG Doubt]]; [[Test, Try, Prove|Test]].  

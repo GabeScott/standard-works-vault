@@ -5,4 +5,4 @@
 [Ezekiel 23:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.26?lang=eng#p26)
 
 
-[^a]: [[Ezekiel 16.39|Ezek. 16:39.]]
+[^a]: [[Ezekiel 16.39|Ezek. 16:39]].  

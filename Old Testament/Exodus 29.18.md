@@ -5,6 +5,6 @@
 [Exodus 29:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.18?lang=eng#p18)
 
 
-[^a]: TG [[Self-Sacrifice]].
-[^b]: OR pleasing fragrance.
-[^c]: [[Genesis 8.21|Gen. 8:21.]]
+[^a]: [[Sacrifice|TG Sacrifice]].  
+[^b]: OR pleasing fragrance.  
+[^c]: [[Genesis 8.21|Gen. 8:21]].  

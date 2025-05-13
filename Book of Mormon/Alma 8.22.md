@@ -5,4 +5,4 @@
 [Alma 8:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 10.11|Alma 10:11.]]
+[^a]: [[Alma 10.11|Alma 10:11]].  

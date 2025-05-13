@@ -5,6 +5,6 @@
 [Matthew 27:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.4?lang=eng#p4)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
-[^b]: TG [[Blood, Shedding of]].
-[^c]: GR that is your affair. JST Matt. 27:5 … See thou to it; thy sins be upon thee.
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  
+[^b]: [[Blood, Shedding of|TG Blood, Shedding of]].  
+[^c]: GR that is your affair. [[JST Matthew 27.5|JST Matt. 27:5]] … See thou to it; thy sins be upon thee.  

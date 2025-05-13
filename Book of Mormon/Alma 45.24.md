@@ -5,5 +5,5 @@
 [Alma 45:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[Treasure]].
-[^b]: TG [[Pride]]; [[Walking in Darkness]].
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[Pride|TG Pride]]; [[Walking in Darkness|Walking in Darkness]].  

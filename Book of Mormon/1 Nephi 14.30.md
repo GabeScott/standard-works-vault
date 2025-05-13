@@ -5,5 +5,5 @@
 [1 Nephi 14:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p30#p30)
 
 
-[^a]: [[1 Kings 18.12|1 Kgs. 18:12]]; [[1 Nephi 11.29|1 Ne. 11:29 (19, 29).]]
-[^b]: [[1 Nephi 13.39|1 Ne. 13:39]]; [[2 Nephi 25.20|2 Ne. 25:20.]]
+[^a]: [[1 Kings 18.12|1 Kgs. 18:12]]; [[1 Nephi 11.19|1 Ne. 11:29 (19, 29)]][[1 Nephi 11.29|]].  
+[^b]: [[1 Nephi 13.39|1 Ne. 13:39]]; [[2 Nephi 25.20|2 Ne. 25:20]].  

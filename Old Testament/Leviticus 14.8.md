@@ -5,4 +5,4 @@
 [Leviticus 14:8](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.8?lang=eng#p8)
 
 
-[^a]: [[Acts 21.24|Acts 21:24.]]
+[^a]: [[Acts 21.24|Acts 21:24]].  

@@ -5,6 +5,6 @@
 [1 Corinthians 9:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.16?lang=eng#p16)
 
 
-[^a]: TG [[Gospel]].
-[^b]: TG [[Duty]].
-[^c]: TG [[Missionary Work]]; [[Preaching, Preach]].
+[^a]: [[Gospel|TG Gospel]].  
+[^b]: [[Duty|TG Duty]].  
+[^c]: [[Missionary Work|TG Missionary Work]]; [[Preaching, Preach|Preaching]].  

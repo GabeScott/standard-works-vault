@@ -5,5 +5,5 @@
 [Isaiah 13:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.22?lang=eng#p22)
 
 
-[^a]: HEB palaces.
-[^b]: HEB (perhaps) jackals, or wild dogs.
+[^a]: HEB palaces.  
+[^b]: HEB (perhaps) jackals, or wild dogs.  

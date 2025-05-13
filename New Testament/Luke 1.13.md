@@ -5,5 +5,5 @@
 [Luke 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.13?lang=eng#p13)
 
 
-[^a]: Dan. 10:12.
-[^b]: TG [[Foreordination]].
+[^a]: [[Daniel 10.12|Dan. 10:12]].  
+[^b]: [[Foreordination|TG Foreordination]].  

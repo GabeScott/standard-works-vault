@@ -5,5 +5,5 @@
 [Deuteronomy 13:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/13.6?lang=eng#p6)
 
 
-[^a]: [[Exodus 32.29|Ex. 32:29.]]
-[^b]: TG [[Peer Influence]]; [[Temptation]].
+[^a]: [[Exodus 32.29|Ex. 32:29]].  
+[^b]: [[Peer Influence|TG Peer Influence]]; [[Temptation|Temptation]].  

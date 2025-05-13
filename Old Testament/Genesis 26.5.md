@@ -5,5 +5,5 @@
 [Genesis 26:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.5?lang=eng#p5)
 
 
-[^a]: [[D&C 132.29|D&C 132:29]]. TG [[Good Works]]; [[Obedience, Obedient, Obey]].
-[^b]: TG [[Stewardship, Steward]].
+[^a]: [[D&C 132.29|D&C 132:29]]. [[Good Works|TG Good Works]]; [[Obedience, Obedient, Obey|Obedience]].  
+[^b]: [[Stewardship, Steward|TG Stewardship]].  

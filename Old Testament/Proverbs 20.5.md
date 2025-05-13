@@ -5,6 +5,6 @@
 [Proverbs 20:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.5?lang=eng#p5)
 
 
-[^a]: [[D&C 78.2|D&C 78:2.]]
-[^b]: [[D&C 11.26|D&C 11:26.]]
-[^c]: [[Proverbs 18.4|Prov. 18:4.]]
+[^a]: [[D&C 78.2|D&C 78:2]].  
+[^b]: [[D&C 11.26|D&C 11:26]].  
+[^c]: [[Proverbs 18.4|Prov. 18:4]].  

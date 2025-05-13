@@ -5,4 +5,4 @@
 [Proverbs 3:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.26?lang=eng#p26)
 
 
-[^a]: [[Job 4.6|Job 4:6]]; [[Alma 7.27|Alma 7:27 (26-27)]]. TG [[Dependability]].
+[^a]: [[Job 4.6|Job 4:6]]; [[Alma 7.26|Alma 7:27 (26–27)]][[Alma 7.27|]]. [[Dependability|TG Dependability]].  

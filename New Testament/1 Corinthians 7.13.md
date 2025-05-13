@@ -5,4 +5,4 @@
 [1 Corinthians 7:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.13?lang=eng#p13)
 
 
-[^a]: TG [[Marriage, Husbands]].
+[^a]: [[Marriage, Husbands|TG Marriage, Husbands]].  

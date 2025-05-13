@@ -5,4 +5,4 @@
 [Daniel 7:1](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.1?lang=eng#p1)
 
 
-[^a]: TG [[Dream]].
+[^a]: [[Dream|TG Dream]].  

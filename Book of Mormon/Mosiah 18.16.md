@@ -5,5 +5,5 @@
 [Mosiah 18:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p16#p16)
 
 
-[^a]: [[Mosiah 25.18|Mosiah 25:18.]]
-[^b]: TG [[Grace]].
+[^a]: [[Mosiah 25.18|Mosiah 25:18]].  
+[^b]: [[Grace|TG Grace]].  

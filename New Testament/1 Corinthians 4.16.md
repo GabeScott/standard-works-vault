@@ -5,4 +5,4 @@
 [1 Corinthians 4:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.16?lang=eng#p16)
 
 
-[^a]: GR imitators. 1 Cor. 11:1.
+[^a]: GR imitators. [[1 Corinthians 11.1|1 Cor. 11:1]].  

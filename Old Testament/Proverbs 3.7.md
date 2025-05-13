@@ -5,5 +5,5 @@
 [Proverbs 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.7?lang=eng#p7)
 
 
-[^a]: [[2 Nephi 15.21|2 Ne. 15:21]]; [[2 Nephi 28.15|28:15.]]
-[^b]: TG [[Reverence]].
+[^a]: [[2 Nephi 15.21|2 Ne. 15:21]]; [[2 Nephi 28.15|28:15]].  
+[^b]: [[Reverence|TG Reverence]].  

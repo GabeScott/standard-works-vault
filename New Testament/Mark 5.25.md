@@ -5,4 +5,4 @@
 [Mark 5:25](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.25?lang=eng#p25)
 
 
-[^a]: OR hemorrhage.
+[^a]: OR hemorrhage.  

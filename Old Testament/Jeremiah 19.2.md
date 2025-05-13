@@ -5,4 +5,4 @@
 [Jeremiah 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/19.2?lang=eng#p2)
 
 
-[^a]: [[Joshua 18.16|Josh. 18:16.]]
+[^a]: [[Joshua 18.16|Josh. 18:16]].  

@@ -5,4 +5,4 @@
 [Hebrews 11:19](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.19?lang=eng#p19)
 
 
-[^a]: GR Considering.
+[^a]: GR Considering.  

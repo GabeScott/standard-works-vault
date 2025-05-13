@@ -5,5 +5,5 @@
 [Helaman 2:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/2?lang=eng&id=p2#p2)
 
 
-[^a]: [[Helaman 3.20|Hel. 3:20.]]
-[^b]: [[Helaman 1.13|Hel. 1:13.]]
+[^a]: [[Helaman 3.20|Hel. 3:20]].  
+[^b]: [[Helaman 1.13|Hel. 1:13]].  

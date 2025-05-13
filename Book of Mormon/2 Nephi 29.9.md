@@ -5,7 +5,7 @@
 [2 Nephi 29:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p9#p9)
 
 
-[^a]: [[Hebrews 13.8|Heb. 13:8.]]
-[^b]: TG [[Word of God]]; [[Word of the Lord]].
-[^c]: TG [[Revelation]].
-[^d]: [[Moses 1.4|Moses 1:4.]]
+[^a]: [[Hebrews 13.8|Heb. 13:8]].  
+[^b]: [[Word of God|TG Word of God]]; [[Word of the Lord|Word of the Lord]].  
+[^c]: [[Revelation|TG Revelation]].  
+[^d]: [[Moses 1.4|Moses 1:4]].  

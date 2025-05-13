@@ -5,6 +5,6 @@
 [Malachi 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/1.13?lang=eng#p13)
 
 
-[^a]: OR belittled it.
-[^b]: [[Leviticus 22.22|Lev. 22:22 (22-25).]]
-[^c]: [[Leviticus 22.20|Lev. 22:20.]]
+[^a]: OR belittled it.  
+[^b]: [[Leviticus 22.22|Lev. 22:22 (22–25)]][[Leviticus 22.23|]][[Leviticus 22.24|]][[Leviticus 22.25|]].  
+[^c]: [[Leviticus 22.20|Lev. 22:20]].  

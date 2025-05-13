@@ -5,5 +5,5 @@
 [3 Nephi 12:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p37#p37)
 
 
-[^a]: TG [[Communication]].
-[^b]: TG [[Honesty]].
+[^a]: [[Communication|TG Communication]].  
+[^b]: [[Honesty|TG Honesty]].  

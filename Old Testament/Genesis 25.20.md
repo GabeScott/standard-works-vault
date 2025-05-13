@@ -5,5 +5,5 @@
 [Genesis 25:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 22.23|Gen. 22:23.]]
-[^b]: [[Genesis 28.2|Gen. 28:2.]]
+[^a]: [[Genesis 22.23|Gen. 22:23]].  
+[^b]: [[Genesis 28.2|Gen. 28:2]].  

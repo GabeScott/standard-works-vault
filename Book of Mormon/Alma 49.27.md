@@ -5,5 +5,5 @@
 [Alma 49:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p27#p27)
 
 
-[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].
-[^b]: [[Acts 23.12|Acts 23:12]]; [[Alma 51.9|Alma 51:9.]]
+[^a]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  
+[^b]: [[Acts 23.12|Acts 23:12]]; [[Alma 51.9|Alma 51:9]].  

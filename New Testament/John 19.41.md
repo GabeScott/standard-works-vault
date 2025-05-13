@@ -5,4 +5,4 @@
 [John 19:41](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.41?lang=eng#p41)
 
 
-[^a]: [[Luke 23.53|Luke 23:53]]; [[2 Nephi 25.13|2 Ne. 25:13.]]
+[^a]: [[Luke 23.53|Luke 23:53]]; [[2 Nephi 25.13|2 Ne. 25:13]].  

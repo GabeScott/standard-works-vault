@@ -5,4 +5,4 @@
 [Judges 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.1?lang=eng#p1)
 
 
-[^a]: [[Judges 3.7|Judg. 3:7 (5-7)]]; [[3 Nephi 30.2|3 Ne. 30:2]]; [[Abraham 1.6|Abr. 1:6 (5-7).]]
+[^a]: [[Judges 3.5|Judg. 3:7 (5–7)]][[Judges 3.6|]][[Judges 3.7|]]; [[3 Nephi 30.2|3 Ne. 30:2]]; [[Abraham 1.5|Abr. 1:6 (5–7)]][[Abraham 1.6|]][[Abraham 1.7|]].  

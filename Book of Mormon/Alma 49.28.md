@@ -5,4 +5,4 @@
 [Alma 49:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Thanksgiving]].
+[^a]: [[Thanksgiving|TG Thanksgiving]].  

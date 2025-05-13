@@ -5,4 +5,4 @@
 [1 Chronicles 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/12.2?lang=eng#p2)
 
 
-[^a]: [[Judges 20.16|Judg. 20:16.]]
+[^a]: [[Judges 20.16|Judg. 20:16]].  

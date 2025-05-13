@@ -5,7 +5,7 @@
 [Alma 10:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p17#p17)
 
 
-[^a]: [[Luke 5.22|Luke 5:22.]]
-[^b]: [[Alma 12.3|Alma 12:3]]; [[D&C 6.16|D&C 6:16.]]
-[^c]: [[Matthew 3.7|Matt. 3:7]]; [[Alma 9.8|Alma 9:8.]]
-[^d]: [[D&C 10.25|D&C 10:25 (21-27).]]
+[^a]: [[Luke 5.22|Luke 5:22]].  
+[^b]: [[Alma 12.3|Alma 12:3]]; [[D&C 6.16|D&C 6:16]].  
+[^c]: [[Matthew 3.7|Matt. 3:7]]; [[Alma 9.8|Alma 9:8]].  
+[^d]: [[D&C 10.21|D&C 10:25 (21–27)]][[D&C 10.22|]][[D&C 10.23|]][[D&C 10.24|]][[D&C 10.25|]][[D&C 10.26|]][[D&C 10.27|]].  

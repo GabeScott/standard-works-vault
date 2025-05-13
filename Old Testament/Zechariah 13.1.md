@@ -5,4 +5,4 @@
 [Zechariah 13:1](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/13.1?lang=eng#p1)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]].
+[^a]: [[Baptism|TG Baptism]].  

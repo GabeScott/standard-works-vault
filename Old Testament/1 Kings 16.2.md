@@ -5,4 +5,4 @@
 [1 Kings 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.2?lang=eng#p2)
 
 
-[^a]: [[D&C 121.39|D&C 121:39.]]
+[^a]: [[D&C 121.39|D&C 121:39]].  

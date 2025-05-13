@@ -5,6 +5,6 @@
 [Zephaniah 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.8?lang=eng#p8)
 
 
-[^a]: [[Joel 3.2|Joel 3:2 (1-2).]]
-[^b]: [[Isaiah 13.4|Isa. 13:4.]]
-[^c]: TG [[Earth, Destiny of]]; [[World, End of]].
+[^a]: [[Joel 3.1|Joel 3:2 (1–2)]][[Joel 3.2|]].  
+[^b]: [[Isaiah 13.4|Isa. 13:4]].  
+[^c]: [[Earth, Destiny of|TG Earth, Destiny of]]; [[World, End of|World, End of]].  

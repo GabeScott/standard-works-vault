@@ -5,4 +5,4 @@
 [Psalms 17:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/17.3?lang=eng#p3)
 
 
-[^a]: TG [[Testament]].
+[^a]: [[Test, Try, Prove|TG Test]].  

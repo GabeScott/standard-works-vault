@@ -5,5 +5,5 @@
 [Acts 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.1?lang=eng#p1)
 
 
-[^a]: 2 Tim. 4:11 (10-11).
-[^b]: [[Luke 1.3|Luke 1:3.]]
+[^a]: [[2 Timothy 4.10|2 Tim. 4:11 (10–11)]][[2 Timothy 4.11|]].  
+[^b]: [[Luke 1.3|Luke 1:3]].  

@@ -5,4 +5,4 @@
 [Isaiah 41:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.9?lang=eng#p9)
 
 
-[^a]: TG [[Israel, Mission of]].
+[^a]: [[Israel, Mission of|TG Israel, Mission of]].  

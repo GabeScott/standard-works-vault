@@ -5,4 +5,4 @@
 [Helaman 11:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p17#p17)
 
 
-[^a]: [[Deuteronomy 11.14|Deut. 11:14 (13-17)]]; [[Ether 2.24|Ether 2:24]]; [[D&C 117.1|D&C 117:1.]]
+[^a]: [[Deuteronomy 11.13|Deut. 11:14 (13–17)]][[Deuteronomy 11.14|]][[Deuteronomy 11.15|]][[Deuteronomy 11.16|]][[Deuteronomy 11.17|]]; [[Ether 2.24|Ether 2:24]]; [[D&C 117.1|D&C 117:1]].  

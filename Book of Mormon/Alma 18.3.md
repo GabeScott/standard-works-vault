@@ -5,6 +5,6 @@
 [Alma 18:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 17.36|Alma 17:36 (34-38).]]
-[^b]: [[Alma 17.27|Alma 17:27]]; [[Alma 19.21|19:21 (20-21).]]
-[^c]: [[Alma 22.20|Alma 22:20.]]
+[^a]: [[Alma 17.34|Alma 17:36 (34–38)]][[Alma 17.35|]][[Alma 17.36|]][[Alma 17.37|]][[Alma 17.38|]].  
+[^b]: [[Alma 17.27|Alma 17:27]]; [[Alma 19.20|19:21 (20–21)]][[Alma 19.21|]].  
+[^c]: [[Alma 22.20|Alma 22:20]].  

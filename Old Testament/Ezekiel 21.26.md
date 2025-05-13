@@ -5,5 +5,5 @@
 [Ezekiel 21:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.26?lang=eng#p26)
 
 
-[^a]: HEB headdress or miter.
-[^b]: [[Luke 1.52|Luke 1:52.]]
+[^a]: HEB headdress or miter.  
+[^b]: [[Luke 1.52|Luke 1:52]].  

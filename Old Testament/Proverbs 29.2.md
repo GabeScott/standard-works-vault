@@ -5,9 +5,9 @@
 [Proverbs 29:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.2?lang=eng#p2)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Governments]].
-[^c]: [[Mosiah 5.4|Mosiah 5:4.]]
-[^d]: TG [[Wickedness, Wicked]].
-[^e]: TG [[Authority]]; [[Leadership]]; [[Tyranny]].
-[^f]: [[Mosiah 7.23|Mosiah 7:23 (22-23)]]; [[D&C 98.9|D&C 98:9.]]
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Governments|TG Governments]].  
+[^c]: [[Mosiah 5.4|Mosiah 5:4]].  
+[^d]: [[Wickedness, Wicked|TG Wickedness]].  
+[^e]: [[Authority|TG Authority]]; [[Leadership|Leadership]]; [[Tyranny|Tyranny]].  
+[^f]: [[Mosiah 7.22|Mosiah 7:23 (22–23)]][[Mosiah 7.23|]]; [[D&C 98.9|D&C 98:9]].  

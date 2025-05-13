@@ -5,5 +5,5 @@
 [Alma 37:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p30#p30)
 
 
-[^a]: TG [[Prophets, Rejection of]].
-[^b]: TG [[Secret Combinations]].
+[^a]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  
+[^b]: [[Secret Combinations|TG Secret Combinations]].  

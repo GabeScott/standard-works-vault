@@ -5,5 +5,5 @@
 [Judges 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.7?lang=eng#p7)
 
 
-[^a]: HEB securely.
-[^b]: [[Judges 18.27|Judg. 18:27 (27-28).]]
+[^a]: HEB securely.  
+[^b]: [[Judges 18.27|Judg. 18:27 (27–28)]][[Judges 18.28|]].  

@@ -5,4 +5,4 @@
 [Esther 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/6.14?lang=eng#p14)
 
 
-[^a]: [[Esther 5.8|Esth. 5:8.]]
+[^a]: [[Esther 5.8|Esth. 5:8]].  

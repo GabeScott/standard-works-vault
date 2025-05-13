@@ -5,4 +5,4 @@
 [Genesis 15:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.7?lang=eng#p7)
 
 
-[^a]: [[Numbers 32.18|Num. 32:18.]]
+[^a]: [[Numbers 32.18|Num. 32:18]].  

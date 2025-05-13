@@ -5,4 +5,4 @@
 [Genesis 9:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9.19?lang=eng#p19)
 
 
-[^a]: TG [[Nations]].
+[^a]: [[Nations|TG Nations]].  

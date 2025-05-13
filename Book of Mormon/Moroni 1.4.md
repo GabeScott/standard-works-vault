@@ -5,4 +5,4 @@
 [Moroni 1:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/1?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 3.12|2 Ne. 3:12 (11-12, 19).]]
+[^a]: [[2 Nephi 3.11|2 Ne. 3:12 (11–12, 19)]][[2 Nephi 3.12|]][[2 Nephi 3.19|]].  

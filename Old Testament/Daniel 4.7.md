@@ -5,4 +5,4 @@
 [Daniel 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Sorcery]].
+[^a]: [[Sorcery|TG Sorcery]].  

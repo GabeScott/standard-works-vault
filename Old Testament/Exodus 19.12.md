@@ -5,5 +5,5 @@
 [Exodus 19:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 34.3|Ex. 34:3.]]
-[^b]: [[Hebrews 12.18|Heb. 12:18 (18-19).]]
+[^a]: [[Exodus 34.3|Ex. 34:3]].  
+[^b]: [[Hebrews 12.18|Heb. 12:18 (18–19)]][[Hebrews 12.19|]].  

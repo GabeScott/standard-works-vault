@@ -5,4 +5,4 @@
 [2 Kings 10:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.11?lang=eng#p11)
 
 
-[^a]: [[Hosea 1.4|Hosea 1:4.]]
+[^a]: [[Hosea 1.4|Hosea 1:4]].  

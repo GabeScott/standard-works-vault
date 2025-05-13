@@ -5,5 +5,5 @@
 [John 1:33](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.33?lang=eng#p33)
 
 
-[^a]: JST John 1:32 And I knew him; for he who sent me …
-[^b]: TG [[Holy Ghost, Baptism of]].
+[^a]: [[JST John 1.32|JST John 1:32]] And I knew him; for he who sent me …  
+[^b]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  

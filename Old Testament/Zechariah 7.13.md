@@ -5,5 +5,5 @@
 [Zechariah 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/7.13?lang=eng#p13)
 
 
-[^a]: Lam. 1:2 (1-3).
-[^b]: TG [[God, Access to]].
+[^a]: [[Lamentations 1.1|Lam. 1:2 (1–3)]][[Lamentations 1.2|]][[Lamentations 1.3|]].  
+[^b]: [[God, Access to|TG God, Access to]].  

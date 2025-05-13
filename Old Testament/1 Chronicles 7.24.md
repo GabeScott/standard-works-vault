@@ -5,4 +5,4 @@
 [1 Chronicles 7:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/7.24?lang=eng#p24)
 
 
-[^a]: HEB below, underneath.
+[^a]: HEB below, underneath.  

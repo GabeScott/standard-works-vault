@@ -5,4 +5,4 @@
 [Exodus 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.7?lang=eng#p7)
 
 
-[^a]: Mal. 4:4.
+[^a]: [[Malachi 4.4|Mal. 4:4]].  

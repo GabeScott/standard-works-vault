@@ -5,6 +5,6 @@
 [Matthew 16:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.16?lang=eng#p16)
 
 
-[^a]: TG [[Loyalty]].
-[^b]: TG [[Jesus Christ, Divine Sonship]].
-[^c]: TG [[God, Body of, Corporeal Nature]].
+[^a]: [[Loyalty|TG Loyalty]].  
+[^b]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  
+[^c]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  

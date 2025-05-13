@@ -5,4 +5,4 @@
 [Psalms 69:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.18?lang=eng#p18)
 
 
-[^a]: [[James 4.8|James 4:8 (7-8)]]; [[D&C 88.63|D&C 88:63.]]
+[^a]: [[James 4.7|James 4:8 (7–8)]][[James 4.8|]]; [[D&C 88.63|D&C 88:63]].  

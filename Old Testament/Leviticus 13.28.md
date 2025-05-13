@@ -5,4 +5,4 @@
 [Leviticus 13:28](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.28?lang=eng#p28)
 
 
-[^a]: HEB a swelling of the burn.
+[^a]: HEB a swelling of the burn.  

@@ -5,4 +5,4 @@
 [Acts 21:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.20?lang=eng#p20)
 
 
-[^a]: TG [[Zeal, Zealous]].
+[^a]: [[Zeal, Zealous|TG Zeal]].  

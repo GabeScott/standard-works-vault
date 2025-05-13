@@ -5,4 +5,4 @@
 [Ezekiel 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.1?lang=eng#p1)
 
 
-[^a]: HEB scroll.
+[^a]: HEB scroll.  

@@ -5,5 +5,5 @@
 [2 Samuel 17:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/17.14?lang=eng#p14)
 
 
-[^a]: OR ordered, ordained.
-[^b]: [[2 Samuel 15.31|2 Sam. 15:31.]]
+[^a]: OR ordered, ordained.  
+[^b]: [[2 Samuel 15.31|2 Sam. 15:31]].  

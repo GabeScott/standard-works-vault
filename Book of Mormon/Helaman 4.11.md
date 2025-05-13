@@ -5,5 +5,5 @@
 [Helaman 4:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p11#p11)
 
 
-[^a]: [[D&C 82.10|D&C 82:10.]]
-[^b]: [[Mosiah 27.13|Mosiah 27:13.]]
+[^a]: [[D&C 82.10|D&C 82:10]].  
+[^b]: [[Mosiah 27.13|Mosiah 27:13]].  

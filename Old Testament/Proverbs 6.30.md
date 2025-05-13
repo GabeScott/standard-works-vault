@@ -5,4 +5,4 @@
 [Proverbs 6:30](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.30?lang=eng#p30)
 
 
-[^a]: TG [[Stealing, Stolen]].
+[^a]: [[Stealing, Stolen|TG Stealing]].  

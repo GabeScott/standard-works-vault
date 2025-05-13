@@ -5,4 +5,4 @@
 [Jeremiah 27:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.20?lang=eng#p20)
 
 
-[^a]: [[Jeremiah 24.1|Jer. 24:1.]]
+[^a]: [[Jeremiah 24.1|Jer. 24:1]].  

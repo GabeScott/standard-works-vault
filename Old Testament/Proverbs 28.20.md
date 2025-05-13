@@ -5,5 +5,5 @@
 [Proverbs 28:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.20?lang=eng#p20)
 
 
-[^a]: TG [[Haste, Hasten, Hasty]].
-[^b]: TG [[Treasure]].
+[^a]: [[Haste, Hasten, Hasty|TG Haste]].  
+[^b]: [[Treasure|TG Treasure]].  

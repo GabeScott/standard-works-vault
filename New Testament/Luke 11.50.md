@@ -5,5 +5,5 @@
 [Luke 11:50](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.50?lang=eng#p50)
 
 
-[^a]: TG [[Martyrdom]].
-[^b]: TG [[Prophets, Rejection of]].
+[^a]: [[Martyrdom|TG Martyrdom]].  
+[^b]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

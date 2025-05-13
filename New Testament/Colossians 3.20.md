@@ -5,5 +5,5 @@
 [Colossians 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.20?lang=eng#p20)
 
 
-[^a]: TG [[Children]]; [[Family, Love within]].
-[^b]: TG [[Family, Children, Duties of]]; [[Honoring Father and Mother]].
+[^a]: [[Children|TG Children]]; [[Family, Love within|Family, Love within]].  
+[^b]: [[Family, Children, Duties of|TG Family, Children, Duties of]]; [[Honoring Father and Mother|Honoring Father and Mother]].  

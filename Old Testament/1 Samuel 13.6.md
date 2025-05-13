@@ -5,5 +5,5 @@
 [1 Samuel 13:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/13.6?lang=eng#p6)
 
 
-[^a]: [[1 Samuel 14.11|1 Sam. 14:11.]]
-[^b]: [[1 Samuel 14.22|1 Sam. 14:22.]]
+[^a]: [[1 Samuel 14.11|1 Sam. 14:11]].  
+[^b]: [[1 Samuel 14.22|1 Sam. 14:22]].  

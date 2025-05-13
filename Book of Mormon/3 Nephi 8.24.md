@@ -5,5 +5,5 @@
 [3 Nephi 8:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/8?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[Procrastination, Procrastinate]].
-[^b]: [[Helaman 13.12|Hel. 13:12]]; [[3 Nephi 9.3|3 Ne. 9:3.]]
+[^a]: [[Procrastination, Procrastinate|TG Procrastination]].  
+[^b]: [[Helaman 13.12|Hel. 13:12]]; [[3 Nephi 9.3|3 Ne. 9:3]].  

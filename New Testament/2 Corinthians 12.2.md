@@ -5,7 +5,7 @@
 [2 Corinthians 12:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.2?lang=eng#p2)
 
 
-[^a]: GR I know a man in Christ who fourteen years ago.
-[^b]: [[D&C 137.1|D&C 137:1.]]
-[^c]: TG [[Celestial Glory]].
-[^d]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: GR I know a man in Christ who fourteen years ago.  
+[^b]: [[D&C 137.1|D&C 137:1]].  
+[^c]: [[Celestial Glory|TG Celestial Glory]].  
+[^d]: [[Heaven|TG Heaven]].  

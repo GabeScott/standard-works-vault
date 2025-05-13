@@ -5,5 +5,5 @@
 [Jeremiah 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.13?lang=eng#p13)
 
 
-[^a]: OR boiling.
-[^b]: [[Ezekiel 24.3|Ezek. 24:3 (3-5).]]
+[^a]: OR boiling.  
+[^b]: [[Ezekiel 24.3|Ezek. 24:3 (3–5)]][[Ezekiel 24.4|]][[Ezekiel 24.5|]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 32:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.10?lang=eng#p10)
 
 
-[^a]: HEB encircled him, cared for him.
-[^b]: [[Proverbs 7.2|Prov. 7:2.]]
+[^a]: HEB encircled him, cared for him.  
+[^b]: [[Proverbs 7.2|Prov. 7:2]].  

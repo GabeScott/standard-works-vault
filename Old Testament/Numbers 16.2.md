@@ -5,4 +5,4 @@
 [Numbers 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.2?lang=eng#p2)
 
 
-[^a]: TG [[Ingratitude]].
+[^a]: [[Ingratitude|TG Ingratitude]].  

@@ -5,5 +5,5 @@
 [2 Samuel 21:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/21.17?lang=eng#p17)
 
 
-[^a]: HEB aided.
-[^b]: [[2 Samuel 18.3|2 Sam. 18:3 (3-4).]]
+[^a]: HEB aided.  
+[^b]: [[2 Samuel 18.3|2 Sam. 18:3 (3–4)]][[2 Samuel 18.4|]].  

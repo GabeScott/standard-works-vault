@@ -5,5 +5,5 @@
 [2 Nephi 9:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p34#p34)
 
 
-[^a]: [[Proverbs 19.9|Prov. 19:9]]. TG [[Gossip]]; [[Honesty]]; [[Lying, Liar, Lie]].
-[^b]: TG [[Hell]].
+[^a]: [[Proverbs 19.9|Prov. 19:9]]. [[Gossip|TG Gossip]]; [[Honesty|Honesty]]; [[Lying, Liar, Lie|Lying]].  
+[^b]: [[Hell|TG Hell]].  

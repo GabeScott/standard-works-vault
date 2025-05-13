@@ -5,4 +5,4 @@
 [Ezekiel 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/2.7?lang=eng#p7)
 
 
-[^a]: [[Numbers 24.13|Num. 24:13]]. TG [[Authority]]; [[Prophets, Mission of]].
+[^a]: [[Numbers 24.13|Num. 24:13]]. [[Authority|TG Authority]]; [[Prophets, Mission of|Prophets, Mission of]].  

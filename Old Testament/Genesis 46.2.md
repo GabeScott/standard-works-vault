@@ -5,4 +5,4 @@
 [Genesis 46:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.2?lang=eng#p2)
 
 
-[^a]: TG [[Vision]].
+[^a]: [[Vision|TG Vision]].  

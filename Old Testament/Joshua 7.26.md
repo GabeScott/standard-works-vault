@@ -5,4 +5,4 @@
 [Joshua 7:26](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/7.26?lang=eng#p26)
 
 
-[^a]: [[Hosea 2.15|Hosea 2:15.]]
+[^a]: [[Hosea 2.15|Hosea 2:15]].  

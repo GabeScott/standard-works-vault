@@ -5,5 +5,5 @@
 [Mosiah 18:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p8#p8)
 
 
-[^a]: D&C 20:36-37, 77.
-[^b]: TG [[Brotherhood and Sisterhood]]; [[Conversion, Convert]].
+[^a]: [[D&C 20.36|D&C 20:36–37, 77]][[D&C 20.37|]][[D&C 20.77|]].  
+[^b]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]]; [[Conversion, Convert|Conversion]].  

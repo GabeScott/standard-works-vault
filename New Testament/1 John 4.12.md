@@ -5,7 +5,7 @@
 [1 John 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.12?lang=eng#p12)
 
 
-[^a]: JST 1 Jn. 4:12 No man hath seen God at any time, except them who believe …
-[^b]: [[D&C 93.1|D&C 93:1]]; [[D&C 110.2|110:2 (1-3)]]; [[Abraham 3.11|Abr. 3:11 (11-12)]]; JS—H 1:17 (16-17).
-[^c]: [[2 Corinthians 13.5|2 Cor. 13:5.]]
-[^d]: [[1 Corinthians 2.16|1 Cor. 2:16.]]
+[^a]: [[JST 1 John 4.12|JST 1 Jn. 4:12]] No man hath seen God at any time, except them who believe …  
+[^b]: [[D&C 93.1|D&C 93:1]]; [[D&C 110.1|110:2 (1–3)]][[D&C 110.2|]][[D&C 110.3|]]; [[Abraham 3.11|Abr. 3:11 (11–12)]][[Abraham 3.12|]]; [[Joseph Smith History 1.16|JS—H 1:17 (16–17)]][[Joseph Smith History 1.17|]].  
+[^c]: [[2 Corinthians 13.5|2 Cor. 13:5]].  
+[^d]: [[1 Corinthians 2.16|1 Cor. 2:16]].  

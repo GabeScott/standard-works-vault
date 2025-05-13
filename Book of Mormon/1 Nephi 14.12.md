@@ -5,5 +5,5 @@
 [1 Nephi 14:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p12#p12)
 
 
-[^a]: [[Matthew 7.14|Matt. 7:14]]; [[Jacob 5.70|Jacob 5:70]]; [[3 Nephi 14.14|3 Ne. 14:14]]; [[D&C 138.26|D&C 138:26.]]
-[^b]: [[D&C 90.11|D&C 90:11.]]
+[^a]: [[Matthew 7.14|Matt. 7:14]]; [[Jacob 5.70|Jacob 5:70]]; [[3 Nephi 14.14|3 Ne. 14:14]]; [[D&C 138.26|D&C 138:26]].  
+[^b]: [[D&C 90.11|D&C 90:11]].  

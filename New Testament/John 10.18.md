@@ -5,7 +5,7 @@
 [John 10:18](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.18?lang=eng#p18)
 
 
-[^a]: [[Luke 23.46|Luke 23:46.]]
-[^b]: TG [[Death, Power over]]; [[God, Power of]].
-[^c]: GR authority, full power.
-[^d]: TG [[Jesus Christ, Authority of]].
+[^a]: [[Luke 23.46|Luke 23:46]].  
+[^b]: [[Death, Power over|TG Death, Power over]]; [[God, Power of|God, Power of]].  
+[^c]: GR authority, full power.  
+[^d]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  

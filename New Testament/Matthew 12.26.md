@@ -5,4 +5,4 @@
 [Matthew 12:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.26?lang=eng#p26)
 
 
-[^a]: TG [[Spirits, Evil or Unclean]].
+[^a]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

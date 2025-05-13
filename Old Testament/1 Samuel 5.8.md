@@ -5,4 +5,4 @@
 [1 Samuel 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/5.8?lang=eng#p8)
 
 
-[^a]: [[1 Samuel 17.4|1 Sam. 17:4.]]
+[^a]: [[1 Samuel 17.4|1 Sam. 17:4]].  

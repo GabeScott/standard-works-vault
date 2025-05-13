@@ -5,11 +5,11 @@
 [Moroni 8:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p26#p26)
 
 
-[^a]: TG [[Meek, Meekness]].
-[^b]: TG [[Holy Ghost, Baptism of]].
-[^c]: TG [[Holy Ghost, Comforter]]; [[Holy Ghost, Mission of]].
-[^d]: [[1 Nephi 11.22|1 Ne. 11:22 (22-25)]]. TG [[Hope]].
-[^e]: [[1 Peter 1.22|1 Pet. 1:22.]]
-[^f]: TG [[Diligence, Diligent, Diligently]]; [[Perseverance]].
-[^g]: TG [[Prayer, Pray]].
-[^h]: TG [[Mission of Latter-day Saints]].
+[^a]: [[Meek, Meekness|TG Meek]].  
+[^b]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  
+[^c]: [[Holy Ghost, Comforter|TG Holy Ghost, Comforter]]; [[Holy Ghost, Mission of|Holy Ghost, Mission of]].  
+[^d]: [[1 Nephi 11.22|1 Ne. 11:22 (22–25)]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]]. [[Hope|TG Hope]].  
+[^e]: [[1 Peter 1.22|1 Pet. 1:22]].  
+[^f]: [[Diligence, Diligent, Diligently|TG Diligence]]; [[Perseverance|Perseverance]].  
+[^g]: [[Prayer, Pray|TG Prayer]].  
+[^h]: [[Saints|TG Saints]].  

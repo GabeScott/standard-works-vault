@@ -5,5 +5,5 @@
 [Jeremiah 38:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/38.19?lang=eng#p19)
 
 
-[^a]: HEB have deserted to.
-[^b]: HEB maltreat.
+[^a]: HEB have deserted to.  
+[^b]: HEB maltreat.  

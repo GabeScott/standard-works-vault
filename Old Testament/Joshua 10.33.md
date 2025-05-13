@@ -5,4 +5,4 @@
 [Joshua 10:33](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.33?lang=eng#p33)
 
 
-[^a]: [[Joshua 12.12|Josh. 12:12.]]
+[^a]: [[Joshua 12.12|Josh. 12:12]].  

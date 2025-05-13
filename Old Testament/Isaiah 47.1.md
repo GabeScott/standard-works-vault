@@ -5,6 +5,6 @@
 [Isaiah 47:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.1?lang=eng#p1)
 
 
-[^a]: [[Psalms 137.8|Ps. 137:8.]]
-[^b]: IE Babylon was to be overthrown; this prophecy was fulfilled by Cyrus, 539 B.C.
-[^c]: HEB virgin daughter; i.e., the heretofore unconquered Babylonian empire.
+[^a]: [[Psalms 137.8|Ps. 137:8]].  
+[^b]: IE Babylon was to be overthrown; this prophecy was fulfilled by Cyrus, 539 B.C.  
+[^c]: HEB virgin daughter; i.e., the heretofore unconquered Babylonian empire.  

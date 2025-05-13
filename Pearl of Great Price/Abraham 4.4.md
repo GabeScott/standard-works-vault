@@ -5,4 +5,4 @@
 [Abraham 4:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.4?lang=eng#p4)
 
 
-[^a]: [[Genesis 1.4|Gen. 1:4]]; [[Moses 2.4|Moses 2:4.]]
+[^a]: [[Genesis 1.4|Gen. 1:4]]; [[Moses 2.4|Moses 2:4]].  

@@ -5,7 +5,7 @@
 [Moses 5:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.13?lang=eng#p13)
 
 
-[^a]: TG [[Devil, Church of]].
-[^b]: TG [[Spiritual Blindness]]; [[Unbelief, Unbelievers]].
-[^c]: [[Moses 5.28|Moses 5:28]]; [[Moses 6.15|6:15.]]
-[^d]: TG [[Carnal Mind]]; [[Man, Natural, Not Spiritually Reborn]].
+[^a]: [[Devil|TG Devil]].  
+[^b]: [[Spiritual Blindness|TG Spiritual Blindness]]; [[Unbelief, Unbelievers|Unbelief]].  
+[^c]: [[Moses 5.28|Moses 5:28]]; [[Moses 6.15|6:15]].  
+[^d]: [[Carnal Mind|TG Carnal Mind]]; [[Man, Natural, Not Spiritually Reborn|Man, Natural, Not Spiritually Reborn]].  

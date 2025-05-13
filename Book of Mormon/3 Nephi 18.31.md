@@ -5,5 +5,5 @@
 [3 Nephi 18:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p31#p31)
 
 
-[^a]: [[D&C 27.14|D&C 27:14.]]
-[^b]: [[John 10.14|John 10:14]]; [[Alma 5.38|Alma 5:38]]; [[3 Nephi 15.24|3 Ne. 15:24.]]
+[^a]: [[D&C 27.14|D&C 27:14]].  
+[^b]: [[John 10.14|John 10:14]]; [[Alma 5.38|Alma 5:38]]; [[3 Nephi 15.24|3 Ne. 15:24]].  

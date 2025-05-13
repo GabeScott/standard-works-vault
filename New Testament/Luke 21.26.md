@@ -5,5 +5,5 @@
 [Luke 21:26](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.26?lang=eng#p26)
 
 
-[^a]: [[D&C 45.26|D&C 45:26]]; [[D&C 88.91|88:91.]]
-[^b]: [[Isaiah 34.4|Isa. 34:4.]]
+[^a]: [[D&C 45.26|D&C 45:26]]; [[D&C 88.91|88:91]].  
+[^b]: [[Isaiah 34.4|Isa. 34:4]].  

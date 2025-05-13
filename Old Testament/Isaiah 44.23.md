@@ -5,6 +5,6 @@
 [Isaiah 44:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.23?lang=eng#p23)
 
 
-[^a]: [[Isaiah 49.13|Isa. 49:13.]]
-[^b]: TG [[Singing, Sing, Sang, Sung]].
-[^c]: TG [[Israel, Restoration of]].
+[^a]: [[Isaiah 49.13|Isa. 49:13]].  
+[^b]: [[Singing, Sing, Sang, Sung|TG Singing]].  
+[^c]: [[Israel, Restoration of|TG Israel, Restoration of]].  

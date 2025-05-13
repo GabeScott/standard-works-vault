@@ -5,6 +5,6 @@
 [James 5:3](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.3?lang=eng#p3)
 
 
-[^a]: [[1 Timothy 6.10|1 Tim. 6:10 (10, 17)]]; [[Jacob 2.17|Jacob 2:17 (17-19).]]
-[^b]: GR rusted, tarnished. D&C 56:16.
-[^c]: GR venom, poison.
+[^a]: [[1 Timothy 6.10|1 Tim. 6:10 (10, 17)]][[1 Timothy 6.17|]]; [[Jacob 2.17|Jacob 2:17 (17–19)]][[Jacob 2.18|]][[Jacob 2.19|]].  
+[^b]: GR rusted, tarnished. [[D&C 56.16|D&C 56:16]].  
+[^c]: GR venom, poison.  

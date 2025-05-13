@@ -5,4 +5,4 @@
 [Jeremiah 24:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/24.5?lang=eng#p5)
 
 
-[^a]: [[D&C 122.7|D&C 122:7.]]
+[^a]: [[D&C 122.7|D&C 122:7]].  

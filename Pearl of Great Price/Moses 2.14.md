@@ -5,4 +5,4 @@
 [Moses 2:14](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 104.19|Ps. 104:19.]]
+[^a]: [[Psalms 104.19|Ps. 104:19]].  

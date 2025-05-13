@@ -5,5 +5,5 @@
 [2 Samuel 17:29](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/17.29?lang=eng#p29)
 
 
-[^a]: [[2 Nephi 17.15|2 Ne. 17:15.]]
-[^b]: OR cattle.
+[^a]: [[2 Nephi 17.15|2 Ne. 17:15]].  
+[^b]: OR cattle.  

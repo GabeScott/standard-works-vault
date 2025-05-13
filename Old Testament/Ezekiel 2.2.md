@@ -5,4 +5,4 @@
 [Ezekiel 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/2.2?lang=eng#p2)
 
 
-[^a]: TG [[Teaching with the Spirit]].
+[^a]: [[Teaching with the Spirit|TG Teaching with the Spirit]].  

@@ -5,4 +5,4 @@
 [Revelation 17:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.9?lang=eng#p9)
 
 
-[^a]: TG [[Mind, Minded]].
+[^a]: [[Mind, Minded|TG Mind]].  

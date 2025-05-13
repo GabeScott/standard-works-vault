@@ -5,5 +5,5 @@
 [Jeremiah 29:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.18?lang=eng#p18)
 
 
-[^a]: HEB pursue after.
-[^b]: TG [[Israel, Scattering of]].
+[^a]: HEB pursue after.  
+[^b]: [[Israel, Scattering of|TG Israel, Scattering of]].  

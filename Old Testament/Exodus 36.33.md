@@ -5,4 +5,4 @@
 [Exodus 36:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.33?lang=eng#p33)
 
 
-[^a]: OR pass.
+[^a]: OR pass.  

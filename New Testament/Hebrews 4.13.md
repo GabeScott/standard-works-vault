@@ -5,4 +5,4 @@
 [Hebrews 4:13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.13?lang=eng#p13)
 
 
-[^a]: [[Proverbs 5.21|Prov. 5:21.]]
+[^a]: [[Proverbs 5.21|Prov. 5:21]].  

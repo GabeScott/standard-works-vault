@@ -5,4 +5,4 @@
 [Obadiah 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/obad/1.19?lang=eng#p19)
 
 
-[^a]: Zeph. 2:5 (5-7); [[2 Nephi 21.14|2 Ne. 21:14.]]
+[^a]: [[Zephaniah 2.5|Zeph. 2:5 (5–7)]][[Zephaniah 2.6|]][[Zephaniah 2.7|]]; [[2 Nephi 21.14|2 Ne. 21:14]].  

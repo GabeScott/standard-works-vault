@@ -5,5 +5,5 @@
 [Proverbs 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.7?lang=eng#p7)
 
 
-[^a]: [[Proverbs 15.25|Prov. 15:25.]]
-[^b]: [[3 Nephi 14.25|3 Ne. 14:25 (24-27).]]
+[^a]: [[Proverbs 15.25|Prov. 15:25]].  
+[^b]: [[3 Nephi 14.24|3 Ne. 14:25 (24–27)]][[3 Nephi 14.25|]][[3 Nephi 14.26|]][[3 Nephi 14.27|]].  

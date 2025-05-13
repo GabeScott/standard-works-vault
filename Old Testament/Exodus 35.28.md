@@ -5,4 +5,4 @@
 [Exodus 35:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.28?lang=eng#p28)
 
 
-[^a]: [[Exodus 30.23|Ex. 30:23.]]
+[^a]: [[Exodus 30.23|Ex. 30:23]].  

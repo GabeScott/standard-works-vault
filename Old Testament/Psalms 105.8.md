@@ -5,4 +5,4 @@
 [Psalms 105:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 2.24|Ex. 2:24.]]
+[^a]: [[Exodus 2.24|Ex. 2:24]].  

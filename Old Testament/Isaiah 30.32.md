@@ -5,5 +5,5 @@
 [Isaiah 30:32](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.32?lang=eng#p32)
 
 
-[^a]: HEB with waves of battles.
-[^b]: OR against them.
+[^a]: HEB with waves of battles.  
+[^b]: OR against them.  

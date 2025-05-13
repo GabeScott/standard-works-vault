@@ -5,5 +5,5 @@
 [Isaiah 19:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.21?lang=eng#p21)
 
 
-[^a]: [[Psalms 68.31|Ps. 68:31.]]
-[^b]: TG [[Vow]].
+[^a]: [[Psalms 68.31|Ps. 68:31]].  
+[^b]: [[Vow|TG Vow]].  

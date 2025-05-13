@@ -5,8 +5,8 @@
 [Isaiah 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.16?lang=eng#p16)
 
 
-[^a]: TG [[Modesty]].
-[^b]: TG [[Haughtiness, Haughty]]; [[Vanity]].
-[^c]: TG [[Walking in Darkness]].
-[^d]: TG [[Carnal Mind]].
-[^e]: IE walking with short, rapid steps in an affected manner.
+[^a]: [[Modesty|TG Modesty]].  
+[^b]: [[Haughtiness, Haughty|TG Haughtiness]]; [[Vanity|Vanity]].  
+[^c]: [[Walking in Darkness|TG Walking in Darkness]].  
+[^d]: [[Carnal Mind|TG Carnal Mind]].  
+[^e]: IE walking with short, rapid steps in an affected manner.  

@@ -5,5 +5,5 @@
 [2 Timothy 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.13?lang=eng#p13)
 
 
-[^a]: GR sketch, model, example.
-[^b]: GR uncorrupted.
+[^a]: GR sketch, model, example.  
+[^b]: GR uncorrupted.  

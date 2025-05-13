@@ -5,4 +5,4 @@
 [Ezekiel 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/4.13?lang=eng#p13)
 
 
-[^a]: [[Hosea 9.3|Hosea 9:3 (1-3).]]
+[^a]: [[Hosea 9.1|Hosea 9:3 (1–3)]][[Hosea 9.2|]][[Hosea 9.3|]].  

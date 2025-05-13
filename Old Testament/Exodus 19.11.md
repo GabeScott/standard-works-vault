@@ -5,4 +5,4 @@
 [Exodus 19:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.11?lang=eng#p11)
 
 
-[^a]: TG [[God, Privilege of Seeing]]; [[Sight]].
+[^a]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]]; [[Sight|Sight]].  

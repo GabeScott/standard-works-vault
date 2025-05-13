@@ -5,5 +5,5 @@
 [Genesis 30:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.8?lang=eng#p8)
 
 
-[^a]: HEB The wrestlings of God have I wrestled with my sister.
-[^b]: IE My wrestling. Gen. 49:21; [[2 Nephi 19.1|2 Ne. 19:1.]]
+[^a]: HEB The wrestlings of God have I wrestled with my sister.  
+[^b]: IE My wrestling. [[Genesis 49.21|Gen. 49:21]]; [[2 Nephi 19.1|2 Ne. 19:1]].  

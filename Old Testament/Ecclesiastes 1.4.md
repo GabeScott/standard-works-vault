@@ -5,4 +5,4 @@
 [Ecclesiastes 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.4?lang=eng#p4)
 
 
-[^a]: TG [[Earth, Destiny of]].
+[^a]: [[Earth, Destiny of|TG Earth, Destiny of]].  

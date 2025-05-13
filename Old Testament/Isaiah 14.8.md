@@ -5,6 +5,6 @@
 [Isaiah 14:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.8?lang=eng#p8)
 
 
-[^a]: HEB cypress.
-[^b]: IE in death.
-[^c]: HEB the (tree) cutter has not come upon us.
+[^a]: HEB cypress.  
+[^b]: IE in death.  
+[^c]: HEB the (tree) cutter has not come upon us.  

@@ -5,5 +5,5 @@
 [Esther 4:14](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/4.14?lang=eng#p14)
 
 
-[^a]: HEB breath; i.e., relief.
-[^b]: [[Genesis 45.7|Gen. 45:7 (7-8).]]
+[^a]: HEB breath; i.e., relief.  
+[^b]: [[Genesis 45.7|Gen. 45:7 (7–8)]][[Genesis 45.8|]].  

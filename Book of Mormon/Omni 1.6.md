@@ -5,5 +5,5 @@
 [Omni 1:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p6#p6)
 
 
-[^a]: [[Jarom 1.9|Jarom 1:9]]; [[Mosiah 1.7|Mosiah 1:7.]]
-[^b]: [[Deuteronomy 28.29|Deut. 28:29.]]
+[^a]: [[Jarom 1.9|Jarom 1:9]]; [[Mosiah 1.7|Mosiah 1:7]].  
+[^b]: [[Deuteronomy 28.29|Deut. 28:29]].  

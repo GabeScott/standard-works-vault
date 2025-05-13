@@ -5,4 +5,4 @@
 [Luke 14:32](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.32?lang=eng#p32)
 
 
-[^a]: OR embassy.
+[^a]: OR embassy.  

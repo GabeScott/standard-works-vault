@@ -5,7 +5,7 @@
 [1 Peter 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.20?lang=eng#p20)
 
 
-[^a]: [[D&C 122.7|D&C 122:7 (7-8).]]
-[^b]: TG [[Forbear, Forbearance]]; [[Suffering]].
-[^c]: [[Alma 12.24|Alma 12:24]]. TG [[Patience, Patient, Patiently]].
-[^d]: GR pleasing, gracious.
+[^a]: [[D&C 122.7|D&C 122:7 (7–8)]][[D&C 122.8|]].  
+[^b]: [[Forbear, Forbearance|TG Forbear]]; [[Suffering|Suffering]].  
+[^c]: [[Alma 12.24|Alma 12:24]]. [[Patience, Patient, Patiently|TG Patience]].  
+[^d]: GR pleasing, gracious.  

@@ -5,4 +5,4 @@
 [Numbers 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 9.23|Deut. 9:23]]. TG [[Murmuring, Murmur]].
+[^a]: [[Deuteronomy 9.23|Deut. 9:23]]. [[Murmuring, Murmur|TG Murmuring]].  

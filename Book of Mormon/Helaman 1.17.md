@@ -5,4 +5,4 @@
 [Helaman 1:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 35.10|Alma 35:10]]; [[Alma 47.1|47:1.]]
+[^a]: [[Alma 35.10|Alma 35:10]]; [[Alma 47.1|47:1]].  

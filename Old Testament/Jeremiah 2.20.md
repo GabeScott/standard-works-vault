@@ -5,4 +5,4 @@
 [Jeremiah 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.20?lang=eng#p20)
 
 
-[^a]: TG [[Idolatry, Idol]].
+[^a]: [[Idolatry, Idol|TG Idolatry]].  

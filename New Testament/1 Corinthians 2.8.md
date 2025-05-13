@@ -5,4 +5,4 @@
 [1 Corinthians 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.8?lang=eng#p8)
 
 
-[^a]: TG [[Jesus Christ, Crucifixion of]].
+[^a]: [[Jesus Christ, Crucifixion of|TG Jesus Christ, Crucifixion of]].  

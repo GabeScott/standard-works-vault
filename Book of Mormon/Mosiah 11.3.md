@@ -5,5 +5,5 @@
 [Mosiah 11:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p3#p3)
 
 
-[^a]: [[Genesis 47.24|Gen. 47:24]]; [[Ether 10.5|Ether 10:5 (5-6).]]
-[^b]: HEB related words: adjective, “shining”; verb, “to overlay or plate with metal.”
+[^a]: [[Genesis 47.24|Gen. 47:24]]; [[Ether 10.5|Ether 10:5 (5–6)]][[Ether 10.6|]].  
+[^b]: HEB related words: adjective, “shining”; verb, “to overlay or plate with metal.”  

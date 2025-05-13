@@ -5,4 +5,4 @@
 [Isaiah 33:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.17?lang=eng#p17)
 
 
-[^a]: TG [[Beauty]].
+[^a]: [[Beauty|TG Beauty]].  

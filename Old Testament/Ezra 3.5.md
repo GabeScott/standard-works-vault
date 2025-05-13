@@ -5,5 +5,5 @@
 [Ezra 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/3.5?lang=eng#p5)
 
 
-[^a]: [[Numbers 29.39|Num. 29:39.]]
-[^b]: [[Exodus 25.2|Ex. 25:2 (1-7).]]
+[^a]: [[Numbers 29.39|Num. 29:39]].  
+[^b]: [[Exodus 25.1|Ex. 25:2 (1–7)]][[Exodus 25.2|]][[Exodus 25.3|]][[Exodus 25.4|]][[Exodus 25.5|]][[Exodus 25.6|]][[Exodus 25.7|]].  

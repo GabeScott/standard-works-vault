@@ -5,6 +5,6 @@
 [1 Nephi 22:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p1#p1)
 
 
-[^a]: [[1 Nephi 19.22|1 Ne. 19:22]]; [[2 Nephi 4.2|2 Ne. 4:2.]]
-[^b]: TG [[Interpretation]].
-[^c]: TG [[Spiritual Blindness]].
+[^a]: [[1 Nephi 19.22|1 Ne. 19:22]]; [[2 Nephi 4.2|2 Ne. 4:2]].  
+[^b]: [[Interpretation|TG Interpretation]].  
+[^c]: [[Spiritual|TG Spiritual]].  

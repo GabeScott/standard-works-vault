@@ -5,5 +5,5 @@
 [1 Chronicles 1:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/1.32?lang=eng#p32)
 
 
-[^a]: [[Genesis 25.4|Gen. 25:4 (1-4).]]
-[^b]: [[Genesis 25.2|Gen. 25:2.]]
+[^a]: [[Genesis 25.1|Gen. 25:4 (1–4)]][[Genesis 25.2|]][[Genesis 25.3|]][[Genesis 25.4|]].  
+[^b]: [[Genesis 25.2|Gen. 25:2]].  

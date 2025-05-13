@@ -5,5 +5,5 @@
 [Exodus 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.2?lang=eng#p2)
 
 
-[^a]: [[Hebrews 11.23|Heb. 11:23.]]
-[^b]: [[Acts 7.20|Acts 7:20.]]
+[^a]: [[Hebrews 11.23|Heb. 11:23]].  
+[^b]: [[Acts 7.20|Acts 7:20]].  

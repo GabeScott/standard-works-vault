@@ -5,4 +5,4 @@
 [Helaman 14:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p25#p25)
 
 
-[^a]: [[Matthew 27.52|Matt. 27:52 (52-53)]]; [[3 Nephi 23.11|3 Ne. 23:11 (7-13).]]
+[^a]: [[Matthew 27.52|Matt. 27:52 (52–53)]][[Matthew 27.53|]]; [[3 Nephi 23.7|3 Ne. 23:11 (7–13)]][[3 Nephi 23.8|]][[3 Nephi 23.9|]][[3 Nephi 23.10|]][[3 Nephi 23.11|]][[3 Nephi 23.12|]][[3 Nephi 23.13|]].  

@@ -5,5 +5,5 @@
 [1 Corinthians 7:23](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.23?lang=eng#p23)
 
 
-[^a]: [[1 Corinthians 6.19|1 Cor. 6:19 (19-20).]]
-[^b]: GR slaves.
+[^a]: [[1 Corinthians 6.19|1 Cor. 6:19 (19–20)]][[1 Corinthians 6.20|]].  
+[^b]: GR slaves.  

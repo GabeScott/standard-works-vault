@@ -5,4 +5,4 @@
 [Job 15:15](https://www.churchofjesuschrist.org/study/scriptures/ot/job/15.15?lang=eng#p15)
 
 
-[^a]: IE God.
+[^a]: IE God.  

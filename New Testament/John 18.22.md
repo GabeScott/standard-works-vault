@@ -5,4 +5,4 @@
 [John 18:22](https://www.churchofjesuschrist.org/study/scriptures/nt/john/18.22?lang=eng#p22)
 
 
-[^a]: [[Acts 23.2|Acts 23:2.]]
+[^a]: [[Acts 23.2|Acts 23:2]].  

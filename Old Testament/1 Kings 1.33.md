@@ -5,4 +5,4 @@
 [1 Kings 1:33](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/1.33?lang=eng#p33)
 
 
-[^a]: [[2 Chronicles 32.30|2 Chr. 32:30.]]
+[^a]: [[2 Chronicles 32.30|2 Chr. 32:30]].  

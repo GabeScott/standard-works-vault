@@ -5,5 +5,5 @@
 [Isaiah 22:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.9?lang=eng#p9)
 
 
-[^a]: IE cracks, breaks in the wall.
-[^b]: [[2 Kings 20.20|2 Kgs. 20:20.]]
+[^a]: IE cracks, breaks in the wall.  
+[^b]: [[2 Kings 20.20|2 Kgs. 20:20]].  

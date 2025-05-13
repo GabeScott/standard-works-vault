@@ -5,5 +5,5 @@
 [Luke 17:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.7?lang=eng#p7)
 
 
-[^a]: GR tending a flock.
-[^b]: GR immediately.
+[^a]: GR tending a flock.  
+[^b]: GR immediately.  

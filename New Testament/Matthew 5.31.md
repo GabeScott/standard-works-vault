@@ -5,4 +5,4 @@
 [Matthew 5:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.31?lang=eng#p31)
 
 
-[^a]: TG [[Divorce, Divorcement]].
+[^a]: [[Divorce, Divorcement|TG Divorce]].  

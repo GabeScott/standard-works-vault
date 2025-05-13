@@ -5,5 +5,5 @@
 [Jeremiah 14:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.12?lang=eng#p12)
 
 
-[^a]: [[Mosiah 11.24|Mosiah 11:24 (23-25)]]; [[Mosiah 21.15|21:15]]; [[D&C 101.7|D&C 101:7 (6-8).]]
-[^b]: [[Jeremiah 16.4|Jer. 16:4.]]
+[^a]: [[Mosiah 11.23|Mosiah 11:24 (23–25)]][[Mosiah 11.24|]][[Mosiah 11.25|]]; [[Mosiah 21.15|21:15]]; [[D&C 101.6|D&C 101:7 (6–8)]][[D&C 101.7|]][[D&C 101.8|]].  
+[^b]: [[Jeremiah 16.4|Jer. 16:4]].  

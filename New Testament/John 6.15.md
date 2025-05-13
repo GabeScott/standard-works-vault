@@ -5,4 +5,4 @@
 [John 6:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.15?lang=eng#p15)
 
 
-[^a]: [[John 18.36|John 18:36 (33, 36-37).]]
+[^a]: [[John 18.33|John 18:36 (33, 36–37)]][[John 18.36|]][[John 18.37|]].  

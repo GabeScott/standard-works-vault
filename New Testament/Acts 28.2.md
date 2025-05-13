@@ -5,5 +5,5 @@
 [Acts 28:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.2?lang=eng#p2)
 
 
-[^a]: [[Romans 1.14|Rom. 1:14.]]
-[^b]: TG [[Hospitality]].
+[^a]: [[Romans 1.14|Rom. 1:14]].  
+[^b]: [[Hospitality|TG Hospitality]].  

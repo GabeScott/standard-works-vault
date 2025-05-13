@@ -5,4 +5,4 @@
 [Deuteronomy 28:34](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.34?lang=eng#p34)
 
 
-[^a]: OR driven mad by the sight your eyes shall see.
+[^a]: OR driven mad by the sight your eyes shall see.  

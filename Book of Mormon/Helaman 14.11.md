@@ -5,4 +5,4 @@
 [Helaman 14:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p11#p11)
 
 
-[^a]: [[Ezekiel 2.7|Ezek. 2:7 (6-7).]]
+[^a]: [[Ezekiel 2.6|Ezek. 2:7 (6–7)]][[Ezekiel 2.7|]].  

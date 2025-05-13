@@ -5,5 +5,5 @@
 [Matthew 24:33](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.33?lang=eng#p33)
 
 
-[^a]: GR He is near.
-[^b]: [[D&C 45.63|D&C 45:63.]]
+[^a]: GR He is near.  
+[^b]: [[D&C 45.63|D&C 45:63]].  

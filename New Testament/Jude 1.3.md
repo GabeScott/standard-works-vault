@@ -5,7 +5,7 @@
 [Jude 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.3?lang=eng#p3)
 
 
-[^a]: TG [[Scriptures, Lost]].
-[^b]: [[2 Nephi 2.4|2 Ne. 2:4]]; [[2 Nephi 26.33|26:33]]; A of F 1:3.
-[^c]: TG [[Zeal, Zealous]].
-[^d]: Philip. 1:27; [[D&C 112.5|D&C 112:5.]]
+[^a]: [[Scriptures, Lost|TG Scriptures, Lost]].  
+[^b]: [[2 Nephi 2.4|2 Ne. 2:4]]; [[2 Nephi 26.33|26:33]]; [[Articles of Faith 1.3|A of F 1:3]].  
+[^c]: [[Zeal, Zealous|TG Zeal]].  
+[^d]: [[Philippians 1.27|Philip. 1:27]]; [[D&C 112.5|D&C 112:5]].  

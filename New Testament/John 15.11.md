@@ -5,4 +5,4 @@
 [John 15:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.11?lang=eng#p11)
 
 
-[^a]: TG [[Joy]].
+[^a]: [[Joy|TG Joy]].  

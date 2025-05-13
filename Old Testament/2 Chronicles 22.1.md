@@ -5,4 +5,4 @@
 [2 Chronicles 22:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/22.1?lang=eng#p1)
 
 
-[^a]: [[2 Chronicles 21.16|2 Chr. 21:16 (16-17).]]
+[^a]: [[2 Chronicles 21.16|2 Chr. 21:16 (16–17)]][[2 Chronicles 21.17|]].  

@@ -5,6 +5,6 @@
 [1 Samuel 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Family, Children, Responsibilities toward]].
-[^b]: [[1 Samuel 3.13|1 Sam. 3:13.]]
-[^c]: [[Deuteronomy 13.13|Deut. 13:13]]; [[1 Samuel 1.16|1 Sam. 1:16.]]
+[^a]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  
+[^b]: [[1 Samuel 3.13|1 Sam. 3:13]].  
+[^c]: [[Deuteronomy 13.13|Deut. 13:13]]; [[1 Samuel 1.16|1 Sam. 1:16]].  

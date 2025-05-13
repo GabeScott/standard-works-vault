@@ -5,4 +5,4 @@
 [Exodus 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/11.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 11.10|JST Ex. 11:10 … And Pharaoh hardened his heart …]]
+[^a]: JST Ex. 11:10 … And Pharaoh hardened his heart …  

@@ -5,4 +5,4 @@
 [Joshua 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/18.6?lang=eng#p6)
 
 
-[^a]: [[Joshua 14.2|Josh. 14:2.]]
+[^a]: [[Joshua 14.2|Josh. 14:2]].  

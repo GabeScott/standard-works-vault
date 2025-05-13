@@ -5,4 +5,4 @@
 [1 Peter 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.4?lang=eng#p4)
 
 
-[^a]: [[Matthew 6.20|Matt. 6:20]]; [[1 Corinthians 9.25|1 Cor. 9:25 (24-25)]]; Col. 1:5.
+[^a]: [[Matthew 6.20|Matt. 6:20]]; [[1 Corinthians 9.24|1 Cor. 9:25 (24–25)]][[1 Corinthians 9.25|]]; [[Colossians 1.5|Col. 1:5]].  

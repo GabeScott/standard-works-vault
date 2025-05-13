@@ -5,4 +5,4 @@
 [Numbers 21:32](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.32?lang=eng#p32)
 
 
-[^a]: [[Isaiah 16.8|Isa. 16:8.]]
+[^a]: [[Isaiah 16.8|Isa. 16:8]].  

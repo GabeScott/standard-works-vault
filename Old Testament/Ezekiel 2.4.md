@@ -5,5 +5,5 @@
 [Ezekiel 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/2.4?lang=eng#p4)
 
 
-[^a]: TG [[Stiffnecked, Stiffneckedness]]; [[Stubbornness, Stubborn]].
-[^b]: TG [[Called of God]].
+[^a]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]]; [[Stubbornness, Stubborn|Stubbornness]].  
+[^b]: [[Called of God|TG Called of God]].  

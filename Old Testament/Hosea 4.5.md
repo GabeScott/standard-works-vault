@@ -5,4 +5,4 @@
 [Hosea 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.5?lang=eng#p5)
 
 
-[^a]: TG [[False Prophets]].
+[^a]: [[False Prophets|TG False Prophets]].  

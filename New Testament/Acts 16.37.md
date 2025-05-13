@@ -5,5 +5,5 @@
 [Acts 16:37](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.37?lang=eng#p37)
 
 
-[^a]: [[Acts 22.25|Acts 22:25.]]
-[^b]: OR secretly.
+[^a]: [[Acts 22.25|Acts 22:25]].  
+[^b]: OR secretly.  

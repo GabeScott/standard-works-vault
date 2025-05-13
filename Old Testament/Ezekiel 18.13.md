@@ -5,4 +5,4 @@
 [Ezekiel 18:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 33.4|Ezek. 33:4.]]
+[^a]: [[Ezekiel 33.4|Ezek. 33:4]].  

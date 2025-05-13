@@ -5,4 +5,4 @@
 [Leviticus 18:28](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.28?lang=eng#p28)
 
 
-[^a]: [[Deuteronomy 18.9|Deut. 18:9.]]
+[^a]: [[Deuteronomy 18.9|Deut. 18:9]].  

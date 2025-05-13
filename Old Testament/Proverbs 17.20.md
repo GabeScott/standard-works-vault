@@ -5,4 +5,4 @@
 [Proverbs 17:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.20?lang=eng#p20)
 
 
-[^a]: [[Psalms 101.4|Ps. 101:4.]]
+[^a]: [[Psalms 101.4|Ps. 101:4]].  

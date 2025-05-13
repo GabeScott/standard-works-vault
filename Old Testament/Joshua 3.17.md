@@ -5,4 +5,4 @@
 [Joshua 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3.17?lang=eng#p17)
 
 
-[^a]: [[Psalms 66.6|Ps. 66:6]]; [[Psalms 74.15|74:15]]; [[D&C 133.68|D&C 133:68.]]
+[^a]: [[Psalms 66.6|Ps. 66:6]]; [[Psalms 74.15|74:15]]; [[D&C 133.68|D&C 133:68]].  

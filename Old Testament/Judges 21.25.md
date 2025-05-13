@@ -5,5 +5,5 @@
 [Judges 21:25](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/21.25?lang=eng#p25)
 
 
-[^a]: [[Judges 17.6|Judg. 17:6]]; [[Judges 18.1|18:1.]]
-[^b]: [[Deuteronomy 12.8|Deut. 12:8]]; [[Judges 17.6|Judg. 17:6.]]
+[^a]: [[Judges 17.6|Judg. 17:6]]; [[Judges 18.1|18:1]].  
+[^b]: [[Deuteronomy 12.8|Deut. 12:8]]; [[Judges 17.6|Judg. 17:6]].  

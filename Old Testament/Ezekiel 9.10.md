@@ -5,4 +5,4 @@
 [Ezekiel 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/9.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 7.4|Ezek. 7:4.]]
+[^a]: [[Ezekiel 7.4|Ezek. 7:4]].  

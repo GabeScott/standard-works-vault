@@ -5,4 +5,4 @@
 [Mosiah 6:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/6?lang=eng&id=p4#p4)
 
 
-[^a]: [[1 Nephi 1.4|1 Ne. 1:4]]; [[1 Nephi 2.4|2:4.]]
+[^a]: [[1 Nephi 1.4|1 Ne. 1:4]]; [[1 Nephi 2.4|2:4]].  

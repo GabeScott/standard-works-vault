@@ -5,4 +5,4 @@
 [1 Samuel 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.16?lang=eng#p16)
 
 
-[^a]: IE first of all.
+[^a]: IE first of all.  

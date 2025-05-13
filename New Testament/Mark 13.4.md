@@ -5,4 +5,4 @@
 [Mark 13:4](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.4?lang=eng#p4)
 
 
-[^a]: TG [[Signs]].
+[^a]: [[Signs|TG Signs]].  

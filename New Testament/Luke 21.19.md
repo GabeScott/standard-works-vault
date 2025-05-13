@@ -5,5 +5,5 @@
 [Luke 21:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.19?lang=eng#p19)
 
 
-[^a]: TG [[Patience, Patient, Patiently]].
-[^b]: GR preserve, win mastery over.
+[^a]: [[Patience, Patient, Patiently|TG Patience]].  
+[^b]: GR preserve, win mastery over.  

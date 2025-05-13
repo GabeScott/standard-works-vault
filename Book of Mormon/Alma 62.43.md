@@ -5,5 +5,5 @@
 [Alma 62:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p43#p43)
 
 
-[^a]: [[Helaman 4.16|Hel. 4:16 (10, 16).]]
-[^b]: [[Alma 63.15|Alma 63:15.]]
+[^a]: [[Helaman 4.10|Hel. 4:16 (10, 16)]][[Helaman 4.16|]].  
+[^b]: [[Alma 63.15|Alma 63:15]].  

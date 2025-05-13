@@ -5,5 +5,5 @@
 [Jacob 7:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[God, Spirit of]]; [[Holy Ghost, Mission of]].
-[^b]: [[Psalms 97.7|Ps. 97:7]]. TG [[Confound]].
+[^a]: [[God, Spirit of|TG God, Spirit of]]; [[Holy Ghost, Mission of|Holy Ghost, Mission of]].  
+[^b]: [[Psalms 97.7|Ps. 97:7]]. [[Confound|TG Confound]].  

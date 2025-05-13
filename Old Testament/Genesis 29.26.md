@@ -5,4 +5,4 @@
 [Genesis 29:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.26?lang=eng#p26)
 
 
-[^a]: TG [[Firstborn]].
+[^a]: [[Firstborn|TG Firstborn]].  

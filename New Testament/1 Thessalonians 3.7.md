@@ -5,5 +5,5 @@
 [1 Thessalonians 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/3.7?lang=eng#p7)
 
 
-[^a]: TG [[Sustaining Church Leaders]].
-[^b]: TG [[Affliction]].
+[^a]: [[Sustaining Church Leaders|TG Sustaining Church Leaders]].  
+[^b]: [[Affliction|TG Affliction]].  

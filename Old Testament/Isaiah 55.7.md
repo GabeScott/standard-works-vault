@@ -5,5 +5,5 @@
 [Isaiah 55:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.7?lang=eng#p7)
 
 
-[^a]: TG [[Repent, Repentance]].
-[^b]: [[Psalms 130.7|Ps. 130:7.]]
+[^a]: [[Repent, Repentance|TG Repent]].  
+[^b]: [[Psalms 130.7|Ps. 130:7]].  

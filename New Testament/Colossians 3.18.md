@@ -5,4 +5,4 @@
 [Colossians 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.18?lang=eng#p18)
 
 
-[^a]: TG [[Marriage, Wives]].
+[^a]: [[Marriage, Wives|TG Marriage, Wives]].  

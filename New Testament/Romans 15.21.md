@@ -5,4 +5,4 @@
 [Romans 15:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.21?lang=eng#p21)
 
 
-[^a]: [[Isaiah 52.15|Isa. 52:15.]]
+[^a]: [[Isaiah 52.15|Isa. 52:15]].  

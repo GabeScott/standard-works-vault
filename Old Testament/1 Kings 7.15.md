@@ -5,5 +5,5 @@
 [1 Kings 7:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.15?lang=eng#p15)
 
 
-[^a]: [[2 Kings 25.13|2 Kgs. 25:13.]]
-[^b]: [[Jeremiah 52.21|Jer. 52:21.]]
+[^a]: [[2 Kings 25.13|2 Kgs. 25:13]].  
+[^b]: [[Jeremiah 52.21|Jer. 52:21]].  

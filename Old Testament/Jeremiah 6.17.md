@@ -5,5 +5,5 @@
 [Jeremiah 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.17?lang=eng#p17)
 
 
-[^a]: TG [[Watchman, Watchmen]].
-[^b]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[Watchman, Watchmen|TG Watchman]].  
+[^b]: [[Obedience, Obedient, Obey|TG Obedience]].  

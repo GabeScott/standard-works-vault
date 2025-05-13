@@ -5,4 +5,4 @@
 [2 Samuel 1:26](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/1.26?lang=eng#p26)
 
 
-[^a]: [[Alma 20.26|Alma 20:26]]; [[D&C 88.133|D&C 88:133.]]
+[^a]: [[Alma 20.26|Alma 20:26]]; [[D&C 88.133|D&C 88:133]].  

@@ -5,4 +5,4 @@
 [Jeremiah 43:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/43.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 40.13|Jer. 40:13.]]
+[^a]: [[Jeremiah 40.13|Jer. 40:13]].  

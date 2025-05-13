@@ -5,4 +5,4 @@
 [Alma 18:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p26#p26)
 
 
-[^a]: [[Alma 22.9|Alma 22:9 (9-10).]]
+[^a]: [[Alma 22.9|Alma 22:9 (9–10)]][[Alma 22.10|]].  

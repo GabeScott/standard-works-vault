@@ -5,5 +5,5 @@
 [Matthew 15:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.4?lang=eng#p4)
 
 
-[^a]: TG [[Honorable]]; [[Honorable]]ing Father and Mother; [[Respecter]].
-[^b]: GR he shall surely die. TG [[Capital Punishment]].
+[^a]: [[Honor|TG Honor]]; [[Honoring Father and Mother|Honoring Father and Mother]]; [[Respect|Respect]].  
+[^b]: GR he shall surely die. [[Capital Punishment|TG Capital Punishment]].  

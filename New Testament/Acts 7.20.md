@@ -5,5 +5,5 @@
 [Acts 7:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.20?lang=eng#p20)
 
 
-[^a]: GR comely, beautiful to God.
-[^b]: [[Exodus 2.2|Ex. 2:2.]]
+[^a]: GR comely, beautiful to God.  
+[^b]: [[Exodus 2.2|Ex. 2:2]].  

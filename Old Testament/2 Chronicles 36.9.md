@@ -5,4 +5,4 @@
 [2 Chronicles 36:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.9?lang=eng#p9)
 
 
-[^a]: OR eighteen; see 2 Kgs. 24:8, 15.
+[^a]: OR eighteen; see [[2 Kings 24.8|2 Kgs. 24:8, 15]][[2 Kings 24.15|]].  

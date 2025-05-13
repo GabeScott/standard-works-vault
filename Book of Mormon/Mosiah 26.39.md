@@ -5,6 +5,6 @@
 [Mosiah 26:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p39#p39)
 
 
-[^a]: TG [[Warn, Warnings]].
-[^b]: [[2 Nephi 32.9|2 Ne. 32:9 (8-9).]]
-[^c]: TG [[Thanksgiving]].
+[^a]: [[Warn, Warnings|TG Warn]].  
+[^b]: [[2 Nephi 32.8|2 Ne. 32:9 (8–9)]][[2 Nephi 32.9|]].  
+[^c]: [[Thanksgiving|TG Thanksgiving]].  

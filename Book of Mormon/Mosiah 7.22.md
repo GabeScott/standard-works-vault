@@ -5,5 +5,5 @@
 [Mosiah 7:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p22#p22)
 
 
-[^a]: [[Mosiah 9.10|Mosiah 9:10]]; [[Mosiah 10.18|10:18.]]
-[^b]: TG [[Tribute]].
+[^a]: [[Mosiah 9.10|Mosiah 9:10]]; [[Mosiah 10.18|10:18]].  
+[^b]: [[Tribute|TG Tribute]].  

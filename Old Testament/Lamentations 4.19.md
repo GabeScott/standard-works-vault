@@ -5,4 +5,4 @@
 [Lamentations 4:19](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/4.19?lang=eng#p19)
 
 
-[^a]: [[Jeremiah 4.13|Jer. 4:13]]; [[Jeremiah 39.5|39:5.]]
+[^a]: [[Jeremiah 4.13|Jer. 4:13]]; [[Jeremiah 39.5|39:5]].  

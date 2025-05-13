@@ -5,4 +5,4 @@
 [Jeremiah 31:39](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.39?lang=eng#p39)
 
 
-[^a]: [[Zechariah 1.16|Zech. 1:16.]]
+[^a]: [[Zechariah 1.16|Zech. 1:16]].  

@@ -5,4 +5,4 @@
 [Psalms 89:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.3?lang=eng#p3)
 
 
-[^a]: [[Haggai 2.23|Hag. 2:23.]]
+[^a]: [[Haggai 2.23|Hag. 2:23]].  

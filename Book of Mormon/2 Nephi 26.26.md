@@ -5,4 +5,4 @@
 [2 Nephi 26:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p26#p26)
 
 
-[^a]: [[Mark 9.39|Mark 9:39 (38-40).]]
+[^a]: [[Mark 9.38|Mark 9:39 (38–40)]][[Mark 9.39|]][[Mark 9.40|]].  

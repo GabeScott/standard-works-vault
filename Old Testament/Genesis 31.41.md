@@ -5,4 +5,4 @@
 [Genesis 31:41](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.41?lang=eng#p41)
 
 
-[^a]: [[Genesis 29.18|Gen. 29:18.]]
+[^a]: [[Genesis 29.18|Gen. 29:18]].  

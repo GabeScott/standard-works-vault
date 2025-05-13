@@ -5,4 +5,4 @@
 [Numbers 33:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.9?lang=eng#p9)
 
 
-[^a]: HEB springs.
+[^a]: HEB springs.  

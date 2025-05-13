@@ -5,4 +5,4 @@
 [1 Corinthians 7:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.16?lang=eng#p16)
 
 
-[^a]: TG [[Family, Love within]].
+[^a]: [[Family, Love within|TG Family, Love within]].  

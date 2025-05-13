@@ -5,7 +5,7 @@
 [1 John 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.8?lang=eng#p8)
 
 
-[^a]: JST 1 Jn. 3:8 … continueth in sin …
-[^b]: TG [[Sin]].
-[^c]: [[Genesis 3.1|Gen. 3:1.]]
-[^d]: TG [[Devil, Church of]].
+[^a]: JST 1 Jn. 3:8 … continueth in sin …  
+[^b]: [[Sin|TG Sin]].  
+[^c]: [[Genesis 3.1|Gen. 3:1]].  
+[^d]: [[Devil|TG Devil]].  

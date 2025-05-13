@@ -5,5 +5,5 @@
 [Alma 32:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p3#p3)
 
 
-[^a]: [[Luke 18.9|Luke 18:9.]]
-[^b]: [[Alma 34.40|Alma 34:40.]]
+[^a]: [[Luke 18.9|Luke 18:9]].  
+[^b]: [[Alma 34.40|Alma 34:40]].  

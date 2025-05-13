@@ -5,4 +5,4 @@
 [Alma 13:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p5#p5)
 
 
-[^a]: [[Romans 2.11|Rom. 2:11]]; [[2 Nephi 26.28|2 Ne. 26:28.]]
+[^a]: [[Romans 2.11|Rom. 2:11]]; [[2 Nephi 26.28|2 Ne. 26:28]].  

@@ -5,5 +5,5 @@
 [Mosiah 5:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/5?lang=eng&id=p2#p2)
 
 
-[^a]: [[Romans 8.2|Rom. 8:2 (1-4)]]; [[Alma 5.14|Alma 5:14]]; [[Alma 13.12|13:12]]. TG [[Man, New, Spiritually Reborn]].
-[^b]: [[Alma 19.33|Alma 19:33.]]
+[^a]: [[Romans 8.1|Rom. 8:2 (1–4)]][[Romans 8.2|]][[Romans 8.3|]][[Romans 8.4|]]; [[Alma 5.14|Alma 5:14]]; [[Alma 13.12|13:12]]. [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  
+[^b]: [[Alma 19.33|Alma 19:33]].  

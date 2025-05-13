@@ -5,5 +5,5 @@
 [Daniel 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.7?lang=eng#p7)
 
 
-[^a]: HEB enraged.
-[^b]: Dan. 11:11.
+[^a]: HEB enraged.  
+[^b]: [[Daniel 11.11|Dan. 11:11]].  

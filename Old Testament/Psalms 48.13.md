@@ -5,4 +5,4 @@
 [Psalms 48:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/48.13?lang=eng#p13)
 
 
-[^a]: [[Psalms 102.18|Ps. 102:18.]]
+[^a]: [[Psalms 102.18|Ps. 102:18]].  

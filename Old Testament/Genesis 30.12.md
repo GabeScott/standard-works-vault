@@ -5,4 +5,4 @@
 [Genesis 30:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 46.18|Gen. 46:18.]]
+[^a]: [[Genesis 46.18|Gen. 46:18]].  

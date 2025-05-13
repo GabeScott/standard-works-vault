@@ -5,9 +5,9 @@
 [2 Nephi 25:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p18#p18)
 
 
-[^a]: [[3 Nephi 16.4|3 Ne. 16:4.]]
-[^b]: [[2 Nephi 29.11|2 Ne. 29:11]]; [[2 Nephi 33.14|33:14 (11, 14-15)]]; W of M 1:11; [[3 Nephi 27.25|3 Ne. 27:25 (23-27)]]; [[Ether 5.4|Ether 5:4.]]
-[^c]: TG [[Judgment, the Last]].
-[^d]: [[2 Nephi 26.12|2 Ne. 26:12]]; [[Mormon 3.21|Morm. 3:21.]]
-[^e]: TG [[False Christs]].
-[^f]: TG [[Jesus Christ, Messiah]].
+[^a]: [[3 Nephi 16.4|3 Ne. 16:4]].  
+[^b]: [[2 Nephi 29.11|2 Ne. 29:11]]; [[2 Nephi 33.11|33:14 (11, 14–15)]][[2 Nephi 33.14|]][[2 Nephi 33.15|]]; [[Words of Mormon 1.11|W of M 1:11]]; [[3 Nephi 27.23|3 Ne. 27:25 (23–27)]][[3 Nephi 27.24|]][[3 Nephi 27.25|]][[3 Nephi 27.26|]][[3 Nephi 27.27|]]; [[Ether 5.4|Ether 5:4]].  
+[^c]: [[Judgment, the Last|TG Judgment, the Last]].  
+[^d]: [[2 Nephi 26.12|2 Ne. 26:12]]; [[Mormon 3.21|Morm. 3:21]].  
+[^e]: [[False Christs|TG False Christs]].  
+[^f]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  

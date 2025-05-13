@@ -5,4 +5,4 @@
 [3 Nephi 9:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Jesus Christ, Atonement through]].
+[^a]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  

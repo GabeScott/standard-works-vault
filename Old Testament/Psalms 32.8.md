@@ -5,4 +5,4 @@
 [Psalms 32:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/32.8?lang=eng#p8)
 
 
-[^a]: TG [[Teaching with the Spirit]].
+[^a]: [[Teaching, Teach, Taught|TG Teaching]].  

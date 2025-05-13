@@ -5,4 +5,4 @@
 [Mark 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.14?lang=eng#p14)
 
 
-[^a]: TG [[Jesus Christ, Teaching Mode of]].
+[^a]: [[Jesus Christ, Teaching Mode of|TG Jesus Christ, Teaching Mode of]].  

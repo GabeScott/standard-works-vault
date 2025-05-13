@@ -5,4 +5,4 @@
 [Psalms 86:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/86.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 54.3|Ps. 54:3.]]
+[^a]: [[Psalms 54.3|Ps. 54:3]].  

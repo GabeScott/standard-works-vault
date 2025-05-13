@@ -5,5 +5,5 @@
 [3 Nephi 19:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Baptism, Immersion]].
-[^b]: [[3 Nephi 12.2|3 Ne. 12:2]]; [[Mormon 7.10|Morm. 7:10]]. TG [[Holy Ghost, Baptism of]].
+[^a]: [[Baptism, Immersion|TG Baptism, Immersion]].  
+[^b]: [[3 Nephi 12.2|3 Ne. 12:2]]; [[Mormon 7.10|Morm. 7:10]]. [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  

@@ -5,4 +5,4 @@
 [1 Kings 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.18?lang=eng#p18)
 
 
-[^a]: [[D&C 124.22|D&C 124:22.]]
+[^a]: [[D&C 124.22|D&C 124:22]].  

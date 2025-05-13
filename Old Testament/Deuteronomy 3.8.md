@@ -5,4 +5,4 @@
 [Deuteronomy 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.8?lang=eng#p8)
 
 
-[^a]: HEB beyond the Jordan.
+[^a]: HEB beyond the Jordan.  

@@ -5,4 +5,4 @@
 [Exodus 36:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 35.21|Ex. 35:21.]]
+[^a]: [[Exodus 35.21|Ex. 35:21]].  

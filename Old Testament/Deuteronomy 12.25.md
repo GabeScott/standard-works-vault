@@ -5,4 +5,4 @@
 [Deuteronomy 12:25](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.25?lang=eng#p25)
 
 
-[^a]: [[Deuteronomy 11.27|Deut. 11:27 (26-28).]]
+[^a]: [[Deuteronomy 11.26|Deut. 11:27 (26–28)]][[Deuteronomy 11.27|]][[Deuteronomy 11.28|]].  

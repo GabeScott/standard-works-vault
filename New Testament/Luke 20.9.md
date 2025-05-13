@@ -5,5 +5,5 @@
 [Luke 20:9](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.9?lang=eng#p9)
 
 
-[^a]: TG [[Vineyard of the Lord]].
-[^b]: GR farmers.
+[^a]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  
+[^b]: GR farmers.  

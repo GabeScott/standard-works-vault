@@ -5,4 +5,4 @@
 [Ephesians 4:29](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.29?lang=eng#p29)
 
 
-[^a]: TG [[Communication]]; [[Gossip]]; [[Profanity]].
+[^a]: [[Communication|TG Communication]]; [[Gossip|Gossip]]; [[Profanity|Profanity]].  

@@ -5,4 +5,4 @@
 [Numbers 26:42](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.42?lang=eng#p42)
 
 
-[^a]: [[Genesis 46.23|Gen. 46:23.]]
+[^a]: [[Genesis 46.23|Gen. 46:23]].  

@@ -5,5 +5,5 @@
 [Numbers 13:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.29?lang=eng#p29)
 
 
-[^a]: Num. 14:25, 43.
-[^b]: HEB Negev.
+[^a]: [[Numbers 14.25|Num. 14:25, 43]][[Numbers 14.43|]].  
+[^b]: HEB Negev.  

@@ -5,5 +5,5 @@
 [2 Peter 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.13?lang=eng#p13)
 
 
-[^a]: GR right, just, righteous.
-[^b]: D&C 93:4, 35.
+[^a]: GR right, just, righteous.  
+[^b]: [[D&C 93.4|D&C 93:4, 35]][[D&C 93.35|]].  

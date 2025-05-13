@@ -5,4 +5,4 @@
 [Ezekiel 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.12?lang=eng#p12)
 
 
-[^a]: [[Ezekiel 3.20|Ezek. 3:20]]; [[Ezekiel 18.24|18:24.]]
+[^a]: [[Ezekiel 3.20|Ezek. 3:20]]; [[Ezekiel 18.24|18:24]].  

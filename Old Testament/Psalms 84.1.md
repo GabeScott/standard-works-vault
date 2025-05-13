@@ -5,4 +5,4 @@
 [Psalms 84:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/84.1?lang=eng#p1)
 
 
-[^a]: HEB lovely is Thy dwelling place.
+[^a]: HEB lovely is Thy dwelling place.  

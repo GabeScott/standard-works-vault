@@ -5,4 +5,4 @@
 [Mark 16:4](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.4?lang=eng#p4)
 
 
-[^a]: JST Mark 16:3-6 (Appendix).
+[^a]: [[JST Mark 16.3|JST Mark 16:3–6 (Appendix)]][[JST Mark 16.4|]][[JST Mark 16.5|]][[JST Mark 16.6|]].  

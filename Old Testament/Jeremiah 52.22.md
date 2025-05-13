@@ -5,4 +5,4 @@
 [Jeremiah 52:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.22?lang=eng#p22)
 
 
-[^a]: OR decorative head of column.
+[^a]: OR decorative head of column.  

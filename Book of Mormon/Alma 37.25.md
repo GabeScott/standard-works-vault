@@ -5,5 +5,5 @@
 [Alma 37:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p25#p25)
 
 
-[^a]: [[Psalms 64.5|Ps. 64:5 (4-6)]]; [[D&C 88.108|D&C 88:108 (108-9).]]
-[^b]: [[Mosiah 21.26|Mosiah 21:26.]]
+[^a]: [[Psalms 64.4|Ps. 64:5 (4–6)]][[Psalms 64.5|]][[Psalms 64.6|]]; [[D&C 88.108|D&C 88:108 (108–9)]][[D&C 88.109|]].  
+[^b]: [[Mosiah 21.26|Mosiah 21:26]].  

@@ -5,4 +5,4 @@
 [Luke 14:29](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.29?lang=eng#p29)
 
 
-[^a]: GR perhaps.
+[^a]: GR perhaps.  

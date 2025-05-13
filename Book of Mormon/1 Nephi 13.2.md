@@ -5,4 +5,4 @@
 [1 Nephi 13:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Kings, Earthly]]; [[Nations]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]]; [[Nations|Nations]].  

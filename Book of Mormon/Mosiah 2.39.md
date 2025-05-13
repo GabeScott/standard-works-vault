@@ -5,5 +5,5 @@
 [Mosiah 2:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p39#p39)
 
 
-[^a]: TG [[Mercy, Merciful]].
-[^b]: TG [[Damnation, Damned]]; [[Punish, Punishment]].
+[^a]: [[Mercy, Merciful|TG Mercy]].  
+[^b]: [[Damnation, Damned|TG Damnation]]; [[Punish, Punishment|Punish]].  

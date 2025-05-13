@@ -5,4 +5,4 @@
 [Romans 6:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.21?lang=eng#p21)
 
 
-[^a]: GR benefit, reward.
+[^a]: GR benefit, reward.  

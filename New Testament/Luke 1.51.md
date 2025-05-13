@@ -5,4 +5,4 @@
 [Luke 1:51](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.51?lang=eng#p51)
 
 
-[^a]: [[Exodus 18.11|Ex. 18:11.]]
+[^a]: [[Exodus 18.11|Ex. 18:11]].  

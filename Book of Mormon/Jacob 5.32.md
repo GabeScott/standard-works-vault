@@ -5,5 +5,5 @@
 [Jacob 5:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p32#p32)
 
 
-[^a]: [[Hosea 10.1|Hosea 10:1.]]
-[^b]: JS—H 1:19.
+[^a]: [[Hosea 10.1|Hosea 10:1]].  
+[^b]: [[Joseph Smith History 1.19|JS—H 1:19]].  

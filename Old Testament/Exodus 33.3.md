@@ -5,4 +5,4 @@
 [Exodus 33:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 13.5|Ex. 13:5.]]
+[^a]: [[Exodus 13.5|Ex. 13:5]].  

@@ -5,5 +5,5 @@
 [Luke 14:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.33?lang=eng#p33)
 
 
-[^a]: [[Luke 5.11|Luke 5:11]]; [[D&C 103.27|D&C 103:27 (27-28).]]
-[^b]: [[D&C 132.50|D&C 132:50 (49-51).]]
+[^a]: [[Luke 5.11|Luke 5:11]]; [[D&C 103.27|D&C 103:27 (27–28)]][[D&C 103.28|]].  
+[^b]: [[D&C 132.49|D&C 132:50 (49–51)]][[D&C 132.50|]][[D&C 132.51|]].  

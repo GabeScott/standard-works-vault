@@ -5,4 +5,4 @@
 [Jeremiah 23:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.15?lang=eng#p15)
 
 
-[^a]: OR ungodliness.
+[^a]: OR ungodliness.  

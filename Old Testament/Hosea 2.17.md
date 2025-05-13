@@ -5,4 +5,4 @@
 [Hosea 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.17?lang=eng#p17)
 
 
-[^a]: [[Exodus 23.13|Ex. 23:13.]]
+[^a]: [[Exodus 23.13|Ex. 23:13]].  

@@ -5,6 +5,6 @@
 [Hebrews 9:26](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.26?lang=eng#p26)
 
 
-[^a]: JST Heb. 9:26 … in the meridian of time hath he …
-[^b]: GR consummation of the ages.
-[^c]: TG [[Self-Sacrifice]].
+[^a]: JST Heb. 9:26 … in the meridian of time hath he …  
+[^b]: GR consummation of the ages.  
+[^c]: [[Self-Sacrifice|TG Self-Sacrifice]].  

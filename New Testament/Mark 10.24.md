@@ -5,5 +5,5 @@
 [Mark 10:24](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.24?lang=eng#p24)
 
 
-[^a]: [[Jacob 2.18|Jacob 2:18 (17-19).]]
-[^b]: TG [[Treasure]].
+[^a]: [[Jacob 2.17|Jacob 2:18 (17–19)]][[Jacob 2.18|]][[Jacob 2.19|]].  
+[^b]: [[Treasure|TG Treasure]].  

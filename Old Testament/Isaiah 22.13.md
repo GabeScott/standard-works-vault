@@ -5,6 +5,6 @@
 [Isaiah 22:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.13?lang=eng#p13)
 
 
-[^a]: IE They went on with revelry as usual.
-[^b]: [[Luke 12.19|Luke 12:19]]; [[1 Corinthians 15.32|1 Cor. 15:32]]; [[2 Nephi 28.8|2 Ne. 28:8.]]
-[^c]: TG [[Procrastination, Procrastinate]].
+[^a]: IE They went on with revelry as usual.  
+[^b]: [[Luke 12.19|Luke 12:19]]; [[1 Corinthians 15.32|1 Cor. 15:32]]; [[2 Nephi 28.8|2 Ne. 28:8]].  
+[^c]: [[Procrastination, Procrastinate|TG Procrastination]].  

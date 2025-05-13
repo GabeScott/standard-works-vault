@@ -5,6 +5,6 @@
 [John 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.7?lang=eng#p7)
 
 
-[^a]: [[John 19.35|John 19:35 (35-37).]]
-[^b]: [[D&C 66.7|D&C 66:7.]]
-[^c]: [[John 20.31|John 20:31 (30-31).]]
+[^a]: [[John 19.35|John 19:35 (35–37)]][[John 19.36|]][[John 19.37|]].  
+[^b]: [[D&C 66.7|D&C 66:7]].  
+[^c]: [[John 20.30|John 20:31 (30–31)]][[John 20.31|]].  

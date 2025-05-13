@@ -5,5 +5,5 @@
 [Psalms 139:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/139.13?lang=eng#p13)
 
 
-[^a]: HEB created my inward parts.
-[^b]: OR formed.
+[^a]: HEB created my inward parts.  
+[^b]: OR formed.  

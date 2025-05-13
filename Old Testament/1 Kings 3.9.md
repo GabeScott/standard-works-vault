@@ -5,6 +5,6 @@
 [1 Kings 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/3.9?lang=eng#p9)
 
 
-[^a]: TG [[Understanding]].
-[^b]: TG [[Heart]].
-[^c]: TG [[Discernment, Spiritual]].
+[^a]: [[Understanding|TG Understanding]].  
+[^b]: [[Heart|TG Heart]].  
+[^c]: [[Discernment, Spiritual|TG Discernment, Spiritual]].  

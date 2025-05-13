@@ -5,5 +5,5 @@
 [Hebrews 6:13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.13?lang=eng#p13)
 
 
-[^a]: GR promise, confirm by an oath.
-[^b]: [[Jeremiah 44.26|Jer. 44:26]]; [[Amos 6.8|Amos 6:8.]]
+[^a]: GR promise, confirm by an oath.  
+[^b]: [[Jeremiah 44.26|Jer. 44:26]]; [[Amos 6.8|Amos 6:8]].  

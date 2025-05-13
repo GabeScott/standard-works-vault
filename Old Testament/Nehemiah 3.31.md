@@ -5,4 +5,4 @@
 [Nehemiah 3:31](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/3.31?lang=eng#p31)
 
 
-[^a]: OR to the upper chamber of the corner.
+[^a]: OR to the upper chamber of the corner.  

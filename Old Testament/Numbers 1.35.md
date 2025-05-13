@@ -5,4 +5,4 @@
 [Numbers 1:35](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.35?lang=eng#p35)
 
 
-[^a]: TG [[Israel, Joseph, People of]].
+[^a]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  

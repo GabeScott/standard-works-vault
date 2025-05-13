@@ -5,5 +5,5 @@
 [Hebrews 9:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.11?lang=eng#p11)
 
 
-[^a]: TG [[High Priest, Melchizedek Priesthood]].
-[^b]: [[Mark 14.58|Mark 14:58]]; [[Hebrews 8.2|Heb. 8:2.]]
+[^a]: [[High Priest, Melchizedek Priesthood|TG High Priest, Melchizedek Priesthood]].  
+[^b]: [[Mark 14.58|Mark 14:58]]; [[Hebrews 8.2|Heb. 8:2]].  

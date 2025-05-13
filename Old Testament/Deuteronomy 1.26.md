@@ -5,4 +5,4 @@
 [Deuteronomy 1:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.26?lang=eng#p26)
 
 
-[^a]: TG [[Rebellion, Rebel]].
+[^a]: [[Rebellion, Rebel|TG Rebellion]].  

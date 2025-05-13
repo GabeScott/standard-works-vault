@@ -5,5 +5,5 @@
 [Psalms 98:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/98.9?lang=eng#p9)
 
 
-[^a]: [[1 Nephi 22.21|1 Ne. 22:21 (21-24)]]; [[Moses 6.57|Moses 6:57.]]
-[^b]: TG [[World, End of]].
+[^a]: [[1 Nephi 22.21|1 Ne. 22:21 (21–24)]][[1 Nephi 22.22|]][[1 Nephi 22.23|]][[1 Nephi 22.24|]]; [[Moses 6.57|Moses 6:57]].  
+[^b]: [[World|TG World]].  

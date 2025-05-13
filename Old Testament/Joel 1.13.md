@@ -5,4 +5,4 @@
 [Joel 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/1.13?lang=eng#p13)
 
 
-[^a]: [[Jeremiah 4.8|Jer. 4:8.]]
+[^a]: [[Jeremiah 4.8|Jer. 4:8]].  

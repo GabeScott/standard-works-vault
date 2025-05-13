@@ -5,4 +5,4 @@
 [Psalms 69:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.28?lang=eng#p28)
 
 
-[^a]: TG [[Book of Life]]; [[Record Keeping]].
+[^a]: [[Book of Life|TG Book of Life]]; [[Record Keeping|Record Keeping]].  

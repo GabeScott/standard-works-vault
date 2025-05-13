@@ -5,4 +5,4 @@
 [Isaiah 57:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.12?lang=eng#p12)
 
 
-[^a]: [[D&C 1.3|D&C 1:3.]]
+[^a]: [[D&C 1.3|D&C 1:3]].  

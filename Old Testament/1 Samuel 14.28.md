@@ -5,4 +5,4 @@
 [1 Samuel 14:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.28?lang=eng#p28)
 
 
-[^a]: OR strictly.
+[^a]: OR strictly.  

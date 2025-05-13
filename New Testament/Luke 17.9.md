@@ -5,4 +5,4 @@
 [Luke 17:9](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.9?lang=eng#p9)
 
 
-[^a]: GR think.
+[^a]: GR think.  

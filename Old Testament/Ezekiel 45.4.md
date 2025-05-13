@@ -5,5 +5,5 @@
 [Ezekiel 45:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.4?lang=eng#p4)
 
 
-[^a]: [[Ezekiel 48.11|Ezek. 48:11 (11-12).]]
-[^b]: [[Ezekiel 40.46|Ezek. 40:46.]]
+[^a]: [[Ezekiel 48.11|Ezek. 48:11 (11–12)]][[Ezekiel 48.12|]].  
+[^b]: [[Ezekiel 40.46|Ezek. 40:46]].  

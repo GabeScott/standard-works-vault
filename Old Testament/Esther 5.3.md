@@ -5,4 +5,4 @@
 [Esther 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/5.3?lang=eng#p3)
 
 
-[^a]: [[Mark 6.23|Mark 6:23.]]
+[^a]: [[Mark 6.23|Mark 6:23]].  

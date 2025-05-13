@@ -5,6 +5,6 @@
 [Exodus 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 4.19|Ex. 4:19.]]
-[^b]: [[Acts 7.29|Acts 7:29.]]
-[^c]: OR the presence of.
+[^a]: [[Exodus 4.19|Ex. 4:19]].  
+[^b]: [[Acts 7.29|Acts 7:29]].  
+[^c]: OR the presence of.  

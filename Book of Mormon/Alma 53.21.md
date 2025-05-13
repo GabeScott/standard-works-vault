@@ -5,5 +5,5 @@
 [Alma 53:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Sobriety, Sober, Soberness]].
-[^b]: TG [[Walking with God]].
+[^a]: [[Sobriety, Sober, Soberness|TG Sobriety]].  
+[^b]: [[Walking with God|TG Walking with God]].  

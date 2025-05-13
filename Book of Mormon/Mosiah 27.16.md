@@ -5,8 +5,8 @@
 [Mosiah 27:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p16#p16)
 
 
-[^a]: [[Mosiah 23.19|Mosiah 23:19]]; [[Alma 24.1|Alma 24:1.]]
-[^b]: [[Mosiah 25.10|Mosiah 25:10]]; [[Alma 5.5|Alma 5:5 (5-6).]]
-[^c]: [[Mosiah 23.1|Mosiah 23:1 (1-4).]]
-[^d]: [[Alma 30.47|Alma 30:47.]]
-[^e]: [[Micah 3.6|Micah 3:6 (1-7)]]; [[Matthew 8.12|Matt. 8:12 (11-12).]]
+[^a]: [[Mosiah 23.19|Mosiah 23:19]]; [[Alma 24.1|Alma 24:1]].  
+[^b]: [[Mosiah 25.10|Mosiah 25:10]]; [[Alma 5.5|Alma 5:5 (5–6)]][[Alma 5.6|]].  
+[^c]: [[Mosiah 23.1|Mosiah 23:1 (1–4)]][[Mosiah 23.2|]][[Mosiah 23.3|]][[Mosiah 23.4|]].  
+[^d]: [[Alma 30.47|Alma 30:47]].  
+[^e]: [[Micah 3.1|Micah 3:6 (1–7)]][[Micah 3.2|]][[Micah 3.3|]][[Micah 3.4|]][[Micah 3.5|]][[Micah 3.6|]][[Micah 3.7|]]; [[Matthew 8.11|Matt. 8:12 (11–12)]][[Matthew 8.12|]].  

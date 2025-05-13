@@ -5,4 +5,4 @@
 [Jeremiah 4:29](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.29?lang=eng#p29)
 
 
-[^a]: TG [[Israel, Scattering of]].
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  

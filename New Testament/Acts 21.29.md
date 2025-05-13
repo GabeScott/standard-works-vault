@@ -5,4 +5,4 @@
 [Acts 21:29](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.29?lang=eng#p29)
 
 
-[^a]: [[Acts 20.4|Acts 20:4.]]
+[^a]: [[Acts 20.4|Acts 20:4]].  

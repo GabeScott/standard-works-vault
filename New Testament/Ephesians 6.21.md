@@ -5,4 +5,4 @@
 [Ephesians 6:21](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.21?lang=eng#p21)
 
 
-[^a]: [[Acts 20.4|Acts 20:4.]]
+[^a]: [[Acts 20.4|Acts 20:4]].  

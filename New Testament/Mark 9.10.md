@@ -5,4 +5,4 @@
 [Mark 9:10](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.10?lang=eng#p10)
 
 
-[^a]: [[John 20.9|John 20:9.]]
+[^a]: [[John 20.9|John 20:9]].  

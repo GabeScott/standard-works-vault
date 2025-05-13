@@ -5,5 +5,5 @@
 [Isaiah 10:34](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.34?lang=eng#p34)
 
 
-[^a]: [[Isaiah 9.18|Isa. 9:18.]]
-[^b]: [[Isaiah 37.36|Isa. 37:36.]]
+[^a]: [[Isaiah 9.18|Isa. 9:18]].  
+[^b]: [[Isaiah 37.36|Isa. 37:36]].  

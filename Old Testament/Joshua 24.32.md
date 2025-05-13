@@ -5,4 +5,4 @@
 [Joshua 24:32](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.32?lang=eng#p32)
 
 
-[^a]: [[Genesis 50.25|Gen. 50:25]]; [[Exodus 13.19|Ex. 13:19.]]
+[^a]: [[Genesis 50.25|Gen. 50:25]]; [[Exodus 13.19|Ex. 13:19]].  

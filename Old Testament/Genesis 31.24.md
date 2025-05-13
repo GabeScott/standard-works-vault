@@ -5,5 +5,5 @@
 [Genesis 31:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.24?lang=eng#p24)
 
 
-[^a]: TG [[Dream]].
-[^b]: [[Genesis 24.50|Gen. 24:50.]]
+[^a]: [[Dream|TG Dream]].  
+[^b]: [[Genesis 24.50|Gen. 24:50]].  

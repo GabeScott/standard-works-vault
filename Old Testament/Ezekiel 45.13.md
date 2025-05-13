@@ -5,4 +5,4 @@
 [Ezekiel 45:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.13?lang=eng#p13)
 
 
-[^a]: TG [[Self-Sacrifice]].
+[^a]: [[Sacrifice|TG Sacrifice]].  

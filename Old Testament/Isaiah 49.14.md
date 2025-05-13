@@ -5,4 +5,4 @@
 [Isaiah 49:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.14?lang=eng#p14)
 
 
-[^a]: [[Ezekiel 37.11|Ezek. 37:11.]]
+[^a]: [[Ezekiel 37.11|Ezek. 37:11]].  

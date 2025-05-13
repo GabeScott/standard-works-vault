@@ -5,4 +5,4 @@
 [Joshua 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/14.10?lang=eng#p10)
 
 
-[^a]: [[Numbers 14.24|Num. 14:24.]]
+[^a]: [[Numbers 14.24|Num. 14:24]].  

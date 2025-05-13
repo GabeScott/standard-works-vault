@@ -5,5 +5,5 @@
 [Psalms 139:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/139.7?lang=eng#p7)
 
 
-[^a]: [[Jeremiah 23.24|Jer. 23:24 (23-24).]]
-[^b]: [[Jonah 1.3|Jonah 1:3.]]
+[^a]: [[Jeremiah 23.23|Jer. 23:24 (23–24)]][[Jeremiah 23.24|]].  
+[^b]: [[Jonah 1.3|Jonah 1:3]].  

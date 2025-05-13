@@ -5,4 +5,4 @@
 [Deuteronomy 28:32](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.32?lang=eng#p32)
 
 
-[^a]: OR power to prevent it.
+[^a]: OR power to prevent it.  

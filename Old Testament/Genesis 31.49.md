@@ -5,5 +5,5 @@
 [Genesis 31:49](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.49?lang=eng#p49)
 
 
-[^a]: IE The lookout point.
-[^b]: TG [[Watch, Watchfulness]].
+[^a]: IE The lookout point.  
+[^b]: [[Watch, Watchfulness|TG Watch]].  

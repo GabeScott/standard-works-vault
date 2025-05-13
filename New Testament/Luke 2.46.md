@@ -5,7 +5,7 @@
 [Luke 2:46](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.46?lang=eng#p46)
 
 
-[^a]: TG [[Genealogy and Temple Work]].
-[^b]: GR teachers.
-[^c]: JST Luke 2:46 … and they were hearing him, and asking him questions.
-[^d]: [[John 7.15|John 7:15 (14-15).]]
+[^a]: [[Temple|TG Temple]].  
+[^b]: GR teachers.  
+[^c]: [[JST Luke 2.46|JST Luke 2:46]] … and they were hearing him, and asking him questions.  
+[^d]: [[John 7.14|John 7:15 (14–15)]][[John 7.15|]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 16:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.18?lang=eng#p18)
 
 
-[^a]: TG [[Israel, Land of]]; [[Promised Lands]].
+[^a]: [[Israel, Land of|TG Israel, Land of]]; [[Promised Lands|Promised Lands]].  

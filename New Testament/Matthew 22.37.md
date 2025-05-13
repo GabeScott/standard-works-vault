@@ -5,6 +5,6 @@
 [Matthew 22:37](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.37?lang=eng#p37)
 
 
-[^a]: TG [[Dedication, Dedicate]]; [[God, Love of]]; [[Love]].
-[^b]: TG [[Heart]].
-[^c]: TG [[Mind, Minded]].
+[^a]: [[Dedication, Dedicate|TG Dedication]]; [[God, Love of|God, Love of]]; [[Love|Love]].  
+[^b]: [[Heart|TG Heart]].  
+[^c]: [[Mind, Minded|TG Mind]].  

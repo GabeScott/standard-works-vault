@@ -5,5 +5,5 @@
 [Jeremiah 7:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.24?lang=eng#p24)
 
 
-[^a]: [[1 Nephi 12.18|1 Ne. 12:18.]]
-[^b]: TG [[Apostasy of Israel]].
+[^a]: [[1 Nephi 12.18|1 Ne. 12:18]].  
+[^b]: [[Apostasy of Israel|TG Apostasy of Israel]].  

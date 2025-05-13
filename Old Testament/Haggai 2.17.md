@@ -5,5 +5,5 @@
 [Haggai 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.17?lang=eng#p17)
 
 
-[^a]: [[Deuteronomy 28.22|Deut. 28:22.]]
-[^b]: IE rust, smut, or blight.
+[^a]: [[Deuteronomy 28.22|Deut. 28:22]].  
+[^b]: IE rust, smut, or blight.  

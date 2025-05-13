@@ -5,6 +5,6 @@
 [Hebrews 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.1?lang=eng#p1)
 
 
-[^a]: TG [[Meditation, Meditate]].
-[^b]: TG [[Jesus Christ, Messenger of the Covenant]].
-[^c]: TG [[High Priest, Melchizedek Priesthood]].
+[^a]: [[Meditation, Meditate|TG Meditation]].  
+[^b]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  
+[^c]: [[High Priest, Melchizedek Priesthood|TG High Priest, Melchizedek Priesthood]].  

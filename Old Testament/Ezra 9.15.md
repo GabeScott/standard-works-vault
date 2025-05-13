@@ -5,4 +5,4 @@
 [Ezra 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.15?lang=eng#p15)
 
 
-[^a]: [[Psalms 119.137|Ps. 119:137.]]
+[^a]: [[Psalms 119.137|Ps. 119:137]].  

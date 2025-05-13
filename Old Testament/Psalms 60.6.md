@@ -5,4 +5,4 @@
 [Psalms 60:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/60.6?lang=eng#p6)
 
 
-[^a]: [[Genesis 33.17|Gen. 33:17.]]
+[^a]: [[Genesis 33.17|Gen. 33:17]].  

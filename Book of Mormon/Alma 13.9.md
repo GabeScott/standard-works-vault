@@ -5,5 +5,5 @@
 [Alma 13:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[High Priest, Melchizedek Priesthood]].
-[^b]: [[John 1.17|John 1:17 (14, 17)]]; [[2 Nephi 2.6|2 Ne. 2:6]]; [[Moses 1.6|Moses 1:6]]. TG [[Grace]].
+[^a]: [[High Priest, Melchizedek Priesthood|TG High Priest, Melchizedek Priesthood]].  
+[^b]: [[John 1.14|John 1:17 (14, 17)]][[John 1.17|]]; [[2 Nephi 2.6|2 Ne. 2:6]]; [[Moses 1.6|Moses 1:6]]. [[Grace|TG Grace]].  

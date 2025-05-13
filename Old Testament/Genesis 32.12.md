@@ -5,5 +5,5 @@
 [Genesis 32:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.12?lang=eng#p12)
 
 
-[^a]: TG [[Seed of Abraham]].
-[^b]: [[Hosea 1.10|Hosea 1:10.]]
+[^a]: [[Seed of Abraham|TG Seed of Abraham]].  
+[^b]: [[Hosea 1.10|Hosea 1:10]].  

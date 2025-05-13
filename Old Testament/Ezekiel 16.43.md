@@ -5,4 +5,4 @@
 [Ezekiel 16:43](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.43?lang=eng#p43)
 
 
-[^a]: [[Ezekiel 7.4|Ezek. 7:4.]]
+[^a]: [[Ezekiel 7.4|Ezek. 7:4]].  

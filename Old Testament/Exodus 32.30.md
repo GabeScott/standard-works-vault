@@ -5,6 +5,6 @@
 [Exodus 32:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.30?lang=eng#p30)
 
 
-[^a]: [[1 Samuel 12.20|1 Sam. 12:20 (20-25).]]
-[^b]: OR perhaps.
-[^c]: [[Numbers 25.13|Num. 25:13.]]
+[^a]: [[1 Samuel 12.20|1 Sam. 12:20 (20–25)]][[1 Samuel 12.21|]][[1 Samuel 12.22|]][[1 Samuel 12.23|]][[1 Samuel 12.24|]][[1 Samuel 12.25|]].  
+[^b]: OR perhaps.  
+[^c]: [[Numbers 25.13|Num. 25:13]].  

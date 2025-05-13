@@ -5,5 +5,5 @@
 [Lamentations 3:48](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/3.48?lang=eng#p48)
 
 
-[^a]: TG [[Mourning, Mourn]].
-[^b]: Lam. 2:11.
+[^a]: [[Mourning, Mourn|TG Mourning]].  
+[^b]: [[Lamentations 2.11|Lam. 2:11]].  

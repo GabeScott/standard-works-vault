@@ -5,4 +5,4 @@
 [Numbers 26:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.29?lang=eng#p29)
 
 
-[^a]: [[Joshua 17.2|Josh. 17:2]]; [[1 Chronicles 7.14|1 Chr. 7:14.]]
+[^a]: [[Joshua 17.2|Josh. 17:2]]; [[1 Chronicles 7.14|1 Chr. 7:14]].  

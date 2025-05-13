@@ -5,7 +5,7 @@
 [Matthew 17:5](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 24.15|Ex. 24:15.]]
-[^b]: TG [[God, Body of, Corporeal Nature]].
-[^c]: [[Matthew 3.17|Matt. 3:17]]; [[3 Nephi 11.7|3 Ne. 11:7]]; JS—H 1:17. TG [[Witness of the Father]].
-[^d]: TG [[Walking with God]]; [[Walking with God]]head; [[Walking with God]] the Father, Elohim; [[Jesus Christ, Divine Sonship]].
+[^a]: [[Exodus 24.15|Ex. 24:15]].  
+[^b]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  
+[^c]: [[Matthew 3.17|Matt. 3:17]]; [[3 Nephi 11.7|3 Ne. 11:7]]; [[Joseph Smith History 1.17|JS—H 1:17]]. [[Witness of the Father|TG Witness of the Father]].  
+[^d]: [[God|TG God]]; [[Godhead|Godhead]]; [[God the Father, Elohim|God the Father, Elohim]]; [[Jesus Christ, Divine Sonship|Jesus Christ, Divine Sonship]].  

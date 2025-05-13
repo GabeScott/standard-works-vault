@@ -5,7 +5,7 @@
 [Isaiah 53:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.11?lang=eng#p11)
 
 
-[^a]: TG [[Knowledge]].
-[^b]: TG [[Servant]].
-[^c]: TG [[Justification, Justify]].
-[^d]: TG [[Accountability]].
+[^a]: [[Knowledge|TG Knowledge]].  
+[^b]: [[Servant|TG Servant]].  
+[^c]: [[Justification, Justify|TG Justification]].  
+[^d]: [[Accountability|TG Accountability]].  

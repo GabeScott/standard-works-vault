@@ -5,4 +5,4 @@
 [Romans 6:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.9?lang=eng#p9)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

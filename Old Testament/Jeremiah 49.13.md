@@ -5,5 +5,5 @@
 [Jeremiah 49:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.13?lang=eng#p13)
 
 
-[^a]: [[Jeremiah 48.24|Jer. 48:24.]]
-[^b]: [[Ezekiel 35.9|Ezek. 35:9.]]
+[^a]: [[Jeremiah 48.24|Jer. 48:24]].  
+[^b]: [[Ezekiel 35.9|Ezek. 35:9]].  

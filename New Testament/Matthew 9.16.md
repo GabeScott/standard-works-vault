@@ -5,5 +5,5 @@
 [Matthew 9:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.16?lang=eng#p16)
 
 
-[^a]: JST Matt. 9:18-21 (Appendix).
-[^b]: GR unshrunken.
+[^a]: [[JST Matthew 9.18|JST Matt. 9:18–21 (Appendix)]][[JST Matthew 9.19|]][[JST Matthew 9.20|]][[JST Matthew 9.21|]].  
+[^b]: GR unshrunken.  

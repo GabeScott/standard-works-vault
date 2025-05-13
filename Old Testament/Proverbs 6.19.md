@@ -5,6 +5,6 @@
 [Proverbs 6:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.19?lang=eng#p19)
 
 
-[^a]: TG [[Slander]].
-[^b]: TG [[Gossip]]; [[Honesty]]; [[Lying, Liar, Lie]].
-[^c]: TG [[Disputations, Dispute]].
+[^a]: [[Slander|TG Slander]].  
+[^b]: [[Gossip|TG Gossip]]; [[Honesty|Honesty]]; [[Lying, Liar, Lie|Lying]].  
+[^c]: [[Disputations, Dispute|TG Disputations]].  

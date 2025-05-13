@@ -5,4 +5,4 @@
 [Psalms 71:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/71.21?lang=eng#p21)
 
 
-[^a]: TG [[Holy Ghost, Comforter]].
+[^a]: [[Comfort|TG Comfort]].  

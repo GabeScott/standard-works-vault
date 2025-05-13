@@ -5,4 +5,4 @@
 [Jeremiah 48:32](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.32?lang=eng#p32)
 
 
-[^a]: HEB branches.
+[^a]: HEB branches.  

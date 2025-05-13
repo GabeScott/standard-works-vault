@@ -5,4 +5,4 @@
 [Genesis 1:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.29?lang=eng#p29)
 
 
-[^a]: HEB food. Moses 2:29 (29-30); [[Abraham 4.29|Abr. 4:29 (29-30)]]. TG [[Food]]; [[Word of Wisdom]].
+[^a]: HEB food. [[Moses 2.29|Moses 2:29 (29–30)]][[Moses 2.30|]]; [[Abraham 4.29|Abr. 4:29 (29–30)]][[Abraham 4.30|]]. [[Food|TG Food]]; [[Word of Wisdom|Word of Wisdom]].  

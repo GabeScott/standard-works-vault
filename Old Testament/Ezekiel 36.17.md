@@ -5,5 +5,5 @@
 [Ezekiel 36:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.17?lang=eng#p17)
 
 
-[^a]: [[Leviticus 18.25|Lev. 18:25]]; [[2 Nephi 13.8|2 Ne. 13:8]]; [[2 Nephi 25.14|25:14.]]
-[^b]: [[Ezekiel 22.10|Ezek. 22:10.]]
+[^a]: [[Leviticus 18.25|Lev. 18:25]]; [[2 Nephi 13.8|2 Ne. 13:8]]; [[2 Nephi 25.14|25:14]].  
+[^b]: [[Ezekiel 22.10|Ezek. 22:10]].  

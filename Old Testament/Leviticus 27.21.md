@@ -5,4 +5,4 @@
 [Leviticus 27:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/27.21?lang=eng#p21)
 
 
-[^a]: [[Numbers 18.14|Num. 18:14 (11-14).]]
+[^a]: [[Numbers 18.11|Num. 18:14 (11–14)]][[Numbers 18.12|]][[Numbers 18.13|]][[Numbers 18.14|]].  

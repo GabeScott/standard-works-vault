@@ -5,4 +5,4 @@
 [2 Nephi 29:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p6#p6)
 
 
-[^a]: 1 Ne. 13:23, 38.
+[^a]: [[1 Nephi 13.23|1 Ne. 13:23, 38]][[1 Nephi 13.38|]].  

@@ -5,4 +5,4 @@
 [1 Samuel 9:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.26?lang=eng#p26)
 
 
-[^a]: OR at dawn.
+[^a]: OR at dawn.  

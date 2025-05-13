@@ -5,4 +5,4 @@
 [Nehemiah 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 13.21|Ex. 13:21]]; [[Deuteronomy 1.33|Deut. 1:33]]; [[Psalms 78.14|Ps. 78:14.]]
+[^a]: [[Exodus 13.21|Ex. 13:21]]; [[Deuteronomy 1.33|Deut. 1:33]]; [[Psalms 78.14|Ps. 78:14]].  

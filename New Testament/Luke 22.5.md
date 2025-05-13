@@ -5,4 +5,4 @@
 [Luke 22:5](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.5?lang=eng#p5)
 
 
-[^a]: [[Zechariah 11.12|Zech. 11:12.]]
+[^a]: [[Zechariah 11.12|Zech. 11:12]].  

@@ -5,4 +5,4 @@
 [Acts 19:38](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.38?lang=eng#p38)
 
 
-[^a]: GR court days are conducted.
+[^a]: GR court days are conducted.  

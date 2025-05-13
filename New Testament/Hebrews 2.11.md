@@ -5,6 +5,6 @@
 [Hebrews 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.11?lang=eng#p11)
 
 
-[^a]: TG [[Sanctification, Sanctify]].
-[^b]: TG [[Unity]].
-[^c]: TG [[Brotherhood and Sisterhood]].
+[^a]: [[Sanctification, Sanctify|TG Sanctification]].  
+[^b]: [[Unity|TG Unity]].  
+[^c]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  

@@ -5,5 +5,5 @@
 [1 Nephi 17:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p1#p1)
 
 
-[^a]: [[Psalms 69.2|Ps. 69:2 (1-2, 14).]]
-[^b]: TG [[Woman, Women]].
+[^a]: [[Psalms 69.1|Ps. 69:2 (1–2, 14)]][[Psalms 69.2|]][[Psalms 69.14|]].  
+[^b]: [[Woman, Women|TG Woman]].  

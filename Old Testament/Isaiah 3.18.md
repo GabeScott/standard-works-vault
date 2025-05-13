@@ -5,5 +5,5 @@
 [Isaiah 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.18?lang=eng#p18)
 
 
-[^a]: Possibly hairnets. Authorities do not always agree on the nature of the female ornaments listed in vv. 18-23.
-[^b]: IE ornaments shaped like a crescent moon.
+[^a]: Possibly hairnets. Authorities do not always agree on the nature of the female ornaments listed in [[Isaiah 3.18|vv. 18–23]][[Isaiah 3.19|]][[Isaiah 3.20|]][[Isaiah 3.21|]][[Isaiah 3.22|]][[Isaiah 3.23|]].  
+[^b]: IE ornaments shaped like a crescent moon.  

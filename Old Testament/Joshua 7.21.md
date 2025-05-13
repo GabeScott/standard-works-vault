@@ -5,5 +5,5 @@
 [Joshua 7:21](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/7.21?lang=eng#p21)
 
 
-[^a]: HEB Shinar (area of biblical Babylon, famous for fine weaving).
-[^b]: [[Acts 5.2|Acts 5:2 (1-11).]]
+[^a]: HEB Shinar (area of biblical Babylon, famous for fine weaving).  
+[^b]: [[Acts 5.1|Acts 5:2 (1–11)]][[Acts 5.2|]][[Acts 5.3|]][[Acts 5.4|]][[Acts 5.5|]][[Acts 5.6|]][[Acts 5.7|]][[Acts 5.8|]][[Acts 5.9|]][[Acts 5.10|]][[Acts 5.11|]].  

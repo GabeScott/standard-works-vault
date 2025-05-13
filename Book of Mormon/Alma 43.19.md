@@ -5,5 +5,5 @@
 [Alma 43:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Skill]].
-[^b]: [[Alma 49.24|Alma 49:24.]]
+[^a]: [[Skill|TG Skill]].  
+[^b]: [[Alma 49.24|Alma 49:24]].  

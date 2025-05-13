@@ -5,6 +5,6 @@
 [2 Kings 4:29](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.29?lang=eng#p29)
 
 
-[^a]: [[1 Kings 18.46|1 Kgs. 18:46.]]
-[^b]: [[Luke 10.4|Luke 10:4.]]
-[^c]: [[Acts 19.12|Acts 19:12.]]
+[^a]: [[1 Kings 18.46|1 Kgs. 18:46]].  
+[^b]: [[Luke 10.4|Luke 10:4]].  
+[^c]: [[Acts 19.12|Acts 19:12]].  

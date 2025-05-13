@@ -5,6 +5,6 @@
 [Daniel 5:20](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.20?lang=eng#p20)
 
 
-[^a]: TG [[Hardheartedness, Harden, Hardness]].
-[^b]: TG [[Mind, Minded]].
-[^c]: [[Psalms 75.6|Ps. 75:6 (6-7)]]; [[Jeremiah 27.5|Jer. 27:5 (5-6)]]; Dan. 2:21; 4:31 (30-31).
+[^a]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  
+[^b]: [[Mind, Minded|TG Mind]].  
+[^c]: [[Psalms 75.6|Ps. 75:6 (6–7)]][[Psalms 75.7|]]; [[Jeremiah 27.5|Jer. 27:5 (5–6)]][[Jeremiah 27.6|]]; [[Daniel 2.21|Dan. 2:21]]; [[Daniel 4.30|4:31 (30–31)]][[Daniel 4.31|]].  

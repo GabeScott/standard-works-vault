@@ -5,6 +5,6 @@
 [Alma 10:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p4#p4)
 
 
-[^a]: [[Acts 5.34|Acts 5:34 (34-39).]]
-[^b]: [[Alma 15.16|Alma 15:16.]]
-[^c]: TG [[Industry, Industrious]]; [[Work, Value of]].
+[^a]: [[Acts 5.34|Acts 5:34 (34–39)]][[Acts 5.35|]][[Acts 5.36|]][[Acts 5.37|]][[Acts 5.38|]][[Acts 5.39|]].  
+[^b]: [[Alma 15.16|Alma 15:16]].  
+[^c]: [[Industry, Industrious|TG Industry]]; [[Work, Value of|Work, Value of]].  

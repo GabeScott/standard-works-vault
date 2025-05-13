@@ -5,4 +5,4 @@
 [1 Chronicles 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/1.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 10.6|Gen. 10:6 (6-8).]]
+[^a]: [[Genesis 10.6|Gen. 10:6 (6–8)]][[Genesis 10.7|]][[Genesis 10.8|]].  

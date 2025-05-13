@@ -5,4 +5,4 @@
 [Psalms 17:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/17.14?lang=eng#p14)
 
 
-[^b]: [[Psalms 73.12|Ps. 73:12.]]
+[^b]: [[Psalms 73.12|Ps. 73:12]].  

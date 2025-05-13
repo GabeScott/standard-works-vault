@@ -5,4 +5,4 @@
 [Jeremiah 30:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.17?lang=eng#p17)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Health|TG Health]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 34:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/34.4?lang=eng#p4)
 
 
-[^a]: OR sun images. 2 Kgs. 23:6.
+[^a]: OR sun images. [[2 Kings 23.6|2 Kgs. 23:6]].  

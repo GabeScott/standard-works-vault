@@ -5,5 +5,5 @@
 [Exodus 23:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.18?lang=eng#p18)
 
 
-[^a]: [[Exodus 34.25|Ex. 34:25.]]
-[^b]: [[Exodus 12.8|Ex. 12:8.]]
+[^a]: [[Exodus 34.25|Ex. 34:25]].  
+[^b]: [[Exodus 12.8|Ex. 12:8]].  

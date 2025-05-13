@@ -5,4 +5,4 @@
 [1 Samuel 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.1?lang=eng#p1)
 
 
-[^a]: [[1 Kings 1.34|1 Kgs. 1:34.]]
+[^a]: [[1 Kings 1.34|1 Kgs. 1:34]].  

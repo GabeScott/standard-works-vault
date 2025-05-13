@@ -5,7 +5,7 @@
 [Exodus 24:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.4?lang=eng#p4)
 
 
-[^a]: TG [[Record Keeping]]; [[Scribe]]; [[Scriptures, Writing of]].
-[^b]: [[1 Nephi 2.7|1 Ne. 2:7]]; [[Abraham 2.17|Abr. 2:17.]]
-[^c]: HEB at the foot of the mountain.
-[^d]: [[Genesis 31.45|Gen. 31:45.]]
+[^a]: [[Record Keeping|TG Record Keeping]]; [[Scribe|Scribe]]; [[Scriptures, Writing of|Scriptures, Writing of]].  
+[^b]: [[1 Nephi 2.7|1 Ne. 2:7]]; [[Abraham 2.17|Abr. 2:17]].  
+[^c]: HEB at the foot of the mountain.  
+[^d]: [[Genesis 31.45|Gen. 31:45]].  

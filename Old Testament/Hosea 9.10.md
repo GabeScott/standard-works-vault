@@ -5,6 +5,6 @@
 [Hosea 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/9.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 24.2|Jer. 24:2.]]
-[^b]: [[Numbers 25.3|Num. 25:3 (1-3)]]; [[Psalms 106.28|Ps. 106:28.]]
-[^c]: TG [[Sexual Immorality]].
+[^a]: [[Jeremiah 24.2|Jer. 24:2]].  
+[^b]: [[Numbers 25.1|Num. 25:3 (1–3)]][[Numbers 25.2|]][[Numbers 25.3|]]; [[Psalms 106.28|Ps. 106:28]].  
+[^c]: [[Sexual Immorality|TG Sexual Immorality]].  

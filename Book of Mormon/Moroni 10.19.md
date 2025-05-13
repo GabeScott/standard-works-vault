@@ -5,5 +5,5 @@
 [Moroni 10:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p19#p19)
 
 
-[^a]: [[Hebrews 13.8|Heb. 13:8.]]
-[^b]: [[Moroni 7.37|Moro. 7:37]]. TG [[Doubt, Doubtful]].
+[^a]: [[Hebrews 13.8|Heb. 13:8]].  
+[^b]: [[Moroni 7.37|Moro. 7:37]]. [[Doubt, Doubtful|TG Doubt]].  

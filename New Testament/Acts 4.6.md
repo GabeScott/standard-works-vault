@@ -5,4 +5,4 @@
 [Acts 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.6?lang=eng#p6)
 
 
-[^a]: TG [[Priestcraft]].
+[^a]: [[Priestcraft|TG Priestcraft]].  

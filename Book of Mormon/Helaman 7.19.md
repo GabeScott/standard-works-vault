@@ -5,4 +5,4 @@
 [Helaman 7:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p19#p19)
 
 
-[^a]: [[3 Nephi 10.4|3 Ne. 10:4 (4-7).]]
+[^a]: [[3 Nephi 10.4|3 Ne. 10:4 (4–7)]][[3 Nephi 10.5|]][[3 Nephi 10.6|]][[3 Nephi 10.7|]].  

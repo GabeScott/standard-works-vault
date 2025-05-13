@@ -5,4 +5,4 @@
 [Words of Mormon 1:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/w-of-m/1?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[False Christs]].
+[^a]: [[False Christs|TG False Christs]].  

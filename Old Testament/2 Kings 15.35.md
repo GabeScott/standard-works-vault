@@ -5,4 +5,4 @@
 [2 Kings 15:35](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/15.35?lang=eng#p35)
 
 
-[^a]: [[2 Chronicles 27.3|2 Chr. 27:3]]; [[Ezekiel 9.2|Ezek. 9:2.]]
+[^a]: [[2 Chronicles 27.3|2 Chr. 27:3]]; [[Ezekiel 9.2|Ezek. 9:2]].  

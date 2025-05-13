@@ -5,4 +5,4 @@
 [Romans 6:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.3?lang=eng#p3)
 
 
-[^a]: [[Mosiah 27.25|Mosiah 27:25.]]
+[^a]: [[Mosiah 27.25|Mosiah 27:25]].  

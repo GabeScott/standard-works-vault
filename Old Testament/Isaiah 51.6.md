@@ -5,6 +5,6 @@
 [Isaiah 51:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.6?lang=eng#p6)
 
 
-[^a]: HEB be dispersed. Ps. 102:26 (25-27); 2 Pet. 3:10 (10-12).
-[^b]: HEB decay.
-[^c]: [[Isaiah 50.9|Isa. 50:9.]]
+[^a]: HEB be dispersed. [[Psalms 102.25|Ps. 102:26 (25–27)]][[Psalms 102.26|]][[Psalms 102.27|]]; [[2 Peter 3.10|2 Pet. 3:10 (10–12)]][[2 Peter 3.11|]][[2 Peter 3.12|]].  
+[^b]: HEB decay.  
+[^c]: [[Isaiah 50.9|Isa. 50:9]].  

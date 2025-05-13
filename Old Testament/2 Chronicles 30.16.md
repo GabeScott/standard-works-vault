@@ -5,4 +5,4 @@
 [2 Chronicles 30:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 12.22|Ex. 12:22 (21-22).]]
+[^a]: [[Exodus 12.21|Ex. 12:22 (21–22)]][[Exodus 12.22|]].  

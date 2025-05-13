@@ -5,6 +5,6 @@
 [Alma 13:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p16#p16)
 
 
-[^a]: A of F 1:5. TG [[Ordinance]].
-[^b]: [[Alma 13.2|Alma 13:2.]]
-[^c]: TG [[Jesus Christ, Types of, in Anticipation]].
+[^a]: [[Articles of Faith 1.5|A of F 1:5]]. [[Ordinance|TG Ordinance]].  
+[^b]: [[Alma 13.2|Alma 13:2]].  
+[^c]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]].  

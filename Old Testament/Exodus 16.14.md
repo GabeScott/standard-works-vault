@@ -5,5 +5,5 @@
 [Exodus 16:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.14?lang=eng#p14)
 
 
-[^a]: HEB fine, flake-like.
-[^b]: [[Nehemiah 9.15|Neh. 9:15.]]
+[^a]: HEB fine, flake-like.  
+[^b]: [[Nehemiah 9.15|Neh. 9:15]].  

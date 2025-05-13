@@ -5,4 +5,4 @@
 [Hosea 6:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/6.4?lang=eng#p4)
 
 
-[^a]: [[Hosea 14.5|Hosea 14:5.]]
+[^a]: [[Hosea 14.5|Hosea 14:5]].  

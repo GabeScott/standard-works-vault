@@ -5,5 +5,5 @@
 [Moses 6:64](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.64?lang=eng#p64)
 
 
-[^a]: [[1 Kings 18.12|1 Kgs. 18:12]]; [[2 Kings 2.16|2 Kgs. 2:16]]. TG [[Holy Ghost, Mission of]].
-[^b]: TG [[Baptism, Immersion]].
+[^a]: [[1 Kings 18.12|1 Kgs. 18:12]]; [[2 Kings 2.16|2 Kgs. 2:16]]. [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  
+[^b]: [[Baptism, Immersion|TG Baptism, Immersion]].  

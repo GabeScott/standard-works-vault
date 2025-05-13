@@ -5,5 +5,5 @@
 [Nehemiah 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/11.1?lang=eng#p1)
 
 
-[^a]: [[Matthew 4.5|Matt. 4:5]]; [[Matthew 27.53|27:53]]; [[Revelation 11.2|Rev. 11:2.]]
-[^b]: [[Ezekiel 48.31|Ezek. 48:31.]]
+[^a]: [[Matthew 4.5|Matt. 4:5]]; [[Matthew 27.53|27:53]]; [[Revelation 11.2|Rev. 11:2]].  
+[^b]: [[Ezekiel 48.31|Ezek. 48:31]].  

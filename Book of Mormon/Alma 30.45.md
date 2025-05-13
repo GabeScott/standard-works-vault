@@ -5,4 +5,4 @@
 [Alma 30:45](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p45#p45)
 
 
-[^a]: TG [[Witness, Witnesses]].
+[^a]: [[Witness, Witnesses|TG Witness]].  

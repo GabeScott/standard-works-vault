@@ -5,4 +5,4 @@
 [Matthew 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.11?lang=eng#p11)
 
 
-[^a]: [[Leviticus 2.1|Lev. 2:1.]]
+[^a]: [[Leviticus 2.1|Lev. 2:1]].  

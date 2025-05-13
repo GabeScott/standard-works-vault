@@ -5,4 +5,4 @@
 [Ezekiel 4:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/4.10?lang=eng#p10)
 
 
-[^a]: HEB food.
+[^a]: HEB food.  

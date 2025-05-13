@@ -5,4 +5,4 @@
 [Jeremiah 51:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 37.6|Ps. 37:6.]]
+[^a]: [[Psalms 37.6|Ps. 37:6]].  

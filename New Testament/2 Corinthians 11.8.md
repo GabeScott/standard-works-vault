@@ -5,5 +5,5 @@
 [2 Corinthians 11:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.8?lang=eng#p8)
 
 
-[^a]: GR despoiled other churches, having taken provisions for you.
-[^b]: TG [[Wages]].
+[^a]: GR despoiled other churches, having taken provisions for you.  
+[^b]: [[Wages|TG Wages]].  

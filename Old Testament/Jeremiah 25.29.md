@@ -5,4 +5,4 @@
 [Jeremiah 25:29](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.29?lang=eng#p29)
 
 
-[^a]: [[Ezekiel 9.6|Ezek. 9:6.]]
+[^a]: [[Ezekiel 9.6|Ezek. 9:6]].  

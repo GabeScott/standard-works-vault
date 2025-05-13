@@ -5,5 +5,5 @@
 [Esther 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/7.4?lang=eng#p4)
 
 
-[^a]: [[Esther 3.9|Esth. 3:9]]; [[Esther 4.7|4:7.]]
-[^b]: HEB for that would not have damaged the king’s interests.
+[^a]: [[Esther 3.9|Esth. 3:9]]; [[Esther 4.7|4:7]].  
+[^b]: HEB for that would not have damaged the king’s interests.  

@@ -5,5 +5,5 @@
 [Genesis 31:47](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.47?lang=eng#p47)
 
 
-[^a]: IE The heap of witness (in Aramaic).
-[^b]: IE The heap of witness (in Hebrew).
+[^a]: IE The heap of witness (in Aramaic).  
+[^b]: IE The heap of witness (in Hebrew).  

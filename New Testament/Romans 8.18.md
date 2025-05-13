@@ -5,6 +5,6 @@
 [Romans 8:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.18?lang=eng#p18)
 
 
-[^a]: TG [[Adversity]]; [[Pain]]; [[Self-Sacrifice]].
-[^b]: [[D&C 58.4|D&C 58:4]]; [[D&C 63.66|63:66]]; [[D&C 136.31|136:31.]]
-[^c]: GR to us.
+[^a]: [[Adversity|TG Adversity]]; [[Pain|Pain]]; [[Self-Sacrifice|Self-Sacrifice]].  
+[^b]: [[D&C 58.4|D&C 58:4]]; [[D&C 63.66|63:66]]; [[D&C 136.31|136:31]].  
+[^c]: GR to us.  

@@ -5,8 +5,8 @@
 [Ezekiel 22:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.25?lang=eng#p25)
 
 
-[^a]: TG [[Conspiracy]].
-[^b]: TG [[False Prophets]].
-[^c]: [[Proverbs 28.15|Prov. 28:15.]]
-[^d]: TG [[Treasure]].
-[^e]: [[Jeremiah 20.5|Jer. 20:5.]]
+[^a]: [[Conspiracy|TG Conspiracy]].  
+[^b]: [[False Prophets|TG False Prophets]].  
+[^c]: [[Proverbs 28.15|Prov. 28:15]].  
+[^d]: [[Treasure|TG Treasure]].  
+[^e]: [[Jeremiah 20.5|Jer. 20:5]].  

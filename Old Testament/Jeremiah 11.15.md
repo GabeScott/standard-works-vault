@@ -5,4 +5,4 @@
 [Jeremiah 11:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.15?lang=eng#p15)
 
 
-[^a]: IE acceptable sacrifice has ceased.
+[^a]: IE acceptable sacrifice has ceased.  

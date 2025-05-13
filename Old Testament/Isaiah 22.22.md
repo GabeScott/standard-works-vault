@@ -5,4 +5,4 @@
 [Isaiah 22:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.22?lang=eng#p22)
 
 
-[^a]: TG [[Priesthood, Keys of]]; [[Sealing, Sealed]].
+[^a]: [[Priesthood, Keys of|TG Priesthood, Keys of]]; [[Sealing, Sealed|Sealing]].  

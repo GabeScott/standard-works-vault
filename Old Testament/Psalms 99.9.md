@@ -5,5 +5,5 @@
 [Psalms 99:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/99.9?lang=eng#p9)
 
 
-[^a]: TG [[Assembly for Worship]].
-[^b]: [[Psalms 2.6|Ps. 2:6.]]
+[^a]: [[Worship|TG Worship]].  
+[^b]: [[Psalms 2.6|Ps. 2:6]].  

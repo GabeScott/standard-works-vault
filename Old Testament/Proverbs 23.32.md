@@ -5,4 +5,4 @@
 [Proverbs 23:32](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.32?lang=eng#p32)
 
 
-[^a]: IE a kind of poisonous snake.
+[^a]: IE a kind of poisonous snake.  

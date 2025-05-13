@@ -5,4 +5,4 @@
 [Matthew 22:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.3?lang=eng#p3)
 
 
-[^a]: GR they did not want to come.
+[^a]: GR they did not want to come.  

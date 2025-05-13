@@ -5,4 +5,4 @@
 [1 Corinthians 12:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.22?lang=eng#p22)
 
 
-[^a]: GR weaker.
+[^a]: GR weaker.  

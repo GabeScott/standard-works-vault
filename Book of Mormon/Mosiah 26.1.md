@@ -5,5 +5,5 @@
 [Mosiah 26:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mosiah 2.1|Mosiah 2:1.]]
-[^b]: TG [[Family, Children, Duties of]].
+[^a]: [[Mosiah 2.1|Mosiah 2:1]].  
+[^b]: [[Family, Children, Duties of|TG Family, Children, Duties of]].  

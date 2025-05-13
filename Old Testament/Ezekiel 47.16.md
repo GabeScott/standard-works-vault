@@ -5,4 +5,4 @@
 [Ezekiel 47:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.16?lang=eng#p16)
 
 
-[^a]: HEB border.
+[^a]: HEB border.  

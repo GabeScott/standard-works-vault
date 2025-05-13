@@ -5,5 +5,5 @@
 [Romans 9:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.6?lang=eng#p6)
 
 
-[^a]: GR has been fruitless, ineffectual.
-[^b]: [[2 Nephi 30.2|2 Ne. 30:2.]]
+[^a]: GR has been fruitless, ineffectual.  
+[^b]: [[2 Nephi 30.2|2 Ne. 30:2]].  

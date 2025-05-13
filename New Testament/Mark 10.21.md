@@ -5,5 +5,5 @@
 [Mark 10:21](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.21?lang=eng#p21)
 
 
-[^a]: TG [[Charity]]; [[Generosity]].
-[^b]: TG [[Jesus Christ, Exemplar]].
+[^a]: [[Charity|TG Charity]]; [[Generosity|Generosity]].  
+[^b]: [[Jesus Christ, Exemplar|TG Jesus Christ, Exemplar]].  

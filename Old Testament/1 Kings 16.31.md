@@ -5,6 +5,6 @@
 [1 Kings 16:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.31?lang=eng#p31)
 
 
-[^a]: [[Exodus 34.16|Ex. 34:16.]]
-[^b]: [[1 Kings 18.4|1 Kgs. 18:4]]; [[2 Kings 9.34|2 Kgs. 9:34.]]
-[^c]: [[2 Kings 10.18|2 Kgs. 10:18.]]
+[^a]: [[Exodus 34.16|Ex. 34:16]].  
+[^b]: [[1 Kings 18.4|1 Kgs. 18:4]]; [[2 Kings 9.34|2 Kgs. 9:34]].  
+[^c]: [[2 Kings 10.18|2 Kgs. 10:18]].  

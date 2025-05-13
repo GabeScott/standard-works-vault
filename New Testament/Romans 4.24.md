@@ -5,4 +5,4 @@
 [Romans 4:24](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.24?lang=eng#p24)
 
 
-[^a]: [[3 Nephi 20.25|3 Ne. 20:25 (24-27).]]
+[^a]: [[3 Nephi 20.24|3 Ne. 20:25 (24–27)]][[3 Nephi 20.25|]][[3 Nephi 20.26|]][[3 Nephi 20.27|]].  

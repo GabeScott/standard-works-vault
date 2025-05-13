@@ -5,8 +5,8 @@
 [Isaiah 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 31.10|Ezek. 31:10.]]
-[^b]: [[Moses 4.1|Moses 4:1.]]
-[^c]: TG [[Selfishness]].
-[^d]: TG [[Council in Heaven]].
-[^e]: IE dwelling of the gods according to Babylonian belief. Ps. 48:2.
+[^a]: [[Ezekiel 31.10|Ezek. 31:10]].  
+[^b]: [[Moses 4.1|Moses 4:1]].  
+[^c]: [[Selfishness|TG Selfishness]].  
+[^d]: [[Council in Heaven|TG Council in Heaven]].  
+[^e]: IE dwelling of the gods according to Babylonian belief. [[Psalms 48.2|Ps. 48:2]].  

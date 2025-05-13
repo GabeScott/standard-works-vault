@@ -5,8 +5,8 @@
 [Isaiah 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.12?lang=eng#p12)
 
 
-[^a]: IE on the east.
-[^b]: IE on the west.
-[^c]: [[Jeremiah 4.8|Jer. 4:8.]]
-[^d]: IE In spite of all, the Lord is available if they will turn to Him (also vv. 17, 21).
-[^e]: TG [[God, Access to]].
+[^a]: IE on the east.  
+[^b]: IE on the west.  
+[^c]: [[Jeremiah 4.8|Jer. 4:8]].  
+[^d]: IE In spite of all, the Lord is available if they will turn to Him (also [[Isaiah 9.17|vv. 17, 21]][[Isaiah 9.21|]]).  
+[^e]: [[God, Access to|TG God, Access to]].  

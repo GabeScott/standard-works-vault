@@ -5,5 +5,5 @@
 [Isaiah 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.22?lang=eng#p22)
 
 
-[^a]: HEB resplendent garments.
-[^b]: TG [[Apparel]].
+[^a]: HEB resplendent garments.  
+[^b]: [[Apparel|TG Apparel]].  

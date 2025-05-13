@@ -5,5 +5,5 @@
 [Nehemiah 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/4.6?lang=eng#p6)
 
 
-[^a]: TG [[Common Consent]].
-[^b]: [[D&C 52.39|D&C 52:39]]; [[D&C 75.3|75:3]]; [[D&C 115.10|115:10.]]
+[^a]: [[Common Consent|TG Common Consent]].  
+[^b]: [[D&C 52.39|D&C 52:39]]; [[D&C 75.3|75:3]]; [[D&C 115.10|115:10]].  

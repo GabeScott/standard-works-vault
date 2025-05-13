@@ -5,9 +5,9 @@
 [Mosiah 1:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 37.9|Alma 37:9.]]
-[^b]: TG [[Scriptures, Preservation of]].
-[^c]: [[Deuteronomy 6.6|Deut. 6:6 (6-8)]]; [[2 Chronicles 34.21|2 Chr. 34:21]]; [[1 Nephi 15.24|1 Ne. 15:24 (23-24)]]. TG [[Scriptures, Value of]].
-[^d]: TG [[Mysteries of Godliness]].
-[^e]: [[1 Nephi 4.15|1 Ne. 4:15.]]
-[^f]: [[Jacob 7.24|Jacob 7:24]]; [[Mosiah 10.12|Mosiah 10:12 (11-17).]]
+[^a]: [[Alma 37.9|Alma 37:9]].  
+[^b]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  
+[^c]: [[Deuteronomy 6.6|Deut. 6:6 (6–8)]][[Deuteronomy 6.7|]][[Deuteronomy 6.8|]]; [[2 Chronicles 34.21|2 Chr. 34:21]]; [[1 Nephi 15.23|1 Ne. 15:24 (23–24)]][[1 Nephi 15.24|]]. [[Scriptures, Value of|TG Scriptures, Value of]].  
+[^d]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  
+[^e]: [[1 Nephi 4.15|1 Ne. 4:15]].  
+[^f]: [[Jacob 7.24|Jacob 7:24]]; [[Mosiah 10.11|Mosiah 10:12 (11–17)]][[Mosiah 10.12|]][[Mosiah 10.13|]][[Mosiah 10.14|]][[Mosiah 10.15|]][[Mosiah 10.16|]][[Mosiah 10.17|]].  

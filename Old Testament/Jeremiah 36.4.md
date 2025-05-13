@@ -5,5 +5,5 @@
 [Jeremiah 36:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 45.1|Jer. 45:1.]]
-[^b]: TG [[Scriptures, Writing of]].
+[^a]: [[Jeremiah 45.1|Jer. 45:1]].  
+[^b]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  

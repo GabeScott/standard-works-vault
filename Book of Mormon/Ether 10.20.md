@@ -5,4 +5,4 @@
 [Ether 10:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 63.5|Alma 63:5.]]
+[^a]: [[Alma 63.5|Alma 63:5]].  

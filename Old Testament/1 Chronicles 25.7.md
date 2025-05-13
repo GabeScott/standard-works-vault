@@ -5,5 +5,5 @@
 [1 Chronicles 25:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/25.7?lang=eng#p7)
 
 
-[^a]: [[2 Chronicles 23.13|2 Chr. 23:13.]]
-[^b]: TG [[Talents]].
+[^a]: [[2 Chronicles 23.13|2 Chr. 23:13]].  
+[^b]: [[Talents|TG Talents]].  

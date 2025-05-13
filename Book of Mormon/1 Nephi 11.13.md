@@ -5,5 +5,5 @@
 [1 Nephi 11:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p13#p13)
 
 
-[^a]: [[Matthew 2.23|Matt. 2:23.]]
-[^b]: [[Luke 1.27|Luke 1:27 (26-27)]]; [[Alma 7.10|Alma 7:10.]]
+[^a]: [[Matthew 2.23|Matt. 2:23]].  
+[^b]: [[Luke 1.26|Luke 1:27 (26–27)]][[Luke 1.27|]]; [[Alma 7.10|Alma 7:10]].  

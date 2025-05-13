@@ -5,5 +5,5 @@
 [Alma 26:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Hell]].
-[^b]: [[Alma 5.26|Alma 5:26.]]
+[^a]: [[Hell|TG Hell]].  
+[^b]: [[Alma 5.26|Alma 5:26]].  

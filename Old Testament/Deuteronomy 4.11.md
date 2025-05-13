@@ -5,4 +5,4 @@
 [Deuteronomy 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.11?lang=eng#p11)
 
 
-[^a]: IE at the foot of.
+[^a]: IE at the foot of.  

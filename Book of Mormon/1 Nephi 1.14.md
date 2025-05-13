@@ -5,5 +5,5 @@
 [1 Nephi 1:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[God, Power of]].
-[^b]: [[2 Nephi 26.25|2 Ne. 26:25 (24-28)]]; [[Alma 5.34|Alma 5:34 (33-36)]]; [[3 Nephi 9.14|3 Ne. 9:14 (13-14).]]
+[^a]: [[God, Power of|TG God, Power of]].  
+[^b]: [[2 Nephi 26.24|2 Ne. 26:25 (24–28)]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]]; [[Alma 5.33|Alma 5:34 (33–36)]][[Alma 5.34|]][[Alma 5.35|]][[Alma 5.36|]]; [[3 Nephi 9.13|3 Ne. 9:14 (13–14)]][[3 Nephi 9.14|]].  

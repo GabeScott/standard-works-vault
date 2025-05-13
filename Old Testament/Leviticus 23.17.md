@@ -5,5 +5,5 @@
 [Leviticus 23:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.17?lang=eng#p17)
 
 
-[^a]: [[Nehemiah 10.37|Neh. 10:37.]]
-[^b]: TG [[Leaven]].
+[^a]: [[Nehemiah 10.37|Neh. 10:37]].  
+[^b]: [[Leaven|TG Leaven]].  

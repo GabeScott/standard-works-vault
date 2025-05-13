@@ -5,4 +5,4 @@
 [Hosea 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/8.7?lang=eng#p7)
 
 
-[^a]: [[Mosiah 7.30|Mosiah 7:30]]; [[D&C 6.33|D&C 6:33.]]
+[^a]: [[Mosiah 7.30|Mosiah 7:30]]; [[D&C 6.33|D&C 6:33]].  

@@ -5,4 +5,4 @@
 [Jeremiah 52:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.14?lang=eng#p14)
 
 
-[^a]: Dan. 9:25.
+[^a]: [[Daniel 9.25|Dan. 9:25]].  

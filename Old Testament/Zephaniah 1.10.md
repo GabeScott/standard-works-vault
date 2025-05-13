@@ -5,5 +5,5 @@
 [Zephaniah 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.10?lang=eng#p10)
 
 
-[^a]: [[2 Chronicles 33.14|2 Chr. 33:14.]]
-[^b]: IE the second quarter, a district of Jerusalem.
+[^a]: [[2 Chronicles 33.14|2 Chr. 33:14]].  
+[^b]: IE the second quarter, a district of Jerusalem.  

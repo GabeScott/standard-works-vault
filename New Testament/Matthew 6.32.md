@@ -5,4 +5,4 @@
 [Matthew 6:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.32?lang=eng#p32)
 
 
-[^a]: [[Helaman 8.8|Hel. 8:8]]; [[D&C 84.83|D&C 84:83.]]
+[^a]: [[Helaman 8.8|Hel. 8:8]]; [[D&C 84.83|D&C 84:83]].  

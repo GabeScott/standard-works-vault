@@ -5,5 +5,5 @@
 [Alma 22:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 20.26|Alma 20:26.]]
-[^b]: [[Alma 20.4|Alma 20:4.]]
+[^a]: [[Alma 20.26|Alma 20:26]].  
+[^b]: [[Alma 20.4|Alma 20:4]].  

@@ -5,7 +5,7 @@
 [3 Nephi 24:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/24?lang=eng&id=p10#p10)
 
 
-[^a]: [[D&C 64.23|D&C 64:23]]; [[D&C 119.4|119:4 (1-7).]]
-[^b]: TG [[Food]].
-[^c]: [[Genesis 7.11|Gen. 7:11.]]
-[^d]: TG [[Israel, Blessings of]].
+[^a]: [[D&C 64.23|D&C 64:23]]; [[D&C 119.1|119:4 (1–7)]][[D&C 119.2|]][[D&C 119.3|]][[D&C 119.4|]][[D&C 119.5|]][[D&C 119.6|]][[D&C 119.7|]].  
+[^b]: [[Food|TG Food]].  
+[^c]: [[Genesis 7.11|Gen. 7:11]].  
+[^d]: [[Blessing|TG Blessing]].  

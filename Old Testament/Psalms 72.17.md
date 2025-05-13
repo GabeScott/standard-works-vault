@@ -5,4 +5,4 @@
 [Psalms 72:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/72.17?lang=eng#p17)
 
 
-[^a]: [[Luke 1.48|Luke 1:48 (46-48).]]
+[^a]: [[Luke 1.46|Luke 1:48 (46–48)]][[Luke 1.47|]][[Luke 1.48|]].  

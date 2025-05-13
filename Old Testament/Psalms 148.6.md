@@ -5,4 +5,4 @@
 [Psalms 148:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/148.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 119.89|Ps. 119:89.]]
+[^a]: [[Psalms 119.89|Ps. 119:89]].  

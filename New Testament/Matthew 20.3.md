@@ -5,4 +5,4 @@
 [Matthew 20:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.3?lang=eng#p3)
 
 
-[^a]: [[Alma 38.12|Alma 38:12.]]
+[^a]: [[Alma 38.12|Alma 38:12]].  

@@ -5,4 +5,4 @@
 [Abraham 4:14](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.14?lang=eng#p14)
 
 
-[^a]: [[D&C 88.7|D&C 88:7 (7-11).]]
+[^a]: [[D&C 88.7|D&C 88:7 (7–11)]][[D&C 88.8|]][[D&C 88.9|]][[D&C 88.10|]][[D&C 88.11|]].  

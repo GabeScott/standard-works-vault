@@ -5,4 +5,4 @@
 [Alma 30:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p26#p26)
 
 
-[^a]: [[Isaiah 53.6|Isa. 53:6 (4-12).]]
+[^a]: [[Isaiah 53.4|Isa. 53:6 (4–12)]][[Isaiah 53.5|]][[Isaiah 53.6|]][[Isaiah 53.7|]][[Isaiah 53.8|]][[Isaiah 53.9|]][[Isaiah 53.10|]][[Isaiah 53.11|]][[Isaiah 53.12|]].  

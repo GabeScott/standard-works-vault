@@ -5,5 +5,5 @@
 [Hebrews 12:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.11?lang=eng#p11)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: GR trained, disciplined.
+[^a]: [[Peace|TG Peace]].  
+[^b]: GR trained, disciplined.  

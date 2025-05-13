@@ -5,4 +5,4 @@
 [Galatians 4:26](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.26?lang=eng#p26)
 
 
-[^a]: TG [[Jerusalem, New]].
+[^a]: [[Jerusalem, New|TG Jerusalem, New]].  

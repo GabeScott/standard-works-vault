@@ -5,5 +5,5 @@
 [Isaiah 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.4?lang=eng#p4)
 
 
-[^a]: Zeph. 3:8.
-[^b]: TG [[War]].
+[^a]: [[Zephaniah 3.8|Zeph. 3:8]].  
+[^b]: [[War|TG War]].  

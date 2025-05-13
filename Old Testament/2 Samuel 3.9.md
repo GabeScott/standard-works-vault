@@ -5,4 +5,4 @@
 [2 Samuel 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/3.9?lang=eng#p9)
 
 
-[^a]: [[1 Samuel 15.28|1 Sam. 15:28.]]
+[^a]: [[1 Samuel 15.28|1 Sam. 15:28]].  

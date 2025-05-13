@@ -5,4 +5,4 @@
 [Genesis 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 1.28|Gen. 1:28 (26-28).]]
+[^a]: [[Genesis 1.26|Gen. 1:28 (26–28)]][[Genesis 1.27|]][[Genesis 1.28|]].  

@@ -5,4 +5,4 @@
 [Mosiah 7:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p21#p21)
 
 
-[^a]: [[Mosiah 9.3|Mosiah 9:3 (1-3).]]
+[^a]: [[Mosiah 9.1|Mosiah 9:3 (1–3)]][[Mosiah 9.2|]][[Mosiah 9.3|]].  

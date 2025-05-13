@@ -5,5 +5,5 @@
 [Proverbs 3:34](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.34?lang=eng#p34)
 
 
-[^a]: TG [[Grace]].
-[^b]: OR humble.
+[^a]: [[Grace|TG Grace]].  
+[^b]: OR humble.  

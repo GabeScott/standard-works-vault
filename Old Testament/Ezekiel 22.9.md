@@ -5,5 +5,5 @@
 [Ezekiel 22:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.9?lang=eng#p9)
 
 
-[^a]: OR slander in order to.
-[^b]: TG [[Sensuality]].
+[^a]: OR slander in order to.  
+[^b]: [[Sensuality|TG Sensuality]].  

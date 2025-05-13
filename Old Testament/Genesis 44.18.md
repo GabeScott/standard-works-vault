@@ -5,5 +5,5 @@
 [Genesis 44:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/44.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 43.20|Gen. 43:20.]]
-[^b]: [[Exodus 32.22|Ex. 32:22.]]
+[^a]: [[Genesis 43.20|Gen. 43:20]].  
+[^b]: [[Exodus 32.22|Ex. 32:22]].  

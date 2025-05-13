@@ -5,4 +5,4 @@
 [Ephesians 6:15](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.15?lang=eng#p15)
 
 
-[^a]: TG [[Peace of God]].
+[^a]: [[Peace of God|TG Peace of God]].  

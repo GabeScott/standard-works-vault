@@ -5,6 +5,6 @@
 [Revelation 18:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.2?lang=eng#p2)
 
 
-[^a]: TG [[Babylon]].
-[^b]: GR ward, prison.
-[^c]: GR ward, prison.
+[^a]: [[Babylon|TG Babylon]].  
+[^b]: GR ward, prison.  
+[^c]: GR ward, prison.  

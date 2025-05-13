@@ -5,5 +5,5 @@
 [Isaiah 47:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.2?lang=eng#p2)
 
 
-[^a]: IE Prepare to become slaves.
-[^b]: IE on the way to exile.
+[^a]: IE Prepare to become slaves.  
+[^b]: IE on the way to exile.  

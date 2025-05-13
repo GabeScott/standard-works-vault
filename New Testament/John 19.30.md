@@ -5,4 +5,4 @@
 [John 19:30](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.30?lang=eng#p30)
 
 
-[^a]: TG [[Jesus Christ, Atonement through]].
+[^a]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  

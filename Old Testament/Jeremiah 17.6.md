@@ -5,5 +5,5 @@
 [Jeremiah 17:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.6?lang=eng#p6)
 
 
-[^a]: HEB juniper tree. Jer. 48:6.
-[^b]: [[Deuteronomy 29.23|Deut. 29:23.]]
+[^a]: HEB juniper tree. [[Jeremiah 48.6|Jer. 48:6]].  
+[^b]: [[Deuteronomy 29.23|Deut. 29:23]].  

@@ -5,4 +5,4 @@
 [Nehemiah 13:31](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.31?lang=eng#p31)
 
 
-[^a]: [[Nehemiah 10.34|Neh. 10:34.]]
+[^a]: [[Nehemiah 10.34|Neh. 10:34]].  

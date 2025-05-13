@@ -5,4 +5,4 @@
 [Exodus 32:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 24.12|Ex. 24:12]]; [[Exodus 34.29|34:29]]; [[Deuteronomy 4.13|Deut. 4:13.]]
+[^a]: [[Exodus 24.12|Ex. 24:12]]; [[Exodus 34.29|34:29]]; [[Deuteronomy 4.13|Deut. 4:13]].  

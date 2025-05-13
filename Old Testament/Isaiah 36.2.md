@@ -5,4 +5,4 @@
 [Isaiah 36:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/36.2?lang=eng#p2)
 
 
-[^a]: HEB the Assyrian chief of the officers.
+[^a]: HEB the Assyrian chief of the officers.  

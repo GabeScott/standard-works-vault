@@ -5,4 +5,4 @@
 [Luke 16:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.13?lang=eng#p13)
 
 
-[^a]: [[Alma 5.39|Alma 5:39 (38-39).]]
+[^a]: [[Alma 5.38|Alma 5:39 (38–39)]][[Alma 5.39|]].  

@@ -5,5 +5,5 @@
 [Proverbs 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.7?lang=eng#p7)
 
 
-[^a]: TG [[Wickedness, Wicked]].
-[^b]: [[Isaiah 14.22|Isa. 14:22]]; [[Jeremiah 51.62|Jer. 51:62 (61-62).]]
+[^a]: [[Wickedness, Wicked|TG Wickedness]].  
+[^b]: [[Isaiah 14.22|Isa. 14:22]]; [[Jeremiah 51.61|Jer. 51:62 (61–62)]][[Jeremiah 51.62|]].  

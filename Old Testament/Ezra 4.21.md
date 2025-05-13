@@ -5,4 +5,4 @@
 [Ezra 4:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.21?lang=eng#p21)
 
 
-[^a]: [[D&C 124.49|D&C 124:49.]]
+[^a]: [[D&C 124.49|D&C 124:49]].  

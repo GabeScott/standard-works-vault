@@ -5,5 +5,5 @@
 [Helaman 16:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/16?lang=eng&id=p13#p13)
 
 
-[^a]: [[3 Nephi 1.4|3 Ne. 1:4.]]
-[^b]: [[Helaman 14.3|Hel. 14:3 (3-7).]]
+[^a]: [[3 Nephi 1.4|3 Ne. 1:4]].  
+[^b]: [[Helaman 14.3|Hel. 14:3 (3–7)]][[Helaman 14.4|]][[Helaman 14.5|]][[Helaman 14.6|]][[Helaman 14.7|]].  

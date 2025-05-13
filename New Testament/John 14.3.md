@@ -5,6 +5,6 @@
 [John 14:3](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.3?lang=eng#p3)
 
 
-[^a]: [[Acts 1.11|Acts 1:11 (9-11).]]
-[^b]: [[D&C 27.18|D&C 27:18]]; [[D&C 132.23|132:23.]]
-[^c]: 1 Thes. 4:17; [[Revelation 22.4|Rev. 22:4 (3-5).]]
+[^a]: [[Acts 1.9|Acts 1:11 (9–11)]][[Acts 1.10|]][[Acts 1.11|]].  
+[^b]: [[D&C 27.18|D&C 27:18]]; [[D&C 132.23|132:23]].  
+[^c]: [[1 Thessalonians 4.17|1 Thes. 4:17]]; [[Revelation 22.3|Rev. 22:4 (3–5)]][[Revelation 22.4|]][[Revelation 22.5|]].  

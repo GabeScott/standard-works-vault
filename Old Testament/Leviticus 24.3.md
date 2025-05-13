@@ -5,5 +5,5 @@
 [Leviticus 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.3?lang=eng#p3)
 
 
-[^a]: HEB in the tent of meeting shall Aaron set it in order.
-[^b]: TG [[Order]].
+[^a]: HEB in the tent of meeting shall Aaron set it in order.  
+[^b]: [[Order|TG Order]].  

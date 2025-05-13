@@ -5,4 +5,4 @@
 [Jeremiah 13:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.17?lang=eng#p17)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Church|TG Church]].  

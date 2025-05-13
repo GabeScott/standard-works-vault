@@ -5,4 +5,4 @@
 [John 6:42](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.42?lang=eng#p42)
 
 
-[^a]: [[Luke 4.22|Luke 4:22.]]
+[^a]: [[Luke 4.22|Luke 4:22]].  

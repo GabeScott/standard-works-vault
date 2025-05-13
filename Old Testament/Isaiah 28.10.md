@@ -5,4 +5,4 @@
 [Isaiah 28:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.10?lang=eng#p10)
 
 
-[^a]: [[D&C 98.12|D&C 98:12]]; [[D&C 128.21|128:21.]]
+[^a]: [[D&C 98.12|D&C 98:12]]; [[D&C 128.21|128:21]].  

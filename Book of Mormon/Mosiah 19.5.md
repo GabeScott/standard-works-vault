@@ -5,4 +5,4 @@
 [Mosiah 19:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/19?lang=eng&id=p5#p5)
 
 
-[^a]: [[Judges 9.51|Judg. 9:51 (50-55)]]; [[Mosiah 11.12|Mosiah 11:12.]]
+[^a]: [[Judges 9.50|Judg. 9:51 (50–55)]][[Judges 9.51|]][[Judges 9.52|]][[Judges 9.53|]][[Judges 9.54|]][[Judges 9.55|]]; [[Mosiah 11.12|Mosiah 11:12]].  

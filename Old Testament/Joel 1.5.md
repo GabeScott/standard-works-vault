@@ -5,4 +5,4 @@
 [Joel 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/1.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 32.10|Isa. 32:10.]]
+[^a]: [[Isaiah 32.10|Isa. 32:10]].  

@@ -5,4 +5,4 @@
 [Numbers 6:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.19?lang=eng#p19)
 
 
-[^a]: OR cooked.
+[^a]: OR cooked.  

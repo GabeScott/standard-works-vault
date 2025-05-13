@@ -5,4 +5,4 @@
 [Jeremiah 44:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.21?lang=eng#p21)
 
 
-[^a]: [[D&C 121.24|D&C 121:24.]]
+[^a]: [[D&C 121.24|D&C 121:24]].  

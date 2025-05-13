@@ -5,4 +5,4 @@
 [Moses 6:56](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.56?lang=eng#p56)
 
 
-[^a]: [[Galatians 5.1|Gal. 5:1]]; [[2 Nephi 2.27|2 Ne. 2:27 (26-27)]]; [[Helaman 14.30|Hel. 14:30 (29-30)]]. TG [[Agency]].
+[^a]: [[Galatians 5.1|Gal. 5:1]]; [[2 Nephi 2.26|2 Ne. 2:27 (26–27)]][[2 Nephi 2.27|]]; [[Helaman 14.29|Hel. 14:30 (29–30)]][[Helaman 14.30|]]. [[Agency|TG Agency]].  

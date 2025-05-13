@@ -5,4 +5,4 @@
 [D&C 5:4](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.4?lang=eng#p4)
 
 
-[^a]: [[D&C 3.12|D&C 3:12]]; [[D&C 6.25|6:25 (25, 28).]]
+[^a]: [[D&C 3.12|D&C 3:12]]; [[D&C 6.25|6:25 (25, 28)]][[D&C 6.28|]].  

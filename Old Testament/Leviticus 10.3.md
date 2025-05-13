@@ -5,4 +5,4 @@
 [Leviticus 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.3?lang=eng#p3)
 
 
-[^a]: [[D&C 101.5|D&C 101:5.]]
+[^a]: [[D&C 101.5|D&C 101:5]].  

@@ -5,4 +5,4 @@
 [Romans 11:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.18?lang=eng#p18)
 
 
-[^a]: TG [[Boast, Boasting]].
+[^a]: [[Boast, Boasting|TG Boast]].  

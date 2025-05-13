@@ -5,4 +5,4 @@
 [Jeremiah 42:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.20?lang=eng#p20)
 
 
-[^a]: HEB have deceived your souls.
+[^a]: HEB have deceived your souls.  

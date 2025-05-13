@@ -5,5 +5,5 @@
 [John 5:22](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.22?lang=eng#p22)
 
 
-[^a]: TG [[Jesus Christ, Authority of]].
-[^b]: TG [[Judgment]]; [[Judgment]], the Last.
+[^a]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^b]: [[Judgment|TG Judgment]]; [[Judgment, the Last|Judgment, the Last]].  

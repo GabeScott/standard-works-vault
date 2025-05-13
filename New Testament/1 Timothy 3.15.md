@@ -5,7 +5,7 @@
 [1 Timothy 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/3.15?lang=eng#p15)
 
 
-[^a]: JST 1 Tim. 3:15-16 (Appendix). Note the change, emphasizing that the “pillar and ground of the truth” is Jesus Christ.
-[^b]: TG [[Apostasy of the Early Christian Church]].
-[^c]: GR foundation.
-[^d]: TG [[Truth]].
+[^a]: [[JST 1 Timothy 3.15|JST 1 Tim. 3:15–16 (Appendix)]][[JST 1 Timothy 3.16|]]. Note the change, emphasizing that the “pillar and ground of the truth” is Jesus Christ.  
+[^b]: [[Church|TG Church]].  
+[^c]: GR foundation.  
+[^d]: [[Truth|TG Truth]].  

@@ -5,4 +5,4 @@
 [Exodus 8:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.20?lang=eng#p20)
 
 
-[^a]: OR as.
+[^a]: OR as.  

@@ -5,4 +5,4 @@
 [Judges 14:17](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/14.17?lang=eng#p17)
 
 
-[^a]: IE pressed him hard.
+[^a]: IE pressed him hard.  

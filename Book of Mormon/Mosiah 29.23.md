@@ -5,5 +5,5 @@
 [Mosiah 29:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Tyranny]]; [[Unrighteous Dominion]].
-[^b]: TG [[Kings, Earthly]].
+[^a]: [[Tyranny|TG Tyranny]]; [[Unrighteous Dominion|Unrighteous Dominion]].  
+[^b]: [[Kings, Earthly|TG Kings, Earthly]].  

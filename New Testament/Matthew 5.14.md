@@ -5,4 +5,4 @@
 [Matthew 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.14?lang=eng#p14)
 
 
-[^a]: TG [[Mission of Early Saints]].
+[^a]: [[Mission of Early Saints|TG Mission of Early Saints]].  

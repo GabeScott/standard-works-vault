@@ -5,5 +5,5 @@
 [Mosiah 12:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/12?lang=eng&id=p1#p1)
 
 
-[^a]: TG [[Missionary Work]].
-[^b]: [[Isaiah 65.6|Isa. 65:6 (6-7, 11)]]; [[Jeremiah 9.9|Jer. 9:9.]]
+[^a]: [[Missionary Work|TG Missionary Work]].  
+[^b]: [[Isaiah 65.6|Isa. 65:6 (6–7, 11)]][[Isaiah 65.7|]][[Isaiah 65.11|]]; [[Jeremiah 9.9|Jer. 9:9]].  

@@ -5,4 +5,4 @@
 [Ezekiel 47:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.18?lang=eng#p18)
 
 
-[^a]: [[Joel 2.20|Joel 2:20.]]
+[^a]: [[Joel 2.20|Joel 2:20]].  

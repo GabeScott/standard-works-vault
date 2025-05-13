@@ -5,6 +5,6 @@
 [Alma 5:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Jesus Christ, Creator]].
-[^b]: TG [[Immortality, Immortal]]; [[Redemption]]; [[Jesus Christ, Resurrection]].
-[^c]: TG [[Jesus Christ, Judge]]; [[Judgment, the Last]].
+[^a]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  
+[^b]: [[Immortality, Immortal|TG Immortality]]; [[Redemption|Redemption]]; [[Resurrection|Resurrection]].  
+[^c]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]]; [[Judgment, the Last|Judgment, the Last]].  

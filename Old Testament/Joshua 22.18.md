@@ -5,4 +5,4 @@
 [Joshua 22:18](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/22.18?lang=eng#p18)
 
 
-[^a]: [[Alma 3.18|Alma 3:18]]; 4 Ne. 1:38.
+[^a]: [[Alma 3.18|Alma 3:18]]; [[4 Nephi 1.38|4 Ne. 1:38]].  

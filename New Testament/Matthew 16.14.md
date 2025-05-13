@@ -5,4 +5,4 @@
 [Matthew 16:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.14?lang=eng#p14)
 
 
-[^a]: IE Elijah.
+[^a]: IE Elijah.  

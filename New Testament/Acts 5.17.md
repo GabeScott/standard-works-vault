@@ -5,4 +5,4 @@
 [Acts 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.17?lang=eng#p17)
 
 
-[^a]: GR envy, malice.
+[^a]: GR envy, malice.  

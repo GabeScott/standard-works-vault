@@ -5,4 +5,4 @@
 [Mosiah 18:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p22#p22)
 
 
-[^a]: [[Moses 6.68|Moses 6:68.]]
+[^a]: [[Moses 6.68|Moses 6:68]].  

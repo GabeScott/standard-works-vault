@@ -5,6 +5,6 @@
 [Romans 8:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.16?lang=eng#p16)
 
 
-[^a]: TG [[Witness, Witnesses]].
-[^b]: TG [[Spirit Creation]].
-[^c]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Witness, Witnesses|TG Witness]].  
+[^b]: [[Spirit Creation|TG Spirit Creation]].  
+[^c]: [[Man, a Spirit Child of Heavenly Father|TG Man, a Spirit Child of Heavenly Father]].  

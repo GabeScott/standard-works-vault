@@ -5,8 +5,8 @@
 [Leviticus 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/1.3?lang=eng#p3)
 
 
-[^a]: [[Ezekiel 40.39|Ezek. 40:39.]]
-[^b]: TG [[Self-Sacrifice]].
-[^c]: HEB whole, sound.
-[^d]: [[Hebrews 9.14|Heb. 9:14]]; [[1 Peter 1.19|1 Pet. 1:19.]]
-[^e]: TG [[Initiative]].
+[^a]: [[Ezekiel 40.39|Ezek. 40:39]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  
+[^c]: HEB whole, sound.  
+[^d]: [[Hebrews 9.14|Heb. 9:14]]; [[1 Peter 1.19|1 Pet. 1:19]].  
+[^e]: [[Initiative|TG Initiative]].  

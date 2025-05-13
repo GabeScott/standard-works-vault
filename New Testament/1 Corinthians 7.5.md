@@ -5,6 +5,6 @@
 [1 Corinthians 7:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.5?lang=eng#p5)
 
 
-[^a]: JST 1 Cor. 7:5 Depart ye not one from the other … TG [[Family, Love within]]; [[Fraud]].
-[^b]: TG [[Devil, Church of]].
-[^c]: TG [[Testament]].
+[^a]: [[JST 1 Corinthians 7.5|JST 1 Cor. 7:5]] Depart ye not one from the other … [[Family, Love within|TG Family, Love within]]; [[Fraud|Fraud]].  
+[^b]: [[Devil|TG Devil]].  
+[^c]: [[Test, Try, Prove|TG Test]].  

@@ -5,4 +5,4 @@
 [1 Kings 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.2?lang=eng#p2)
 
 
-[^a]: TG [[Apostasy of Israel]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  

@@ -5,5 +5,5 @@
 [Isaiah 35:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/35.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 60.13|Isa. 60:13.]]
-[^b]: TG [[Millennium, Preparing a People for]].
+[^a]: [[Isaiah 60.13|Isa. 60:13]].  
+[^b]: [[Millennium|TG Millennium]].  

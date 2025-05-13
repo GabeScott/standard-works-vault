@@ -5,5 +5,5 @@
 [Matthew 27:57](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.57?lang=eng#p57)
 
 
-[^a]: [[John 19.38|John 19:38.]]
-[^b]: [[John 8.31|John 8:31.]]
+[^a]: [[John 19.38|John 19:38]].  
+[^b]: [[John 8.31|John 8:31]].  

@@ -5,5 +5,5 @@
 [Hebrews 11:33](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.33?lang=eng#p33)
 
 
-[^a]: TG [[Promise]].
-[^b]: Dan. 6:22.
+[^a]: [[Promise|TG Promise]].  
+[^b]: [[Daniel 6.22|Dan. 6:22]].  

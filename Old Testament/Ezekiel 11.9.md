@@ -5,4 +5,4 @@
 [Ezekiel 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.9?lang=eng#p9)
 
 
-[^a]: OR foreigners.
+[^a]: OR foreigners.  

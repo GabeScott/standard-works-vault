@@ -5,5 +5,5 @@
 [Esther 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/10.3?lang=eng#p3)
 
 
-[^a]: Dan. 6:3.
-[^b]: [[Genesis 41.40|Gen. 41:40.]]
+[^a]: [[Daniel 6.3|Dan. 6:3]].  
+[^b]: [[Genesis 41.40|Gen. 41:40]].  

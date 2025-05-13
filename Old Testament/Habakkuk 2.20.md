@@ -5,4 +5,4 @@
 [Habakkuk 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.20?lang=eng#p20)
 
 
-[^a]: Zeph. 1:7.
+[^a]: [[Zephaniah 1.7|Zeph. 1:7]].  

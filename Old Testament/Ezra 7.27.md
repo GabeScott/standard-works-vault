@@ -5,4 +5,4 @@
 [Ezra 7:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/7.27?lang=eng#p27)
 
 
-[^a]: TG [[Beauty]].
+[^a]: [[Beauty|TG Beauty]].  

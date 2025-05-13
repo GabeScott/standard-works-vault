@@ -5,7 +5,7 @@
 [Genesis 15:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.5?lang=eng#p5)
 
 
-[^a]: HEB count.
-[^b]: [[Deuteronomy 10.22|Deut. 10:22]]; [[Nehemiah 9.23|Neh. 9:23]]; [[D&C 132.30|D&C 132:30.]]
-[^c]: [[1 Chronicles 27.23|1 Chr. 27:23.]]
-[^d]: TG [[Seed of Abraham]].
+[^a]: HEB count.  
+[^b]: [[Deuteronomy 10.22|Deut. 10:22]]; [[Nehemiah 9.23|Neh. 9:23]]; [[D&C 132.30|D&C 132:30]].  
+[^c]: [[1 Chronicles 27.23|1 Chr. 27:23]].  
+[^d]: [[Seed of Abraham|TG Seed of Abraham]].  

@@ -5,4 +5,4 @@
 [Ether 6:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/6?lang=eng&id=p22#p22)
 
 
-[^a]: TG [[Anointing, Anoint]].
+[^a]: [[Anointing, Anoint|TG Anointing]].  

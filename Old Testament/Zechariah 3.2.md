@@ -5,4 +5,4 @@
 [Zechariah 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/3.2?lang=eng#p2)
 
 
-[^a]: [[Amos 4.11|Amos 4:11.]]
+[^a]: [[Amos 4.11|Amos 4:11]].  

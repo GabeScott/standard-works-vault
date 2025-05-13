@@ -5,7 +5,7 @@
 [Ezekiel 1:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.28?lang=eng#p28)
 
 
-[^a]: [[Revelation 4.3|Rev. 4:3.]]
-[^b]: TG [[God, Privilege of Seeing]].
-[^c]: [[Ezekiel 11.22|Ezek. 11:22]]. TG [[Jesus Christ, Glory of]].
-[^e]: [[Ezekiel 3.23|Ezek. 3:23 (23-24)]]; [[Ezekiel 44.4|44:4]]; [[Acts 9.4|Acts 9:4 (3-5)]]; [[Ether 3.6|Ether 3:6 (6-8).]]
+[^a]: [[Revelation 4.3|Rev. 4:3]].  
+[^b]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]].  
+[^c]: [[Ezekiel 11.22|Ezek. 11:22]]. [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  
+[^e]: [[Ezekiel 3.23|Ezek. 3:23 (23–24)]][[Ezekiel 3.24|]]; [[Ezekiel 44.4|44:4]]; [[Acts 9.3|Acts 9:4 (3–5)]][[Acts 9.4|]][[Acts 9.5|]]; [[Ether 3.6|Ether 3:6 (6–8)]][[Ether 3.7|]][[Ether 3.8|]].  

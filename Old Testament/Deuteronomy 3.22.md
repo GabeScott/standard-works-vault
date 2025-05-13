@@ -5,4 +5,4 @@
 [Deuteronomy 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.22?lang=eng#p22)
 
 
-[^a]: TG [[Protection, Divine]].
+[^a]: [[Protection, Divine|TG Protection, Divine]].  

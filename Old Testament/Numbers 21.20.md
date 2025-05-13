@@ -5,4 +5,4 @@
 [Numbers 21:20](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.20?lang=eng#p20)
 
 
-[^a]: HEB overlooks the desert.
+[^a]: HEB overlooks the desert.  

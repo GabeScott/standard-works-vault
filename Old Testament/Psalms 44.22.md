@@ -5,5 +5,5 @@
 [Psalms 44:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/44.22?lang=eng#p22)
 
 
-[^a]: [[Romans 8.36|Rom. 8:36.]]
-[^b]: TG [[Sheep]].
+[^a]: [[Romans 8.36|Rom. 8:36]].  
+[^b]: [[Sheep|TG Sheep]].  

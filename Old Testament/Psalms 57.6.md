@@ -5,6 +5,6 @@
 [Psalms 57:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/57.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 9.15|Ps. 9:15 (15-16).]]
-[^b]: [[Psalms 119.85|Ps. 119:85.]]
-[^c]: [[1 Nephi 14.3|1 Ne. 14:3.]]
+[^a]: [[Psalms 9.15|Ps. 9:15 (15–16)]][[Psalms 9.16|]].  
+[^b]: [[Psalms 119.85|Ps. 119:85]].  
+[^c]: [[1 Nephi 14.3|1 Ne. 14:3]].  

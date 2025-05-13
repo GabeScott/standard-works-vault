@@ -5,4 +5,4 @@
 [1 Kings 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.7?lang=eng#p7)
 
 
-[^a]: [[1 Kings 5.17|1 Kgs. 5:17.]]
+[^a]: [[1 Kings 5.17|1 Kgs. 5:17]].  

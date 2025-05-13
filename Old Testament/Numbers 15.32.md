@@ -5,4 +5,4 @@
 [Numbers 15:32](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.32?lang=eng#p32)
 
 
-[^a]: TG [[Sabbath]].
+[^a]: [[Sabbath|TG Sabbath]].  

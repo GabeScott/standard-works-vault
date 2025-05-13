@@ -5,5 +5,5 @@
 [Isaiah 57:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 18.12|Jer. 18:12 (11-12).]]
-[^b]: IE renewal of strength.
+[^a]: [[Jeremiah 18.11|Jer. 18:12 (11–12)]][[Jeremiah 18.12|]].  
+[^b]: IE renewal of strength.  

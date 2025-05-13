@@ -5,6 +5,6 @@
 [Daniel 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/1.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 24.13|2 Kgs. 24:13.]]
-[^b]: [[Genesis 11.2|Gen. 11:2.]]
-[^c]: Dan. 5:2.
+[^a]: [[2 Kings 24.13|2 Kgs. 24:13]].  
+[^b]: [[Genesis 11.2|Gen. 11:2]].  
+[^c]: [[Daniel 5.2|Dan. 5:2]].  

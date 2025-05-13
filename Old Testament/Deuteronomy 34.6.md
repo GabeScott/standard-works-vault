@@ -5,6 +5,6 @@
 [Deuteronomy 34:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.6?lang=eng#p6)
 
 
-[^a]: [[Alma 45.19|Alma 45:19 (18-19).]]
-[^b]: OR the place of his burial.
-[^c]: TG [[Translated Beings]].
+[^a]: [[Alma 45.18|Alma 45:19 (18–19)]][[Alma 45.19|]].  
+[^b]: OR the place of his burial.  
+[^c]: [[Translated Beings|TG Translated Beings]].  

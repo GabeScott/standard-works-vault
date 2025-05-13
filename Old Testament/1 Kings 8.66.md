@@ -5,4 +5,4 @@
 [1 Kings 8:66](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.66?lang=eng#p66)
 
 
-[^a]: [[2 Chronicles 7.9|2 Chr. 7:9 (8-10).]]
+[^a]: [[2 Chronicles 7.8|2 Chr. 7:9 (8–10)]][[2 Chronicles 7.9|]][[2 Chronicles 7.10|]].  

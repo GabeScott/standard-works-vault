@@ -5,6 +5,6 @@
 [Genesis 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.17?lang=eng#p17)
 
 
-[^a]: TG [[Flood, Noah’s]].
-[^b]: TG [[Earth, Cleansing of]].
-[^c]: [[2 Nephi 9.26|2 Ne. 9:26]]; [[Mosiah 2.21|Mosiah 2:21.]]
+[^a]: [[Flood|TG Flood]].  
+[^b]: [[Earth, Cleansing of|TG Earth, Cleansing of]].  
+[^c]: [[2 Nephi 9.26|2 Ne. 9:26]]; [[Mosiah 2.21|Mosiah 2:21]].  

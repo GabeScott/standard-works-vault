@@ -5,4 +5,4 @@
 [1 Kings 22:37](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.37?lang=eng#p37)
 
 
-[^a]: [[1 Kings 20.42|1 Kgs. 20:42.]]
+[^a]: [[1 Kings 20.42|1 Kgs. 20:42]].  

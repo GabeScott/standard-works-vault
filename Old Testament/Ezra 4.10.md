@@ -5,4 +5,4 @@
 [Ezra 4:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.10?lang=eng#p10)
 
 
-[^a]: IE on the west side of the Euphrates River (also vv. 11, 16).
+[^a]: IE on the west side of the Euphrates River (also [[Ezra 4.11|vv. 11, 16]][[Ezra 4.16|]]).  

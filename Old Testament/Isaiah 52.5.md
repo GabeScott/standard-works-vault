@@ -5,4 +5,4 @@
 [Isaiah 52:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.5?lang=eng#p5)
 
 
-[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^a]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  

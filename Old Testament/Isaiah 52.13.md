@@ -5,5 +5,5 @@
 [Isaiah 52:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.13?lang=eng#p13)
 
 
-[^a]: TG [[Servant]].
-[^b]: TG [[Prudence, Prudent]].
+[^a]: [[Servant|TG Servant]].  
+[^b]: [[Prudence, Prudent|TG Prudence]].  

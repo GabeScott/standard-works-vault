@@ -5,4 +5,4 @@
 [Acts 4:27](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.27?lang=eng#p27)
 
 
-[^a]: TG [[Anointing, Anoint]]; [[Jesus Christ, Authority of]]; [[Jesus Christ, Messiah]].
+[^a]: [[Anointing, Anoint|TG Anointing]]; [[Jesus Christ, Authority of|Jesus Christ, Authority of]]; [[Jesus Christ, Messiah|Jesus Christ, Messiah]].  

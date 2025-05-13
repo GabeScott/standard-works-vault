@@ -5,4 +5,4 @@
 [Numbers 18:22](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.22?lang=eng#p22)
 
 
-[^a]: [[Numbers 1.51|Num. 1:51.]]
+[^a]: [[Numbers 1.51|Num. 1:51]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 36:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.14?lang=eng#p14)
 
 
-[^a]: [[1 Nephi 1.13|1 Ne. 1:13 (13, 19).]]
+[^a]: [[1 Nephi 1.13|1 Ne. 1:13 (13, 19)]][[1 Nephi 1.19|]].  

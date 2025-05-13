@@ -5,6 +5,6 @@
 [Zechariah 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.16?lang=eng#p16)
 
 
-[^a]: TG [[Truth]].
-[^b]: TG [[God, Justice of]].
-[^c]: TG [[Peacemakers]].
+[^a]: [[Truth|TG Truth]].  
+[^b]: [[Justice|TG Justice]].  
+[^c]: [[Peacemakers|TG Peacemakers]].  

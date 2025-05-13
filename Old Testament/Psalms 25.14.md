@@ -5,5 +5,5 @@
 [Psalms 25:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.14?lang=eng#p14)
 
 
-[^a]: TG [[Mysteries of Godliness]].
-[^b]: TG [[Reverence]].
+[^a]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  
+[^b]: [[Reverence|TG Reverence]].  

@@ -5,5 +5,5 @@
 [Alma 24:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p24#p24)
 
 
-[^a]: [[Alma 25.1|Alma 25:1.]]
-[^b]: TG [[Compassion]]; [[Repent, Repentance]].
+[^a]: [[Alma 25.1|Alma 25:1]].  
+[^b]: [[Compassion|TG Compassion]]; [[Repent, Repentance|Repent]].  

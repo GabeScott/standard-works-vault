@@ -5,4 +5,4 @@
 [Luke 22:71](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.71?lang=eng#p71)
 
 
-[^a]: TG [[Jesus Christ, Trials of]].
+[^a]: [[Jesus Christ, Trials of|TG Jesus Christ, Trials of]].  

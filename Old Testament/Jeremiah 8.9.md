@@ -5,4 +5,4 @@
 [Jeremiah 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.9?lang=eng#p9)
 
 
-[^a]: TG [[Apostasy of Israel]]; [[Disobedience, Disobey]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]]; [[Disobedience, Disobey|Disobedience]].  

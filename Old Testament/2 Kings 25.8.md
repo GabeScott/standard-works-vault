@@ -5,4 +5,4 @@
 [2 Kings 25:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.8?lang=eng#p8)
 
 
-[^a]: [[Jeremiah 43.6|Jer. 43:6.]]
+[^a]: [[Jeremiah 43.6|Jer. 43:6]].  

@@ -5,4 +5,4 @@
 [1 Kings 20:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.22?lang=eng#p22)
 
 
-[^a]: OR thou shouldest do.
+[^a]: OR thou shouldest do.  

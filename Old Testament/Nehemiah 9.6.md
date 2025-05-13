@@ -5,5 +5,5 @@
 [Nehemiah 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.6?lang=eng#p6)
 
 
-[^b]: [[Revelation 14.7|Rev. 14:7]]; [[Moses 3.4|Moses 3:4 (1-5).]]
-[^c]: [[Mosiah 2.21|Mosiah 2:21 (20-21).]]
+[^b]: [[Revelation 14.7|Rev. 14:7]]; [[Moses 3.1|Moses 3:4 (1–5)]][[Moses 3.2|]][[Moses 3.3|]][[Moses 3.4|]][[Moses 3.5|]].  
+[^c]: [[Mosiah 2.20|Mosiah 2:21 (20–21)]][[Mosiah 2.21|]].  

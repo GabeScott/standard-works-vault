@@ -5,4 +5,4 @@
 [3 Nephi 1:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p4#p4)
 
 
-[^a]: [[Helaman 16.13|Hel. 16:13 (13, 23).]]
+[^a]: [[Helaman 16.13|Hel. 16:13 (13, 23)]][[Helaman 16.23|]].  

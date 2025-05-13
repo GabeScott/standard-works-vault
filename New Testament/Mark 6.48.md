@@ -5,4 +5,4 @@
 [Mark 6:48](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.48?lang=eng#p48)
 
 
-[^a]: GR struggling at their oars.
+[^a]: GR struggling at their oars.  

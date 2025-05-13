@@ -5,4 +5,4 @@
 [Genesis 50:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 50.26|Gen. 50:26.]]
+[^a]: [[Genesis 50.26|Gen. 50:26]].  

@@ -5,4 +5,4 @@
 [Alma 5:45](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p45#p45)
 
 
-[^a]: [[Alma 36.4|Alma 36:4.]]
+[^a]: [[Alma 36.4|Alma 36:4]].  

@@ -5,5 +5,5 @@
 [Ezekiel 34:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.25?lang=eng#p25)
 
 
-[^a]: [[Ezekiel 37.26|Ezek. 37:26.]]
-[^b]: [[Ezekiel 38.8|Ezek. 38:8]]; [[D&C 45.68|D&C 45:68 (68-70).]]
+[^a]: [[Ezekiel 37.26|Ezek. 37:26]].  
+[^b]: [[Ezekiel 38.8|Ezek. 38:8]]; [[D&C 45.68|D&C 45:68 (68–70)]][[D&C 45.69|]][[D&C 45.70|]].  

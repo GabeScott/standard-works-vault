@@ -5,4 +5,4 @@
 [Judges 20:45](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/20.45?lang=eng#p45)
 
 
-[^a]: IE killed the fugitives.
+[^a]: IE killed the fugitives.  

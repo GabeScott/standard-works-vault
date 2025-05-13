@@ -5,4 +5,4 @@
 [2 Kings 4:41](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.41?lang=eng#p41)
 
 
-[^a]: [[2 Kings 2.21|2 Kgs. 2:21.]]
+[^a]: [[2 Kings 2.21|2 Kgs. 2:21]].  

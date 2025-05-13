@@ -5,4 +5,4 @@
 [2 Samuel 15:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/15.14?lang=eng#p14)
 
 
-[^a]: [[2 Samuel 17.27|2 Sam. 17:27 (27-29)]]; [[Psalms 3.1|Ps. 3:1.]]
+[^a]: [[2 Samuel 17.27|2 Sam. 17:27 (27–29)]][[2 Samuel 17.28|]][[2 Samuel 17.29|]]; [[Psalms 3.1|Ps. 3:1]].  

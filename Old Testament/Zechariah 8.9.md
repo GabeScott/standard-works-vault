@@ -5,4 +5,4 @@
 [Zechariah 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.9?lang=eng#p9)
 
 
-[^a]: [[Ezra 5.1|Ezra 5:1.]]
+[^a]: [[Ezra 5.1|Ezra 5:1]].  

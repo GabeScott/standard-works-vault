@@ -5,4 +5,4 @@
 [Jeremiah 49:28](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.28?lang=eng#p28)
 
 
-[^a]: IE Arabia.
+[^a]: IE Arabia.  

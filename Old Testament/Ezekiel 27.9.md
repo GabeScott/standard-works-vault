@@ -5,5 +5,5 @@
 [Ezekiel 27:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.9?lang=eng#p9)
 
 
-[^a]: IE those who repair leaks in ships.
-[^b]: HEB trade or exchange.
+[^a]: IE those who repair leaks in ships.  
+[^b]: HEB trade or exchange.  

@@ -5,4 +5,4 @@
 [Matthew 24:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.13?lang=eng#p13)
 
 
-[^a]: TG [[Perseverance]]; [[Steadfastness, Steadfast]].
+[^a]: [[Perseverance|TG Perseverance]]; [[Steadfastness, Steadfast|Steadfastness]].  

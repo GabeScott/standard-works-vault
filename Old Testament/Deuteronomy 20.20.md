@@ -5,4 +5,4 @@
 [Deuteronomy 20:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.20?lang=eng#p20)
 
 
-[^a]: HEB food.
+[^a]: HEB food.  

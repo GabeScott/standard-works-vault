@@ -5,4 +5,4 @@
 [Luke 20:38](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.38?lang=eng#p38)
 
 
-[^a]: [[Romans 14.9|Rom. 14:9]]. TG [[Spirits, Disembodied]].
+[^a]: [[Romans 14.9|Rom. 14:9]]. [[Spirits, Disembodied|TG Spirits, Disembodied]].  

@@ -5,4 +5,4 @@
 [Micah 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 9.19|Isa. 9:19.]]
+[^a]: [[Isaiah 9.19|Isa. 9:19]].  

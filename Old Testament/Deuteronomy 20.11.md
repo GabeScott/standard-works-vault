@@ -5,4 +5,4 @@
 [Deuteronomy 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.11?lang=eng#p11)
 
 
-[^a]: OR servants, in tribute.
+[^a]: OR servants, in tribute.  

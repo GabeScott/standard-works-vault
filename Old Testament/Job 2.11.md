@@ -5,4 +5,4 @@
 [Job 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/2.11?lang=eng#p11)
 
 
-[^a]: [[Job 4.1|Job 4:1 (1-8).]]
+[^a]: [[Job 4.1|Job 4:1 (1–8)]][[Job 4.2|]][[Job 4.3|]][[Job 4.4|]][[Job 4.5|]][[Job 4.6|]][[Job 4.7|]][[Job 4.8|]].  

@@ -5,7 +5,7 @@
 [1 Corinthians 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.19?lang=eng#p19)
 
 
-[^a]: TG [[God, Wisdom of]]; [[Knowledge]]; [[Wisdom]].
-[^b]: TG [[World, End of]]; [[World, End of]]liness.
-[^c]: TG [[Foolishness]].
-[^d]: GR cunning, villainy.
+[^a]: [[God, Wisdom of|TG God, Wisdom of]]; [[Knowledge|Knowledge]]; [[Wisdom|Wisdom]].  
+[^b]: [[World|TG World]]; [[Worldliness|Worldliness]].  
+[^c]: [[Foolishness|TG Foolishness]].  
+[^d]: GR cunning, villainy.  

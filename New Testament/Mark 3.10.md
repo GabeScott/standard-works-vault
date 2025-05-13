@@ -5,4 +5,4 @@
 [Mark 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.10?lang=eng#p10)
 
 
-[^a]: GR impetuously rushed at Him.
+[^a]: GR impetuously rushed at Him.  

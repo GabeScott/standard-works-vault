@@ -5,5 +5,5 @@
 [1 Nephi 22:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p24#p24)
 
 
-[^a]: [[Amos 6.4|Amos 6:4]]; Mal. 4:2; [[3 Nephi 25.2|3 Ne. 25:2.]]
-[^b]: TG [[Jesus Christ, Glory of]].
+[^a]: [[Amos 6.4|Amos 6:4]]; [[Malachi 4.2|Mal. 4:2]]; [[3 Nephi 25.2|3 Ne. 25:2]].  
+[^b]: [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  

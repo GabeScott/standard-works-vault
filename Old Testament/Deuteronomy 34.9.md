@@ -5,6 +5,6 @@
 [Deuteronomy 34:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.9?lang=eng#p9)
 
 
-[^a]: [[Numbers 13.16|Num. 13:16]]; [[Judges 2.8|Judg. 2:8.]]
-[^b]: TG [[Church Organization]]; [[Hands, Laying on of]]; [[Priesthood, Authority]]; [[Priesthood, Ordination]].
-[^c]: TG [[Sustaining Church Leaders]].
+[^a]: [[Numbers 13.16|Num. 13:16]]; [[Judges 2.8|Judg. 2:8]].  
+[^b]: [[Church Organization|TG Church Organization]]; [[Hands, Laying on of|Hands, Laying on of]]; [[Priesthood, Authority|Priesthood, Authority]]; [[Priesthood, Ordination|Priesthood, Ordination]].  
+[^c]: [[Sustaining Church Leaders|TG Sustaining Church Leaders]].  

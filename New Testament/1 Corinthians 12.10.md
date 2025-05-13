@@ -5,7 +5,7 @@
 [1 Corinthians 12:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.10?lang=eng#p10)
 
 
-[^a]: TG [[Miracle]].
-[^b]: TG [[Prophecy]].
-[^c]: TG [[Discernment, Spiritual]].
-[^d]: TG [[Language]].
+[^a]: [[Miracle|TG Miracle]].  
+[^b]: [[Prophecy|TG Prophecy]].  
+[^c]: [[Discernment, Spiritual|TG Discernment, Spiritual]].  
+[^d]: [[Language|TG Language]].  

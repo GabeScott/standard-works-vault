@@ -5,5 +5,5 @@
 [Isaiah 26:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.15?lang=eng#p15)
 
 
-[^a]: [[Isaiah 9.3|Isa. 9:3]]; [[Abraham 2.9|Abr. 2:9.]]
-[^b]: HEB expanded all the borders of the land.
+[^a]: [[Isaiah 9.3|Isa. 9:3]]; [[Abraham 2.9|Abr. 2:9]].  
+[^b]: HEB expanded all the borders of the land.  

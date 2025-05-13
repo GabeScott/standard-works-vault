@@ -5,4 +5,4 @@
 [2 Kings 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/5.8?lang=eng#p8)
 
 
-[^a]: [[Alma 17.29|Alma 17:29 (29-30).]]
+[^a]: [[Alma 17.29|Alma 17:29 (29–30)]][[Alma 17.30|]].  

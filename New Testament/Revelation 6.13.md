@@ -5,4 +5,4 @@
 [Revelation 6:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/6.13?lang=eng#p13)
 
 
-[^a]: IE figs that ripen late, hanging on the tree even into the winter.
+[^a]: IE figs that ripen late, hanging on the tree even into the winter.  

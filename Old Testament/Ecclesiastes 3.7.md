@@ -5,5 +5,5 @@
 [Ecclesiastes 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 44.13|Gen. 44:13.]]
-[^b]: TG [[Silence, Silent]].
+[^a]: [[Genesis 44.13|Gen. 44:13]].  
+[^b]: [[Silence, Silent|TG Silence]].  

@@ -5,5 +5,5 @@
 [Nehemiah 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 12.1|Gen. 12:1.]]
-[^b]: [[Abraham 2.4|Abr. 2:4 (3-4).]]
+[^a]: [[Genesis 12.1|Gen. 12:1]].  
+[^b]: [[Abraham 2.3|Abr. 2:4 (3–4)]][[Abraham 2.4|]].  

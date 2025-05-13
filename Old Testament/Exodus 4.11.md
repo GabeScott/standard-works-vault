@@ -5,4 +5,4 @@
 [Exodus 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.11?lang=eng#p11)
 
 
-[^a]: [[Ether 12.27|Ether 12:27.]]
+[^a]: [[Ether 12.27|Ether 12:27]].  

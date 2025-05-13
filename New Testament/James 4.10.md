@@ -5,4 +5,4 @@
 [James 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.10?lang=eng#p10)
 
 
-[^a]: TG [[Contrite Heart]]; [[Humility, Humble]].
+[^a]: [[Contrite Heart|TG Contrite Heart]]; [[Humility, Humble|Humility]].  

@@ -5,7 +5,7 @@
 [2 Nephi 4:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p26#p26)
 
 
-[^a]: [[Exodus 3.16|Ex. 3:16]]; [[Alma 9.21|Alma 9:21]]; [[Words of Mormon 1.15|Morm. 1:15.]]
-[^b]: TG [[Compassion]]; [[God, Mercy of]].
-[^c]: [[Psalms 43.5|Ps. 43:5.]]
-[^d]: TG [[Heart]].
+[^a]: [[Exodus 3.16|Ex. 3:16]]; [[Alma 9.21|Alma 9:21]]; [[Mormon 1.15|Morm. 1:15]].  
+[^b]: [[Compassion|TG Compassion]]; [[God, Mercy of|God, Mercy of]].  
+[^c]: [[Psalms 43.5|Ps. 43:5]].  
+[^d]: [[Heart|TG Heart]].  

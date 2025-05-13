@@ -5,5 +5,5 @@
 [Alma 48:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 43.6|Alma 43:6]]; [[Alma 49.5|49:5 (5, 23).]]
-[^b]: [[Alma 52.20|Alma 52:20 (20, 33).]]
+[^a]: [[Alma 43.6|Alma 43:6]]; [[Alma 49.5|49:5 (5, 23)]][[Alma 49.23|]].  
+[^b]: [[Alma 52.20|Alma 52:20 (20, 33)]][[Alma 52.33|]].  

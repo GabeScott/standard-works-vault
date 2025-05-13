@@ -5,5 +5,5 @@
 [Matthew 17:27](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.27?lang=eng#p27)
 
 
-[^a]: [[Exodus 30.13|Ex. 30:13]]; [[Exodus 38.26|38:26.]]
-[^b]: TG [[Citizenship]].
+[^a]: [[Exodus 30.13|Ex. 30:13]]; [[Exodus 38.26|38:26]].  
+[^b]: [[Citizenship|TG Citizenship]].  

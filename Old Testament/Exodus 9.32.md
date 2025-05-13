@@ -5,5 +5,5 @@
 [Exodus 9:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.32?lang=eng#p32)
 
 
-[^a]: [[Exodus 10.5|Ex. 10:5 (4-5).]]
-[^b]: HEB spelt (a type of wheat).
+[^a]: [[Exodus 10.4|Ex. 10:5 (4–5)]][[Exodus 10.5|]].  
+[^b]: HEB spelt (a type of wheat).  

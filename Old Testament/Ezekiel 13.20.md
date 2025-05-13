@@ -5,5 +5,5 @@
 [Ezekiel 13:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.20?lang=eng#p20)
 
 
-[^a]: HEB bands wherewith ye trap souls.
-[^b]: HEB free.
+[^a]: HEB bands wherewith ye trap souls.  
+[^b]: HEB free.  

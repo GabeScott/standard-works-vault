@@ -5,5 +5,5 @@
 [Revelation 21:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.16?lang=eng#p16)
 
 
-[^a]: [[Ezekiel 40.5|Ezek. 40:5.]]
-[^b]: GR stadia. A stadium was about 607 English feet, or 185.2 meters.
+[^a]: [[Ezekiel 40.5|Ezek. 40:5]].  
+[^b]: GR stadia. A stadium was about 607 English feet, or 185.2 meters.  

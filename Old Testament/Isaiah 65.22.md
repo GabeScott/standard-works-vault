@@ -5,4 +5,4 @@
 [Isaiah 65:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.22?lang=eng#p22)
 
 
-[^a]: [[D&C 101.30|D&C 101:30.]]
+[^a]: [[D&C 101.30|D&C 101:30]].  

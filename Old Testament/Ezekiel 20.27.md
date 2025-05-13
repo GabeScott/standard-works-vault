@@ -5,4 +5,4 @@
 [Ezekiel 20:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.27?lang=eng#p27)
 
 
-[^a]: [[Isaiah 65.7|Isa. 65:7.]]
+[^a]: [[Isaiah 65.7|Isa. 65:7]].  

@@ -5,10 +5,10 @@
 [Exodus 40:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 29.7|Ex. 29:7]]; [[Exodus 30.30|30:30]]; [[Leviticus 7.36|Lev. 7:36]]. TG [[Anointing, Anoint]].
-[^b]: TG [[Priesthood, Aaronic]].
-[^c]: TG [[Priesthood, Ordination]].
-[^d]: OR for an.
-[^e]: TG [[Eternity]].
-[^f]: TG [[Priesthood, History of]]; [[Priesthood, History of]], History of.
-[^g]: TG [[Birthright]].
+[^a]: [[Exodus 29.7|Ex. 29:7]]; [[Exodus 30.30|30:30]]; [[Leviticus 7.36|Lev. 7:36]]. [[Anointing, Anoint|TG Anointing]].  
+[^b]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  
+[^c]: [[Priesthood, Ordination|TG Priesthood, Ordination]].  
+[^d]: OR for an.  
+[^e]: [[Eternity|TG Eternity]].  
+[^f]: [[Priesthood|TG Priesthood]]; [[Priesthood, History of|Priesthood, History of]].  
+[^g]: [[Birthright|TG Birthright]].  

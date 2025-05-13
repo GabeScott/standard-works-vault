@@ -5,6 +5,6 @@
 [2 Kings 19:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 25.22|Ex. 25:22.]]
-[^b]: [[Nehemiah 9.6|Neh. 9:6.]]
-[^c]: TG [[Jesus Christ, Creator]].
+[^a]: [[Exodus 25.22|Ex. 25:22]].  
+[^b]: [[Nehemiah 9.6|Neh. 9:6]].  
+[^c]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  

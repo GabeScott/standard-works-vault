@@ -5,7 +5,7 @@
 [Ether 3:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p2#p2)
 
 
-[^a]: [[Genesis 18.32|Gen. 18:32 (25-33).]]
-[^b]: [[Moses 1.10|Moses 1:10.]]
-[^c]: TG [[Fall of Man]].
-[^d]: [[Mosiah 3.19|Mosiah 3:19.]]
+[^a]: [[Genesis 18.25|Gen. 18:32 (25–33)]][[Genesis 18.26|]][[Genesis 18.27|]][[Genesis 18.28|]][[Genesis 18.29|]][[Genesis 18.30|]][[Genesis 18.31|]][[Genesis 18.32|]][[Genesis 18.33|]].  
+[^b]: [[Moses 1.10|Moses 1:10]].  
+[^c]: [[Fall of Man|TG Fall of Man]].  
+[^d]: [[Mosiah 3.19|Mosiah 3:19]].  

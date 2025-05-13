@@ -5,4 +5,4 @@
 [Luke 16:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.14?lang=eng#p14)
 
 
-[^a]: [[Alma 11.24|Alma 11:24 (20, 24).]]
+[^a]: [[Alma 11.20|Alma 11:24 (20, 24)]][[Alma 11.24|]].  

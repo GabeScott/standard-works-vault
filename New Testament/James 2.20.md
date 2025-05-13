@@ -5,5 +5,5 @@
 [James 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.20?lang=eng#p20)
 
 
-[^a]: TG [[Faith]].
-[^b]: [[Proverbs 24.12|Prov. 24:12.]]
+[^a]: [[Faith|TG Faith]].  
+[^b]: [[Proverbs 24.12|Prov. 24:12]].  

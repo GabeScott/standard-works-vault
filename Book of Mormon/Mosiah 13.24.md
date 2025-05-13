@@ -5,4 +5,4 @@
 [Mosiah 13:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[Covet, Covetousness]].
+[^a]: [[Covet, Covetousness|TG Covet]].  

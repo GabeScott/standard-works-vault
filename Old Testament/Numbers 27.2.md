@@ -5,5 +5,5 @@
 [Numbers 27:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/27.2?lang=eng#p2)
 
 
-[^a]: HEB leaders, rulers.
-[^b]: HEB tent of meeting.
+[^a]: HEB leaders, rulers.  
+[^b]: HEB tent of meeting.  

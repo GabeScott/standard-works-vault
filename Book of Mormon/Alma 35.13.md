@@ -5,4 +5,4 @@
 [Alma 35:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/35?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 43.3|Alma 43:3.]]
+[^a]: [[Alma 43.3|Alma 43:3]].  

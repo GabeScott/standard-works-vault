@@ -5,6 +5,6 @@
 [John 20:27](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.27?lang=eng#p27)
 
 
-[^a]: [[3 Nephi 11.14|3 Ne. 11:14.]]
-[^b]: TG [[Doubt, Doubtful]].
-[^c]: TG [[Unbelief, Unbelievers]].
+[^a]: [[3 Nephi 11.14|3 Ne. 11:14]].  
+[^b]: [[Doubt, Doubtful|TG Doubt]].  
+[^c]: [[Unbelief, Unbelievers|TG Unbelief]].  

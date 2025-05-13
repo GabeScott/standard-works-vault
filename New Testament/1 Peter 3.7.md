@@ -5,9 +5,9 @@
 [1 Peter 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.7?lang=eng#p7)
 
 
-[^a]: TG [[Family]]; [[Marriage, Husbands]].
-[^b]: [[D&C 121.42|D&C 121:42.]]
-[^c]: TG [[Marriage, Continuing Courtship in]].
-[^d]: TG [[Marriage, Wives]]; [[Woman, Women]].
-[^e]: TG [[Marriage, Celestial]].
-[^f]: TG [[Prayer, Pray]].
+[^a]: [[Family|TG Family]]; [[Marriage, Husbands|Marriage, Husbands]].  
+[^b]: [[D&C 121.42|D&C 121:42]].  
+[^c]: [[Marriage, Continuing Courtship in|TG Marriage, Continuing Courtship in]].  
+[^d]: [[Marriage, Wives|TG Marriage, Wives]]; [[Woman, Women|Woman]].  
+[^e]: [[Marriage, Celestial|TG Marriage, Celestial]].  
+[^f]: [[Prayer, Pray|TG Prayer]].  

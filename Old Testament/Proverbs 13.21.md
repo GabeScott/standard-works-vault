@@ -5,4 +5,4 @@
 [Proverbs 13:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.21?lang=eng#p21)
 
 
-[^a]: [[Psalms 32.10|Ps. 32:10.]]
+[^a]: [[Psalms 32.10|Ps. 32:10]].  

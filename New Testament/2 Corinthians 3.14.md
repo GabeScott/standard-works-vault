@@ -5,6 +5,6 @@
 [2 Corinthians 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/3.14?lang=eng#p14)
 
 
-[^a]: TG [[Mind, Minded]].
-[^b]: TG [[Spiritual Blindness]].
-[^c]: [[Acts 15.21|Acts 15:21.]]
+[^a]: [[Mind, Minded|TG Mind]].  
+[^b]: [[Spiritual Blindness|TG Spiritual Blindness]].  
+[^c]: [[Acts 15.21|Acts 15:21]].  

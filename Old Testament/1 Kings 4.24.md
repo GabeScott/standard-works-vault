@@ -5,6 +5,6 @@
 [1 Kings 4:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 23.31|Ex. 23:31 (31-33).]]
-[^b]: OR Gaza.
-[^c]: [[1 Kings 5.4|1 Kgs. 5:4]]; [[1 Chronicles 22.9|1 Chr. 22:9.]]
+[^a]: [[Exodus 23.31|Ex. 23:31 (31–33)]][[Exodus 23.32|]][[Exodus 23.33|]].  
+[^b]: OR Gaza.  
+[^c]: [[1 Kings 5.4|1 Kgs. 5:4]]; [[1 Chronicles 22.9|1 Chr. 22:9]].  

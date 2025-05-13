@@ -5,4 +5,4 @@
 [Numbers 21:27](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.27?lang=eng#p27)
 
 
-[^a]: OR established.
+[^a]: OR established.  

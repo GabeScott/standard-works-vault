@@ -5,6 +5,6 @@
 [Ezekiel 16:37](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.37?lang=eng#p37)
 
 
-[^a]: [[Ezekiel 23.28|Ezek. 23:28 (28-29).]]
-[^b]: [[Ezekiel 23.22|Ezek. 23:22.]]
-[^c]: Lam. 1:8.
+[^a]: [[Ezekiel 23.28|Ezek. 23:28 (28–29)]][[Ezekiel 23.29|]].  
+[^b]: [[Ezekiel 23.22|Ezek. 23:22]].  
+[^c]: [[Lamentations 1.8|Lam. 1:8]].  

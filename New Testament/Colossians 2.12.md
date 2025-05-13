@@ -5,7 +5,7 @@
 [Colossians 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/col/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Jesus Christ, Types of, in Memory]].
-[^b]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Immersion.
-[^c]: Col. 3:1.
-[^d]: [[Ephesians 1.19|Eph. 1:19 (19-20).]]
+[^a]: [[Jesus Christ, Types of, in Memory|TG Jesus Christ, Types of, in Memory]].  
+[^b]: [[Baptism|TG Baptism]]; [[Baptism, Immersion|Baptism, Immersion]].  
+[^c]: [[Colossians 3.1|Col. 3:1]].  
+[^d]: [[Ephesians 1.19|Eph. 1:19 (19–20)]][[Ephesians 1.20|]].  

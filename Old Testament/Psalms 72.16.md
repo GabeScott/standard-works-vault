@@ -5,4 +5,4 @@
 [Psalms 72:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/72.16?lang=eng#p16)
 
 
-[^a]: [[Job 5.25|Job 5:25.]]
+[^a]: [[Job 5.25|Job 5:25]].  

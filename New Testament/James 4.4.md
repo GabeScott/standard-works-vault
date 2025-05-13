@@ -5,7 +5,7 @@
 [James 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.4?lang=eng#p4)
 
 
-[^a]: TG [[Whore, Whoredom]].
-[^b]: TG [[World, End of]]; [[World, End of]]liness.
-[^c]: TG [[Opposition]].
-[^d]: TG [[Enemies, Enemy]].
+[^a]: [[Whore, Whoredom|TG Whore]].  
+[^b]: [[World|TG World]]; [[Worldliness|Worldliness]].  
+[^c]: [[Opposition|TG Opposition]].  
+[^d]: [[Enemies, Enemy|TG Enemies]].  

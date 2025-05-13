@@ -5,4 +5,4 @@
 [1 Kings 10:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.28?lang=eng#p28)
 
 
-[^a]: HEB from Kue (Cilicia). The name of this country is mistakenly translated to be “linen yarn.”
+[^a]: HEB from Kue (Cilicia). The name of this country is mistakenly translated to be “linen yarn.”  

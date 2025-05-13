@@ -5,7 +5,7 @@
 [Hosea 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/14.3?lang=eng#p3)
 
 
-[^a]: IE Assyria.
-[^b]: [[Hosea 5.13|Hosea 5:13.]]
-[^c]: [[Isaiah 31.1|Isa. 31:1]]; [[Hosea 1.7|Hosea 1:7.]]
-[^d]: [[Psalms 10.14|Ps. 10:14.]]
+[^a]: IE Assyria.  
+[^b]: [[Hosea 5.13|Hosea 5:13]].  
+[^c]: [[Isaiah 31.1|Isa. 31:1]]; [[Hosea 1.7|Hosea 1:7]].  
+[^d]: [[Psalms 10.14|Ps. 10:14]].  

@@ -5,6 +5,6 @@
 [Hebrews 7:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.3?lang=eng#p3)
 
 
-[^a]: JST Heb. 7:3 (Appendix).
-[^b]: [[D&C 84.17|D&C 84:17.]]
-[^c]: TG [[Jesus Christ, Authority of]].
+[^a]: [[JST Hebrews 7.3|JST Heb. 7:3 (Appendix)]].  
+[^b]: [[D&C 84.17|D&C 84:17]].  
+[^c]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  

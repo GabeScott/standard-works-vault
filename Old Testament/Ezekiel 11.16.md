@@ -5,4 +5,4 @@
 [Ezekiel 11:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 8.14|Isa. 8:14]]. TG [[Refuge]].
+[^a]: [[Isaiah 8.14|Isa. 8:14]]. [[Refuge|TG Refuge]].  

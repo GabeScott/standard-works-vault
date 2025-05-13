@@ -5,4 +5,4 @@
 [Numbers 26:62](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.62?lang=eng#p62)
 
 
-[^a]: [[Deuteronomy 18.1|Deut. 18:1.]]
+[^a]: [[Deuteronomy 18.1|Deut. 18:1]].  

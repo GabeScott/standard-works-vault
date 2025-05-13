@@ -5,4 +5,4 @@
 [Daniel 5:17](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.17?lang=eng#p17)
 
 
-[^a]: [[2 Kings 5.16|2 Kgs. 5:16.]]
+[^a]: [[2 Kings 5.16|2 Kgs. 5:16]].  

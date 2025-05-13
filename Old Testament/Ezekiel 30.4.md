@@ -5,4 +5,4 @@
 [Ezekiel 30:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/30.4?lang=eng#p4)
 
 
-[^a]: HEB Cush.
+[^a]: HEB Cush.  

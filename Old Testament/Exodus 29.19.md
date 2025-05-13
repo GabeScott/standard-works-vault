@@ -5,4 +5,4 @@
 [Exodus 29:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.19?lang=eng#p19)
 
 
-[^a]: [[Leviticus 8.22|Lev. 8:22.]]
+[^a]: [[Leviticus 8.22|Lev. 8:22]].  

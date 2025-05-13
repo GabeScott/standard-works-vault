@@ -5,4 +5,4 @@
 [Joshua 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.17?lang=eng#p17)
 
 
-[^a]: [[Joshua 12.16|Josh. 12:16.]]
+[^a]: [[Joshua 12.16|Josh. 12:16]].  

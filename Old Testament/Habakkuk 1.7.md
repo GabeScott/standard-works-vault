@@ -5,4 +5,4 @@
 [Habakkuk 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/1.7?lang=eng#p7)
 
 
-[^a]: OR are of their own making.
+[^a]: OR are of their own making.  

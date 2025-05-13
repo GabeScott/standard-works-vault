@@ -5,4 +5,4 @@
 [Mormon 6:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p17#p17)
 
 
-[^a]: [[2 Nephi 26.7|2 Ne. 26:7.]]
+[^a]: [[2 Nephi 26.7|2 Ne. 26:7]].  

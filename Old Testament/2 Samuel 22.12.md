@@ -5,4 +5,4 @@
 [2 Samuel 22:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.12?lang=eng#p12)
 
 
-[^a]: OR darkness His covering.
+[^a]: OR darkness His covering.  

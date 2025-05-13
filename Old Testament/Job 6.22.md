@@ -5,4 +5,4 @@
 [Job 6:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/6.22?lang=eng#p22)
 
 
-[^a]: IE Bring gifts.
+[^a]: IE Bring gifts.  

@@ -5,4 +5,4 @@
 [Abraham 4:10](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 1.10|Gen. 1:10]]; [[Abraham 4.22|Abr. 4:22.]]
+[^a]: [[Genesis 1.10|Gen. 1:10]]; [[Abraham 4.22|Abr. 4:22]].  

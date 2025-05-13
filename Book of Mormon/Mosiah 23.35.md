@@ -5,4 +5,4 @@
 [Mosiah 23:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p35#p35)
 
 
-[^a]: [[Alma 25.4|Alma 25:4.]]
+[^a]: [[Alma 25.4|Alma 25:4]].  

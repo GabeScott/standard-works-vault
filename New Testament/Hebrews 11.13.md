@@ -5,5 +5,5 @@
 [Hebrews 11:13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.13?lang=eng#p13)
 
 
-[^a]: [[Matthew 13.17|Matt. 13:17]]; [[1 Peter 1.10|1 Pet. 1:10 (10-11).]]
-[^b]: TG [[Stranger]].
+[^a]: [[Matthew 13.17|Matt. 13:17]]; [[1 Peter 1.10|1 Pet. 1:10 (10–11)]][[1 Peter 1.11|]].  
+[^b]: [[Stranger|TG Stranger]].  

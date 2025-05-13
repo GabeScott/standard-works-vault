@@ -5,4 +5,4 @@
 [Alma 49:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 16.2|Alma 16:2 (2-3, 9, 11).]]
+[^a]: [[Alma 16.2|Alma 16:2 (2–3, 9, 11)]][[Alma 16.3|]][[Alma 16.9|]][[Alma 16.11|]].  

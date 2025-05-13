@@ -5,4 +5,4 @@
 [Leviticus 6:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.11?lang=eng#p11)
 
 
-[^a]: [[1 Nephi 12.10|1 Ne. 12:10 (10-11)]]; [[D&C 88.85|D&C 88:85.]]
+[^a]: [[1 Nephi 12.10|1 Ne. 12:10 (10–11)]][[1 Nephi 12.11|]]; [[D&C 88.85|D&C 88:85]].  

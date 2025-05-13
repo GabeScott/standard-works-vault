@@ -5,6 +5,6 @@
 [Helaman 12:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p6#p6)
 
 
-[^a]: [[Isaiah 45.9|Isa. 45:9 (9-10)]]; [[D&C 58.30|D&C 58:30.]]
-[^b]: [[Judges 8.23|Judg. 8:23 (22-23)]]; [[D&C 60.4|D&C 60:4.]]
-[^c]: [[Jeremiah 8.7|Jer. 8:7.]]
+[^a]: [[Isaiah 45.9|Isa. 45:9 (9–10)]][[Isaiah 45.10|]]; [[D&C 58.30|D&C 58:30]].  
+[^b]: [[Judges 8.22|Judg. 8:23 (22–23)]][[Judges 8.23|]]; [[D&C 60.4|D&C 60:4]].  
+[^c]: [[Jeremiah 8.7|Jer. 8:7]].  

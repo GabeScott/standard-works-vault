@@ -5,7 +5,7 @@
 [Isaiah 16:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.5?lang=eng#p5)
 
 
-[^a]: [[Jeremiah 48.47|Jer. 48:47 (46-47).]]
-[^b]: TG [[Jesus Christ, Millennial Reign]].
-[^c]: TG [[Haste, Hasten, Hasty]].
-[^d]: [[Mosiah 2.11|Mosiah 2:11 (11-14).]]
+[^a]: [[Jeremiah 48.46|Jer. 48:47 (46–47)]][[Jeremiah 48.47|]].  
+[^b]: [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]].  
+[^c]: [[Haste, Hasten, Hasty|TG Haste]].  
+[^d]: [[Mosiah 2.11|Mosiah 2:11 (11–14)]][[Mosiah 2.12|]][[Mosiah 2.13|]][[Mosiah 2.14|]].  

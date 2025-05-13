@@ -5,5 +5,5 @@
 [1 Kings 16:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.25?lang=eng#p25)
 
 
-[^a]: [[Micah 6.16|Micah 6:16.]]
-[^b]: TG [[Unrighteous Dominion]].
+[^a]: [[Micah 6.16|Micah 6:16]].  
+[^b]: [[Unrighteous Dominion|TG Unrighteous Dominion]].  

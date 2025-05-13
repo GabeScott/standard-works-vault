@@ -5,6 +5,6 @@
 [2 Kings 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 64.11|Isa. 64:11]]; [[Jeremiah 39.8|Jer. 39:8]]; [[Jeremiah 52.13|52:13]]; [[Ezekiel 16.41|Ezek. 16:41.]]
-[^b]: TG [[Genealogy and Temple Work]].
-[^c]: [[Psalms 79.1|Ps. 79:1]]; [[Hosea 8.14|Hosea 8:14.]]
+[^a]: [[Isaiah 64.11|Isa. 64:11]]; [[Jeremiah 39.8|Jer. 39:8]]; [[Jeremiah 52.13|52:13]]; [[Ezekiel 16.41|Ezek. 16:41]].  
+[^b]: [[Temple|TG Temple]].  
+[^c]: [[Psalms 79.1|Ps. 79:1]]; [[Hosea 8.14|Hosea 8:14]].  

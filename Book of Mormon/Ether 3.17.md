@@ -5,5 +5,5 @@
 [Ether 3:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p17#p17)
 
 
-[^a]: [[Ether 1.5|Ether 1:5]]; [[Ether 15.33|15:33.]]
-[^b]: [[3 Nephi 11.8|3 Ne. 11:8 (8-16).]]
+[^a]: [[Ether 1.5|Ether 1:5]]; [[Ether 15.33|15:33]].  
+[^b]: [[3 Nephi 11.8|3 Ne. 11:8 (8–16)]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]].  

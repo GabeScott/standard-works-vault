@@ -5,5 +5,5 @@
 [Matthew 24:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.1?lang=eng#p1)
 
 
-[^a]: JS—M 1:2.
-[^b]: [[D&C 45.20|D&C 45:20 (15-21)]]. TG [[Genealogy and Temple Work]].
+[^a]: [[Joseph Smith Matthew 1.2|JS—M 1:2]].  
+[^b]: [[D&C 45.15|D&C 45:20 (15–21)]][[D&C 45.16|]][[D&C 45.17|]][[D&C 45.18|]][[D&C 45.19|]][[D&C 45.20|]][[D&C 45.21|]]. [[Temple|TG Temple]].  

@@ -5,6 +5,6 @@
 [Alma 48:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 48.21|Alma 48:21.]]
-[^b]: [[D&C 121.39|D&C 121:39.]]
-[^c]: [[Alma 54.24|Alma 54:24.]]
+[^a]: [[Alma 48.21|Alma 48:21]].  
+[^b]: [[D&C 121.39|D&C 121:39]].  
+[^c]: [[Alma 54.24|Alma 54:24]].  

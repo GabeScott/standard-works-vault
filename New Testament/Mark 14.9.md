@@ -5,4 +5,4 @@
 [Mark 14:9](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.9?lang=eng#p9)
 
 
-[^a]: [[John 12.7|John 12:7 (7-8).]]
+[^a]: [[John 12.7|John 12:7 (7–8)]][[John 12.8|]].  

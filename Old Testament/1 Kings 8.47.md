@@ -5,5 +5,5 @@
 [1 Kings 8:47](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.47?lang=eng#p47)
 
 
-[^a]: IE consider it in their heart.
-[^b]: [[1 Samuel 7.6|1 Sam. 7:6]]; Dan. 9:5.
+[^a]: IE consider it in their heart.  
+[^b]: [[1 Samuel 7.6|1 Sam. 7:6]]; [[Daniel 9.5|Dan. 9:5]].  

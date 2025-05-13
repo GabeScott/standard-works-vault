@@ -5,6 +5,6 @@
 [Ephesians 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.9?lang=eng#p9)
 
 
-[^a]: TG [[Mysteries of Godliness]].
-[^b]: TG [[Creation, Create]]; [[God, Creator]]; [[Jesus Christ, Creator]].
-[^c]: TG [[Jesus Christ, Jehovah]].
+[^a]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  
+[^b]: [[Creation, Create|TG Creation]]; [[God, Creator|God, Creator]]; [[Jesus Christ, Creator|Jesus Christ, Creator]].  
+[^c]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  

@@ -5,5 +5,5 @@
 [Revelation 7:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.2?lang=eng#p2)
 
 
-[^a]: [[D&C 77.9|D&C 77:9.]]
-[^b]: TG [[Seal]].
+[^a]: [[D&C 77.9|D&C 77:9]].  
+[^b]: [[Seal|TG Seal]].  

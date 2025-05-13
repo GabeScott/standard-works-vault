@@ -5,4 +5,4 @@
 [Isaiah 47:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.14?lang=eng#p14)
 
 
-[^a]: [[Exodus 15.7|Ex. 15:7 (7-8)]]; [[Isaiah 5.24|Isa. 5:24]]; Mal. 4:1.
+[^a]: [[Exodus 15.7|Ex. 15:7 (7–8)]][[Exodus 15.8|]]; [[Isaiah 5.24|Isa. 5:24]]; [[Malachi 4.1|Mal. 4:1]].  

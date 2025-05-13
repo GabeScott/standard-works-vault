@@ -5,4 +5,4 @@
 [Leviticus 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/9.9?lang=eng#p9)
 
 
-[^a]: [[Leviticus 4.7|Lev. 4:7.]]
+[^a]: [[Leviticus 4.7|Lev. 4:7]].  

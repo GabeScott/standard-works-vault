@@ -5,5 +5,5 @@
 [2 Samuel 16:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/16.23?lang=eng#p23)
 
 
-[^a]: [[2 Samuel 15.12|2 Sam. 15:12.]]
-[^b]: HEB word of God.
+[^a]: [[2 Samuel 15.12|2 Sam. 15:12]].  
+[^b]: HEB word of God.  

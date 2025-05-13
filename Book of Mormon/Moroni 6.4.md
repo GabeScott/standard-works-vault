@@ -5,8 +5,8 @@
 [Moroni 6:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/6?lang=eng&id=p4#p4)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
-[^b]: TG [[Jesus Christ, Head of the Church]].
-[^c]: [[D&C 20.82|D&C 20:82]]; [[D&C 47.1|47:1 (1-4).]]
-[^d]: [[D&C 20.53|D&C 20:53]]. TG [[Watch, Watchfulness]].
-[^e]: [[2 Nephi 31.19|2 Ne. 31:19]]; [[D&C 3.20|D&C 3:20.]]
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  
+[^b]: [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]].  
+[^c]: [[D&C 20.82|D&C 20:82]]; [[D&C 47.1|47:1 (1–4)]][[D&C 47.2|]][[D&C 47.3|]][[D&C 47.4|]].  
+[^d]: [[D&C 20.53|D&C 20:53]]. [[Watch, Watchfulness|TG Watch]].  
+[^e]: [[2 Nephi 31.19|2 Ne. 31:19]]; [[D&C 3.20|D&C 3:20]].  

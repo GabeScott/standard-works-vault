@@ -5,4 +5,4 @@
 [Proverbs 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/2.19?lang=eng#p19)
 
 
-[^a]: [[Ecclesiastes 7.26|Eccl. 7:26.]]
+[^a]: [[Ecclesiastes 7.26|Eccl. 7:26]].  

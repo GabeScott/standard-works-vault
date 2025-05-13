@@ -5,4 +5,4 @@
 [Proverbs 14:30](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.30?lang=eng#p30)
 
 
-[^a]: TG [[Envy, Envious]].
+[^a]: [[Envy, Envious|TG Envy]].  

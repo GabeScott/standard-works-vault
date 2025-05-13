@@ -5,4 +5,4 @@
 [Genesis 32:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 35.3|Gen. 35:3.]]
+[^a]: [[Genesis 35.3|Gen. 35:3]].  

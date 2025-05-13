@@ -5,6 +5,6 @@
 [2 Peter 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.13?lang=eng#p13)
 
 
-[^a]: TG [[Reward]].
-[^b]: TG [[Pleasure]].
-[^c]: TG [[Rioting and Reveling]].
+[^a]: [[Reward|TG Reward]].  
+[^b]: [[Pleasure|TG Pleasure]].  
+[^c]: [[Rioting and Reveling|TG Rioting and Reveling]].  

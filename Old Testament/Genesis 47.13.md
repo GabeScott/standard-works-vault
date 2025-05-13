@@ -5,4 +5,4 @@
 [Genesis 47:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.13?lang=eng#p13)
 
 
-[^a]: TG [[Famine]].
+[^a]: [[Famine|TG Famine]].  

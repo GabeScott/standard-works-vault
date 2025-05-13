@@ -5,4 +5,4 @@
 [1 Chronicles 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/3.4?lang=eng#p4)
 
 
-[^a]: [[2 Samuel 2.11|2 Sam. 2:11]]; [[2 Samuel 5.5|5:5.]]
+[^a]: [[2 Samuel 2.11|2 Sam. 2:11]]; [[2 Samuel 5.5|5:5]].  

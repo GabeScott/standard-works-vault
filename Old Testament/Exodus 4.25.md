@@ -5,5 +5,5 @@
 [Exodus 4:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.25?lang=eng#p25)
 
 
-[^a]: HEB flint-stone.
-[^b]: HEB bridegroom of blood. (There is some covenant significance in this.) Also v. 26.
+[^a]: HEB flint-stone.  
+[^b]: HEB bridegroom of blood. (There is some covenant significance in this.) Also [[Exodus 4.26|v. 26]].  

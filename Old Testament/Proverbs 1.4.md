@@ -5,4 +5,4 @@
 [Proverbs 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.4?lang=eng#p4)
 
 
-[^a]: [[Proverbs 8.5|Prov. 8:5.]]
+[^a]: [[Proverbs 8.5|Prov. 8:5]].  

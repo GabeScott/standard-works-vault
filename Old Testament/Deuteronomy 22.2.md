@@ -5,4 +5,4 @@
 [Deuteronomy 22:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.2?lang=eng#p2)
 
 
-[^a]: OR does not live near.
+[^a]: OR does not live near.  

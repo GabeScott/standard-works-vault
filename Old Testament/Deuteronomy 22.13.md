@@ -5,4 +5,4 @@
 [Deuteronomy 22:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.13?lang=eng#p13)
 
 
-[^a]: OR then despise.
+[^a]: OR then despise.  

@@ -5,5 +5,5 @@
 [1 Chronicles 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/11.3?lang=eng#p3)
 
 
-[^a]: [[1 Samuel 16.1|1 Sam. 16:1.]]
-[^b]: [[2 Samuel 5.4|2 Sam. 5:4 (3-5).]]
+[^a]: [[1 Samuel 16.1|1 Sam. 16:1]].  
+[^b]: [[2 Samuel 5.3|2 Sam. 5:4 (3–5)]][[2 Samuel 5.4|]][[2 Samuel 5.5|]].  

@@ -5,4 +5,4 @@
 [Jeremiah 51:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 54.5|Isa. 54:5 (5-8).]]
+[^a]: [[Isaiah 54.5|Isa. 54:5 (5–8)]][[Isaiah 54.6|]][[Isaiah 54.7|]][[Isaiah 54.8|]].  

@@ -5,4 +5,4 @@
 [Ezra 4:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.20?lang=eng#p20)
 
 
-[^a]: Lam. 1:1.
+[^a]: [[Lamentations 1.1|Lam. 1:1]].  

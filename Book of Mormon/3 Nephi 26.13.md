@@ -5,5 +5,5 @@
 [3 Nephi 26:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/26?lang=eng&id=p13#p13)
 
 
-[^a]: [[John 21.14|John 21:14]]; [[3 Nephi 27.2|3 Ne. 27:2.]]
-[^b]: [[3 Nephi 18.1|3 Ne. 18:1]]; [[3 Nephi 20.3|20:3 (3-9)]]. TG [[Bread]]; [[Sacrament]].
+[^a]: [[John 21.14|John 21:14]]; [[3 Nephi 27.2|3 Ne. 27:2]].  
+[^b]: [[3 Nephi 18.1|3 Ne. 18:1]]; [[3 Nephi 20.3|20:3 (3–9)]][[3 Nephi 20.4|]][[3 Nephi 20.5|]][[3 Nephi 20.6|]][[3 Nephi 20.7|]][[3 Nephi 20.8|]][[3 Nephi 20.9|]]. [[Bread|TG Bread]]; [[Sacrament|Sacrament]].  

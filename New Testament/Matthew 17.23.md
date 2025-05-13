@@ -5,4 +5,4 @@
 [Matthew 17:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.23?lang=eng#p23)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

@@ -5,4 +5,4 @@
 [Alma 61:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/61?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 60.33|Alma 60:33.]]
+[^a]: [[Alma 60.33|Alma 60:33]].  

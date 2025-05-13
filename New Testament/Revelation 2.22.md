@@ -5,5 +5,5 @@
 [Revelation 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.22?lang=eng#p22)
 
 
-[^a]: JST Rev. 2:22 … into hell, and them …
-[^b]: TG [[Adulterer, Adultery]].
+[^a]: [[JST Revelation 2.22|JST Rev. 2:22]] … into hell, and them …  
+[^b]: [[Adulterer, Adultery|TG Adulterer]].  

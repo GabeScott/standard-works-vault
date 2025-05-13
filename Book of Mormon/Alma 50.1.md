@@ -5,4 +5,4 @@
 [Alma 50:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 48.8|Alma 48:8]]; [[Alma 49.4|49:4]]; [[Alma 52.6|52:6.]]
+[^a]: [[Alma 48.8|Alma 48:8]]; [[Alma 49.4|49:4]]; [[Alma 52.6|52:6]].  

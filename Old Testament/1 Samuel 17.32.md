@@ -5,5 +5,5 @@
 [1 Samuel 17:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.32?lang=eng#p32)
 
 
-[^a]: [[1 Nephi 3.7|1 Ne. 3:7]]; [[D&C 124.90|D&C 124:90.]]
-[^b]: TG [[Courage, Courageous]].
+[^a]: [[1 Nephi 3.7|1 Ne. 3:7]]; [[D&C 124.90|D&C 124:90]].  
+[^b]: [[Courage, Courageous|TG Courage]].  

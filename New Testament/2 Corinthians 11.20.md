@@ -5,4 +5,4 @@
 [2 Corinthians 11:20](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.20?lang=eng#p20)
 
 
-[^a]: TG [[Bondage, Physical]].
+[^a]: [[Bondage, Physical|TG Bondage, Physical]].  

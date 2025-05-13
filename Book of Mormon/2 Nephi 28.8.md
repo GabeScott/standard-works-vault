@@ -5,10 +5,10 @@
 [2 Nephi 28:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p8#p8)
 
 
-[^a]: [[Isaiah 22.13|Isa. 22:13.]]
-[^b]: TG [[Worldliness]].
-[^c]: [[Mormon 8.31|Morm. 8:31.]]
-[^d]: Mal. 2:17.
-[^e]: [[D&C 10.25|D&C 10:25]]; [[Moses 4.4|Moses 4:4]]. TG [[Lying, Liar, Lie]].
-[^f]: [[Job 6.27|Job 6:27]]; [[Proverbs 26.27|Prov. 26:27]]; [[1 Nephi 14.3|1 Ne. 14:3]]; [[1 Nephi 22.14|22:14]]; [[D&C 109.25|D&C 109:25.]]
-[^g]: [[Alma 30.17|Alma 30:17.]]
+[^a]: [[Isaiah 22.13|Isa. 22:13]].  
+[^b]: [[Worldliness|TG Worldliness]].  
+[^c]: [[Mormon 8.31|Morm. 8:31]].  
+[^d]: [[Malachi 2.17|Mal. 2:17]].  
+[^e]: [[D&C 10.25|D&C 10:25]]; [[Moses 4.4|Moses 4:4]]. [[Lying, Liar, Lie|TG Lying]].  
+[^f]: [[Job 6.27|Job 6:27]]; [[Proverbs 26.27|Prov. 26:27]]; [[1 Nephi 14.3|1 Ne. 14:3]]; [[1 Nephi 22.14|22:14]]; [[D&C 109.25|D&C 109:25]].  
+[^g]: [[Alma 30.17|Alma 30:17]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 12:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/12.18?lang=eng#p18)
 
 
-[^a]: [[2 Samuel 17.25|2 Sam. 17:25.]]
+[^a]: [[2 Samuel 17.25|2 Sam. 17:25]].  

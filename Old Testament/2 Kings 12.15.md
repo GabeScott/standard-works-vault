@@ -5,4 +5,4 @@
 [2 Kings 12:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/12.15?lang=eng#p15)
 
 
-[^a]: [[2 Kings 22.7|2 Kgs. 22:7 (6-7).]]
+[^a]: [[2 Kings 22.6|2 Kgs. 22:7 (6–7)]][[2 Kings 22.7|]].  

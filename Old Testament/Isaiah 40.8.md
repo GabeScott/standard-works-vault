@@ -5,4 +5,4 @@
 [Isaiah 40:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.8?lang=eng#p8)
 
 
-[^a]: TG [[Jesus Christ, Messenger of the Covenant]].
+[^a]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  

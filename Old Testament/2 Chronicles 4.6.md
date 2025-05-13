@@ -5,6 +5,6 @@
 [2 Chronicles 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/4.6?lang=eng#p6)
 
 
-[^a]: [[1 Kings 7.38|1 Kgs. 7:38.]]
-[^b]: TG [[Wash, Washing]].
-[^c]: [[Ezekiel 40.38|Ezek. 40:38.]]
+[^a]: [[1 Kings 7.38|1 Kgs. 7:38]].  
+[^b]: [[Wash, Washing|TG Wash]].  
+[^c]: [[Ezekiel 40.38|Ezek. 40:38]].  

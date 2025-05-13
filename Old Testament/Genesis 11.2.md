@@ -5,4 +5,4 @@
 [Genesis 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 10.10|Gen. 10:10]]; [[Genesis 14.1|14:1]]; Dan. 1:2.
+[^a]: [[Genesis 10.10|Gen. 10:10]]; [[Genesis 14.1|14:1]]; [[Daniel 1.2|Dan. 1:2]].  

@@ -5,5 +5,5 @@
 [Nehemiah 7:65](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/7.65?lang=eng#p65)
 
 
-[^a]: OR governor. Neh. 8:9.
-[^b]: TG [[Urim and Thummim]].
+[^a]: OR governor. [[Nehemiah 8.9|Neh. 8:9]].  
+[^b]: [[Urim and Thummim|TG Urim and Thummim]].  

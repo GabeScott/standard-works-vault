@@ -5,5 +5,5 @@
 [Acts 15:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.14?lang=eng#p14)
 
 
-[^a]: [[Abraham 2.10|Abr. 2:10 (9-10).]]
-[^b]: TG [[Name of the Lord]].
+[^a]: [[Abraham 2.9|Abr. 2:10 (9–10)]][[Abraham 2.10|]].  
+[^b]: [[Name|TG Name]].  

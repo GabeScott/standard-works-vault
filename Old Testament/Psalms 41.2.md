@@ -5,4 +5,4 @@
 [Psalms 41:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/41.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 6.24|Deut. 6:24.]]
+[^a]: [[Deuteronomy 6.24|Deut. 6:24]].  

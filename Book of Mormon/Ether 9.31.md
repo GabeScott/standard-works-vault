@@ -5,6 +5,6 @@
 [Ether 9:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p31#p31)
 
 
-[^a]: [[Ether 10.19|Ether 10:19.]]
-[^b]: [[Mormon 3.5|Morm. 3:5]]; [[Ether 10.21|Ether 10:21.]]
-[^c]: [[Omni 1.13|Omni 1:13.]]
+[^a]: [[Ether 10.19|Ether 10:19]].  
+[^b]: [[Mormon 3.5|Morm. 3:5]]; [[Ether 10.21|Ether 10:21]].  
+[^c]: [[Omni 1.13|Omni 1:13]].  

@@ -5,6 +5,6 @@
 [Isaiah 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.5?lang=eng#p5)
 
 
-[^a]: HEB smitten.
-[^b]: TG [[Rebellion, Rebel]].
-[^c]: HEB diseased.
+[^a]: HEB smitten.  
+[^b]: [[Rebellion, Rebel|TG Rebellion]].  
+[^c]: HEB diseased.  

@@ -5,4 +5,4 @@
 [1 Chronicles 28:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/28.8?lang=eng#p8)
 
 
-[^a]: [[1 Nephi 2.20|1 Ne. 2:20]]; [[Moses 7.17|Moses 7:17 (17-18).]]
+[^a]: [[1 Nephi 2.20|1 Ne. 2:20]]; [[Moses 7.17|Moses 7:17 (17–18)]][[Moses 7.18|]].  

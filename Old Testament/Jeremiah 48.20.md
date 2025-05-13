@@ -5,4 +5,4 @@
 [Jeremiah 48:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.20?lang=eng#p20)
 
 
-[^a]: [[Isaiah 16.7|Isa. 16:7.]]
+[^a]: [[Isaiah 16.7|Isa. 16:7]].  

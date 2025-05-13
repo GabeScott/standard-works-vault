@@ -5,7 +5,7 @@
 [2 Kings 15:29](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/15.29?lang=eng#p29)
 
 
-[^a]: [[2 Kings 16.7|2 Kgs. 16:7]]; [[1 Chronicles 5.6|1 Chr. 5:6.]]
-[^b]: [[Isaiah 8.4|Isa. 8:4 (1-4).]]
-[^c]: [[1 Chronicles 5.26|1 Chr. 5:26]]; [[Hosea 1.5|Hosea 1:5.]]
-[^d]: TG [[Israel, Bondage of, in Other Lands]]; [[Israel, Scattering of]].
+[^a]: [[2 Kings 16.7|2 Kgs. 16:7]]; [[1 Chronicles 5.6|1 Chr. 5:6]].  
+[^b]: [[Isaiah 8.1|Isa. 8:4 (1–4)]][[Isaiah 8.2|]][[Isaiah 8.3|]][[Isaiah 8.4|]].  
+[^c]: [[1 Chronicles 5.26|1 Chr. 5:26]]; [[Hosea 1.5|Hosea 1:5]].  
+[^d]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]]; [[Israel, Scattering of|Israel, Scattering of]].  

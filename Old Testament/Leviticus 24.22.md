@@ -5,4 +5,4 @@
 [Leviticus 24:22](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.22?lang=eng#p22)
 
 
-[^a]: HEB judging or judgment.
+[^a]: HEB judging or judgment.  

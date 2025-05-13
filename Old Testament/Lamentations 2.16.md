@@ -5,5 +5,5 @@
 [Lamentations 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.16?lang=eng#p16)
 
 
-[^a]: Lam. 3:46 (46-51).
-[^b]: [[3 Nephi 16.9|3 Ne. 16:9.]]
+[^a]: [[Lamentations 3.46|Lam. 3:46 (46–51)]][[Lamentations 3.47|]][[Lamentations 3.48|]][[Lamentations 3.49|]][[Lamentations 3.50|]][[Lamentations 3.51|]].  
+[^b]: [[3 Nephi 16.9|3 Ne. 16:9]].  

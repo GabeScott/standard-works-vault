@@ -5,10 +5,10 @@
 [Mosiah 4:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p11#p11)
 
 
-[^a]: [[Psalms 34.8|Ps. 34:8]]; [[Alma 36.24|Alma 36:24 (24-26).]]
-[^b]: TG [[Remission of Sins]].
-[^c]: [[Romans 5.8|Rom. 5:8 (6-8)]]; [[Moses 1.10|Moses 1:10.]]
-[^d]: [[Exodus 34.6|Ex. 34:6 (5-7)]]; [[Moroni 8.3|Moro. 8:3.]]
-[^e]: TG [[Humility, Humble]].
-[^f]: TG [[Prayer, Pray]].
-[^g]: TG [[Steadfastness, Steadfast]].
+[^a]: [[Psalms 34.8|Ps. 34:8]]; [[Alma 36.24|Alma 36:24 (24–26)]][[Alma 36.25|]][[Alma 36.26|]].  
+[^b]: [[Remission of Sins|TG Remission of Sins]].  
+[^c]: [[Romans 5.6|Rom. 5:8 (6–8)]][[Romans 5.7|]][[Romans 5.8|]]; [[Moses 1.10|Moses 1:10]].  
+[^d]: [[Exodus 34.5|Ex. 34:6 (5–7)]][[Exodus 34.6|]][[Exodus 34.7|]]; [[Moroni 8.3|Moro. 8:3]].  
+[^e]: [[Humility, Humble|TG Humility]].  
+[^f]: [[Prayer, Pray|TG Prayer]].  
+[^g]: [[Steadfastness, Steadfast|TG Steadfastness]].  

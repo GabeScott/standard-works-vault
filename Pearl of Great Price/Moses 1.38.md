@@ -5,4 +5,4 @@
 [Moses 1:38](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.38?lang=eng#p38)
 
 
-[^a]: [[Moses 1.4|Moses 1:4.]]
+[^a]: [[Moses 1.4|Moses 1:4]].  

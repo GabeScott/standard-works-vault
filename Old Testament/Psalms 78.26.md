@@ -5,4 +5,4 @@
 [Psalms 78:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.26?lang=eng#p26)
 
 
-[^a]: [[Genesis 41.23|Gen. 41:23]]; [[Ezekiel 27.26|Ezek. 27:26.]]
+[^a]: [[Genesis 41.23|Gen. 41:23]]; [[Ezekiel 27.26|Ezek. 27:26]].  

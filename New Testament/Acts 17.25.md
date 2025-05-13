@@ -5,5 +5,5 @@
 [Acts 17:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.25?lang=eng#p25)
 
 
-[^a]: TG [[Assembly for Worship]].
-[^b]: TG [[Breath of Life]].
+[^a]: [[Worship|TG Worship]].  
+[^b]: [[Breath of Life|TG Breath of Life]].  

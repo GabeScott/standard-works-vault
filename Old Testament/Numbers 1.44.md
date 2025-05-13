@@ -5,4 +5,4 @@
 [Numbers 1:44](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.44?lang=eng#p44)
 
 
-[^a]: TG [[Israel, Twelve Tribes of]].
+[^a]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  

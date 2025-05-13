@@ -5,5 +5,5 @@
 [Amos 7:15](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.15?lang=eng#p15)
 
 
-[^b]: TG [[Priesthood, Keys of]].
-[^c]: TG [[Prophecy]]; [[Prophets, Mission of]].
+[^b]: [[Priesthood, Keys of|TG Priesthood, Keys of]].  
+[^c]: [[Prophecy|TG Prophecy]]; [[Prophets, Mission of|Prophets, Mission of]].  

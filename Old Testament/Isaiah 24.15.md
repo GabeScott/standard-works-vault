@@ -5,4 +5,4 @@
 [Isaiah 24:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.15?lang=eng#p15)
 
 
-[^a]: HEB lights; or perhaps a scribal error for “islands.”
+[^a]: HEB lights; or perhaps a scribal error for “islands.”  

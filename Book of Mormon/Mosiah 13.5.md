@@ -5,4 +5,4 @@
 [Mosiah 13:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p5#p5)
 
 
-[^a]: [[Exodus 34.29|Ex. 34:29 (29-35).]]
+[^a]: [[Exodus 34.29|Ex. 34:29 (29–35)]][[Exodus 34.30|]][[Exodus 34.31|]][[Exodus 34.32|]][[Exodus 34.33|]][[Exodus 34.34|]][[Exodus 34.35|]].  

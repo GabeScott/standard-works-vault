@@ -5,4 +5,4 @@
 [1 Nephi 16:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p39#p39)
 
 
-[^a]: TG [[Chastening]].
+[^a]: [[Chastening|TG Chastening]].  

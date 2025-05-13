@@ -5,4 +5,4 @@
 [Exodus 23:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.8?lang=eng#p8)
 
 
-[^a]: HEB bribe. TG [[Bribe, Bribery]].
+[^a]: HEB bribe. [[Bribe, Bribery|TG Bribe]].  

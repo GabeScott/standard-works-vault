@@ -5,6 +5,6 @@
 [Leviticus 20:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.13?lang=eng#p13)
 
 
-[^a]: HEB lies with a male.
-[^b]: TG [[Woman, Women]].
-[^c]: TG [[Homosexual Behavior]].
+[^a]: HEB lies with a male.  
+[^b]: [[Woman, Women|TG Woman]].  
+[^c]: [[Homosexual Behavior|TG Homosexual Behavior]].  

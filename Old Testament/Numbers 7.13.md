@@ -5,4 +5,4 @@
 [Numbers 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/7.13?lang=eng#p13)
 
 
-[^a]: HEB meal or cereal.
+[^a]: HEB meal or cereal.  

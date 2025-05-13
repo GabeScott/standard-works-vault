@@ -5,4 +5,4 @@
 [Leviticus 24:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.18?lang=eng#p18)
 
 
-[^a]: HEB a soul for a soul; i.e., life for life.
+[^a]: HEB a soul for a soul; i.e., life for life.  

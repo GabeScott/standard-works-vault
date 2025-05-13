@@ -5,4 +5,4 @@
 [Nahum 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/1.15?lang=eng#p15)
 
 
-[^a]: [[Romans 10.15|Rom. 10:15]]; [[Mosiah 15.18|Mosiah 15:18 (13-18)]]; [[3 Nephi 20.40|3 Ne. 20:40]]; [[D&C 128.19|D&C 128:19.]]
+[^a]: [[Romans 10.15|Rom. 10:15]]; [[Mosiah 15.13|Mosiah 15:18 (13–18)]][[Mosiah 15.14|]][[Mosiah 15.15|]][[Mosiah 15.16|]][[Mosiah 15.17|]][[Mosiah 15.18|]]; [[3 Nephi 20.40|3 Ne. 20:40]]; [[D&C 128.19|D&C 128:19]].  

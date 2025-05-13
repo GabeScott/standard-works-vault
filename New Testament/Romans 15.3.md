@@ -5,4 +5,4 @@
 [Romans 15:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.3?lang=eng#p3)
 
 
-[^a]: GR revilings, insults. TG [[Reproach]].
+[^a]: GR revilings, insults. [[Reproach|TG Reproach]].  

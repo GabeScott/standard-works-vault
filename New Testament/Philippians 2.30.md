@@ -5,4 +5,4 @@
 [Philippians 2:30](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.30?lang=eng#p30)
 
 
-[^a]: Philip. 4:10.
+[^a]: [[Philippians 4.10|Philip. 4:10]].  

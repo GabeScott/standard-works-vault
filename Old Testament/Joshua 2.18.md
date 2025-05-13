@@ -5,4 +5,4 @@
 [Joshua 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/2.18?lang=eng#p18)
 
 
-[^a]: [[Joshua 6.23|Josh. 6:23.]]
+[^a]: [[Joshua 6.23|Josh. 6:23]].  

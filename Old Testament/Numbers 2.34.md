@@ -5,5 +5,5 @@
 [Numbers 2:34](https://www.churchofjesuschrist.org/study/scriptures/ot/num/2.34?lang=eng#p34)
 
 
-[^a]: [[D&C 61.25|D&C 61:25 (24-25).]]
-[^b]: OR flags.
+[^a]: [[D&C 61.24|D&C 61:25 (24–25)]][[D&C 61.25|]].  
+[^b]: OR flags.  

@@ -5,4 +5,4 @@
 [Hosea 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/7.12?lang=eng#p12)
 
 
-[^a]: [[Ezekiel 12.13|Ezek. 12:13]]; [[Ezekiel 17.20|17:20.]]
+[^a]: [[Ezekiel 12.13|Ezek. 12:13]]; [[Ezekiel 17.20|17:20]].  

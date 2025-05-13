@@ -5,4 +5,4 @@
 [2 Chronicles 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/4.7?lang=eng#p7)
 
 
-[^a]: HEB menoroth; lampstands.
+[^a]: HEB menoroth; lampstands.  

@@ -5,4 +5,4 @@
 [Leviticus 21:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/21.18?lang=eng#p18)
 
 
-[^a]: HEB too long; i.e., deformed.
+[^a]: HEB too long; i.e., deformed.  

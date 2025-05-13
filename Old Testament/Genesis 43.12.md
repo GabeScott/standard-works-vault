@@ -5,4 +5,4 @@
 [Genesis 43:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 42.25|Gen. 42:25 (25, 27, 35).]]
+[^a]: [[Genesis 42.25|Gen. 42:25 (25, 27, 35)]][[Genesis 42.27|]][[Genesis 42.35|]].  

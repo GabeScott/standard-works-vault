@@ -5,4 +5,4 @@
 [Alma 43:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 22.27|Alma 22:27]]; [[Alma 56.14|56:14.]]
+[^a]: [[Alma 22.27|Alma 22:27]]; [[Alma 56.14|56:14]].  

@@ -5,6 +5,6 @@
 [Matthew 13:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.22?lang=eng#p22)
 
 
-[^a]: [[Helaman 7.5|Hel. 7:5]]; [[D&C 39.9|D&C 39:9]]. TG [[Worldliness]].
-[^b]: TG [[Deceit, Deceive]].
-[^c]: TG [[Treasure]].
+[^a]: [[Helaman 7.5|Hel. 7:5]]; [[D&C 39.9|D&C 39:9]]. [[Worldliness|TG Worldliness]].  
+[^b]: [[Deceit, Deceive|TG Deceit]].  
+[^c]: [[Treasure|TG Treasure]].  

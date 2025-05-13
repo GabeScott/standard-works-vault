@@ -5,4 +5,4 @@
 [Ether 13:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mark 10.31|Mark 10:31]]; [[Luke 13.30|Luke 13:30]]; [[1 Nephi 13.42|1 Ne. 13:42]]; [[Jacob 5.63|Jacob 5:63]]; [[D&C 18.26|D&C 18:26 (26-27)]]; [[D&C 90.9|90:9.]]
+[^a]: [[Mark 10.31|Mark 10:31]]; [[Luke 13.30|Luke 13:30]]; [[1 Nephi 13.42|1 Ne. 13:42]]; [[Jacob 5.63|Jacob 5:63]]; [[D&C 18.26|D&C 18:26 (26–27)]][[D&C 18.27|]]; [[D&C 90.9|90:9]].  

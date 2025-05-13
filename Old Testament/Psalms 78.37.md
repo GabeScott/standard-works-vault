@@ -5,5 +5,5 @@
 [Psalms 78:37](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.37?lang=eng#p37)
 
 
-[^a]: TG [[Heart]].
-[^b]: TG [[Steadfastness, Steadfast]].
+[^a]: [[Heart|TG Heart]].  
+[^b]: [[Steadfastness, Steadfast|TG Steadfastness]].  

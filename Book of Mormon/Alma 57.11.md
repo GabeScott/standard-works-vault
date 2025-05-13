@@ -5,4 +5,4 @@
 [Alma 57:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/57?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 56.9|Alma 56:9.]]
+[^a]: [[Alma 56.9|Alma 56:9]].  

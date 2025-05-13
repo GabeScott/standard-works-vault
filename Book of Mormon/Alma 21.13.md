@@ -5,4 +5,4 @@
 [Alma 21:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 20.2|Alma 20:2.]]
+[^a]: [[Alma 20.2|Alma 20:2]].  

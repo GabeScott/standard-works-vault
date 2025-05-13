@@ -5,6 +5,6 @@
 [Mosiah 27:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p5#p5)
 
 
-[^a]: [[Mosiah 18.24|Mosiah 18:24 (24, 26)]]; Alma 1:3, 26.
-[^b]: TG [[Work, Value of]].
-[^c]: TG [[Grace]].
+[^a]: [[Mosiah 18.24|Mosiah 18:24 (24, 26)]][[Mosiah 18.26|]]; [[Alma 1.3|Alma 1:3, 26]][[Alma 1.26|]].  
+[^b]: [[Work, Value of|TG Work, Value of]].  
+[^c]: [[Grace|TG Grace]].  

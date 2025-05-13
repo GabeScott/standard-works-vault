@@ -5,8 +5,8 @@
 [Moroni 4:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/4?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Samuel 21.4|1 Sam. 21:4.]]
-[^b]: TG [[Sacrament]].
-[^c]: [[Luke 22.19|Luke 22:19]]; [[3 Nephi 18.7|3 Ne. 18:7]]; [[3 Nephi 20.8|20:8.]]
-[^d]: TG [[Jesus Christ, Taking the Name of]].
-[^e]: TG [[God, Spirit of]].
+[^a]: [[1 Samuel 21.4|1 Sam. 21:4]].  
+[^b]: [[Sacrament|TG Sacrament]].  
+[^c]: [[Luke 22.19|Luke 22:19]]; [[3 Nephi 18.7|3 Ne. 18:7]]; [[3 Nephi 20.8|20:8]].  
+[^d]: [[Jesus Christ, Taking the Name of|TG Jesus Christ, Taking the Name of]].  
+[^e]: [[God, Spirit of|TG God, Spirit of]].  

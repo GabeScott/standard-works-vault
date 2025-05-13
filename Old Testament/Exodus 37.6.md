@@ -5,4 +5,4 @@
 [Exodus 37:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/37.6?lang=eng#p6)
 
 
-[^a]: [[Exodus 25.17|Ex. 25:17 (17-21).]]
+[^a]: [[Exodus 25.17|Ex. 25:17 (17–21)]][[Exodus 25.18|]][[Exodus 25.19|]][[Exodus 25.20|]][[Exodus 25.21|]].  

@@ -5,4 +5,4 @@
 [Psalms 66:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/66.3?lang=eng#p3)
 
 
-[^a]: [[D&C 49.6|D&C 49:6]]; [[D&C 76.61|76:61.]]
+[^a]: [[D&C 49.6|D&C 49:6]]; [[D&C 76.61|76:61]].  

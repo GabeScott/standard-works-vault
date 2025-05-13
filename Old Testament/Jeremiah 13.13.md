@@ -5,4 +5,4 @@
 [Jeremiah 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 23.33|Ezek. 23:33.]]
+[^a]: [[Ezekiel 23.33|Ezek. 23:33]].  

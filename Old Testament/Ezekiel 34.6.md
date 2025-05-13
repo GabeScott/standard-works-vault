@@ -5,4 +5,4 @@
 [Ezekiel 34:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.6?lang=eng#p6)
 
 
-[^a]: TG [[Sheep]].
+[^a]: [[Sheep|TG Sheep]].  

@@ -5,7 +5,7 @@
 [Isaiah 52:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.10?lang=eng#p10)
 
 
-[^a]: [[1 Nephi 22.10|1 Ne. 22:10 (10-11)]]; [[D&C 133.3|D&C 133:3.]]
-[^b]: TG [[God, Power of]].
-[^c]: TG [[Jesus Christ, Second Coming]].
-[^d]: TG [[Salvation for the Dead]].
+[^a]: [[1 Nephi 22.10|1 Ne. 22:10 (10–11)]][[1 Nephi 22.11|]]; [[D&C 133.3|D&C 133:3]].  
+[^b]: [[God, Power of|TG God, Power of]].  
+[^c]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  
+[^d]: [[Salvation|TG Salvation]].  

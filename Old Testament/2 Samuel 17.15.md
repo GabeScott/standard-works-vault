@@ -5,4 +5,4 @@
 [2 Samuel 17:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/17.15?lang=eng#p15)
 
 
-[^a]: [[1 Nephi 4.22|1 Ne. 4:22.]]
+[^a]: [[1 Nephi 4.22|1 Ne. 4:22]].  

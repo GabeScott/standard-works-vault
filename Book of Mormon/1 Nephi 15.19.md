@@ -5,4 +5,4 @@
 [1 Nephi 15:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p19#p19)
 
 
-[^a]: [[Isaiah 42.22|Isa. 42:22 (22-23)]]; [[1 Nephi 19.15|1 Ne. 19:15]]. TG [[Israel, Gathering of]]; [[Israel, Judah, People of]].
+[^a]: [[Isaiah 42.22|Isa. 42:22 (22–23)]][[Isaiah 42.23|]]; [[1 Nephi 19.15|1 Ne. 19:15]]. [[Israel, Gathering of|TG Israel, Gathering of]]; [[Israel, Judah, People of|Israel, Judah, People of]].  

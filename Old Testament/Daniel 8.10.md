@@ -5,4 +5,4 @@
 [Daniel 8:10](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.10?lang=eng#p10)
 
 
-[^a]: OR against.
+[^a]: OR against.  

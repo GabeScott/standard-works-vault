@@ -5,4 +5,4 @@
 [2 Kings 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.4?lang=eng#p4)
 
 
-[^a]: [[1 Kings 16.34|1 Kgs. 16:34.]]
+[^a]: [[1 Kings 16.34|1 Kgs. 16:34]].  

@@ -5,6 +5,6 @@
 [3 Nephi 11:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p35#p35)
 
 
-[^a]: [[Ether 4.12|Ether 4:12.]]
-[^b]: [[3 Nephi 9.20|3 Ne. 9:20]]; [[3 Nephi 12.2|12:2.]]
-[^c]: TG [[Holy Ghost, Baptism of]].
+[^a]: [[Ether 4.12|Ether 4:12]].  
+[^b]: [[3 Nephi 9.20|3 Ne. 9:20]]; [[3 Nephi 12.2|12:2]].  
+[^c]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  

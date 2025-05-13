@@ -5,5 +5,5 @@
 [1 Kings 10:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.5?lang=eng#p5)
 
 
-[^a]: HEB food.
-[^b]: HEB burnt offerings which he offered in the house of the Lord.
+[^a]: HEB food.  
+[^b]: HEB burnt offerings which he offered in the house of the Lord.  

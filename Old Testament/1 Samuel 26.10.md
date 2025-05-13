@@ -5,4 +5,4 @@
 [1 Samuel 26:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/26.10?lang=eng#p10)
 
 
-[^a]: [[1 Samuel 31.5|1 Sam. 31:5.]]
+[^a]: [[1 Samuel 31.5|1 Sam. 31:5]].  

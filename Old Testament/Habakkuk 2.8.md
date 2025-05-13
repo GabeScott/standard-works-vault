@@ -5,4 +5,4 @@
 [Habakkuk 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 33.1|Isa. 33:1.]]
+[^a]: [[Isaiah 33.1|Isa. 33:1]].  

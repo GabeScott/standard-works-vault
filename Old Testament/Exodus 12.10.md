@@ -5,4 +5,4 @@
 [Exodus 12:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 34.25|Ex. 34:25.]]
+[^a]: [[Exodus 34.25|Ex. 34:25]].  

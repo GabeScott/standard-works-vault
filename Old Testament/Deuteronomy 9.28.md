@@ -5,4 +5,4 @@
 [Deuteronomy 9:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.28?lang=eng#p28)
 
 
-[^a]: [[Exodus 32.12|Ex. 32:12.]]
+[^a]: [[Exodus 32.12|Ex. 32:12]].  

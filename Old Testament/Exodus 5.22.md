@@ -5,5 +5,5 @@
 [Exodus 5:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/5.22?lang=eng#p22)
 
 
-[^a]: [[D&C 121.2|D&C 121:2 (1-6).]]
-[^b]: OR badly treated.
+[^a]: [[D&C 121.1|D&C 121:2 (1–6)]][[D&C 121.2|]][[D&C 121.3|]][[D&C 121.4|]][[D&C 121.5|]][[D&C 121.6|]].  
+[^b]: OR badly treated.  

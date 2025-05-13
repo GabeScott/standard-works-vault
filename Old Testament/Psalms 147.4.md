@@ -5,5 +5,5 @@
 [Psalms 147:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/147.4?lang=eng#p4)
 
 
-[^a]: TG [[Astronomy]].
-[^b]: [[Isaiah 40.26|Isa. 40:26.]]
+[^a]: [[Astronomy|TG Astronomy]].  
+[^b]: [[Isaiah 40.26|Isa. 40:26]].  

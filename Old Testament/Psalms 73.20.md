@@ -5,5 +5,5 @@
 [Psalms 73:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.20?lang=eng#p20)
 
 
-[^a]: [[Psalms 78.65|Ps. 78:65 (65-66).]]
-[^b]: [[2 Nephi 9.42|2 Ne. 9:42 (41-42).]]
+[^a]: [[Psalms 78.65|Ps. 78:65 (65–66)]][[Psalms 78.66|]].  
+[^b]: [[2 Nephi 9.41|2 Ne. 9:42 (41–42)]][[2 Nephi 9.42|]].  

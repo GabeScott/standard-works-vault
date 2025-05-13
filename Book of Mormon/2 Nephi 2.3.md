@@ -5,6 +5,6 @@
 [2 Nephi 2:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p3#p3)
 
 
-[^a]: [[Enos 1.1|Enos 1:1.]]
-[^b]: [[2 Nephi 11.3|2 Ne. 11:3.]]
-[^c]: TG [[Fulness]].
+[^a]: [[Enos 1.1|Enos 1:1]].  
+[^b]: [[2 Nephi 11.3|2 Ne. 11:3]].  
+[^c]: [[Fulness|TG Fulness]].  

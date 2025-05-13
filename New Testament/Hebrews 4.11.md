@@ -5,5 +5,5 @@
 [Hebrews 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.11?lang=eng#p11)
 
 
-[^a]: GR hasten, be eager.
-[^b]: GR obstinacy, disobedience. TG [[Unbelief, Unbelievers]].
+[^a]: GR hasten, be eager.  
+[^b]: GR obstinacy, disobedience. [[Unbelief, Unbelievers|TG Unbelief]].  

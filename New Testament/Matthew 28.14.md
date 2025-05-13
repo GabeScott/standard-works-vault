@@ -5,4 +5,4 @@
 [Matthew 28:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.14?lang=eng#p14)
 
 
-[^a]: GR keep you out of trouble.
+[^a]: GR keep you out of trouble.  

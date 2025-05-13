@@ -5,4 +5,4 @@
 [Isaiah 44:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.12?lang=eng#p12)
 
 
-[^a]: [[Isaiah 40.19|Isa. 40:19 (19-20)]]; [[Jeremiah 10.3|Jer. 10:3 (3-5).]]
+[^a]: [[Isaiah 40.19|Isa. 40:19 (19–20)]][[Isaiah 40.20|]]; [[Jeremiah 10.3|Jer. 10:3 (3–5)]][[Jeremiah 10.4|]][[Jeremiah 10.5|]].  

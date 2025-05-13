@@ -5,8 +5,8 @@
 [1 Peter 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.3?lang=eng#p3)
 
 
-[^a]: TG [[God, Mercy of]].
-[^b]: TG [[Holy Ghost, Baptism of]]; [[Man, New, Spiritually Reborn]].
-[^c]: GR living.
-[^d]: TG [[Hope]].
-[^e]: [[1 Corinthians 15.20|1 Cor. 15:20.]]
+[^a]: [[God, Mercy of|TG God, Mercy of]].  
+[^b]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]]; [[Man, New, Spiritually Reborn|Man, New, Spiritually Reborn]].  
+[^c]: GR living.  
+[^d]: [[Hope|TG Hope]].  
+[^e]: [[1 Corinthians 15.20|1 Cor. 15:20]].  

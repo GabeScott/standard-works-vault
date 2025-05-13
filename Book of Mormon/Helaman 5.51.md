@@ -5,4 +5,4 @@
 [Helaman 5:51](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p51#p51)
 
 
-[^a]: [[Alma 31.5|Alma 31:5.]]
+[^a]: [[Alma 31.5|Alma 31:5]].  

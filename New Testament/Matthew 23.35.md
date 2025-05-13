@@ -5,6 +5,6 @@
 [Matthew 23:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.35?lang=eng#p35)
 
 
-[^a]: TG [[Martyrdom]].
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: [[Luke 11.51|Luke 11:51.]]
+[^a]: [[Martyrdom|TG Martyrdom]].  
+[^b]: [[Righteousness|TG Righteousness]].  
+[^c]: [[Luke 11.51|Luke 11:51]].  

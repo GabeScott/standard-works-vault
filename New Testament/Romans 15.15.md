@@ -5,5 +5,5 @@
 [Romans 15:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.15?lang=eng#p15)
 
 
-[^a]: GR part.
-[^b]: TG [[Grace]].
+[^a]: GR part.  
+[^b]: [[Grace|TG Grace]].  

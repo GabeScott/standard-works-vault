@@ -5,4 +5,4 @@
 [Job 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/job/7.18?lang=eng#p18)
 
 
-[^a]: TG [[Probation, Probationary]].
+[^a]: [[Probation, Probationary|TG Probation]].  

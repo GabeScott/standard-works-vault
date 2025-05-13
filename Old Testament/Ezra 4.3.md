@@ -5,4 +5,4 @@
 [Ezra 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.3?lang=eng#p3)
 
 
-[^a]: [[Ezra 3.7|Ezra 3:7.]]
+[^a]: [[Ezra 3.7|Ezra 3:7]].  

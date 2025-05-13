@@ -5,5 +5,5 @@
 [Alma 10:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p20#p20)
 
 
-[^a]: TG [[Jesus Christ, Judge]].
-[^b]: [[Alma 8.14|Alma 8:14 (14-16, 20)]]; [[Alma 13.22|13:22.]]
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  
+[^b]: [[Alma 8.14|Alma 8:14 (14–16, 20)]][[Alma 8.15|]][[Alma 8.16|]][[Alma 8.20|]]; [[Alma 13.22|13:22]].  

@@ -5,5 +5,5 @@
 [Jeremiah 52:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.15?lang=eng#p15)
 
 
-[^a]: [[Jeremiah 1.3|Jer. 1:3]]; [[1 Nephi 1.13|1 Ne. 1:13]]; [[1 Nephi 10.13|10:13 (12-13)]]; [[2 Nephi 25.10|2 Ne. 25:10 (10-11).]]
-[^b]: OR had deserted.
+[^a]: [[Jeremiah 1.3|Jer. 1:3]]; [[1 Nephi 1.13|1 Ne. 1:13]]; [[1 Nephi 10.12|10:13 (12–13)]][[1 Nephi 10.13|]]; [[2 Nephi 25.10|2 Ne. 25:10 (10–11)]][[2 Nephi 25.11|]].  
+[^b]: OR had deserted.  

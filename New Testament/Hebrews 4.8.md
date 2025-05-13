@@ -5,4 +5,4 @@
 [Hebrews 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 17.9|Ex. 17:9]]; [[Acts 7.45|Acts 7:45.]]
+[^a]: [[Exodus 17.9|Ex. 17:9]]; [[Acts 7.45|Acts 7:45]].  

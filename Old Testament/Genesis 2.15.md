@@ -5,7 +5,7 @@
 [Genesis 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.15?lang=eng#p15)
 
 
-[^a]: TG [[Earth, Purpose of]].
-[^b]: TG [[Eden]].
-[^c]: HEB to till it.
-[^d]: [[D&C 42.41|D&C 42:41.]]
+[^a]: [[Earth, Purpose of|TG Earth, Purpose of]].  
+[^b]: [[Eden|TG Eden]].  
+[^c]: HEB to till it.  
+[^d]: [[D&C 42.41|D&C 42:41]].  

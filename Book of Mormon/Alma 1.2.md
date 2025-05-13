@@ -5,4 +5,4 @@
 [Alma 1:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 1.15|Alma 1:15.]]
+[^a]: [[Alma 1.15|Alma 1:15]].  

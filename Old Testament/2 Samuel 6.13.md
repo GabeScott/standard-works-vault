@@ -5,4 +5,4 @@
 [2 Samuel 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.13?lang=eng#p13)
 
 
-[^a]: [[1 Chronicles 15.26|1 Chr. 15:26 (25-28).]]
+[^a]: [[1 Chronicles 15.25|1 Chr. 15:26 (25–28)]][[1 Chronicles 15.26|]][[1 Chronicles 15.27|]][[1 Chronicles 15.28|]].  

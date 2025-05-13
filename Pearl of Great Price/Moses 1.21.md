@@ -5,5 +5,5 @@
 [Moses 1:21](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.21?lang=eng#p21)
 
 
-[^a]: [[Moses 1.12|Moses 1:12.]]
-[^b]: [[Matthew 10.1|Matt. 10:1]]. TG [[Spirits, Evil or Unclean]].
+[^a]: [[Moses 1.12|Moses 1:12]].  
+[^b]: [[Matthew 10.1|Matt. 10:1]]. [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

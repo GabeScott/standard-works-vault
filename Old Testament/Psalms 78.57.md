@@ -5,4 +5,4 @@
 [Psalms 78:57](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.57?lang=eng#p57)
 
 
-[^a]: [[Hosea 7.16|Hosea 7:16 (14-16).]]
+[^a]: [[Hosea 7.14|Hosea 7:16 (14–16)]][[Hosea 7.15|]][[Hosea 7.16|]].  

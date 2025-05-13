@@ -5,5 +5,5 @@
 [Jeremiah 23:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.3?lang=eng#p3)
 
 
-[^a]: TG [[Israel, Gathering of]].
-[^b]: TG [[Israel, Remnant of]].
+[^a]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^b]: [[Israel, Remnant of|TG Israel, Remnant of]].  

@@ -5,5 +5,5 @@
 [Ezekiel 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/5.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 19.9|Jer. 19:9]]; Lam. 2:20.
-[^b]: TG [[Israel, Scattering of]].
+[^a]: [[Jeremiah 19.9|Jer. 19:9]]; [[Lamentations 2.20|Lam. 2:20]].  
+[^b]: [[Israel, Scattering of|TG Israel, Scattering of]].  

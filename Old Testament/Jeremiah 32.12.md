@@ -5,5 +5,5 @@
 [Jeremiah 32:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.12?lang=eng#p12)
 
 
-[^a]: [[Jeremiah 43.3|Jer. 43:3.]]
-[^b]: OR deed.
+[^a]: [[Jeremiah 43.3|Jer. 43:3]].  
+[^b]: OR deed.  

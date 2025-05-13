@@ -5,4 +5,4 @@
 [Jacob 5:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p37#p37)
 
 
-[^a]: [[D&C 45.30|D&C 45:30.]]
+[^a]: [[D&C 45.30|D&C 45:30]].  

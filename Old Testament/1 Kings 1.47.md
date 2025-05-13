@@ -5,4 +5,4 @@
 [1 Kings 1:47](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/1.47?lang=eng#p47)
 
 
-[^a]: [[Genesis 47.31|Gen. 47:31.]]
+[^a]: [[Genesis 47.31|Gen. 47:31]].  

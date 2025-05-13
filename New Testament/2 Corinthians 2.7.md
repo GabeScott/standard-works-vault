@@ -5,4 +5,4 @@
 [2 Corinthians 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/2.7?lang=eng#p7)
 
 
-[^a]: TG [[Forgive, Forgiveness]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]].  

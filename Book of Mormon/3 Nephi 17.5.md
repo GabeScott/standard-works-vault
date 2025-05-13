@@ -5,4 +5,4 @@
 [3 Nephi 17:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[God, Love of]].
+[^a]: [[God, Love of|TG God, Love of]].  

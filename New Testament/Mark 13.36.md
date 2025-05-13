@@ -5,4 +5,4 @@
 [Mark 13:36](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.36?lang=eng#p36)
 
 
-[^a]: TG [[Procrastination, Procrastinate]]; [[Sleep, Slept]].
+[^a]: [[Procrastination, Procrastinate|TG Procrastination]]; [[Sleep, Slept|Sleep]].  

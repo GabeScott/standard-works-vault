@@ -5,4 +5,4 @@
 [Psalms 117:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/117.2?lang=eng#p2)
 
 
-[^a]: [[D&C 84.45|D&C 84:45]]; [[D&C 93.24|93:24.]]
+[^a]: [[D&C 84.45|D&C 84:45]]; [[D&C 93.24|93:24]].  

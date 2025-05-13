@@ -5,4 +5,4 @@
 [Alma 32:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Initiative]]; [[Sincere, Sincerity]].
+[^a]: [[Initiative|TG Initiative]]; [[Sincere, Sincerity|Sincere]].  

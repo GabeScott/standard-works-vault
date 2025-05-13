@@ -5,5 +5,5 @@
 [1 Kings 11:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.7?lang=eng#p7)
 
 
-[^a]: [[Numbers 21.29|Num. 21:29.]]
-[^b]: [[2 Kings 23.13|2 Kgs. 23:13.]]
+[^a]: [[Numbers 21.29|Num. 21:29]].  
+[^b]: [[2 Kings 23.13|2 Kgs. 23:13]].  

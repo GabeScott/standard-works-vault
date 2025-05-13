@@ -5,4 +5,4 @@
 [Acts 4:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.5?lang=eng#p5)
 
 
-[^a]: TG [[Scribe]].
+[^a]: [[Scribe|TG Scribe]].  

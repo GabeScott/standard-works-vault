@@ -5,4 +5,4 @@
 [Deuteronomy 14:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.16?lang=eng#p16)
 
 
-[^a]: HEB barn owl.
+[^a]: HEB barn owl.  

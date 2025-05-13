@@ -5,6 +5,6 @@
 [2 Thessalonians 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/1.9?lang=eng#p9)
 
 
-[^a]: TG [[Punish, Punishment]].
-[^b]: TG [[Eternity]].
-[^c]: TG [[Damnation, Damned]]; [[Sons of Perdition]].
+[^a]: [[Punish, Punishment|TG Punish]].  
+[^b]: [[Eternity|TG Eternity]].  
+[^c]: [[Damnation, Damned|TG Damnation]]; [[Sons of Perdition|Sons of Perdition]].  

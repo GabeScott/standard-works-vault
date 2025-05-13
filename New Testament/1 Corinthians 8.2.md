@@ -5,4 +5,4 @@
 [1 Corinthians 8:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/8.2?lang=eng#p2)
 
 
-[^a]: TG [[Education]]; [[Study]].
+[^a]: [[Education|TG Education]]; [[Study|Study]].  

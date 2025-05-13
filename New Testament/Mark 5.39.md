@@ -5,4 +5,4 @@
 [Mark 5:39](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.39?lang=eng#p39)
 
 
-[^a]: OR uproar, tumult.
+[^a]: OR uproar, tumult.  

@@ -5,5 +5,5 @@
 [Alma 60:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p33#p33)
 
 
-[^a]: [[Alma 61.18|Alma 61:18.]]
-[^b]: [[Alma 61.20|Alma 61:20.]]
+[^a]: [[Alma 61.18|Alma 61:18]].  
+[^b]: [[Alma 61.20|Alma 61:20]].  

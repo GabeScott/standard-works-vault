@@ -5,5 +5,5 @@
 [Alma 42:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p31#p31)
 
 
-[^a]: [[D&C 11.15|D&C 11:15.]]
-[^b]: TG [[Mission of Early Saints]].
+[^a]: [[D&C 11.15|D&C 11:15]].  
+[^b]: [[Mission of Early Saints|TG Mission of Early Saints]].  

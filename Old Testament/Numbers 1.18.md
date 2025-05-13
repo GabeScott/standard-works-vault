@@ -5,4 +5,4 @@
 [Numbers 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.18?lang=eng#p18)
 
 
-[^a]: [[D&C 128.24|D&C 128:24.]]
+[^a]: [[D&C 128.24|D&C 128:24]].  

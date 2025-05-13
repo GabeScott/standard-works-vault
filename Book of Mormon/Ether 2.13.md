@@ -5,5 +5,5 @@
 [Ether 2:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 8.7|Alma 8:7]]; [[Ether 1.34|Ether 1:34.]]
-[^b]: [[Genesis 25.27|Gen. 25:27]]; [[Helaman 3.9|Hel. 3:9.]]
+[^a]: [[Alma 8.7|Alma 8:7]]; [[Ether 1.34|Ether 1:34]].  
+[^b]: [[Genesis 25.27|Gen. 25:27]]; [[Helaman 3.9|Hel. 3:9]].  

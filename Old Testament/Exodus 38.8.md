@@ -5,4 +5,4 @@
 [Exodus 38:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/38.8?lang=eng#p8)
 
 
-[^a]: OR mirrors.
+[^a]: OR mirrors.  

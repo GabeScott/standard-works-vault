@@ -5,4 +5,4 @@
 [Luke 24:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.1?lang=eng#p1)
 
 
-[^a]: [[Luke 23.55|Luke 23:55.]]
+[^a]: [[Luke 23.55|Luke 23:55]].  

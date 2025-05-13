@@ -5,4 +5,4 @@
 [Zechariah 1:20](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.20?lang=eng#p20)
 
 
-[^a]: HEB craftsmen or artisans.
+[^a]: HEB craftsmen or artisans.  

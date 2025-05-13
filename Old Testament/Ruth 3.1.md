@@ -5,4 +5,4 @@
 [Ruth 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/3.1?lang=eng#p1)
 
 
-[^a]: Implying marriage.
+[^a]: Implying marriage.  

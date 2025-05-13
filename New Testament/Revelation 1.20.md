@@ -5,6 +5,6 @@
 [Revelation 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.20?lang=eng#p20)
 
 
-[^a]: [[Revelation 3.1|Rev. 3:1.]]
-[^b]: JST Rev. 1:20 … servants … Rev. 2:18.
-[^c]: [[Exodus 37.17|Ex. 37:17]]; [[Zechariah 4.2|Zech. 4:2 (1-14)]]; [[Revelation 2.5|Rev. 2:5.]]
+[^a]: [[Revelation 3.1|Rev. 3:1]].  
+[^b]: JST Rev. 1:20 … servants … [[Revelation 2.18|Rev. 2:18]].  
+[^c]: [[Exodus 37.17|Ex. 37:17]]; [[Zechariah 4.1|Zech. 4:2 (1–14)]][[Zechariah 4.2|]][[Zechariah 4.3|]][[Zechariah 4.4|]][[Zechariah 4.5|]][[Zechariah 4.6|]][[Zechariah 4.7|]][[Zechariah 4.8|]][[Zechariah 4.9|]][[Zechariah 4.10|]][[Zechariah 4.11|]][[Zechariah 4.12|]][[Zechariah 4.13|]][[Zechariah 4.14|]]; [[Revelation 2.5|Rev. 2:5]].  

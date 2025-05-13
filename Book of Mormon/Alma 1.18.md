@@ -5,6 +5,6 @@
 [Alma 1:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 30.10|Alma 30:10]]. TG [[Stealing, Stolen]].
-[^b]: TG [[Murder, Murderer]].
-[^c]: TG [[Capital Punishment]].
+[^a]: [[Alma 30.10|Alma 30:10]]. [[Stealing, Stolen|TG Stealing]].  
+[^b]: [[Murder, Murderer|TG Murder]].  
+[^c]: [[Capital Punishment|TG Capital Punishment]].  

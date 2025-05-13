@@ -5,4 +5,4 @@
 [Genesis 21:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 16.15|Gen. 16:15 (11, 15)]]; [[1 Chronicles 1.28|1 Chr. 1:28]]. TG [[Seed of Abraham]].
+[^a]: [[Genesis 16.11|Gen. 16:15 (11, 15)]][[Genesis 16.15|]]; [[1 Chronicles 1.28|1 Chr. 1:28]]. [[Seed of Abraham|TG Seed of Abraham]].  

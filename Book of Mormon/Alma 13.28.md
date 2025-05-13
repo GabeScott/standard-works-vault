@@ -5,7 +5,7 @@
 [Alma 13:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Prayer, Pray]]; [[Watch, Watchfulness]].
-[^b]: [[Romans 7.23|Rom. 7:23 (23-24)]]; [[1 Corinthians 10.13|1 Cor. 10:13]]; [[D&C 64.20|D&C 64:20.]]
-[^c]: [[Alma 22.1|Alma 22:1]]; [[Mormon 5.17|Morm. 5:17.]]
-[^d]: TG [[Forbear, Forbearance]]; [[Love]]; [[Meek, Meekness]].
+[^a]: [[Prayer, Pray|TG Prayer]]; [[Watch, Watchfulness|Watch]].  
+[^b]: [[Romans 7.23|Rom. 7:23 (23–24)]][[Romans 7.24|]]; [[1 Corinthians 10.13|1 Cor. 10:13]]; [[D&C 64.20|D&C 64:20]].  
+[^c]: [[Alma 22.1|Alma 22:1]]; [[Mormon 5.17|Morm. 5:17]].  
+[^d]: [[Forbear, Forbearance|TG Forbear]]; [[Love|Love]]; [[Meek, Meekness|Meek]].  

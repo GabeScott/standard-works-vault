@@ -5,4 +5,4 @@
 [Exodus 10:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 9.32|Ex. 9:32 (31-32).]]
+[^a]: [[Exodus 9.31|Ex. 9:32 (31–32)]][[Exodus 9.32|]].  

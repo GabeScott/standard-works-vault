@@ -5,5 +5,5 @@
 [Mormon 2:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/2?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 58.12|Alma 58:12.]]
-[^b]: [[Ether 14.2|Ether 14:2.]]
+[^a]: [[Alma 58.12|Alma 58:12]].  
+[^b]: [[Ether 14.2|Ether 14:2]].  

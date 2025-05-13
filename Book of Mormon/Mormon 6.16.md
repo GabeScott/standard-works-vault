@@ -5,4 +5,4 @@
 [Mormon 6:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Despair]]; [[Mourning, Mourn]]; [[Sorrow]].
+[^a]: [[Despair|TG Despair]]; [[Mourning, Mourn|Mourning]]; [[Sorrow|Sorrow]].  

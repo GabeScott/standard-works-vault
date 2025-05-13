@@ -5,4 +5,4 @@
 [Luke 22:61](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.61?lang=eng#p61)
 
 
-[^a]: TG [[Jesus Christ, Lord]].
+[^a]: [[Jesus Christ, Lord|TG Jesus Christ, Lord]].  

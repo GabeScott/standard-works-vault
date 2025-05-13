@@ -5,4 +5,4 @@
 [Hebrews 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.19?lang=eng#p19)
 
 
-[^a]: TG [[Unbelief, Unbelievers]].
+[^a]: [[Unbelief, Unbelievers|TG Unbelief]].  

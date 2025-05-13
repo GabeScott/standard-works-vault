@@ -5,4 +5,4 @@
 [Nehemiah 13:2](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.2?lang=eng#p2)
 
 
-[^a]: [[Numbers 22.5|Num. 22:5]]; [[Numbers 23.11|23:11.]]
+[^a]: [[Numbers 22.5|Num. 22:5]]; [[Numbers 23.11|23:11]].  

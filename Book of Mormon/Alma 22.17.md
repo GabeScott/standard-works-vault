@@ -5,5 +5,5 @@
 [Alma 22:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p17#p17)
 
 
-[^a]: [[D&C 5.24|D&C 5:24.]]
-[^b]: TG [[Prayer, Pray]].
+[^a]: [[D&C 5.24|D&C 5:24]].  
+[^b]: [[Prayer, Pray|TG Prayer]].  

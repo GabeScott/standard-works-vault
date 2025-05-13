@@ -5,4 +5,4 @@
 [Jeremiah 10:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.20?lang=eng#p20)
 
 
-[^a]: [[Jeremiah 4.20|Jer. 4:20.]]
+[^a]: [[Jeremiah 4.20|Jer. 4:20]].  

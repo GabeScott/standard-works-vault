@@ -5,5 +5,5 @@
 [Psalms 133:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/133.1?lang=eng#p1)
 
 
-[^a]: TG [[Family, Love within]].
-[^b]: TG [[Common Consent]]; [[Unity]].
+[^a]: [[Family, Love within|TG Family, Love within]].  
+[^b]: [[Common Consent|TG Common Consent]]; [[Unity|Unity]].  

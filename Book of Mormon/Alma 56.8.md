@@ -5,5 +5,5 @@
 [Alma 56:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Honesty]].
-[^b]: TG [[Vow]].
+[^a]: [[Honesty|TG Honesty]].  
+[^b]: [[Vow|TG Vow]].  

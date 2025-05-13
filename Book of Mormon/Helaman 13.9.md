@@ -5,4 +5,4 @@
 [Helaman 13:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 45.10|Alma 45:10.]]
+[^a]: [[Alma 45.10|Alma 45:10]].  

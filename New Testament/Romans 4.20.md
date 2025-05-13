@@ -5,4 +5,4 @@
 [Romans 4:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.20?lang=eng#p20)
 
 
-[^a]: GR doubted, hesitated.
+[^a]: GR doubted, hesitated.  

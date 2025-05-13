@@ -5,6 +5,6 @@
 [Ezekiel 47:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 41.2|Ezek. 41:2 (1-2).]]
-[^b]: [[Joel 3.18|Joel 3:18]]; [[Zechariah 14.8|Zech. 14:8]]; [[Revelation 22.1|Rev. 22:1.]]
-[^c]: TG [[Genealogy and Temple Work]].
+[^a]: [[Ezekiel 41.1|Ezek. 41:2 (1–2)]][[Ezekiel 41.2|]].  
+[^b]: [[Joel 3.18|Joel 3:18]]; [[Zechariah 14.8|Zech. 14:8]]; [[Revelation 22.1|Rev. 22:1]].  
+[^c]: [[Temple|TG Temple]].  

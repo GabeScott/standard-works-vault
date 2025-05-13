@@ -5,4 +5,4 @@
 [2 Corinthians 12:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.5?lang=eng#p5)
 
 
-[^a]: TG [[Boast, Boasting]].
+[^a]: [[Boast, Boasting|TG Boast]].  

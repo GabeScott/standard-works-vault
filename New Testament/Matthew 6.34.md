@@ -5,4 +5,4 @@
 [Matthew 6:34](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.34?lang=eng#p34)
 
 
-[^a]: [[D&C 84.84|D&C 84:84.]]
+[^a]: [[D&C 84.84|D&C 84:84]].  

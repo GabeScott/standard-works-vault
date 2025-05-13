@@ -5,4 +5,4 @@
 [John 7:50](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.50?lang=eng#p50)
 
 
-[^a]: [[John 3.1|John 3:1.]]
+[^a]: [[John 3.1|John 3:1]].  

@@ -5,5 +5,5 @@
 [Ezekiel 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.4?lang=eng#p4)
 
 
-[^a]: HEB A tent.
-[^b]: HEB My tent is in her.
+[^a]: HEB A tent.  
+[^b]: HEB My tent is in her.  

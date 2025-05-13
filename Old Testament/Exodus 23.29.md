@@ -5,5 +5,5 @@
 [Exodus 23:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.29?lang=eng#p29)
 
 
-[^a]: [[Deuteronomy 7.22|Deut. 7:22.]]
-[^b]: OR wild beasts.
+[^a]: [[Deuteronomy 7.22|Deut. 7:22]].  
+[^b]: OR wild beasts.  

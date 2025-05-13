@@ -5,4 +5,4 @@
 [John 16:3](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.3?lang=eng#p3)
 
 
-[^a]: [[Moses 4.6|Moses 4:6.]]
+[^a]: [[Moses 4.6|Moses 4:6]].  

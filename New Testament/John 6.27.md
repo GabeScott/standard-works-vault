@@ -5,6 +5,6 @@
 [John 6:27](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.27?lang=eng#p27)
 
 
-[^a]: TG [[Labor]]; [[Objectives]].
-[^b]: TG [[Jesus Christ, Son of Man]].
-[^c]: TG [[Sealing, Sealed]].
+[^a]: [[Labor|TG Labor]]; [[Objectives|Objectives]].  
+[^b]: [[Jesus Christ, Son of Man|TG Jesus Christ, Son of Man]].  
+[^c]: [[Sealing, Sealed|TG Sealing]].  

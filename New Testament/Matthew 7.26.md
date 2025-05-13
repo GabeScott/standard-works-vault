@@ -5,4 +5,4 @@
 [Matthew 7:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.26?lang=eng#p26)
 
 
-[^a]: TG [[Foolishness]].
+[^a]: [[Foolishness|TG Foolishness]].  

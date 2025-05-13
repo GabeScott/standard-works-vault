@@ -5,4 +5,4 @@
 [Deuteronomy 5:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.18?lang=eng#p18)
 
 
-[^a]: TG [[Adulterer, Adultery]].
+[^a]: [[Adulterer, Adultery|TG Adulterer]].  

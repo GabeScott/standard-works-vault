@@ -5,4 +5,4 @@
 [Leviticus 16:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.16?lang=eng#p16)
 
 
-[^a]: TG [[Transgressor]].
+[^a]: [[Transgress, Transgression|TG Transgress]].  

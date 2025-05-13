@@ -5,6 +5,6 @@
 [Moroni 7:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p33#p33)
 
 
-[^a]: [[Moroni 10.23|Moro. 10:23.]]
-[^b]: [[Galatians 2.16|Gal. 2:16]]. TG [[Faith]].
-[^c]: [[D&C 88.64|D&C 88:64 (64-65).]]
+[^a]: [[Moroni 10.23|Moro. 10:23]].  
+[^b]: [[Galatians 2.16|Gal. 2:16]]. [[Faith|TG Faith]].  
+[^c]: [[D&C 88.64|D&C 88:64 (64–65)]][[D&C 88.65|]].  

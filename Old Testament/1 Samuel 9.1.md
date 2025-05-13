@@ -5,4 +5,4 @@
 [1 Samuel 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.1?lang=eng#p1)
 
 
-[^a]: [[1 Samuel 14.51|1 Sam. 14:51]]; [[1 Chronicles 8.33|1 Chr. 8:33.]]
+[^a]: [[1 Samuel 14.51|1 Sam. 14:51]]; [[1 Chronicles 8.33|1 Chr. 8:33]].  

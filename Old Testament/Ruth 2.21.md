@@ -5,4 +5,4 @@
 [Ruth 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.21?lang=eng#p21)
 
 
-[^a]: OR close.
+[^a]: OR close.  

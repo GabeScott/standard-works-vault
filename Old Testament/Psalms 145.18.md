@@ -5,5 +5,5 @@
 [Psalms 145:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/145.18?lang=eng#p18)
 
 
-[^a]: [[Psalms 119.151|Ps. 119:151.]]
-[^b]: [[John 4.23|John 4:23 (22-24)]]; [[Moroni 10.4|Moro. 10:4.]]
+[^a]: [[Psalms 119.151|Ps. 119:151]].  
+[^b]: [[John 4.22|John 4:23 (22–24)]][[John 4.23|]][[John 4.24|]]; [[Moroni 10.4|Moro. 10:4]].  

@@ -5,4 +5,4 @@
 [Judges 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.13?lang=eng#p13)
 
 
-[^a]: HEB Then a remnant descended against the nobles; the people of the Lord descended for me against the mighty.
+[^a]: HEB Then a remnant descended against the nobles; the people of the Lord descended for me against the mighty.  

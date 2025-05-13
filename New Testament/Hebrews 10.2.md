@@ -5,5 +5,5 @@
 [Hebrews 10:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.2?lang=eng#p2)
 
 
-[^a]: TG [[Remission of Sins]].
-[^b]: TG [[Peace of God]].
+[^a]: [[Remission of Sins|TG Remission of Sins]].  
+[^b]: [[Peace of God|TG Peace of God]].  

@@ -5,4 +5,4 @@
 [1 Kings 20:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.10?lang=eng#p10)
 
 
-[^a]: [[1 Kings 19.2|1 Kgs. 19:2.]]
+[^a]: [[1 Kings 19.2|1 Kgs. 19:2]].  

@@ -5,5 +5,5 @@
 [Isaiah 57:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.19?lang=eng#p19)
 
 
-[^a]: IE speech. Heb. 13:15.
-[^b]: [[Acts 2.39|Acts 2:39.]]
+[^a]: IE speech. [[Hebrews 13.15|Heb. 13:15]].  
+[^b]: [[Acts 2.39|Acts 2:39]].  

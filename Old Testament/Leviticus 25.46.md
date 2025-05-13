@@ -5,5 +5,5 @@
 [Leviticus 25:46](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.46?lang=eng#p46)
 
 
-[^a]: [[Numbers 36.4|Num. 36:4]]; [[D&C 38.20|D&C 38:20.]]
-[^b]: HEB perpetually.
+[^a]: [[Numbers 36.4|Num. 36:4]]; [[D&C 38.20|D&C 38:20]].  
+[^b]: HEB perpetually.  

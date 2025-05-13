@@ -5,4 +5,4 @@
 [Proverbs 31:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.1?lang=eng#p1)
 
 
-[^a]: TG [[Marriage, Motherhood]].
+[^a]: [[Marriage, Motherhood|TG Marriage, Motherhood]].  

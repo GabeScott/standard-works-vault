@@ -5,6 +5,6 @@
 [John 10:36](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.36?lang=eng#p36)
 
 
-[^a]: TG [[Sanctification, Sanctify]].
-[^b]: TG [[Jesus Christ, Messenger of the Covenant]].
-[^c]: TG [[Jesus Christ, Divine Sonship]].
+[^a]: [[Sanctification, Sanctify|TG Sanctification]].  
+[^b]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  
+[^c]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  

@@ -5,4 +5,4 @@
 [Ezra 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/7.9?lang=eng#p9)
 
 
-[^a]: [[Ezra 7.6|Ezra 7:6.]]
+[^a]: [[Ezra 7.6|Ezra 7:6]].  

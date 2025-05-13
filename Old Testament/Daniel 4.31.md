@@ -5,4 +5,4 @@
 [Daniel 4:31](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.31?lang=eng#p31)
 
 
-[^a]: Dan. 5:20.
+[^a]: [[Daniel 5.20|Dan. 5:20]].  

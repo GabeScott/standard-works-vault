@@ -5,4 +5,4 @@
 [Exodus 22:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.14?lang=eng#p14)
 
 
-[^a]: TG [[Borrow, Borrowing]].
+[^a]: [[Borrow, Borrowing|TG Borrow]].  

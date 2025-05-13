@@ -5,6 +5,6 @@
 [3 Nephi 4:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/4?lang=eng&id=p30#p30)
 
 
-[^a]: [[Alma 29.11|Alma 29:11.]]
-[^b]: [[Genesis 4.26|Gen. 4:26]]; [[Ether 4.15|Ether 4:15]]; [[Moroni 2.2|Moro. 2:2.]]
-[^c]: TG [[Protection, Divine]].
+[^a]: [[Alma 29.11|Alma 29:11]].  
+[^b]: [[Genesis 4.26|Gen. 4:26]]; [[Ether 4.15|Ether 4:15]]; [[Moroni 2.2|Moro. 2:2]].  
+[^c]: [[Protection, Divine|TG Protection, Divine]].  

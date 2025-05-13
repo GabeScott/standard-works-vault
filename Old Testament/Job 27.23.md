@@ -5,4 +5,4 @@
 [Job 27:23](https://www.churchofjesuschrist.org/study/scriptures/ot/job/27.23?lang=eng#p23)
 
 
-[^a]: Lam. 2:15.
+[^a]: [[Lamentations 2.15|Lam. 2:15]].  

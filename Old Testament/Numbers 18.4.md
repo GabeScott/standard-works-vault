@@ -5,5 +5,5 @@
 [Numbers 18:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.4?lang=eng#p4)
 
 
-[^a]: OR attend to the duties of.
-[^b]: OR any unauthorized person.
+[^a]: OR attend to the duties of.  
+[^b]: OR any unauthorized person.  

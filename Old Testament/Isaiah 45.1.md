@@ -5,8 +5,8 @@
 [Isaiah 45:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.1?lang=eng#p1)
 
 
-[^a]: TG [[Foreordination]].
-[^b]: TG [[Governments]].
-[^c]: OR strengthened.
-[^d]: [[Isaiah 41.2|Isa. 41:2]]; Dan. 5:30.
-[^e]: OR double doors.
+[^a]: [[Foreordination|TG Foreordination]].  
+[^b]: [[Governments|TG Governments]].  
+[^c]: OR strengthened.  
+[^d]: [[Isaiah 41.2|Isa. 41:2]]; [[Daniel 5.30|Dan. 5:30]].  
+[^e]: OR double doors.  

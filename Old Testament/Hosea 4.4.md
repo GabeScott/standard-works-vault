@@ -5,4 +5,4 @@
 [Hosea 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.4?lang=eng#p4)
 
 
-[^a]: TG [[Contention]]; [[Strife]].
+[^a]: [[Contention|TG Contention]]; [[Strife|Strife]].  

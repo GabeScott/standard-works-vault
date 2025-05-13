@@ -5,4 +5,4 @@
 [Helaman 6:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p29#p29)
 
 
-[^a]: [[Helaman 2.4|Hel. 2:4 (4-13).]]
+[^a]: [[Helaman 2.4|Hel. 2:4 (4–13)]][[Helaman 2.5|]][[Helaman 2.6|]][[Helaman 2.7|]][[Helaman 2.8|]][[Helaman 2.9|]][[Helaman 2.10|]][[Helaman 2.11|]][[Helaman 2.12|]][[Helaman 2.13|]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 5:31](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.31?lang=eng#p31)
 
 
-[^a]: TG [[Commandments of God]].
-[^b]: [[Ezekiel 20.19|Ezek. 20:19.]]
+[^a]: [[Commandments of God|TG Commandments of God]].  
+[^b]: [[Ezekiel 20.19|Ezek. 20:19]].  

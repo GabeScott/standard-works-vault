@@ -5,6 +5,6 @@
 [Matthew 12:45](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.45?lang=eng#p45)
 
 
-[^a]: JST Matt. 12:39 … the evil spirit, and taketh …
-[^b]: TG [[Spirits, Evil or Unclean]].
-[^d]: [[Alma 24.30|Alma 24:30.]]
+[^a]: JST Matt. 12:39 … the evil spirit, and taketh …  
+[^b]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  
+[^d]: [[Alma 24.30|Alma 24:30]].  

@@ -5,6 +5,6 @@
 [Hebrews 7:28](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.28?lang=eng#p28)
 
 
-[^a]: TG [[Oath]].
-[^b]: TG [[Jesus Christ, Divine Sonship]].
-[^c]: GR perfected.
+[^a]: [[Oath|TG Oath]].  
+[^b]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  
+[^c]: GR perfected.  

@@ -5,5 +5,5 @@
 [Alma 20:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/20?lang=eng&id=p9#p9)
 
 
-[^a]: [[1 Samuel 20.27|1 Sam. 20:27.]]
-[^b]: [[Alma 18.9|Alma 18:9.]]
+[^a]: [[1 Samuel 20.27|1 Sam. 20:27]].  
+[^b]: [[Alma 18.9|Alma 18:9]].  

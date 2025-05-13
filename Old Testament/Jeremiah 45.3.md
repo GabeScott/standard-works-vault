@@ -5,4 +5,4 @@
 [Jeremiah 45:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/45.3?lang=eng#p3)
 
 
-[^a]: Lam. 1:3.
+[^a]: [[Lamentations 1.3|Lam. 1:3]].  

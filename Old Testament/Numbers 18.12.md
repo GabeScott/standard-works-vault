@@ -5,4 +5,4 @@
 [Numbers 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.12?lang=eng#p12)
 
 
-[^a]: [[Deuteronomy 18.4|Deut. 18:4.]]
+[^a]: [[Deuteronomy 18.4|Deut. 18:4]].  

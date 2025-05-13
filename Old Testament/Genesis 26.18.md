@@ -5,4 +5,4 @@
 [Genesis 26:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 21.31|Gen. 21:31.]]
+[^a]: [[Genesis 21.31|Gen. 21:31]].  

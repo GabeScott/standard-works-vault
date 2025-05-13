@@ -5,5 +5,5 @@
 [Moroni 8:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p3#p3)
 
 
-[^a]: [[Exodus 34.6|Ex. 34:6 (5-7)]]; [[Mosiah 4.11|Mosiah 4:11.]]
-[^b]: TG [[Grace]].
+[^a]: [[Exodus 34.5|Ex. 34:6 (5–7)]][[Exodus 34.6|]][[Exodus 34.7|]]; [[Mosiah 4.11|Mosiah 4:11]].  
+[^b]: [[Grace|TG Grace]].  

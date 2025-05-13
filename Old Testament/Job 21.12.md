@@ -5,4 +5,4 @@
 [Job 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/21.12?lang=eng#p12)
 
 
-[^a]: HEB flute.
+[^a]: HEB flute.  

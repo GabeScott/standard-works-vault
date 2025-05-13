@@ -5,4 +5,4 @@
 [Deuteronomy 20:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.19?lang=eng#p19)
 
 
-[^a]: HEB for are the trees in the field men, that you should besiege them?
+[^a]: HEB for are the trees in the field men, that you should besiege them?  

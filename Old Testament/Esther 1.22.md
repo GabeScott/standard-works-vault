@@ -5,5 +5,5 @@
 [Esther 1:22](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.22?lang=eng#p22)
 
 
-[^a]: [[Esther 8.9|Esth. 8:9.]]
-[^b]: [[1 Timothy 3.5|1 Tim. 3:5 (4-5)]]; [[D&C 93.43|D&C 93:43 (41-43, 50).]]
+[^a]: [[Esther 8.9|Esth. 8:9]].  
+[^b]: [[1 Timothy 3.4|1 Tim. 3:5 (4–5)]][[1 Timothy 3.5|]]; [[D&C 93.41|D&C 93:43 (41–43, 50)]][[D&C 93.42|]][[D&C 93.43|]][[D&C 93.50|]].  

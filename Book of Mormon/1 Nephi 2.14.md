@@ -9,6 +9,6 @@
 	- Lehi wanted to overthrow the natural man in Laman and Lemuel, so that the good would win out.
 
 
-[^a]: [[1 Nephi 9.1|1 Ne. 9:1]]; [[1 Nephi 16.6|16:6 (6, 12).]]
-[^b]: TG [[Priesthood, Power of]].
-[^c]: [[1 Nephi 17.45|1 Ne. 17:45.]]
+[^a]: [[1 Nephi 9.1|1 Ne. 9:1]]; [[1 Nephi 16.6|16:6 (6, 12)]][[1 Nephi 16.12|]].  
+[^b]: [[Priesthood, Power of|TG Priesthood, Power of]].  
+[^c]: [[1 Nephi 17.45|1 Ne. 17:45]].  

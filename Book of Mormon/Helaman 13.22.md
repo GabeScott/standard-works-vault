@@ -5,7 +5,7 @@
 [Helaman 13:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p22#p22)
 
 
-[^a]: [[Luke 12.34|Luke 12:34.]]
-[^b]: TG [[Boast, Boasting]].
-[^c]: [[Alma 30.31|Alma 30:31.]]
-[^d]: TG [[Envy, Envious]].
+[^a]: [[Luke 12.34|Luke 12:34]].  
+[^b]: [[Boast, Boasting|TG Boast]].  
+[^c]: [[Alma 30.31|Alma 30:31]].  
+[^d]: [[Envy, Envious|TG Envy]].  

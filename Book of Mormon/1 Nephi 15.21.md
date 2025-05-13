@@ -5,4 +5,4 @@
 [1 Nephi 15:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p21#p21)
 
 
-[^a]: [[1 Nephi 8.10|1 Ne. 8:10 (10-12).]]
+[^a]: [[1 Nephi 8.10|1 Ne. 8:10 (10–12)]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].  

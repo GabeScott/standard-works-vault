@@ -5,6 +5,6 @@
 [1 Nephi 5:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p8#p8)
 
 
-[^a]: [[1 Nephi 2.2|1 Ne. 2:2.]]
-[^b]: [[Genesis 19.14|Gen. 19:14.]]
-[^c]: [[1 Nephi 3.7|1 Ne. 3:7.]]
+[^a]: [[1 Nephi 2.2|1 Ne. 2:2]].  
+[^b]: [[Genesis 19.14|Gen. 19:14]].  
+[^c]: [[1 Nephi 3.7|1 Ne. 3:7]].  

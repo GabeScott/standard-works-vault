@@ -5,4 +5,4 @@
 [Psalms 121:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/121.8?lang=eng#p8)
 
 
-[^a]: [[Deuteronomy 28.6|Deut. 28:6.]]
+[^a]: [[Deuteronomy 28.6|Deut. 28:6]].  

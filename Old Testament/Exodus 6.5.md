@@ -5,5 +5,5 @@
 [Exodus 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 2.24|Ex. 2:24 (23-24).]]
-[^b]: TG [[Bondage, Physical]].
+[^a]: [[Exodus 2.23|Ex. 2:24 (23–24)]][[Exodus 2.24|]].  
+[^b]: [[Bondage, Physical|TG Bondage, Physical]].  

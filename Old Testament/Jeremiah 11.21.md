@@ -5,4 +5,4 @@
 [Jeremiah 11:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.21?lang=eng#p21)
 
 
-[^a]: TG [[Prophets, Rejection of]].
+[^a]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

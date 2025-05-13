@@ -5,6 +5,6 @@
 [Proverbs 15:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.10?lang=eng#p10)
 
 
-[^a]: [[1 Nephi 16.2|1 Ne. 16:2]]; [[2 Nephi 1.26|2 Ne. 1:26]]; [[2 Nephi 9.40|9:40]]; [[Mosiah 13.7|Mosiah 13:7.]]
-[^b]: TG [[Reproof, Reprove]].
-[^c]: [[Proverbs 14.12|Prov. 14:12.]]
+[^a]: [[1 Nephi 16.2|1 Ne. 16:2]]; [[2 Nephi 1.26|2 Ne. 1:26]]; [[2 Nephi 9.40|9:40]]; [[Mosiah 13.7|Mosiah 13:7]].  
+[^b]: [[Reproof, Reprove|TG Reproof]].  
+[^c]: [[Proverbs 14.12|Prov. 14:12]].  

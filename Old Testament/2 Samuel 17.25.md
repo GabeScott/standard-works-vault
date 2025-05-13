@@ -5,5 +5,5 @@
 [2 Samuel 17:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/17.25?lang=eng#p25)
 
 
-[^a]: [[2 Samuel 19.13|2 Sam. 19:13]]; [[1 Chronicles 12.18|1 Chr. 12:18.]]
-[^b]: [[1 Kings 2.28|1 Kgs. 2:28.]]
+[^a]: [[2 Samuel 19.13|2 Sam. 19:13]]; [[1 Chronicles 12.18|1 Chr. 12:18]].  
+[^b]: [[1 Kings 2.28|1 Kgs. 2:28]].  

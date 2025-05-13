@@ -5,5 +5,5 @@
 [Abraham 1:17](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.17?lang=eng#p17)
 
 
-[^a]: TG [[Assembly for Worship]].
-[^b]: [[1 Nephi 13.34|1 Ne. 13:34]]; [[D&C 124.8|D&C 124:8.]]
+[^a]: [[Worship|TG Worship]].  
+[^b]: [[1 Nephi 13.34|1 Ne. 13:34]]; [[D&C 124.8|D&C 124:8]].  

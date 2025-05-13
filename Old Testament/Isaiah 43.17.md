@@ -5,5 +5,5 @@
 [Isaiah 43:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.17?lang=eng#p17)
 
 
-[^a]: IE die.
-[^b]: OR extinguished as smoldering flax.
+[^a]: IE die.  
+[^b]: OR extinguished as smoldering flax.  

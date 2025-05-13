@@ -5,4 +5,4 @@
 [Judges 15:7](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/15.7?lang=eng#p7)
 
 
-[^a]: OR If you act in this way.
+[^a]: OR If you act in this way.  

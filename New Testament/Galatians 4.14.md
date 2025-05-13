@@ -5,4 +5,4 @@
 [Galatians 4:14](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.14?lang=eng#p14)
 
 
-[^a]: GR trial, test.
+[^a]: GR trial, test.  

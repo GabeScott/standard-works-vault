@@ -5,4 +5,4 @@
 [2 Corinthians 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.6?lang=eng#p6)
 
 
-[^a]: GR of good courage, of good cheer.
+[^a]: GR of good courage, of good cheer.  

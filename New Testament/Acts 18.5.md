@@ -5,6 +5,6 @@
 [Acts 18:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.5?lang=eng#p5)
 
 
-[^a]: 1 Thes. 1:1.
-[^b]: [[Alma 7.26|Alma 7:26 (16, 26).]]
-[^c]: TG [[Jesus Christ, Messiah]].
+[^a]: [[1 Thessalonians 1.1|1 Thes. 1:1]].  
+[^b]: [[Alma 7.16|Alma 7:26 (16, 26)]][[Alma 7.26|]].  
+[^c]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  

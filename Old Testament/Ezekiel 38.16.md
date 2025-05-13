@@ -5,7 +5,7 @@
 [Ezekiel 38:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.16?lang=eng#p16)
 
 
-[^a]: [[Luke 21.20|Luke 21:20 (20-24)]]; [[Revelation 16.16|Rev. 16:16.]]
-[^b]: [[Jeremiah 30.24|Jer. 30:24.]]
-[^c]: TG [[Conversion, Convert]].
-[^d]: HEB through thee.
+[^a]: [[Luke 21.20|Luke 21:20 (20–24)]][[Luke 21.21|]][[Luke 21.22|]][[Luke 21.23|]][[Luke 21.24|]]; [[Revelation 16.16|Rev. 16:16]].  
+[^b]: [[Jeremiah 30.24|Jer. 30:24]].  
+[^c]: [[Conversion, Convert|TG Conversion]].  
+[^d]: HEB through thee.  

@@ -5,5 +5,5 @@
 [2 Nephi 1:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Peculiar People]].
-[^b]: [[Hosea 14.9|Hosea 14:9.]]
+[^a]: [[Peculiar People|TG Peculiar People]].  
+[^b]: [[Hosea 14.9|Hosea 14:9]].  

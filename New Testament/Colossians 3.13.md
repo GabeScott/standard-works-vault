@@ -5,5 +5,5 @@
 [Colossians 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.13?lang=eng#p13)
 
 
-[^a]: TG [[Forbear, Forbearance]].
-[^b]: [[Mosiah 26.31|Mosiah 26:31 (30-31).]]
+[^a]: [[Forbear, Forbearance|TG Forbear]].  
+[^b]: [[Mosiah 26.30|Mosiah 26:31 (30–31)]][[Mosiah 26.31|]].  

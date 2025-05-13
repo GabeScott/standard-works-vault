@@ -5,6 +5,6 @@
 [James 2:26](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.26?lang=eng#p26)
 
 
-[^a]: TG [[Spirit Body]]; [[Spirits, Disembodied]].
-[^b]: TG [[Death]].
-[^c]: TG [[Good Works]].
+[^a]: [[Spirit Body|TG Spirit Body]]; [[Spirits, Disembodied|Spirits, Disembodied]].  
+[^b]: [[Death|TG Death]].  
+[^c]: [[Good Works|TG Good Works]].  

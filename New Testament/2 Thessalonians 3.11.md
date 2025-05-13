@@ -5,4 +5,4 @@
 [2 Thessalonians 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.11?lang=eng#p11)
 
 
-[^a]: 1 Thes. 5:14.
+[^a]: [[1 Thessalonians 5.14|1 Thes. 5:14]].  

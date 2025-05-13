@@ -5,5 +5,5 @@
 [2 Thessalonians 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.7?lang=eng#p7)
 
 
-[^a]: GR imitate.
-[^b]: 1 Thes. 1:5.
+[^a]: GR imitate.  
+[^b]: [[1 Thessalonians 1.5|1 Thes. 1:5]].  

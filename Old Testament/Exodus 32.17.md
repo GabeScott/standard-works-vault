@@ -5,5 +5,5 @@
 [Exodus 32:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.17?lang=eng#p17)
 
 
-[^a]: [[Exodus 17.9|Ex. 17:9]]; [[Exodus 24.13|24:13]]; [[Exodus 33.11|33:11.]]
-[^b]: TG [[Rioting and Reveling]].
+[^a]: [[Exodus 17.9|Ex. 17:9]]; [[Exodus 24.13|24:13]]; [[Exodus 33.11|33:11]].  
+[^b]: [[Rioting and Reveling|TG Rioting and Reveling]].  

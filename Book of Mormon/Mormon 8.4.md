@@ -5,4 +5,4 @@
 [Mormon 8:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mormon 5.12|Morm. 5:12]]; [[Moroni 10.2|Moro. 10:2 (1-2).]]
+[^a]: [[Mormon 5.12|Morm. 5:12]]; [[Moroni 10.1|Moro. 10:2 (1–2)]][[Moroni 10.2|]].  

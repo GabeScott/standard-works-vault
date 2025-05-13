@@ -5,4 +5,4 @@
 [Joshua 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3.13?lang=eng#p13)
 
 
-[^a]: [[Exodus 15.8|Ex. 15:8.]]
+[^a]: [[Exodus 15.8|Ex. 15:8]].  

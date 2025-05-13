@@ -5,5 +5,5 @@
 [Isaiah 46:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.1?lang=eng#p1)
 
 
-[^a]: Bel and Nebo are idol-gods. Jer. 50:2.
-[^b]: IE Instead of idols helping man, man has to carry them.
+[^a]: Bel and Nebo are idol-gods. [[Jeremiah 50.2|Jer. 50:2]].  
+[^b]: IE Instead of idols helping man, man has to carry them.  

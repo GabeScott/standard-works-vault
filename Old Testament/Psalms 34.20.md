@@ -5,4 +5,4 @@
 [Psalms 34:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.20?lang=eng#p20)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

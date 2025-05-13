@@ -5,4 +5,4 @@
 [Mosiah 12:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/12?lang=eng&id=p24#p24)
 
 
-[^a]: [[Isaiah 33.2|Isa. 33:2]]; [[Omni 1.13|Omni 1:13.]]
+[^a]: [[Isaiah 33.2|Isa. 33:2]]; [[Omni 1.13|Omni 1:13]].  

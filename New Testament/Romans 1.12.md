@@ -5,4 +5,4 @@
 [Romans 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.12?lang=eng#p12)
 
 
-[^a]: TG [[Sustaining Church Leaders]].
+[^a]: [[Sustaining Church Leaders|TG Sustaining Church Leaders]].  

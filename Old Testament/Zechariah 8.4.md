@@ -5,4 +5,4 @@
 [Zechariah 8:4](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.4?lang=eng#p4)
 
 
-[^a]: TG [[Old Age]].
+[^a]: [[Old Age|TG Old Age]].  

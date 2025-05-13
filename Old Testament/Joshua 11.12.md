@@ -5,4 +5,4 @@
 [Joshua 11:12](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/11.12?lang=eng#p12)
 
 
-[^a]: [[Deuteronomy 20.17|Deut. 20:17 (17-18).]]
+[^a]: [[Deuteronomy 20.17|Deut. 20:17 (17–18)]][[Deuteronomy 20.18|]].  

@@ -5,4 +5,4 @@
 [Proverbs 21:30](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.30?lang=eng#p30)
 
 
-[^a]: TG [[Understanding]].
+[^a]: [[Understanding|TG Understanding]].  

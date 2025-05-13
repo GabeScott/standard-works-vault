@@ -5,6 +5,6 @@
 [Ether 2:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p10#p10)
 
 
-[^a]: [[Jarom 1.12|Jarom 1:12.]]
-[^b]: [[2 Nephi 28.16|2 Ne. 28:16.]]
-[^c]: [[1 Nephi 17.37|1 Ne. 17:37.]]
+[^a]: [[Jarom 1.12|Jarom 1:12]].  
+[^b]: [[2 Nephi 28.16|2 Ne. 28:16]].  
+[^c]: [[1 Nephi 17.37|1 Ne. 17:37]].  

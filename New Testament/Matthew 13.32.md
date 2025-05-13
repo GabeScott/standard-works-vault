@@ -5,4 +5,4 @@
 [Matthew 13:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.32?lang=eng#p32)
 
 
-[^a]: TG [[Nature, Earth]].
+[^a]: [[Nature, Earth|TG Nature, Earth]].  

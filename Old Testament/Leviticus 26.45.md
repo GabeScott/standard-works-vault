@@ -5,4 +5,4 @@
 [Leviticus 26:45](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.45?lang=eng#p45)
 
 
-[^a]: [[Psalms 98.2|Ps. 98:2.]]
+[^a]: [[Psalms 98.2|Ps. 98:2]].  

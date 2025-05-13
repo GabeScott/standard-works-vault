@@ -5,7 +5,7 @@
 [Galatians 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.8?lang=eng#p8)
 
 
-[^a]: TG [[Heathen]].
-[^b]: TG [[Gospel]].
-[^c]: TG [[Israel, Mission of]].
-[^d]: TG [[Mission of Latter-day Saints]].
+[^a]: [[Heathen|TG Heathen]].  
+[^b]: [[Gospel|TG Gospel]].  
+[^c]: [[Israel, Mission of|TG Israel, Mission of]].  
+[^d]: [[Mission of Latter-day Saints|TG Mission of Latter-day Saints]].  

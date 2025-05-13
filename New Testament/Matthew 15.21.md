@@ -5,4 +5,4 @@
 [Matthew 15:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.21?lang=eng#p21)
 
 
-[^a]: GR regions.
+[^a]: GR regions.  

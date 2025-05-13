@@ -5,4 +5,4 @@
 [Luke 10:41](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.41?lang=eng#p41)
 
 
-[^a]: GR worried.
+[^a]: GR worried.  

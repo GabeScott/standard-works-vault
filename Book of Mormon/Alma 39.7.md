@@ -5,4 +5,4 @@
 [Alma 39:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Guiltless]].
+[^a]: [[Guilt, Guilty|TG Guilt]].  

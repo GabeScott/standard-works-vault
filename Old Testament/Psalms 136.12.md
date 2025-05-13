@@ -5,4 +5,4 @@
 [Psalms 136:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.12?lang=eng#p12)
 
 
-[^a]: [[Deuteronomy 4.34|Deut. 4:34 (33-35).]]
+[^a]: [[Deuteronomy 4.33|Deut. 4:34 (33–35)]][[Deuteronomy 4.34|]][[Deuteronomy 4.35|]].  

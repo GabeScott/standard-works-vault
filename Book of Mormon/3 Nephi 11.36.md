@@ -5,5 +5,5 @@
 [3 Nephi 11:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p36#p36)
 
 
-[^a]: TG [[Holy Ghost, Source of Testimony]].
-[^b]: TG [[Godhead]]; [[Unity]].
+[^a]: [[Holy Ghost, Source of Testimony|TG Holy Ghost, Source of Testimony]].  
+[^b]: [[Godhead|TG Godhead]]; [[Unity|Unity]].  

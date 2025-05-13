@@ -5,5 +5,5 @@
 [1 John 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.20?lang=eng#p20)
 
 
-[^a]: GR anointing.
-[^b]: TG [[Holiness]].
+[^a]: GR anointing.  
+[^b]: [[Holiness|TG Holiness]].  

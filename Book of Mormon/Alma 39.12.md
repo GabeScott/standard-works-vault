@@ -5,6 +5,6 @@
 [Alma 39:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Commandments of God]]; [[Teaching with the Spirit]].
-[^b]: TG [[Peer Influence]].
-[^c]: TG [[Abstain, Abstinence]].
+[^a]: [[Commandments of God|TG Commandments of God]]; [[Teaching, Teach, Taught|Teaching]].  
+[^b]: [[Peer Influence|TG Peer Influence]].  
+[^c]: [[Abstain, Abstinence|TG Abstain]].  

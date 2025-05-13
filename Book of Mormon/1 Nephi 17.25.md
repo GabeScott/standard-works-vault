@@ -5,6 +5,6 @@
 [1 Nephi 17:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p25#p25)
 
 
-[^a]: [[Genesis 15.13|Gen. 15:13 (13-14)]]; [[Mosiah 11.21|Mosiah 11:21]]; [[D&C 101.79|D&C 101:79]]. TG [[Israel, Bondage of, in Egypt]].
-[^b]: [[Exodus 1.11|Ex. 1:11 (10-11)]]; [[Exodus 2.11|2:11]]; [[1 Nephi 20.10|1 Ne. 20:10.]]
-[^c]: [[Exodus 5.1|Ex. 5:1.]]
+[^a]: [[Genesis 15.13|Gen. 15:13 (13–14)]][[Genesis 15.14|]]; [[Mosiah 11.21|Mosiah 11:21]]; [[D&C 101.79|D&C 101:79]]. [[Israel, Bondage of, in Egypt|TG Israel, Bondage of, in Egypt]].  
+[^b]: [[Exodus 1.10|Ex. 1:11 (10–11)]][[Exodus 1.11|]]; [[Exodus 2.11|2:11]]; [[1 Nephi 20.10|1 Ne. 20:10]].  
+[^c]: [[Exodus 5.1|Ex. 5:1]].  

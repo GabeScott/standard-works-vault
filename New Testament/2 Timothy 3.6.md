@@ -5,5 +5,5 @@
 [2 Timothy 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.6?lang=eng#p6)
 
 
-[^a]: TG [[Woman, Women]].
-[^b]: TG [[Lust]].
+[^a]: [[Woman, Women|TG Woman]].  
+[^b]: [[Lust|TG Lust]].  

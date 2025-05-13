@@ -5,4 +5,4 @@
 [Genesis 47:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.28?lang=eng#p28)
 
 
-[^a]: [[Genesis 25.7|Gen. 25:7]]; [[Genesis 35.28|35:28.]]
+[^a]: [[Genesis 25.7|Gen. 25:7]]; [[Genesis 35.28|35:28]].  

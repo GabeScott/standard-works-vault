@@ -5,4 +5,4 @@
 [Alma 14:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/14?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[Martyrdom]].
+[^a]: [[Martyrdom|TG Martyrdom]].  

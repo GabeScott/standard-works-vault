@@ -5,4 +5,4 @@
 [Alma 32:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p8#p8)
 
 
-[^a]: [[Matthew 5.5|Matt. 5:5 (3-5).]]
+[^a]: [[Matthew 5.3|Matt. 5:5 (3–5)]][[Matthew 5.4|]][[Matthew 5.5|]].  

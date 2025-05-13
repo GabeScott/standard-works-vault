@@ -5,4 +5,4 @@
 [2 Nephi 24:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p21#p21)
 
 
-[^a]: [[Exodus 20.5|Ex. 20:5.]]
+[^a]: [[Exodus 20.5|Ex. 20:5]].  

@@ -5,4 +5,4 @@
 [Job 19:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.22?lang=eng#p22)
 
 
-[^a]: IE the state of my body, or suffering.
+[^a]: IE the state of my body, or suffering.  

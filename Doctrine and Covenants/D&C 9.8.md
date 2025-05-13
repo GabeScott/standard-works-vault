@@ -5,9 +5,9 @@
 [D&C 9:8](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/9.8?lang=eng#p8)
 
 
-[^a]: [[Acts 1.24|Acts 1:24 (22-26)]]. TG [[Knowledge]]; [[Meditation, Meditate]]; [[Problem-Solving]]; [[Study]]; [[Testimony]].
-[^b]: TG [[Mind, Minded]].
-[^c]: TG [[Communication]]; [[Prayer, Pray]].
-[^d]: [[Luke 24.32|Luke 24:32.]]
-[^e]: TG [[Inspiration, Inspire]]; [[Revelation]].
-[^f]: [[D&C 8.2|D&C 8:2 (2-3)]]. TG [[Holy Ghost, Source of Testimony]].
+[^a]: [[Acts 1.22|Acts 1:24 (22–26)]][[Acts 1.23|]][[Acts 1.24|]][[Acts 1.25|]][[Acts 1.26|]]. [[Knowledge|TG Knowledge]]; [[Meditation, Meditate|Meditation]]; [[Problem-Solving|Problem-Solving]]; [[Study|Study]]; [[Testimony|Testimony]].  
+[^b]: [[Mind, Minded|TG Mind]].  
+[^c]: [[Communication|TG Communication]]; [[Prayer, Pray|Prayer]].  
+[^d]: [[Luke 24.32|Luke 24:32]].  
+[^e]: [[Inspiration, Inspire|TG Inspiration]]; [[Revelation|Revelation]].  
+[^f]: [[D&C 8.2|D&C 8:2 (2–3)]][[D&C 8.3|]]. [[Holy Ghost, Source of Testimony|TG Holy Ghost, Source of Testimony]].  

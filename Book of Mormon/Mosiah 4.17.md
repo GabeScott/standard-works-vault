@@ -5,4 +5,4 @@
 [Mosiah 4:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p17#p17)
 
 
-[^a]: [[Proverbs 17.5|Prov. 17:5.]]
+[^a]: [[Proverbs 17.5|Prov. 17:5]].  

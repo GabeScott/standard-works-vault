@@ -5,5 +5,5 @@
 [Acts 19:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.21?lang=eng#p21)
 
 
-[^a]: [[Acts 20.22|Acts 20:22.]]
-[^b]: [[Acts 23.11|Acts 23:11.]]
+[^a]: [[Acts 20.22|Acts 20:22]].  
+[^b]: [[Acts 23.11|Acts 23:11]].  

@@ -5,6 +5,6 @@
 [2 Kings 23:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.15?lang=eng#p15)
 
 
-[^a]: [[1 Kings 12.28|1 Kgs. 12:28 (28-33).]]
-[^b]: TG [[Apostasy of Israel]].
-[^c]: [[Amos 3.14|Amos 3:14.]]
+[^a]: [[1 Kings 12.28|1 Kgs. 12:28 (28–33)]][[1 Kings 12.29|]][[1 Kings 12.30|]][[1 Kings 12.31|]][[1 Kings 12.32|]][[1 Kings 12.33|]].  
+[^b]: [[Apostasy of Israel|TG Apostasy of Israel]].  
+[^c]: [[Amos 3.14|Amos 3:14]].  

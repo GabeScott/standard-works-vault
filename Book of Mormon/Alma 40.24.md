@@ -5,4 +5,4 @@
 [Alma 40:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p24#p24)
 
 
-[^a]: [[Isaiah 26.19|Isa. 26:19]]. TG [[Jesus Christ, Resurrection]].
+[^a]: [[Isaiah 26.19|Isa. 26:19]]. [[Resurrection|TG Resurrection]].  

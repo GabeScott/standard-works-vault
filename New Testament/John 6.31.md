@@ -5,4 +5,4 @@
 [John 6:31](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.31?lang=eng#p31)
 
 
-[^a]: [[Psalms 78.24|Ps. 78:24.]]
+[^a]: [[Psalms 78.24|Ps. 78:24]].  

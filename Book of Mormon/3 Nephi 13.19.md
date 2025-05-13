@@ -5,4 +5,4 @@
 [3 Nephi 13:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p19#p19)
 
 
-[^a]: [[3 Nephi 27.32|3 Ne. 27:32.]]
+[^a]: [[3 Nephi 27.32|3 Ne. 27:32]].  

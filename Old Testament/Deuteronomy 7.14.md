@@ -5,4 +5,4 @@
 [Deuteronomy 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.14?lang=eng#p14)
 
 
-[^a]: TG [[Barren, Barrenness]].
+[^a]: [[Barren, Barrenness|TG Barren]].  

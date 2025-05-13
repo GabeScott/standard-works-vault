@@ -5,5 +5,5 @@
 [Joshua 20:3](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/20.3?lang=eng#p3)
 
 
-[^a]: [[D&C 134.2|D&C 134:2 (2-5).]]
-[^b]: HEB by mistake, or by accident.
+[^a]: [[D&C 134.2|D&C 134:2 (2–5)]][[D&C 134.3|]][[D&C 134.4|]][[D&C 134.5|]].  
+[^b]: HEB by mistake, or by accident.  

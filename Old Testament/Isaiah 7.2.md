@@ -5,4 +5,4 @@
 [Isaiah 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.2?lang=eng#p2)
 
 
-[^a]: IE All northern Israel was called by the name of Ephraim, the leading northern tribe.
+[^a]: IE All northern Israel was called by the name of Ephraim, the leading northern tribe.  

@@ -5,4 +5,4 @@
 [Deuteronomy 14:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.19?lang=eng#p19)
 
 
-[^a]: OR winged insect.
+[^a]: OR winged insect.  

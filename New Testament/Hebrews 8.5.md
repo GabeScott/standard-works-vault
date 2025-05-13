@@ -5,6 +5,6 @@
 [Hebrews 8:5](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/8.5?lang=eng#p5)
 
 
-[^a]: TG [[Jesus Christ, Types of, in Anticipation]].
-[^b]: [[Exodus 35.11|Ex. 35:11.]]
-[^c]: [[Acts 7.44|Acts 7:44.]]
+[^a]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]].  
+[^b]: [[Exodus 35.11|Ex. 35:11]].  
+[^c]: [[Acts 7.44|Acts 7:44]].  

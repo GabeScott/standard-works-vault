@@ -5,6 +5,6 @@
 [Proverbs 20:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.3?lang=eng#p3)
 
 
-[^a]: TG [[Strife]].
-[^b]: [[Ether 12.26|Ether 12:26.]]
-[^c]: IE fomenting trouble.
+[^a]: [[Strife|TG Strife]].  
+[^b]: [[Ether 12.26|Ether 12:26]].  
+[^c]: IE fomenting trouble.  

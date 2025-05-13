@@ -5,6 +5,6 @@
 [Exodus 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.22?lang=eng#p22)
 
 
-[^a]: [[Acts 7.29|Acts 7:29.]]
-[^b]: IE A sojourner there. Ex. 18:3 (2-3); [[1 Chronicles 23.15|1 Chr. 23:15.]]
-[^c]: TG [[Stranger]].
+[^a]: [[Acts 7.29|Acts 7:29]].  
+[^b]: IE A sojourner there. [[Exodus 18.2|Ex. 18:3 (2–3)]][[Exodus 18.3|]]; [[1 Chronicles 23.15|1 Chr. 23:15]].  
+[^c]: [[Stranger|TG Stranger]].  

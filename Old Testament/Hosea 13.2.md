@@ -5,4 +5,4 @@
 [Hosea 13:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 27.15|Deut. 27:15.]]
+[^a]: [[Deuteronomy 27.15|Deut. 27:15]].  

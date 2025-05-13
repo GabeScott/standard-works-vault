@@ -5,5 +5,5 @@
 [Leviticus 19:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.20?lang=eng#p20)
 
 
-[^a]: HEB a man.
-[^b]: HEB there shall be an investigation or inquisition.
+[^a]: HEB a man.  
+[^b]: HEB there shall be an investigation or inquisition.  

@@ -5,4 +5,4 @@
 [Genesis 19:38](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.38?lang=eng#p38)
 
 
-[^a]: [[Deuteronomy 2.19|Deut. 2:19 (18-19)]]; [[Ezekiel 25.2|Ezek. 25:2.]]
+[^a]: [[Deuteronomy 2.18|Deut. 2:19 (18–19)]][[Deuteronomy 2.19|]]; [[Ezekiel 25.2|Ezek. 25:2]].  

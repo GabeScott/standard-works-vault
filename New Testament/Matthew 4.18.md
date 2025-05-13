@@ -5,4 +5,4 @@
 [Matthew 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.18?lang=eng#p18)
 
 
-[^a]: TG [[Skill]].
+[^a]: [[Skill|TG Skill]].  

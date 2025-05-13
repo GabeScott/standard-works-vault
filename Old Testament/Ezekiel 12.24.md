@@ -5,5 +5,5 @@
 [Ezekiel 12:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.24?lang=eng#p24)
 
 
-[^a]: TG [[Flatter, Flattery]].
-[^b]: TG [[Sorcery]].
+[^a]: [[Flatter, Flattery|TG Flatter]].  
+[^b]: [[Sorcery|TG Sorcery]].  

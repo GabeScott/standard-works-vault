@@ -5,4 +5,4 @@
 [Moses 7:29](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.29?lang=eng#p29)
 
 
-[^a]: [[Isaiah 63.9|Isa. 63:9 (7-10).]]
+[^a]: [[Isaiah 63.9|Isa. 63:9 (7–10)]].  

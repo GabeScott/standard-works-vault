@@ -5,4 +5,4 @@
 [Exodus 35:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.29?lang=eng#p29)
 
 
-[^a]: OR freewill.
+[^a]: OR freewill.  

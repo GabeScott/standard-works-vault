@@ -5,5 +5,5 @@
 [Luke 1:73](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.73?lang=eng#p73)
 
 
-[^a]: TG [[Oath]]; [[Vow]].
-[^b]: TG [[Family, Patriarchal]].
+[^a]: [[Oath|TG Oath]]; [[Vow|Vow]].  
+[^b]: [[Family, Patriarchal|TG Family, Patriarchal]].  

@@ -5,6 +5,6 @@
 [Matthew 9:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.35?lang=eng#p35)
 
 
-[^a]: [[Matthew 4.23|Matt. 4:23.]]
-[^b]: [[D&C 84.80|D&C 84:80 (79-80)]]; JS—M 1:31.
-[^c]: [[Mosiah 3.5|Mosiah 3:5.]]
+[^a]: [[Matthew 4.23|Matt. 4:23]].  
+[^b]: [[D&C 84.79|D&C 84:80 (79–80)]][[D&C 84.80|]]; [[Joseph Smith Matthew 1.31|JS—M 1:31]].  
+[^c]: [[Mosiah 3.5|Mosiah 3:5]].  

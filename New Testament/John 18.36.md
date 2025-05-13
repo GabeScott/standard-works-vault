@@ -5,5 +5,5 @@
 [John 18:36](https://www.churchofjesuschrist.org/study/scriptures/nt/john/18.36?lang=eng#p36)
 
 
-[^a]: [[John 6.15|John 6:15.]]
-[^b]: TG [[World, End of]].
+[^a]: [[John 6.15|John 6:15]].  
+[^b]: [[World|TG World]].  

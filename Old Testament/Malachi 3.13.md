@@ -5,4 +5,4 @@
 [Malachi 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.13?lang=eng#p13)
 
 
-[^a]: OR strong.
+[^a]: OR strong.  

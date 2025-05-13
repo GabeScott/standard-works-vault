@@ -5,4 +5,4 @@
 [Zechariah 11:17](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/11.17?lang=eng#p17)
 
 
-[^a]: [[Jeremiah 23.1|Jer. 23:1.]]
+[^a]: [[Jeremiah 23.1|Jer. 23:1]].  

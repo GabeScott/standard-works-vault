@@ -5,4 +5,4 @@
 [Jeremiah 22:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.7?lang=eng#p7)
 
 
-[^a]: [[Isaiah 37.24|Isa. 37:24.]]
+[^a]: [[Isaiah 37.24|Isa. 37:24]].  

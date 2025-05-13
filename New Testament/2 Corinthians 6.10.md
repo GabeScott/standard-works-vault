@@ -5,6 +5,6 @@
 [2 Corinthians 6:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/6.10?lang=eng#p10)
 
 
-[^a]: TG [[Mourning, Mourn]].
-[^b]: [[2 Corinthians 8.9|2 Cor. 8:9.]]
-[^c]: TG [[Treasure]].
+[^a]: [[Mourning, Mourn|TG Mourning]].  
+[^b]: [[2 Corinthians 8.9|2 Cor. 8:9]].  
+[^c]: [[Treasure|TG Treasure]].  

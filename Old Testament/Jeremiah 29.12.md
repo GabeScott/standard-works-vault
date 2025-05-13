@@ -5,5 +5,5 @@
 [Jeremiah 29:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.12?lang=eng#p12)
 
 
-[^a]: [[1 Kings 8.48|1 Kgs. 8:48.]]
-[^b]: HEB hear you.
+[^a]: [[1 Kings 8.48|1 Kgs. 8:48]].  
+[^b]: HEB hear you.  

@@ -5,4 +5,4 @@
 [John 18:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/18.13?lang=eng#p13)
 
 
-[^a]: [[Matthew 26.57|Matt. 26:57]]; [[Luke 3.2|Luke 3:2]]. TG [[Jesus Christ, Trials of]].
+[^a]: [[Matthew 26.57|Matt. 26:57]]; [[Luke 3.2|Luke 3:2]]. [[Jesus Christ, Trials of|TG Jesus Christ, Trials of]].  

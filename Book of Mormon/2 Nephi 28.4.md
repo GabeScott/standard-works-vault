@@ -5,5 +5,5 @@
 [2 Nephi 28:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 9.28|2 Ne. 9:28]]; [[2 Nephi 26.20|26:20.]]
-[^b]: [[1 Corinthians 2.4|1 Cor. 2:4 (1-9).]]
+[^a]: [[2 Nephi 9.28|2 Ne. 9:28]]; [[2 Nephi 26.20|26:20]].  
+[^b]: [[1 Corinthians 2.1|1 Cor. 2:4 (1–9)]][[1 Corinthians 2.2|]][[1 Corinthians 2.3|]][[1 Corinthians 2.4|]][[1 Corinthians 2.5|]][[1 Corinthians 2.6|]][[1 Corinthians 2.7|]][[1 Corinthians 2.8|]][[1 Corinthians 2.9|]].  

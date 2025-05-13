@@ -5,4 +5,4 @@
 [Micah 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/3.4?lang=eng#p4)
 
 
-[^a]: [[Mosiah 11.24|Mosiah 11:24 (23-25)]]. TG [[God, Access to]].
+[^a]: [[Mosiah 11.23|Mosiah 11:24 (23–25)]][[Mosiah 11.24|]][[Mosiah 11.25|]]. [[God, Access to|TG God, Access to]].  

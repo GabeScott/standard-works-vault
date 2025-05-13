@@ -5,6 +5,6 @@
 [Hosea 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.1?lang=eng#p1)
 
 
-[^a]: [[Jeremiah 25.31|Jer. 25:31]]; [[Hosea 12.2|Hosea 12:2 (1-2)]]; [[Micah 6.2|Micah 6:2.]]
-[^b]: TG [[Truth]].
-[^c]: TG [[God, Knowledge about]].
+[^a]: [[Jeremiah 25.31|Jer. 25:31]]; [[Hosea 12.1|Hosea 12:2 (1–2)]][[Hosea 12.2|]]; [[Micah 6.2|Micah 6:2]].  
+[^b]: [[Truth|TG Truth]].  
+[^c]: [[God, Knowledge about|TG God, Knowledge about]].  

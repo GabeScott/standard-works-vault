@@ -5,5 +5,5 @@
 [Alma 12:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 42.5|Alma 42:5 (2-9).]]
-[^b]: [[Genesis 2.17|Gen. 2:17.]]
+[^a]: [[Alma 42.2|Alma 42:5 (2–9)]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]].  
+[^b]: [[Genesis 2.17|Gen. 2:17]].  

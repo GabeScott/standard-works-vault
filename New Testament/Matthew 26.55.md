@@ -5,4 +5,4 @@
 [Matthew 26:55](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.55?lang=eng#p55)
 
 
-[^a]: [[Luke 21.37|Luke 21:37]]; [[John 8.2|John 8:2 (1-2)]]. TG [[Teaching with the Spirit]].
+[^a]: [[Luke 21.37|Luke 21:37]]; [[John 8.1|John 8:2 (1–2)]][[John 8.2|]]. [[Teaching, Teach, Taught|TG Teaching]].  

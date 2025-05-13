@@ -5,7 +5,7 @@
 [Mosiah 1:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Disobedience, Disobey]].
-[^b]: [[1 Nephi 18.13|1 Ne. 18:13 (12-13).]]
-[^c]: Lam. 1:5. TG [[Affliction]].
-[^d]: [[Judges 13.1|Judg. 13:1]]; [[Helaman 12.3|Hel. 12:3 (2-3).]]
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  
+[^b]: [[1 Nephi 18.12|1 Ne. 18:13 (12–13)]][[1 Nephi 18.13|]].  
+[^c]: [[Lamentations 1.5|Lam. 1:5]]. [[Affliction|TG Affliction]].  
+[^d]: [[Judges 13.1|Judg. 13:1]]; [[Helaman 12.2|Hel. 12:3 (2–3)]][[Helaman 12.3|]].  

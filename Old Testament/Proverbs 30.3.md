@@ -5,4 +5,4 @@
 [Proverbs 30:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.3?lang=eng#p3)
 
 
-[^a]: [[Proverbs 9.10|Prov. 9:10.]]
+[^a]: [[Proverbs 9.10|Prov. 9:10]].  

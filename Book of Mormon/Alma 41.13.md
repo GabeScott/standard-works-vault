@@ -5,4 +5,4 @@
 [Alma 41:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/41?lang=eng&id=p13#p13)
 
 
-[^a]: Dan. 12:10; [[Revelation 22.12|Rev. 22:12 (6-16).]]
+[^a]: [[Daniel 12.10|Dan. 12:10]]; [[Revelation 22.6|Rev. 22:12 (6–16)]][[Revelation 22.7|]][[Revelation 22.8|]][[Revelation 22.9|]][[Revelation 22.10|]][[Revelation 22.11|]][[Revelation 22.12|]][[Revelation 22.13|]][[Revelation 22.14|]][[Revelation 22.15|]][[Revelation 22.16|]].  

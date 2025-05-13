@@ -5,4 +5,4 @@
 [2 Thessalonians 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.1?lang=eng#p1)
 
 
-[^a]: GR may progress freely, rapidly.
+[^a]: GR may progress freely, rapidly.  

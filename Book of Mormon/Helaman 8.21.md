@@ -5,6 +5,6 @@
 [Helaman 8:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p21#p21)
 
 
-[^a]: [[Omni 1.15|Omni 1:15.]]
-[^b]: [[2 Kings 25.7|2 Kgs. 25:7]]; [[Jeremiah 39.6|Jer. 39:6]]; [[Jeremiah 52.10|52:10.]]
-[^c]: [[Ezekiel 17.22|Ezek. 17:22 (22-23)]]; [[Helaman 6.10|Hel. 6:10]]; [[Mormon 7.2|Morm. 7:2.]]
+[^a]: [[Omni 1.15|Omni 1:15]].  
+[^b]: [[2 Kings 25.7|2 Kgs. 25:7]]; [[Jeremiah 39.6|Jer. 39:6]]; [[Jeremiah 52.10|52:10]].  
+[^c]: [[Ezekiel 17.22|Ezek. 17:22 (22–23)]][[Ezekiel 17.23|]]; [[Helaman 6.10|Hel. 6:10]]; [[Mormon 7.2|Morm. 7:2]].  

@@ -5,5 +5,5 @@
 [Isaiah 30:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.1?lang=eng#p1)
 
 
-[^a]: TG [[Rebellion, Rebel]]; [[Stiffnecked, Stiffneckedness]].
-[^b]: TG [[Counselor]].
+[^a]: [[Rebellion, Rebel|TG Rebellion]]; [[Stiffnecked, Stiffneckedness|Stiffnecked]].  
+[^b]: [[Counselor|TG Counselor]].  

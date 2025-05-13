@@ -5,5 +5,5 @@
 [Genesis 37:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.1?lang=eng#p1)
 
 
-[^a]: HEB of his father’s sojournings.
-[^b]: TG [[Stranger]].
+[^a]: HEB of his father’s sojournings.  
+[^b]: [[Stranger|TG Stranger]].  

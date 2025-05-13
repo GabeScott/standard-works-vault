@@ -5,5 +5,5 @@
 [Psalms 29:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/29.10?lang=eng#p10)
 
 
-[^a]: TG [[Flood, Noah’s]].
-[^b]: TG [[Kingdom of God, in Heaven]].
+[^a]: [[Flood|TG Flood]].  
+[^b]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  

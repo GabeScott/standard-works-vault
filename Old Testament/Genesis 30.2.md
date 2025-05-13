@@ -5,4 +5,4 @@
 [Genesis 30:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 5.7|2 Kgs. 5:7.]]
+[^a]: [[2 Kings 5.7|2 Kgs. 5:7]].  

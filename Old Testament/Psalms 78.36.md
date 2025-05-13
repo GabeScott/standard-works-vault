@@ -5,5 +5,5 @@
 [Psalms 78:36](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.36?lang=eng#p36)
 
 
-[^a]: TG [[Flatter, Flattery]].
-[^b]: [[Isaiah 57.11|Isa. 57:11.]]
+[^a]: [[Flatter, Flattery|TG Flatter]].  
+[^b]: [[Isaiah 57.11|Isa. 57:11]].  

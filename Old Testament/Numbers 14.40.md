@@ -5,4 +5,4 @@
 [Numbers 14:40](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.40?lang=eng#p40)
 
 
-[^a]: [[Deuteronomy 1.41|Deut. 1:41.]]
+[^a]: [[Deuteronomy 1.41|Deut. 1:41]].  

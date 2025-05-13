@@ -5,5 +5,5 @@
 [Alma 7:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 4.19|Alma 4:19.]]
-[^b]: [[Mosiah 29.42|Mosiah 29:42.]]
+[^a]: [[Alma 4.19|Alma 4:19]].  
+[^b]: [[Mosiah 29.42|Mosiah 29:42]].  

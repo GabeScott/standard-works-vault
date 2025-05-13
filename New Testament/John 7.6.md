@@ -5,4 +5,4 @@
 [John 7:6](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.6?lang=eng#p6)
 
 
-[^a]: [[Matthew 26.18|Matt. 26:18.]]
+[^a]: [[Matthew 26.18|Matt. 26:18]].  

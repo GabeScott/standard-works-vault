@@ -5,5 +5,5 @@
 [Isaiah 13:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.6?lang=eng#p6)
 
 
-[^a]: [[Isaiah 14.31|Isa. 14:31.]]
-[^b]: TG [[Day of the Lord]].
+[^a]: [[Isaiah 14.31|Isa. 14:31]].  
+[^b]: [[Day of the Lord|TG Day of the Lord]].  

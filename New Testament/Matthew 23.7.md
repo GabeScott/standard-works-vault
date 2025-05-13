@@ -5,4 +5,4 @@
 [Matthew 23:7](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.7?lang=eng#p7)
 
 
-[^a]: JST Matt. 23:4 … Rabbi, (which is master).
+[^a]: JST Matt. 23:4 … Rabbi, (which is master).  

@@ -5,4 +5,4 @@
 [1 Samuel 9:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 29.22|Ex. 29:22 (22, 27).]]
+[^a]: [[Exodus 29.22|Ex. 29:22 (22, 27)]][[Exodus 29.27|]].  

@@ -5,5 +5,5 @@
 [1 Thessalonians 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/2.2?lang=eng#p2)
 
 
-[^a]: [[Acts 16.22|Acts 16:22 (19-24).]]
-[^b]: [[Acts 17.2|Acts 17:2 (2-3).]]
+[^a]: [[Acts 16.19|Acts 16:22 (19–24)]][[Acts 16.20|]][[Acts 16.21|]][[Acts 16.22|]][[Acts 16.23|]][[Acts 16.24|]].  
+[^b]: [[Acts 17.2|Acts 17:2 (2–3)]][[Acts 17.3|]].  

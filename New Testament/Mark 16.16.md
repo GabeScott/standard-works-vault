@@ -5,6 +5,6 @@
 [Mark 16:16](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.16?lang=eng#p16)
 
 
-[^a]: TG [[Baptism, Qualifications for]]; [[Faith]].
-[^b]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential.
-[^c]: TG [[Damnation, Damned]].
+[^a]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]]; [[Faith|Faith]].  
+[^b]: [[Baptism|TG Baptism]]; [[Baptism, Essential|Baptism, Essential]].  
+[^c]: [[Damnation, Damned|TG Damnation]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 34:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/34.13?lang=eng#p13)
 
 
-[^a]: TG [[Scribe]].
+[^a]: [[Scribe|TG Scribe]].  

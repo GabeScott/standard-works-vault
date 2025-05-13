@@ -5,4 +5,4 @@
 [Luke 7:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.15?lang=eng#p15)
 
 
-[^a]: TG [[Death, Power over]].
+[^a]: [[Death, Power over|TG Death, Power over]].  

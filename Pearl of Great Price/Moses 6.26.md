@@ -5,4 +5,4 @@
 [Moses 6:26](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.26?lang=eng#p26)
 
 
-[^a]: TG [[God, Spirit of]].
+[^a]: [[God, Spirit of|TG God, Spirit of]].  

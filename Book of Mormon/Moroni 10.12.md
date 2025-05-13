@@ -5,4 +5,4 @@
 [Moroni 10:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Miracle]].
+[^a]: [[Miracle|TG Miracle]].  

@@ -5,4 +5,4 @@
 [1 Nephi 6:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/6?lang=eng&id=p3#p3)
 
 
-[^a]: [[Jacob 7.27|Jacob 7:27]]; [[Jarom 1.2|Jarom 1:2 (2, 14)]]; Omni 1:1, 30.
+[^a]: [[Jacob 7.27|Jacob 7:27]]; [[Jarom 1.2|Jarom 1:2 (2, 14)]][[Jarom 1.14|]]; [[Omni 1.1|Omni 1:1, 30]][[Omni 1.30|]].  

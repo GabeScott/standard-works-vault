@@ -5,4 +5,4 @@
 [James 1:22](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.22?lang=eng#p22)
 
 
-[^a]: TG [[Commitment]]; [[Duty]]; [[Good Works]]; [[Hypocrisy, Hypocrite]].
+[^a]: [[Commitment|TG Commitment]]; [[Duty|Duty]]; [[Good Works|Good Works]]; [[Hypocrisy, Hypocrite|Hypocrisy]].  

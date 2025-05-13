@@ -5,5 +5,5 @@
 [Mosiah 5:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/5?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 5.39|Alma 5:39 (38-42).]]
-[^b]: [[Matthew 25.33|Matt. 25:33.]]
+[^a]: [[Alma 5.38|Alma 5:39 (38–42)]][[Alma 5.39|]][[Alma 5.40|]][[Alma 5.41|]][[Alma 5.42|]].  
+[^b]: [[Matthew 25.33|Matt. 25:33]].  

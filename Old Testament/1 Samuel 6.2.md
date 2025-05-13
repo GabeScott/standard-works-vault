@@ -5,4 +5,4 @@
 [1 Samuel 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 18.10|Deut. 18:10.]]
+[^a]: [[Deuteronomy 18.10|Deut. 18:10]].  

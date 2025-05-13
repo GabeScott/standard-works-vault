@@ -5,4 +5,4 @@
 [Numbers 26:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.7?lang=eng#p7)
 
 
-[^a]: [[Numbers 1.21|Num. 1:21]]; [[Deuteronomy 33.6|Deut. 33:6.]]
+[^a]: [[Numbers 1.21|Num. 1:21]]; [[Deuteronomy 33.6|Deut. 33:6]].  

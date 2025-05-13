@@ -5,4 +5,4 @@
 [2 Samuel 1:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/1.23?lang=eng#p23)
 
 
-[^a]: [[D&C 135.3|D&C 135:3.]]
+[^a]: [[D&C 135.3|D&C 135:3]].  

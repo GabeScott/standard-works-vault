@@ -5,5 +5,5 @@
 [Isaiah 33:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.6?lang=eng#p6)
 
 
-[^a]: TG [[Knowledge]].
-[^b]: TG [[Treasure]].
+[^a]: [[Knowledge|TG Knowledge]].  
+[^b]: [[Treasure|TG Treasure]].  

@@ -5,4 +5,4 @@
 [Genesis 14:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.23?lang=eng#p23)
 
 
-[^a]: [[1 Samuel 2.7|1 Sam. 2:7]]; 4 Ne. 1:3; [[D&C 6.7|D&C 6:7]]; [[D&C 38.16|38:16.]]
+[^a]: [[1 Samuel 2.7|1 Sam. 2:7]]; [[4 Nephi 1.3|4 Ne. 1:3]]; [[D&C 6.7|D&C 6:7]]; [[D&C 38.16|38:16]].  

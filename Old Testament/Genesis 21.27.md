@@ -5,4 +5,4 @@
 [Genesis 21:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.27?lang=eng#p27)
 
 
-[^a]: [[Genesis 26.31|Gen. 26:31 (26-33).]]
+[^a]: [[Genesis 26.26|Gen. 26:31 (26–33)]][[Genesis 26.27|]][[Genesis 26.28|]][[Genesis 26.29|]][[Genesis 26.30|]][[Genesis 26.31|]][[Genesis 26.32|]][[Genesis 26.33|]].  

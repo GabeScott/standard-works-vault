@@ -5,5 +5,5 @@
 [Numbers 35:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.3?lang=eng#p3)
 
 
-[^a]: [[Deuteronomy 18.6|Deut. 18:6.]]
-[^b]: HEB property, livestock, etc.
+[^a]: [[Deuteronomy 18.6|Deut. 18:6]].  
+[^b]: HEB property, livestock, etc.  

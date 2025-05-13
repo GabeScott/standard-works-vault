@@ -5,4 +5,4 @@
 [Micah 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/2.13?lang=eng#p13)
 
 
-[^a]: [[D&C 38.21|D&C 38:21.]]
+[^a]: [[D&C 38.21|D&C 38:21]].  

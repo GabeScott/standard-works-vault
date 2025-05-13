@@ -5,4 +5,4 @@
 [Esther 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.3?lang=eng#p3)
 
 
-[^a]: [[Alma 18.9|Alma 18:9.]]
+[^a]: [[Alma 18.9|Alma 18:9]].  

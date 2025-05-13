@@ -5,5 +5,5 @@
 [1 Nephi 5:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 22.12|Alma 22:12.]]
-[^b]: JS—H 1:33.
+[^a]: [[Alma 22.12|Alma 22:12]].  
+[^b]: [[Joseph Smith History 1.33|JS—H 1:33]].  

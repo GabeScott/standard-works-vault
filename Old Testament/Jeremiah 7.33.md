@@ -5,4 +5,4 @@
 [Jeremiah 7:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.33?lang=eng#p33)
 
 
-[^a]: [[Jeremiah 9.22|Jer. 9:22]]; [[Jeremiah 19.7|19:7]]; [[Ether 9.34|Ether 9:34.]]
+[^a]: [[Jeremiah 9.22|Jer. 9:22]]; [[Jeremiah 19.7|19:7]]; [[Ether 9.34|Ether 9:34]].  

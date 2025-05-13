@@ -5,4 +5,4 @@
 [Lamentations 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/5.5?lang=eng#p5)
 
 
-[^a]: TG [[Persecution, Persecute]].
+[^a]: [[Persecution, Persecute|TG Persecution]].  

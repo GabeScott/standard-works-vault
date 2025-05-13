@@ -5,5 +5,5 @@
 [Matthew 19:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.14?lang=eng#p14)
 
 
-[^a]: GR Allow, Permit.
-[^b]: [[D&C 137.10|D&C 137:10]]. TG [[Children]]; Salvation of Little [[Children]].
+[^a]: GR Allow, Permit.  
+[^b]: [[D&C 137.10|D&C 137:10]]. [[Children|TG Children]]; [[Salvation of Little Children|Salvation of Little Children]].  

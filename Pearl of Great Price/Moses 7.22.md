@@ -5,4 +5,4 @@
 [Moses 7:22](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.22?lang=eng#p22)
 
 
-[^a]: [[2 Nephi 26.33|2 Ne. 26:33.]]
+[^a]: [[2 Nephi 26.33|2 Ne. 26:33]].  

@@ -5,4 +5,4 @@
 [1 Kings 8:42](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.42?lang=eng#p42)
 
 
-[^a]: [[Deuteronomy 3.24|Deut. 3:24.]]
+[^a]: [[Deuteronomy 3.24|Deut. 3:24]].  

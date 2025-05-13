@@ -5,6 +5,6 @@
 [Zechariah 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/10.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 18.20|Deut. 18:20.]]
-[^b]: TG [[Dream]].
-[^c]: TG [[Shepherd]].
+[^a]: [[Deuteronomy 18.20|Deut. 18:20]].  
+[^b]: [[Dream|TG Dream]].  
+[^c]: [[Shepherd|TG Shepherd]].  

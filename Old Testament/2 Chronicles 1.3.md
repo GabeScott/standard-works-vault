@@ -5,5 +5,5 @@
 [2 Chronicles 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/1.3?lang=eng#p3)
 
 
-[^a]: [[1 Chronicles 16.39|1 Chr. 16:39.]]
-[^b]: HEB tent of meeting (also v. 13). TG [[Genealogy and Temple Work]].
+[^a]: [[1 Chronicles 16.39|1 Chr. 16:39]].  
+[^b]: HEB tent of meeting (also [[2 Chronicles 1.13|v. 13]]). [[Temple|TG Temple]].  

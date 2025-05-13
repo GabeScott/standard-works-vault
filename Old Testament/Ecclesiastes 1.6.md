@@ -5,4 +5,4 @@
 [Ecclesiastes 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.6?lang=eng#p6)
 
 
-[^a]: OR its circuit.
+[^a]: OR its circuit.  

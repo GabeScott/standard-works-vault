@@ -5,5 +5,5 @@
 [Psalms 104:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.19?lang=eng#p19)
 
 
-[^a]: [[Genesis 1.14|Gen. 1:14]]; [[Moses 2.14|Moses 2:14 (3-5, 14).]]
-[^b]: IE to indicate the time of month and year.
+[^a]: [[Genesis 1.14|Gen. 1:14]]; [[Moses 2.3|Moses 2:14 (3–5, 14)]][[Moses 2.4|]][[Moses 2.5|]][[Moses 2.14|]].  
+[^b]: IE to indicate the time of month and year.  

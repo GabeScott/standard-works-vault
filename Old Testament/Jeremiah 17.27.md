@@ -5,5 +5,5 @@
 [Jeremiah 17:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.27?lang=eng#p27)
 
 
-[^a]: [[Ezekiel 22.26|Ezek. 22:26]]; [[Ezekiel 44.24|44:24.]]
-[^b]: OR citadels or great buildings.
+[^a]: [[Ezekiel 22.26|Ezek. 22:26]]; [[Ezekiel 44.24|44:24]].  
+[^b]: OR citadels or great buildings.  

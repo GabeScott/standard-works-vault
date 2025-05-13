@@ -5,4 +5,4 @@
 [Amos 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/2.6?lang=eng#p6)
 
 
-[^a]: [[Amos 8.6|Amos 8:6.]]
+[^a]: [[Amos 8.6|Amos 8:6]].  

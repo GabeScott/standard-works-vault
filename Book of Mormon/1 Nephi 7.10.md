@@ -5,4 +5,4 @@
 [1 Nephi 7:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/7?lang=eng&id=p10#p10)
 
 
-[^a]: [[Deuteronomy 4.9|Deut. 4:9 (9-13)]]; [[1 Nephi 4.3|1 Ne. 4:3.]]
+[^a]: [[Deuteronomy 4.9|Deut. 4:9 (9–13)]][[Deuteronomy 4.10|]][[Deuteronomy 4.11|]][[Deuteronomy 4.12|]][[Deuteronomy 4.13|]]; [[1 Nephi 4.3|1 Ne. 4:3]].  

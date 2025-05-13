@@ -5,4 +5,4 @@
 [Mosiah 18:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p23#p23)
 
 
-[^a]: [[Exodus 35.2|Ex. 35:2]]; [[Mosiah 13.16|Mosiah 13:16 (16-19).]]
+[^a]: [[Exodus 35.2|Ex. 35:2]]; [[Mosiah 13.16|Mosiah 13:16 (16–19)]][[Mosiah 13.17|]][[Mosiah 13.18|]][[Mosiah 13.19|]].  

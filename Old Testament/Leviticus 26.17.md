@@ -5,7 +5,7 @@
 [Leviticus 26:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.17?lang=eng#p17)
 
 
-[^a]: [[1 Kings 8.33|1 Kgs. 8:33.]]
-[^b]: [[Joshua 7.4|Josh. 7:4.]]
-[^c]: [[D&C 103.8|D&C 103:8.]]
-[^d]: [[Psalms 53.5|Ps. 53:5]]; [[Proverbs 28.1|Prov. 28:1.]]
+[^a]: [[1 Kings 8.33|1 Kgs. 8:33]].  
+[^b]: [[Joshua 7.4|Josh. 7:4]].  
+[^c]: [[D&C 103.8|D&C 103:8]].  
+[^d]: [[Psalms 53.5|Ps. 53:5]]; [[Proverbs 28.1|Prov. 28:1]].  

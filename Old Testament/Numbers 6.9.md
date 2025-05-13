@@ -5,4 +5,4 @@
 [Numbers 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.9?lang=eng#p9)
 
 
-[^a]: [[Acts 21.27|Acts 21:27.]]
+[^a]: [[Acts 21.27|Acts 21:27]].  

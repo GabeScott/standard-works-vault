@@ -5,4 +5,4 @@
 [3 Nephi 1:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p26#p26)
 
 
-[^a]: [[Luke 2.10|Luke 2:10.]]
+[^a]: [[Luke 2.10|Luke 2:10]].  

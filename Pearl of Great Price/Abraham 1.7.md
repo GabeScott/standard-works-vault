@@ -5,5 +5,5 @@
 [Abraham 1:7](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.7?lang=eng#p7)
 
 
-[^a]: TG [[Heathen]].
-[^b]: Abr. 1:15, 17, 30.
+[^a]: [[Heathen|TG Heathen]].  
+[^b]: [[Abraham 1.15|Abr. 1:15, 17, 30]][[Abraham 1.17|]][[Abraham 1.30|]].  

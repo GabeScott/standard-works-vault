@@ -5,4 +5,4 @@
 [1 Kings 6:37](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.37?lang=eng#p37)
 
 
-[^a]: [[1 Kings 6.1|1 Kgs. 6:1.]]
+[^a]: [[1 Kings 6.1|1 Kgs. 6:1]].  

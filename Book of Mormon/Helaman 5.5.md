@@ -5,4 +5,4 @@
 [Helaman 5:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p5#p5)
 
 
-[^a]: [[Helaman 3.21|Hel. 3:21 (21, 37).]]
+[^a]: [[Helaman 3.21|Hel. 3:21 (21, 37)]][[Helaman 3.37|]].  

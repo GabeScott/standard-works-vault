@@ -5,5 +5,5 @@
 [Deuteronomy 11:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.29?lang=eng#p29)
 
 
-[^a]: [[Deuteronomy 27.12|Deut. 27:12 (12-13)]]; [[Joshua 8.33|Josh. 8:33 (33-35).]]
-[^b]: [[Judges 9.7|Judg. 9:7]]; [[John 4.20|John 4:20.]]
+[^a]: [[Deuteronomy 27.12|Deut. 27:12 (12–13)]][[Deuteronomy 27.13|]]; [[Joshua 8.33|Josh. 8:33 (33–35)]][[Joshua 8.34|]][[Joshua 8.35|]].  
+[^b]: [[Judges 9.7|Judg. 9:7]]; [[John 4.20|John 4:20]].  

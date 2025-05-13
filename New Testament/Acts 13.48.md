@@ -5,4 +5,4 @@
 [Acts 13:48](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.48?lang=eng#p48)
 
 
-[^a]: JST Acts 13:48 … and as many as believed were ordained unto eternal life.
+[^a]: JST Acts 13:48 … and as many as believed were ordained unto eternal life.  

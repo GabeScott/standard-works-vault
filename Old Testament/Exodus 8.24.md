@@ -5,4 +5,4 @@
 [Exodus 8:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.24?lang=eng#p24)
 
 
-[^a]: HEB ruined.
+[^a]: HEB ruined.  

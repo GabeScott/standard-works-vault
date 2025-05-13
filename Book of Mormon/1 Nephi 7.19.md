@@ -5,4 +5,4 @@
 [1 Nephi 7:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/7?lang=eng&id=p19#p19)
 
 
-[^a]: [[1 Nephi 16.7|1 Ne. 16:7]]; [[1 Nephi 18.19|18:19 (19-20).]]
+[^a]: [[1 Nephi 16.7|1 Ne. 16:7]]; [[1 Nephi 18.19|18:19 (19–20)]][[1 Nephi 18.20|]].  

@@ -5,10 +5,10 @@
 [Alma 1:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p32#p32)
 
 
-[^a]: TG [[Sorcery]].
-[^b]: TG [[Idolatry, Idol]].
-[^c]: TG [[Laziness]].
-[^d]: TG [[Gossip]].
-[^e]: TG [[Envy, Envious]].
-[^f]: TG [[Strife]].
-[^g]: [[2 Kings 14.10|2 Kgs. 14:10]]; [[Jacob 2.13|Jacob 2:13]]; [[Alma 31.25|Alma 31:25]]; [[Mormon 8.28|Morm. 8:28]]. TG [[Pride]].
+[^a]: [[Sorcery|TG Sorcery]].  
+[^b]: [[Idolatry, Idol|TG Idolatry]].  
+[^c]: [[Laziness|TG Laziness]].  
+[^d]: [[Gossip|TG Gossip]].  
+[^e]: [[Envy, Envious|TG Envy]].  
+[^f]: [[Strife|TG Strife]].  
+[^g]: [[2 Kings 14.10|2 Kgs. 14:10]]; [[Jacob 2.13|Jacob 2:13]]; [[Alma 31.25|Alma 31:25]]; [[Mormon 8.28|Morm. 8:28]]. [[Pride|TG Pride]].  

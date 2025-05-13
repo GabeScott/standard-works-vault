@@ -5,4 +5,4 @@
 [1 Samuel 9:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.14?lang=eng#p14)
 
 
-[^a]: OR towards them, to meet them.
+[^a]: OR towards them, to meet them.  

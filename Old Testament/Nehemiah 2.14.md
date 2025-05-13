@@ -5,4 +5,4 @@
 [Nehemiah 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/2.14?lang=eng#p14)
 
 
-[^a]: Perhaps a gate near En-rogel. The king’s pool could be Siloam. Neh. 3:15; 12:37.
+[^a]: Perhaps a gate near En-rogel. The king’s pool could be Siloam. [[Nehemiah 3.15|Neh. 3:15]]; [[Nehemiah 12.37|12:37]].  

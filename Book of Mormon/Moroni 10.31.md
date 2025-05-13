@@ -5,8 +5,8 @@
 [Moroni 10:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p31#p31)
 
 
-[^a]: [[Isaiah 52.1|Isa. 52:1 (1-2)]]. TG [[Israel, Restoration of]].
-[^b]: TG [[Zion, Sion]].
-[^c]: [[Isaiah 54.2|Isa. 54:2]]. TG [[Priesthood, Power of]].
-[^d]: TG [[Stake]].
-[^e]: [[Ether 13.8|Ether 13:8.]]
+[^a]: [[Isaiah 52.1|Isa. 52:1 (1–2)]][[Isaiah 52.2|]]. [[Israel, Restoration of|TG Israel, Restoration of]].  
+[^b]: [[Zion, Sion|TG Zion]].  
+[^c]: [[Isaiah 54.2|Isa. 54:2]]. [[Priesthood, Power of|TG Priesthood, Power of]].  
+[^d]: [[Stake|TG Stake]].  
+[^e]: [[Ether 13.8|Ether 13:8]].  

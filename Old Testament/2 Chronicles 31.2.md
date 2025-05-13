@@ -5,5 +5,5 @@
 [2 Chronicles 31:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/31.2?lang=eng#p2)
 
 
-[^a]: [[1 Chronicles 23.6|1 Chr. 23:6.]]
-[^b]: HEB camps.
+[^a]: [[1 Chronicles 23.6|1 Chr. 23:6]].  
+[^b]: HEB camps.  

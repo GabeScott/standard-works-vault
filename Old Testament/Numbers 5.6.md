@@ -5,4 +5,4 @@
 [Numbers 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/num/5.6?lang=eng#p6)
 
 
-[^a]: TG [[Sin]].
+[^a]: [[Sin|TG Sin]].  

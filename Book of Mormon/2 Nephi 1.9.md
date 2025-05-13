@@ -5,8 +5,8 @@
 [2 Nephi 1:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p9#p9)
 
 
-[^a]: [[Jacob 1.5|Jacob 1:5.]]
-[^b]: [[2 Nephi 4.4|2 Ne. 4:4]]; [[Alma 9.13|Alma 9:13.]]
-[^c]: [[Deuteronomy 29.9|Deut. 29:9]]; [[Deuteronomy 30.9|30:9.]]
-[^d]: TG [[Obedience, Obedient, Obey]].
-[^e]: TG [[Inheritance]].
+[^a]: [[Jacob 1.5|Jacob 1:5]].  
+[^b]: [[2 Nephi 4.4|2 Ne. 4:4]]; [[Alma 9.13|Alma 9:13]].  
+[^c]: [[Deuteronomy 29.9|Deut. 29:9]]; [[Deuteronomy 30.9|30:9]].  
+[^d]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^e]: [[Inheritance|TG Inheritance]].  

@@ -5,5 +5,5 @@
 [1 Kings 16:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.26?lang=eng#p26)
 
 
-[^a]: [[1 Kings 14.7|1 Kgs. 14:7 (7-11)]]; [[2 Kings 3.3|2 Kgs. 3:3.]]
-[^b]: [[Mosiah 29.17|Mosiah 29:17.]]
+[^a]: [[1 Kings 14.7|1 Kgs. 14:7 (7–11)]][[1 Kings 14.8|]][[1 Kings 14.9|]][[1 Kings 14.10|]][[1 Kings 14.11|]]; [[2 Kings 3.3|2 Kgs. 3:3]].  
+[^b]: [[Mosiah 29.17|Mosiah 29:17]].  

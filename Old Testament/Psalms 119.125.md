@@ -5,4 +5,4 @@
 [Psalms 119:125](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.125?lang=eng#p125)
 
 
-[^a]: [[Psalms 116.16|Ps. 116:16.]]
+[^a]: [[Psalms 116.16|Ps. 116:16]].  

@@ -5,4 +5,4 @@
 [Hebrews 2:6](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 8.4|Ps. 8:4 (4-6).]]
+[^a]: [[Psalms 8.4|Ps. 8:4 (4–6)]][[Psalms 8.5|]][[Psalms 8.6|]].  

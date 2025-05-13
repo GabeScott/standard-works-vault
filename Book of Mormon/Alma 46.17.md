@@ -5,7 +5,7 @@
 [Alma 46:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p17#p17)
 
 
-[^a]: [[3 Nephi 3.24|3 Ne. 3:24]]; [[Mormon 3.5|Morm. 3:5.]]
-[^b]: [[Alma 22.30|Alma 22:30]]; [[Alma 50.34|50:34.]]
-[^c]: [[Alma 22.31|Alma 22:31]]; [[Alma 63.4|63:4.]]
-[^d]: [[2 Nephi 1.7|2 Ne. 1:7]]; [[Mosiah 29.32|Mosiah 29:32.]]
+[^a]: [[3 Nephi 3.24|3 Ne. 3:24]]; [[Mormon 3.5|Morm. 3:5]].  
+[^b]: [[Alma 22.30|Alma 22:30]]; [[Alma 50.34|50:34]].  
+[^c]: [[Alma 22.31|Alma 22:31]]; [[Alma 63.4|63:4]].  
+[^d]: [[2 Nephi 1.7|2 Ne. 1:7]]; [[Mosiah 29.32|Mosiah 29:32]].  

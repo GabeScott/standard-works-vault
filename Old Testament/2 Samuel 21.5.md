@@ -5,4 +5,4 @@
 [2 Samuel 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/21.5?lang=eng#p5)
 
 
-[^a]: OR territory.
+[^a]: OR territory.  

@@ -5,6 +5,6 @@
 [Ephesians 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.15?lang=eng#p15)
 
 
-[^a]: Col. 2:14.
-[^b]: TG [[Ordinance]].
-[^c]: TG [[Man, New, Spiritually Reborn]].
+[^a]: [[Colossians 2.14|Col. 2:14]].  
+[^b]: [[Ordinance|TG Ordinance]].  
+[^c]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  

@@ -5,5 +5,5 @@
 [1 Samuel 11:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/11.7?lang=eng#p7)
 
 
-[^a]: OR cut.
-[^b]: [[Judges 19.29|Judg. 19:29.]]
+[^a]: OR cut.  
+[^b]: [[Judges 19.29|Judg. 19:29]].  

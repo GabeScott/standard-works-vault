@@ -5,4 +5,4 @@
 [Isaiah 32:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/32.2?lang=eng#p2)
 
 
-[^a]: IE the king mentioned in v. 1.
+[^a]: IE the king mentioned in [[Isaiah 32.1|v. 1]].  

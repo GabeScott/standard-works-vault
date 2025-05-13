@@ -5,4 +5,4 @@
 [Moses 3:22](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.22?lang=eng#p22)
 
 
-[^a]: TG [[Creation, Create]]; [[Woman, Women]].
+[^a]: [[Creation, Create|TG Creation]]; [[Woman, Women|Woman]].  

@@ -5,4 +5,4 @@
 [Moses 5:49](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.49?lang=eng#p49)
 
 
-[^a]: [[Genesis 4.24|Gen. 4:24.]]
+[^a]: [[Genesis 4.24|Gen. 4:24]].  

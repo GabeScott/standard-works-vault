@@ -5,4 +5,4 @@
 [Numbers 24:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.14?lang=eng#p14)
 
 
-[^a]: HEB tell.
+[^a]: HEB tell.  

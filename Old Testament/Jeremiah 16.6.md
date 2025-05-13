@@ -5,4 +5,4 @@
 [Jeremiah 16:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.6?lang=eng#p6)
 
 
-[^a]: [[Deuteronomy 14.1|Deut. 14:1.]]
+[^a]: [[Deuteronomy 14.1|Deut. 14:1]].  

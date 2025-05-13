@@ -5,4 +5,4 @@
 [Deuteronomy 15:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.14?lang=eng#p14)
 
 
-[^a]: OR threshing floor.
+[^a]: OR threshing floor.  

@@ -5,5 +5,5 @@
 [1 Corinthians 4:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.5?lang=eng#p5)
 
 
-[^a]: [[D&C 123.13|D&C 123:13.]]
-[^b]: [[Romans 2.16|Rom. 2:16.]]
+[^a]: [[D&C 123.13|D&C 123:13]].  
+[^b]: [[Romans 2.16|Rom. 2:16]].  

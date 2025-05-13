@@ -5,4 +5,4 @@
 [1 Kings 12:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.8?lang=eng#p8)
 
 
-[^a]: TG [[Old Age]].
+[^a]: [[Old Age|TG Old Age]].  

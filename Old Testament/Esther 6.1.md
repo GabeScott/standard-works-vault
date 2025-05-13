@@ -5,5 +5,5 @@
 [Esther 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/6.1?lang=eng#p1)
 
 
-[^a]: [[Esther 2.23|Esth. 2:23.]]
-[^b]: [[Esther 10.2|Esth. 10:2.]]
+[^a]: [[Esther 2.23|Esth. 2:23]].  
+[^b]: [[Esther 10.2|Esth. 10:2]].  

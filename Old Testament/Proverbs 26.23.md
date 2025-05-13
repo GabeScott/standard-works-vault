@@ -5,4 +5,4 @@
 [Proverbs 26:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.23?lang=eng#p23)
 
 
-[^a]: IE a broken piece of an earthen vessel.
+[^a]: IE a broken piece of an earthen vessel.  

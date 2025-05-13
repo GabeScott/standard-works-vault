@@ -5,5 +5,5 @@
 [2 Corinthians 11:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.4?lang=eng#p4)
 
 
-[^a]: [[Galatians 1.6|Gal. 1:6.]]
-[^b]: TG [[Gospel]].
+[^a]: [[Galatians 1.6|Gal. 1:6]].  
+[^b]: [[Gospel|TG Gospel]].  

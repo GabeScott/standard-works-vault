@@ -5,4 +5,4 @@
 [Exodus 40:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.21?lang=eng#p21)
 
 
-[^a]: OR screening veil and screened the ark.
+[^a]: OR screening veil and screened the ark.  

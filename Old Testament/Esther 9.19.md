@@ -5,5 +5,5 @@
 [Esther 9:19](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/9.19?lang=eng#p19)
 
 
-[^a]: [[Esther 8.17|Esth. 8:17.]]
-[^b]: [[Nehemiah 8.10|Neh. 8:10 (10, 12).]]
+[^a]: [[Esther 8.17|Esth. 8:17]].  
+[^b]: [[Nehemiah 8.10|Neh. 8:10 (10, 12)]][[Nehemiah 8.12|]].  

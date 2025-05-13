@@ -5,5 +5,5 @@
 [Genesis 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/13.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 12.8|Gen. 12:8 (8-9).]]
-[^b]: OR Ai. Abr. 2:20.
+[^a]: [[Genesis 12.8|Gen. 12:8 (8–9)]][[Genesis 12.9|]].  
+[^b]: OR Ai. [[Abraham 2.20|Abr. 2:20]].  

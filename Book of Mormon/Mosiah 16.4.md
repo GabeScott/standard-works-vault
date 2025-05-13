@@ -5,4 +5,4 @@
 [Mosiah 16:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/16?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 9.7|2 Ne. 9:7]]; [[Alma 11.45|Alma 11:45]]; [[Alma 12.36|12:36]]; [[Alma 42.6|42:6 (6, 9, 14)]]. TG [[Fall of Man]].
+[^a]: [[2 Nephi 9.7|2 Ne. 9:7]]; [[Alma 11.45|Alma 11:45]]; [[Alma 12.36|12:36]]; [[Alma 42.6|42:6 (6, 9, 14)]][[Alma 42.9|]][[Alma 42.14|]]. [[Fall of Man|TG Fall of Man]].  

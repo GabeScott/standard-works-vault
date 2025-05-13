@@ -5,4 +5,4 @@
 [Acts 21:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.11?lang=eng#p11)
 
 
-[^a]: [[Acts 2.18|Acts 2:18]]; [[Acts 11.28|11:28 (27-28).]]
+[^a]: [[Acts 2.18|Acts 2:18]]; [[Acts 11.27|11:28 (27–28)]][[Acts 11.28|]].  

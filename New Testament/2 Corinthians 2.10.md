@@ -5,4 +5,4 @@
 [2 Corinthians 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/2.10?lang=eng#p10)
 
 
-[^a]: GR presence.
+[^a]: GR presence.  

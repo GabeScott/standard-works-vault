@@ -5,4 +5,4 @@
 [Ezekiel 38:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.13?lang=eng#p13)
 
 
-[^a]: [[1 Kings 10.22|1 Kgs. 10:22]]; [[Ezekiel 27.12|Ezek. 27:12.]]
+[^a]: [[1 Kings 10.22|1 Kgs. 10:22]]; [[Ezekiel 27.12|Ezek. 27:12]].  

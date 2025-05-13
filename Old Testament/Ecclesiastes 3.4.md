@@ -5,5 +5,5 @@
 [Ecclesiastes 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.4?lang=eng#p4)
 
 
-[^a]: TG [[Laughter, Laugh]].
-[^b]: TG [[Mourning, Mourn]].
+[^a]: [[Laughter, Laugh|TG Laughter]].  
+[^b]: [[Mourning, Mourn|TG Mourning]].  

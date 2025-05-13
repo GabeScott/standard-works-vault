@@ -5,5 +5,5 @@
 [Job 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/job/3.3?lang=eng#p3)
 
 
-[^a]: TG [[Despair]].
-[^b]: [[Jeremiah 20.14|Jer. 20:14 (14-18).]]
+[^a]: [[Despair|TG Despair]].  
+[^b]: [[Jeremiah 20.14|Jer. 20:14 (14–18)]][[Jeremiah 20.15|]][[Jeremiah 20.16|]][[Jeremiah 20.17|]][[Jeremiah 20.18|]].  

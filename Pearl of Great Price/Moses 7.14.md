@@ -5,4 +5,4 @@
 [Moses 7:14](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.14?lang=eng#p14)
 
 
-[^a]: [[3 Nephi 9.8|3 Ne. 9:8.]]
+[^a]: [[3 Nephi 9.8|3 Ne. 9:8]].  

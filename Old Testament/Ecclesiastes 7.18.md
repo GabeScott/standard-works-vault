@@ -5,4 +5,4 @@
 [Ecclesiastes 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.18?lang=eng#p18)
 
 
-[^a]: OR reveres God.
+[^a]: OR reveres God.  

@@ -5,4 +5,4 @@
 [1 Chronicles 29:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.20?lang=eng#p20)
 
 
-[^a]: TG [[Assembly for Worship]].
+[^a]: [[Assembly for Worship|TG Assembly for Worship]].  

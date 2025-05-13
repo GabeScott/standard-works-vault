@@ -5,6 +5,6 @@
 [Alma 36:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Trust in God]].
-[^b]: [[Romans 8.28|Rom. 8:28.]]
-[^c]: [[Mosiah 23.22|Mosiah 23:22 (21-22).]]
+[^a]: [[Trust in God|TG Trust in God]].  
+[^b]: [[Romans 8.28|Rom. 8:28]].  
+[^c]: [[Mosiah 23.21|Mosiah 23:22 (21–22)]][[Mosiah 23.22|]].  

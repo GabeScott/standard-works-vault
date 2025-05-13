@@ -5,4 +5,4 @@
 [2 Kings 6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/6.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 21.19|Gen. 21:19.]]
+[^a]: [[Genesis 21.19|Gen. 21:19]].  

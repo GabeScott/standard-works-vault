@@ -5,4 +5,4 @@
 [Acts 19:1](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.1?lang=eng#p1)
 
 
-[^a]: OR parts, region.
+[^a]: OR parts, region.  

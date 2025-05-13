@@ -5,4 +5,4 @@
 [Numbers 15:5](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.5?lang=eng#p5)
 
 
-[^a]: [[2 Chronicles 29.35|2 Chr. 29:35.]]
+[^a]: [[2 Chronicles 29.35|2 Chr. 29:35]].  

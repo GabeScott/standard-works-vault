@@ -5,5 +5,5 @@
 [Deuteronomy 26:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.11?lang=eng#p11)
 
 
-[^a]: [[Deuteronomy 12.7|Deut. 12:7]]; [[2 Nephi 9.52|2 Ne. 9:52.]]
-[^b]: HEB sojourner, proselyte (also vv. 12-13).
+[^a]: [[Deuteronomy 12.7|Deut. 12:7]]; [[2 Nephi 9.52|2 Ne. 9:52]].  
+[^b]: HEB sojourner, proselyte (also [[Deuteronomy 26.12|vv. 12–13]][[Deuteronomy 26.13|]]).  

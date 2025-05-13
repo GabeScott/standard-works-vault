@@ -5,4 +5,4 @@
 [Matthew 27:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.9?lang=eng#p9)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  

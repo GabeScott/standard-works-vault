@@ -5,5 +5,5 @@
 [Ezekiel 16:52](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.52?lang=eng#p52)
 
 
-[^a]: [[Romans 2.3|Rom. 2:3.]]
-[^b]: TG [[Shame]].
+[^a]: [[Romans 2.3|Rom. 2:3]].  
+[^b]: [[Shame|TG Shame]].  

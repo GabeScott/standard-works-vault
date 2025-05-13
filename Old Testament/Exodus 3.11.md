@@ -5,5 +5,5 @@
 [Exodus 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.11?lang=eng#p11)
 
 
-[^a]: [[Moses 6.31|Moses 6:31.]]
-[^b]: TG [[Courage, Courageous]]; [[Fearful]].
+[^a]: [[Moses 6.31|Moses 6:31]].  
+[^b]: [[Courage, Courageous|TG Courage]]; [[Fearful|Fearful]].  

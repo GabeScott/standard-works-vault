@@ -5,4 +5,4 @@
 [Leviticus 13:37](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.37?lang=eng#p37)
 
 
-[^a]: IE if in his observation the symptom remains as it was.
+[^a]: IE if in his observation the symptom remains as it was.  

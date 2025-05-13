@@ -5,4 +5,4 @@
 [Psalms 136:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.20?lang=eng#p20)
 
 
-[^a]: [[Psalms 135.11|Ps. 135:11.]]
+[^a]: [[Psalms 135.11|Ps. 135:11]].  

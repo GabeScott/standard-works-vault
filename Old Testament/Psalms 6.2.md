@@ -5,5 +5,5 @@
 [Psalms 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/6.2?lang=eng#p2)
 
 
-[^a]: HEB wretched, in misery.
-[^b]: TG [[Health]]; [[Sickness, Sick]].
+[^a]: HEB wretched, in misery.  
+[^b]: [[Heal, Healing|TG Heal]]; [[Sickness, Sick|Sickness]].  

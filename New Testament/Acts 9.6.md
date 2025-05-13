@@ -5,4 +5,4 @@
 [Acts 9:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.6?lang=eng#p6)
 
 
-[^a]: TG [[Conversion, Convert]].
+[^a]: [[Conversion, Convert|TG Conversion]].  

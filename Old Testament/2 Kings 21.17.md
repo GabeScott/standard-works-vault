@@ -5,4 +5,4 @@
 [2 Kings 21:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.17?lang=eng#p17)
 
 
-[^a]: [[2 Chronicles 33.18|2 Chr. 33:18 (11-19).]]
+[^a]: [[2 Chronicles 33.11|2 Chr. 33:18 (11–19)]][[2 Chronicles 33.12|]][[2 Chronicles 33.13|]][[2 Chronicles 33.14|]][[2 Chronicles 33.15|]][[2 Chronicles 33.16|]][[2 Chronicles 33.17|]][[2 Chronicles 33.18|]][[2 Chronicles 33.19|]].  

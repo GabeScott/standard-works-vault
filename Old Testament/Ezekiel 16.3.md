@@ -5,5 +5,5 @@
 [Ezekiel 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.3?lang=eng#p3)
 
 
-[^a]: HEB origins.
-[^b]: [[Ezekiel 16.45|Ezek. 16:45.]]
+[^a]: HEB origins.  
+[^b]: [[Ezekiel 16.45|Ezek. 16:45]].  

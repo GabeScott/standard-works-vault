@@ -5,5 +5,5 @@
 [Mosiah 7:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p33#p33)
 
 
-[^a]: [[Deuteronomy 30.10|Deut. 30:10]]; Lam. 5:21; [[Mormon 9.6|Morm. 9:6]]; [[D&C 98.47|D&C 98:47.]]
-[^b]: TG [[Diligence, Diligent, Diligently]].
+[^a]: [[Deuteronomy 30.10|Deut. 30:10]]; [[Lamentations 5.21|Lam. 5:21]]; [[Mormon 9.6|Morm. 9:6]]; [[D&C 98.47|D&C 98:47]].  
+[^b]: [[Diligence, Diligent, Diligently|TG Diligence]].  

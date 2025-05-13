@@ -5,4 +5,4 @@
 [2 Nephi 8:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p10#p10)
 
 
-[^a]: [[Isaiah 35.8|Isa. 35:8 (8-10).]]
+[^a]: [[Isaiah 35.8|Isa. 35:8 (8–10)]][[Isaiah 35.9|]][[Isaiah 35.10|]].  

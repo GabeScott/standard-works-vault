@@ -5,4 +5,4 @@
 [Moses 4:29](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.29?lang=eng#p29)
 
 
-[^a]: TG [[Eden]].
+[^a]: [[Eden|TG Eden]].  

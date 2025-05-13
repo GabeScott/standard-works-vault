@@ -5,5 +5,5 @@
 [Leviticus 19:30](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.30?lang=eng#p30)
 
 
-[^a]: [[Leviticus 23.3|Lev. 23:3.]]
-[^b]: TG [[Reverence]].
+[^a]: [[Leviticus 23.3|Lev. 23:3]].  
+[^b]: [[Reverence|TG Reverence]].  

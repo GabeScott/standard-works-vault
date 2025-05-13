@@ -5,6 +5,6 @@
 [Ezekiel 43:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.4?lang=eng#p4)
 
 
-[^a]: [[Ezekiel 44.2|Ezek. 44:2.]]
-[^b]: TG [[Genealogy and Temple Work]].
-[^c]: OR which faces.
+[^a]: [[Ezekiel 44.2|Ezek. 44:2]].  
+[^b]: [[Temple|TG Temple]].  
+[^c]: OR which faces.  

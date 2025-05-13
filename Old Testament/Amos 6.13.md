@@ -5,4 +5,4 @@
 [Amos 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/6.13?lang=eng#p13)
 
 
-[^a]: [[Mosiah 11.19|Mosiah 11:19]]; [[D&C 3.4|D&C 3:4.]]
+[^a]: [[Mosiah 11.19|Mosiah 11:19]]; [[D&C 3.4|D&C 3:4]].  

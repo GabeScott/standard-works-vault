@@ -5,4 +5,4 @@
 [Isaiah 12:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/12.5?lang=eng#p5)
 
 
-[^a]: TG [[Singing, Sing, Sang, Sung]].
+[^a]: [[Singing, Sing, Sang, Sung|TG Singing]].  

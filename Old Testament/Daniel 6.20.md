@@ -5,4 +5,4 @@
 [Daniel 6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.20?lang=eng#p20)
 
 
-[^a]: TG [[Servant]].
+[^a]: [[Servant|TG Servant]].  

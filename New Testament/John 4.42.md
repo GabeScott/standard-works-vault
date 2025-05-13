@@ -5,5 +5,5 @@
 [John 4:42](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.42?lang=eng#p42)
 
 
-[^a]: TG [[Jesus Christ, Messiah]].
-[^b]: [[D&C 66.1|D&C 66:1.]]
+[^a]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  
+[^b]: [[D&C 66.1|D&C 66:1]].  

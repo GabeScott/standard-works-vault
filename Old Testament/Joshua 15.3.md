@@ -5,4 +5,4 @@
 [Joshua 15:3](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.3?lang=eng#p3)
 
 
-[^a]: HEB circled about.
+[^a]: HEB circled about.  

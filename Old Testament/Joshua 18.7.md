@@ -5,6 +5,6 @@
 [Joshua 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/18.7?lang=eng#p7)
 
 
-[^a]: TG [[Priesthood, Aaronic]].
-[^b]: TG [[Priesthood, History of]].
-[^c]: [[Joshua 22.1|Josh. 22:1 (1-6).]]
+[^a]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  
+[^b]: [[Priesthood, History of|TG Priesthood, History of]].  
+[^c]: [[Joshua 22.1|Josh. 22:1 (1–6)]][[Joshua 22.2|]][[Joshua 22.3|]][[Joshua 22.4|]][[Joshua 22.5|]][[Joshua 22.6|]].  

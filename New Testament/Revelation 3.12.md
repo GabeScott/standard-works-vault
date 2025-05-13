@@ -5,5 +5,5 @@
 [Revelation 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.12?lang=eng#p12)
 
 
-[^a]: [[Revelation 14.1|Rev. 14:1]]; [[Revelation 22.4|22:4 (1-5).]]
-[^b]: TG [[Jerusalem, New]]; [[Zion, Sion]].
+[^a]: [[Revelation 14.1|Rev. 14:1]]; [[Revelation 22.1|22:4 (1–5)]][[Revelation 22.2|]][[Revelation 22.3|]][[Revelation 22.4|]][[Revelation 22.5|]].  
+[^b]: [[Jerusalem, New|TG Jerusalem, New]]; [[Zion, Sion|Zion]].  

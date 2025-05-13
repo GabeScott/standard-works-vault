@@ -5,4 +5,4 @@
 [Exodus 30:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.31?lang=eng#p31)
 
 
-[^a]: [[Exodus 31.11|Ex. 31:11.]]
+[^a]: [[Exodus 31.11|Ex. 31:11]].  

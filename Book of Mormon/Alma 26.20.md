@@ -5,4 +5,4 @@
 [Alma 26:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p20#p20)
 
 
-[^a]: [[2 Nephi 1.13|2 Ne. 1:13]]; [[Helaman 3.29|Hel. 3:29.]]
+[^a]: [[2 Nephi 1.13|2 Ne. 1:13]]; [[Helaman 3.29|Hel. 3:29]].  

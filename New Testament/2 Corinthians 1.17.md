@@ -5,4 +5,4 @@
 [2 Corinthians 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.17?lang=eng#p17)
 
 
-[^a]: GR light-mindedness, levity.
+[^a]: GR light-mindedness, levity.  

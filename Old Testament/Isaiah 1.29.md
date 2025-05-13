@@ -5,4 +5,4 @@
 [Isaiah 1:29](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.29?lang=eng#p29)
 
 
-[^a]: IE terebinth trees and gardens used in idol worship.
+[^a]: IE terebinth trees and gardens used in idol worship.  

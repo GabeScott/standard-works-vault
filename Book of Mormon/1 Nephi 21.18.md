@@ -5,4 +5,4 @@
 [1 Nephi 21:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/21?lang=eng&id=p18#p18)
 
 
-[^a]: [[Micah 4.11|Micah 4:11 (11-13).]]
+[^a]: [[Micah 4.11|Micah 4:11 (11–13)]][[Micah 4.12|]][[Micah 4.13|]].  

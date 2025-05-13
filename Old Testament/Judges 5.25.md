@@ -5,5 +5,5 @@
 [Judges 5:25](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.25?lang=eng#p25)
 
 
-[^a]: HEB curds, curdled milk.
-[^b]: HEB bowl of nobles.
+[^a]: HEB curds, curdled milk.  
+[^b]: HEB bowl of nobles.  

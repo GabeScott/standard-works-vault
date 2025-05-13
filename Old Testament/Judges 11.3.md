@@ -5,4 +5,4 @@
 [Judges 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.3?lang=eng#p3)
 
 
-[^a]: HEB empty, idle, worthless.
+[^a]: HEB empty, idle, worthless.  

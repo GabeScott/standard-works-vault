@@ -5,4 +5,4 @@
 [Mosiah 12:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/12?lang=eng&id=p13#p13)
 
 
-[^a]: [[Mosiah 11.27|Mosiah 11:27.]]
+[^a]: [[Mosiah 11.27|Mosiah 11:27]].  

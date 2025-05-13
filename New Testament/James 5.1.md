@@ -5,4 +5,4 @@
 [James 5:1](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.1?lang=eng#p1)
 
 
-[^a]: TG [[Mourning, Mourn]].
+[^a]: [[Mourning, Mourn|TG Mourning]].  

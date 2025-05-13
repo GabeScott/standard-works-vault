@@ -5,4 +5,4 @@
 [Matthew 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.9?lang=eng#p9)
 
 
-[^a]: GR as our father.
+[^a]: GR as our father.  

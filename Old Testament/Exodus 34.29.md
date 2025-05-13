@@ -5,7 +5,7 @@
 [Exodus 34:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.29?lang=eng#p29)
 
 
-[^a]: [[Exodus 34.1|Ex. 34:1 (1-2).]]
-[^b]: [[Exodus 32.15|Ex. 32:15.]]
-[^c]: OR knew.
-[^d]: [[Mosiah 13.5|Mosiah 13:5 (5-6)]]; [[Helaman 5.36|Hel. 5:36]]; [[D&C 110.3|D&C 110:3]]; JS—H 1:32. TG [[Transfiguration, Transfigured]].
+[^a]: [[Exodus 34.1|Ex. 34:1 (1–2)]][[Exodus 34.2|]].  
+[^b]: [[Exodus 32.15|Ex. 32:15]].  
+[^c]: OR knew.  
+[^d]: [[Mosiah 13.5|Mosiah 13:5 (5–6)]][[Mosiah 13.6|]]; [[Helaman 5.36|Hel. 5:36]]; [[D&C 110.3|D&C 110:3]]; [[Joseph Smith History 1.32|JS—H 1:32]]. [[Transfiguration, Transfigured|TG Transfiguration]].  

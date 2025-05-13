@@ -5,4 +5,4 @@
 [D&C 6:22](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.22?lang=eng#p22)
 
 
-[^a]: TG [[Discernment, Spiritual]]; [[God, Access to]].
+[^a]: [[Discernment, Spiritual|TG Discernment, Spiritual]]; [[God, Access to|God, Access to]].  

@@ -5,5 +5,5 @@
 [Romans 15:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.12?lang=eng#p12)
 
 
-[^a]: IE Isaiah.
-[^b]: TG [[Jesus Christ, Davidic Descent of]].
+[^a]: IE Isaiah.  
+[^b]: [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  

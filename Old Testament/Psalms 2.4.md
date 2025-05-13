@@ -5,4 +5,4 @@
 [Psalms 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/2.4?lang=eng#p4)
 
 
-[^a]: TG [[Laughter, Laugh]].
+[^a]: [[Laughter, Laugh|TG Laughter]].  

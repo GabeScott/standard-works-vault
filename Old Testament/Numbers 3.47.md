@@ -5,4 +5,4 @@
 [Numbers 3:47](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.47?lang=eng#p47)
 
 
-[^a]: HEB per head, or each.
+[^a]: HEB per head, or each.  

@@ -5,4 +5,4 @@
 [Psalms 120:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/120.7?lang=eng#p7)
 
 
-[^a]: TG [[War]].
+[^a]: [[War|TG War]].  

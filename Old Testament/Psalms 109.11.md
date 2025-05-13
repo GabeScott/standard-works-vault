@@ -5,4 +5,4 @@
 [Psalms 109:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.11?lang=eng#p11)
 
 
-[^a]: OR creditors seize.
+[^a]: OR creditors seize.  

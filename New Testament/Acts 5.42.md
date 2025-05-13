@@ -5,4 +5,4 @@
 [Acts 5:42](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.42?lang=eng#p42)
 
 
-[^a]: TG [[Missionary Work]].
+[^a]: [[Missionary Work|TG Missionary Work]].  

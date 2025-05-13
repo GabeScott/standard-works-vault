@@ -5,7 +5,7 @@
 [John 15:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.16?lang=eng#p16)
 
 
-[^a]: TG [[Apostles]]; [[Called of God]]; [[Election, Elect]]; [[Priesthood, Qualifying for]].
-[^b]: TG [[Authority]]; [[Church Organization]]; Priesthood, [[Authority]]; [[Priesthood, History of]]; [[Priesthood, Melchizedek]].
-[^c]: TG [[Missionary Work]]; [[Mission of Early Saints]].
-[^d]: [[D&C 18.18|D&C 18:18.]]
+[^a]: [[Apostles|TG Apostles]]; [[Called of God|Called of God]]; [[Election, Elect|Election]]; [[Priesthood, Qualifying for|Priesthood, Qualifying for]].  
+[^b]: [[Authority|TG Authority]]; [[Church Organization|Church Organization]]; [[Priesthood, Authority|Priesthood, Authority]]; [[Priesthood, History of|Priesthood, History of]]; [[Priesthood, Melchizedek|Priesthood, Melchizedek]].  
+[^c]: [[Missionary Work|TG Missionary Work]]; [[Mission of Early Saints|Mission of Early Saints]].  
+[^d]: [[D&C 18.18|D&C 18:18]].  

@@ -5,4 +5,4 @@
 [2 Timothy 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.20?lang=eng#p20)
 
 
-[^a]: GR clay, earthenware.
+[^a]: GR clay, earthenware.  

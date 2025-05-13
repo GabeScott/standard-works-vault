@@ -5,7 +5,7 @@
 [1 Nephi 15:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p20#p20)
 
 
-[^a]: [[1 Nephi 19.23|1 Ne. 19:23.]]
-[^b]: [[Isaiah 40.9|Isa. 40:9.]]
-[^c]: TG [[Israel, Restoration of]].
-[^d]: [[1 Nephi 16.5|1 Ne. 16:5 (5, 24, 39).]]
+[^a]: [[1 Nephi 19.23|1 Ne. 19:23]].  
+[^b]: [[Isaiah 40.9|Isa. 40:9]].  
+[^c]: [[Israel, Restoration of|TG Israel, Restoration of]].  
+[^d]: [[1 Nephi 16.5|1 Ne. 16:5 (5, 24, 39)]][[1 Nephi 16.24|]][[1 Nephi 16.39|]].  

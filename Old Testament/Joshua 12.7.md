@@ -5,5 +5,5 @@
 [Joshua 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/12.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 135.11|Ps. 135:11.]]
-[^b]: [[Deuteronomy 1.38|Deut. 1:38.]]
+[^a]: [[Psalms 135.11|Ps. 135:11]].  
+[^b]: [[Deuteronomy 1.38|Deut. 1:38]].  

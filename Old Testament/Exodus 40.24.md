@@ -5,4 +5,4 @@
 [Exodus 40:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.24?lang=eng#p24)
 
 
-[^a]: OR opposite.
+[^a]: OR opposite.  

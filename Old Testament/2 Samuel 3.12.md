@@ -5,4 +5,4 @@
 [2 Samuel 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/3.12?lang=eng#p12)
 
 
-[^a]: OR covenant (also v. 13).
+[^a]: OR covenant (also [[2 Samuel 3.13|v. 13]]).  

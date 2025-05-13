@@ -5,5 +5,5 @@
 [Jeremiah 25:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.12?lang=eng#p12)
 
 
-[^a]: [[2 Chronicles 36.21|2 Chr. 36:21]]; Dan. 9:2.
-[^b]: Dan. 5:26.
+[^a]: [[2 Chronicles 36.21|2 Chr. 36:21]]; [[Daniel 9.2|Dan. 9:2]].  
+[^b]: [[Daniel 5.26|Dan. 5:26]].  

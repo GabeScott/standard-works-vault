@@ -5,4 +5,4 @@
 [Genesis 26:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.26?lang=eng#p26)
 
 
-[^a]: [[Genesis 21.22|Gen. 21:22.]]
+[^a]: [[Genesis 21.22|Gen. 21:22]].  

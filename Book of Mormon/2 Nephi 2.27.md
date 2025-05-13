@@ -5,11 +5,11 @@
 [2 Nephi 2:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p27#p27)
 
 
-[^a]: [[Galatians 5.1|Gal. 5:1]]; [[Helaman 14.30|Hel. 14:30 (29-30)]]; [[Moses 6.56|Moses 6:56.]]
-[^b]: TG [[Mortality]].
-[^c]: [[2 Nephi 26.24|2 Ne. 26:24]]; [[Jacob 5.41|Jacob 5:41]]; [[Alma 26.37|Alma 26:37.]]
-[^d]: [[Alma 29.8|Alma 29:8]]. TG [[Talents]].
-[^e]: TG [[Initiative]]; [[Opposition]].
-[^f]: TG [[Liberty]].
-[^g]: [[Deuteronomy 30.15|Deut. 30:15.]]
-[^h]: [[D&C 10.22|D&C 10:22.]]
+[^a]: [[Galatians 5.1|Gal. 5:1]]; [[Helaman 14.29|Hel. 14:30 (29–30)]][[Helaman 14.30|]]; [[Moses 6.56|Moses 6:56]].  
+[^b]: [[Mortality|TG Mortality]].  
+[^c]: [[2 Nephi 26.24|2 Ne. 26:24]]; [[Jacob 5.41|Jacob 5:41]]; [[Alma 26.37|Alma 26:37]].  
+[^d]: [[Alma 29.8|Alma 29:8]]. [[Talents|TG Talents]].  
+[^e]: [[Initiative|TG Initiative]]; [[Opposition|Opposition]].  
+[^f]: [[Liberty|TG Liberty]].  
+[^g]: [[Deuteronomy 30.15|Deut. 30:15]].  
+[^h]: [[D&C 10.22|D&C 10:22]].  

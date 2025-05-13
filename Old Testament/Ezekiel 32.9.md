@@ -5,4 +5,4 @@
 [Ezekiel 32:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/32.9?lang=eng#p9)
 
 
-[^a]: JS—M 1:8.
+[^a]: [[Joseph Smith Matthew 1.8|JS—M 1:8]].  

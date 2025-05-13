@@ -5,8 +5,8 @@
 [Ether 4:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/4?lang=eng&id=p7#p7)
 
 
-[^a]: [[D&C 5.28|D&C 5:28.]]
-[^b]: TG [[Sanctification, Sanctify]].
-[^c]: [[2 Nephi 30.16|2 Ne. 30:16]]; [[Alma 12.9|Alma 12:9]]; [[3 Nephi 26.10|3 Ne. 26:10 (6-11).]]
-[^d]: [[2 Nephi 27.22|2 Ne. 27:22.]]
-[^e]: [[Mosiah 3.8|Mosiah 3:8.]]
+[^a]: [[D&C 5.28|D&C 5:28]].  
+[^b]: [[Sanctification, Sanctify|TG Sanctification]].  
+[^c]: [[2 Nephi 30.16|2 Ne. 30:16]]; [[Alma 12.9|Alma 12:9]]; [[3 Nephi 26.6|3 Ne. 26:10 (6–11)]][[3 Nephi 26.7|]][[3 Nephi 26.8|]][[3 Nephi 26.9|]][[3 Nephi 26.10|]][[3 Nephi 26.11|]].  
+[^d]: [[2 Nephi 27.22|2 Ne. 27:22]].  
+[^e]: [[Mosiah 3.8|Mosiah 3:8]].  

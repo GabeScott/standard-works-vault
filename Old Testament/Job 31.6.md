@@ -5,5 +5,5 @@
 [Job 31:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.6?lang=eng#p6)
 
 
-[^a]: Dan. 5:27.
-[^b]: TG [[Integrity]].
+[^a]: [[Daniel 5.27|Dan. 5:27]].  
+[^b]: [[Integrity|TG Integrity]].  

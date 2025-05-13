@@ -5,4 +5,4 @@
 [Exodus 31:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.10?lang=eng#p10)
 
 
-[^a]: HEB officiating garments. Ex. 35:19.
+[^a]: HEB officiating garments. [[Exodus 35.19|Ex. 35:19]].  

@@ -5,4 +5,4 @@
 [Psalms 137:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/137.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 47.1|Isa. 47:1.]]
+[^a]: [[Isaiah 47.1|Isa. 47:1]].  

@@ -5,4 +5,4 @@
 [Mark 12:40](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.40?lang=eng#p40)
 
 
-[^a]: TG [[Damnation, Damned]].
+[^a]: [[Damnation, Damned|TG Damnation]].  

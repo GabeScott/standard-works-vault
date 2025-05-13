@@ -5,5 +5,5 @@
 [Mosiah 9:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/9?lang=eng&id=p3#p3)
 
 
-[^a]: [[Omni 1.27|Omni 1:27 (27-29)]]; [[Mosiah 7.21|Mosiah 7:21.]]
-[^b]: [[Mosiah 25.5|Mosiah 25:5.]]
+[^a]: [[Omni 1.27|Omni 1:27 (27–29)]][[Omni 1.28|]][[Omni 1.29|]]; [[Mosiah 7.21|Mosiah 7:21]].  
+[^b]: [[Mosiah 25.5|Mosiah 25:5]].  

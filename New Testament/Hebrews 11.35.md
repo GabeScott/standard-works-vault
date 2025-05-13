@@ -5,5 +5,5 @@
 [Hebrews 11:35](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.35?lang=eng#p35)
 
 
-[^a]: TG [[Deliver, Deliverance]].
-[^b]: JST Heb. 11:35 … the first resurrection;
+[^a]: [[Deliver, Deliverance|TG Deliver]].  
+[^b]: [[JST Hebrews 11.35|JST Heb. 11:35]] … the first resurrection;  

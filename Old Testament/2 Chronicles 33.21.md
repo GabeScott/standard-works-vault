@@ -5,4 +5,4 @@
 [2 Chronicles 33:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.21?lang=eng#p21)
 
 
-[^a]: [[2 Kings 21.19|2 Kgs. 21:19 (19-24).]]
+[^a]: [[2 Kings 21.19|2 Kgs. 21:19 (19–24)]][[2 Kings 21.20|]][[2 Kings 21.21|]][[2 Kings 21.22|]][[2 Kings 21.23|]][[2 Kings 21.24|]].  

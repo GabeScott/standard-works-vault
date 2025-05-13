@@ -5,5 +5,5 @@
 [Ecclesiastes 11:8](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/11.8?lang=eng#p8)
 
 
-[^a]: [[Ecclesiastes 12.1|Eccl. 12:1.]]
-[^b]: TG [[Vanity]].
+[^a]: [[Ecclesiastes 12.1|Eccl. 12:1]].  
+[^b]: [[Vanity|TG Vanity]].  

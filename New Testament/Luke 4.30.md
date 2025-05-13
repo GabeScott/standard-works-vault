@@ -5,4 +5,4 @@
 [Luke 4:30](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.30?lang=eng#p30)
 
 
-[^a]: [[John 8.59|John 8:59.]]
+[^a]: [[John 8.59|John 8:59]].  

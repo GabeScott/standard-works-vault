@@ -5,4 +5,4 @@
 [Daniel 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/3.18?lang=eng#p18)
 
 
-[^a]: [[Exodus 1.17|Ex. 1:17 (16-17).]]
+[^a]: [[Exodus 1.16|Ex. 1:17 (16–17)]][[Exodus 1.17|]].  

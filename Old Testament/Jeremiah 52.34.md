@@ -5,4 +5,4 @@
 [Jeremiah 52:34](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.34?lang=eng#p34)
 
 
-[^a]: OR allowance.
+[^a]: OR allowance.  

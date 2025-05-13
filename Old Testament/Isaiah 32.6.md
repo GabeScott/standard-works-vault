@@ -5,5 +5,5 @@
 [Isaiah 32:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/32.6?lang=eng#p6)
 
 
-[^a]: HEB obscenity.
-[^b]: TG [[Hypocrisy, Hypocrite]].
+[^a]: HEB obscenity.  
+[^b]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  

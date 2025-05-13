@@ -5,4 +5,4 @@
 [2 Samuel 22:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.20?lang=eng#p20)
 
 
-[^a]: [[Psalms 118.5|Ps. 118:5.]]
+[^a]: [[Psalms 118.5|Ps. 118:5]].  

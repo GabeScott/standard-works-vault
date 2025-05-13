@@ -5,9 +5,9 @@
 [Isaiah 40:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.4?lang=eng#p4)
 
 
-[^a]: [[Luke 3.5|Luke 3:5]]; [[Helaman 14.23|Hel. 14:23]]; [[D&C 109.74|D&C 109:74.]]
-[^b]: HEB lifted up or raised.
-[^c]: TG [[Earth, Renewal of]].
-[^d]: [[Zechariah 14.10|Zech. 14:10.]]
-[^e]: [[Isaiah 45.2|Isa. 45:2.]]
-[^f]: HEB the mountains into a plain.
+[^a]: [[Luke 3.5|Luke 3:5]]; [[Helaman 14.23|Hel. 14:23]]; [[D&C 109.74|D&C 109:74]].  
+[^b]: HEB lifted up or raised.  
+[^c]: [[Earth, Renewal of|TG Earth, Renewal of]].  
+[^d]: [[Zechariah 14.10|Zech. 14:10]].  
+[^e]: [[Isaiah 45.2|Isa. 45:2]].  
+[^f]: HEB the mountains into a plain.  

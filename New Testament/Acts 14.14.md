@@ -5,4 +5,4 @@
 [Acts 14:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.14?lang=eng#p14)
 
 
-[^a]: TG [[Apostles]].
+[^a]: [[Apostles|TG Apostles]].  

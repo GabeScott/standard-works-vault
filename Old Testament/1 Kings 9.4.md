@@ -5,6 +5,6 @@
 [1 Kings 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.4?lang=eng#p4)
 
 
-[^a]: [[1 Kings 6.12|1 Kgs. 6:12.]]
-[^b]: [[1 Kings 15.5|1 Kgs. 15:5.]]
-[^c]: TG [[Integrity]].
+[^a]: [[1 Kings 6.12|1 Kgs. 6:12]].  
+[^b]: [[1 Kings 15.5|1 Kgs. 15:5]].  
+[^c]: [[Integrity|TG Integrity]].  

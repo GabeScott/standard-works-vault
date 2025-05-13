@@ -5,6 +5,6 @@
 [3 Nephi 10:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/10?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Scriptures, Study of]].
-[^b]: [[Helaman 14.23|Hel. 14:23.]]
-[^c]: [[Numbers 16.32|Num. 16:32]]; [[1 Nephi 19.11|1 Ne. 19:11]]; [[2 Nephi 26.5|2 Ne. 26:5.]]
+[^a]: [[Scriptures, Study of|TG Scriptures, Study of]].  
+[^b]: [[Helaman 14.23|Hel. 14:23]].  
+[^c]: [[Numbers 16.32|Num. 16:32]]; [[1 Nephi 19.11|1 Ne. 19:11]]; [[2 Nephi 26.5|2 Ne. 26:5]].  

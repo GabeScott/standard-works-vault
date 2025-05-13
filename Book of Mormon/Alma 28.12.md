@@ -5,6 +5,6 @@
 [Alma 28:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/28?lang=eng&id=p12#p12)
 
 
-[^a]: [[Genesis 50.10|Gen. 50:10.]]
-[^b]: [[Alma 11.41|Alma 11:41.]]
-[^c]: [[Alma 56.11|Alma 56:11.]]
+[^a]: [[Genesis 50.10|Gen. 50:10]].  
+[^b]: [[Alma 11.41|Alma 11:41]].  
+[^c]: [[Alma 56.11|Alma 56:11]].  

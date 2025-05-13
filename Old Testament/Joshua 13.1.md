@@ -5,4 +5,4 @@
 [Joshua 13:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.1?lang=eng#p1)
 
 
-[^a]: [[Joshua 23.1|Josh. 23:1.]]
+[^a]: [[Joshua 23.1|Josh. 23:1]].  

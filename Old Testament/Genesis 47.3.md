@@ -5,5 +5,5 @@
 [Genesis 47:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 46.33|Gen. 46:33.]]
-[^b]: [[Genesis 46.34|Gen. 46:34.]]
+[^a]: [[Genesis 46.33|Gen. 46:33]].  
+[^b]: [[Genesis 46.34|Gen. 46:34]].  

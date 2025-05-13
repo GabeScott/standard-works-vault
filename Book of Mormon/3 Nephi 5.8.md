@@ -5,4 +5,4 @@
 [3 Nephi 5:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p8#p8)
 
 
-[^a]: W of M 1:5; [[3 Nephi 26.6|3 Ne. 26:6 (6-12).]]
+[^a]: [[Words of Mormon 1.5|W of M 1:5]]; [[3 Nephi 26.6|3 Ne. 26:6 (6–12)]][[3 Nephi 26.7|]][[3 Nephi 26.8|]][[3 Nephi 26.9|]][[3 Nephi 26.10|]][[3 Nephi 26.11|]][[3 Nephi 26.12|]].  

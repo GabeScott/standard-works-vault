@@ -5,5 +5,5 @@
 [2 Timothy 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.8?lang=eng#p8)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
-[^b]: TG [[Gospel]].
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  
+[^b]: [[Gospel|TG Gospel]].  

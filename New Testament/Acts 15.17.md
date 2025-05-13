@@ -5,4 +5,4 @@
 [Acts 15:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.17?lang=eng#p17)
 
 
-[^a]: [[Moroni 7.32|Moro. 7:32.]]
+[^a]: [[Moroni 7.32|Moro. 7:32]].  

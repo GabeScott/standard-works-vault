@@ -5,5 +5,5 @@
 [Acts 18:8](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.8?lang=eng#p8)
 
 
-[^a]: [[1 Corinthians 1.14|1 Cor. 1:14.]]
-[^b]: TG [[Baptism, Qualifications for]].
+[^a]: [[1 Corinthians 1.14|1 Cor. 1:14]].  
+[^b]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  

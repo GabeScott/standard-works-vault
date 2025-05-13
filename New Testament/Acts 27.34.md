@@ -5,4 +5,4 @@
 [Acts 27:34](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.34?lang=eng#p34)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Health|TG Health]].  

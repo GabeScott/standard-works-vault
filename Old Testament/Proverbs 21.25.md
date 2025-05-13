@@ -5,5 +5,5 @@
 [Proverbs 21:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.25?lang=eng#p25)
 
 
-[^a]: TG [[Apathy]]; [[Laziness]].
-[^b]: TG [[Labor]].
+[^a]: [[Apathy|TG Apathy]]; [[Laziness|Laziness]].  
+[^b]: [[Labor|TG Labor]].  

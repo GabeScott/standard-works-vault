@@ -5,5 +5,5 @@
 [Psalms 11:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/11.7?lang=eng#p7)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: OR the upright shall behold His face.
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: OR the upright shall behold His face.  

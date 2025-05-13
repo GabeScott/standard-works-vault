@@ -5,6 +5,6 @@
 [Mormon 9:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p17#p17)
 
 
-[^a]: [[Jacob 4.9|Jacob 4:9.]]
-[^b]: TG [[Man, Physical Creation of]].
-[^c]: [[Genesis 2.7|Gen. 2:7]]; [[Mosiah 2.25|Mosiah 2:25]]; [[D&C 77.12|D&C 77:12]]; [[D&C 93.35|93:35 (33-35).]]
+[^a]: [[Jacob 4.9|Jacob 4:9]].  
+[^b]: [[Man, Physical Creation of|TG Man, Physical Creation of]].  
+[^c]: [[Genesis 2.7|Gen. 2:7]]; [[Mosiah 2.25|Mosiah 2:25]]; [[D&C 77.12|D&C 77:12]]; [[D&C 93.33|93:35 (33–35)]][[D&C 93.34|]][[D&C 93.35|]].  

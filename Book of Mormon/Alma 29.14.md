@@ -5,4 +5,4 @@
 [Alma 29:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p14#p14)
 
 
-[^a]: [[Alma 17.4|Alma 17:4 (1-4).]]
+[^a]: [[Alma 17.1|Alma 17:4 (1–4)]][[Alma 17.2|]][[Alma 17.3|]][[Alma 17.4|]].  

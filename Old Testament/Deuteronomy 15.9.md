@@ -5,5 +5,5 @@
 [Deuteronomy 15:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.9?lang=eng#p9)
 
 
-[^a]: [[D&C 88.67|D&C 88:67 (67-68).]]
-[^b]: [[Deuteronomy 24.15|Deut. 24:15.]]
+[^a]: [[D&C 88.67|D&C 88:67 (67–68)]][[D&C 88.68|]].  
+[^b]: [[Deuteronomy 24.15|Deut. 24:15]].  

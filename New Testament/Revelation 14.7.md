@@ -5,8 +5,8 @@
 [Revelation 14:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.7?lang=eng#p7)
 
 
-[^a]: [[D&C 88.104|D&C 88:104]]. TG [[Reverence]].
-[^b]: TG [[Judgment, the Last]].
-[^c]: TG [[Assembly for Worship]].
-[^d]: TG [[God, Creator]].
-[^e]: [[Nehemiah 9.6|Neh. 9:6.]]
+[^a]: [[D&C 88.104|D&C 88:104]]. [[Reverence|TG Reverence]].  
+[^b]: [[Judgment, the Last|TG Judgment, the Last]].  
+[^c]: [[Worship|TG Worship]].  
+[^d]: [[God, Creator|TG God, Creator]].  
+[^e]: [[Nehemiah 9.6|Neh. 9:6]].  

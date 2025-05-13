@@ -5,4 +5,4 @@
 [Helaman 14:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p1#p1)
 
 
-[^a]: [[Helaman 13.2|Hel. 13:2]]; [[3 Nephi 23.9|3 Ne. 23:9 (9-10).]]
+[^a]: [[Helaman 13.2|Hel. 13:2]]; [[3 Nephi 23.9|3 Ne. 23:9 (9–10)]][[3 Nephi 23.10|]].  

@@ -5,4 +5,4 @@
 [Luke 18:6](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.6?lang=eng#p6)
 
 
-[^a]: TG [[Injustice]].
+[^a]: [[Injustice|TG Injustice]].  

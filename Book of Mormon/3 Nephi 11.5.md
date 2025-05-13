@@ -5,4 +5,4 @@
 [3 Nephi 11:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p5#p5)
 
 
-[^a]: [[Job 36.15|Job 36:15]]; [[D&C 101.92|D&C 101:92.]]
+[^a]: [[Job 36.15|Job 36:15]]; [[D&C 101.92|D&C 101:92]].  

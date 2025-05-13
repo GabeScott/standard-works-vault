@@ -5,5 +5,5 @@
 [2 Samuel 18:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/18.3?lang=eng#p3)
 
 
-[^a]: [[2 Samuel 21.17|2 Sam. 21:17.]]
-[^b]: HEB help us.
+[^a]: [[2 Samuel 21.17|2 Sam. 21:17]].  
+[^b]: HEB help us.  

@@ -5,6 +5,6 @@
 [Ezekiel 18:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.20?lang=eng#p20)
 
 
-[^a]: TG [[Sin]].
-[^b]: TG [[Accountability]]; [[Punish, Punishment]].
-[^c]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Sin|TG Sin]].  
+[^b]: [[Accountability|TG Accountability]]; [[Punish, Punishment|Punish]].  
+[^c]: [[Righteousness|TG Righteousness]].  

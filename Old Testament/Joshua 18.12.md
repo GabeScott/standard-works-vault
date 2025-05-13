@@ -5,4 +5,4 @@
 [Joshua 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/18.12?lang=eng#p12)
 
 
-[^a]: [[Joshua 7.2|Josh. 7:2.]]
+[^a]: [[Joshua 7.2|Josh. 7:2]].  

@@ -5,4 +5,4 @@
 [Exodus 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.8?lang=eng#p8)
 
 
-[^a]: HEB tell.
+[^a]: HEB tell.  

@@ -5,5 +5,5 @@
 [Ezekiel 3:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.27?lang=eng#p27)
 
 
-[^a]: TG [[Prophecy]]; [[Teaching with the Spirit]].
-[^b]: TG [[Prophets, Mission of]].
+[^a]: [[Prophecy|TG Prophecy]]; [[Teaching with the Spirit|Teaching with the Spirit]].  
+[^b]: [[Prophets, Mission of|TG Prophets, Mission of]].  

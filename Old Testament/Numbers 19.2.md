@@ -5,4 +5,4 @@
 [Numbers 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/19.2?lang=eng#p2)
 
 
-[^a]: HEB defect.
+[^a]: HEB defect.  

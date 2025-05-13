@@ -5,4 +5,4 @@
 [Genesis 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.16?lang=eng#p16)
 
 
-[^a]: [[Moses 7.42|Moses 7:42]]; [[Moses 8.12|8:12]]. TG [[Family, Patriarchal]].
+[^a]: [[Moses 7.42|Moses 7:42]]; [[Moses 8.12|8:12]]. [[Family, Patriarchal|TG Family, Patriarchal]].  

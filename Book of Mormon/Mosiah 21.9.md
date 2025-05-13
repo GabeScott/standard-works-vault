@@ -5,4 +5,4 @@
 [Mosiah 21:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 12.4|Mosiah 12:4]]. TG [[Mourning, Mourn]].
+[^a]: [[Mosiah 12.4|Mosiah 12:4]]. [[Mourning, Mourn|TG Mourning]].  

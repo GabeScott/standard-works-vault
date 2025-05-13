@@ -5,5 +5,5 @@
 [1 Samuel 9:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.21?lang=eng#p21)
 
 
-[^a]: [[Judges 6.15|Judg. 6:15.]]
-[^b]: HEB this way to me according to this manner.
+[^a]: [[Judges 6.15|Judg. 6:15]].  
+[^b]: HEB this way to me according to this manner.  

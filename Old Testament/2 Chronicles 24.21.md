@@ -5,4 +5,4 @@
 [2 Chronicles 24:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/24.21?lang=eng#p21)
 
 
-[^a]: TG [[Martyrdom]]; [[Prophets, Rejection of]].
+[^a]: [[Martyrdom|TG Martyrdom]]; [[Prophets, Rejection of|Prophets, Rejection of]].  

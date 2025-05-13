@@ -5,4 +5,4 @@
 [Ezekiel 23:42](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.42?lang=eng#p42)
 
 
-[^a]: HEB drunkards.
+[^a]: HEB drunkards.  

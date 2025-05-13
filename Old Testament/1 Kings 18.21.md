@@ -5,5 +5,5 @@
 [1 Kings 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.21?lang=eng#p21)
 
 
-[^a]: [[Hosea 10.2|Hosea 10:2]]; [[James 1.8|James 1:8.]]
-[^b]: TG [[Agency]].
+[^a]: [[Hosea 10.2|Hosea 10:2]]; [[James 1.8|James 1:8]].  
+[^b]: [[Agency|TG Agency]].  

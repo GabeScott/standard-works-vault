@@ -5,4 +5,4 @@
 [Numbers 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/9.7?lang=eng#p7)
 
 
-[^a]: IE having touched it.
+[^a]: IE having touched it.  

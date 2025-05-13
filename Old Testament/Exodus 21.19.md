@@ -5,4 +5,4 @@
 [Exodus 21:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.19?lang=eng#p19)
 
 
-[^a]: TG [[Time]].
+[^a]: [[Time|TG Time]].  

@@ -5,4 +5,4 @@
 [Genesis 34:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/34.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 23.10|Gen. 23:10.]]
+[^a]: [[Genesis 23.10|Gen. 23:10]].  

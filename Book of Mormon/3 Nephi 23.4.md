@@ -5,4 +5,4 @@
 [3 Nephi 23:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/23?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mormon 8.26|Morm. 8:26.]]
+[^a]: [[Mormon 8.26|Morm. 8:26]].  

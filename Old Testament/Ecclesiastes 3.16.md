@@ -5,4 +5,4 @@
 [Ecclesiastes 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.16?lang=eng#p16)
 
 
-[^a]: 4 Ne. 1:44.
+[^a]: [[4 Nephi 1.44|4 Ne. 1:44]].  

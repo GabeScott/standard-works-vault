@@ -5,6 +5,6 @@
 [Moses 2:5](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.5?lang=eng#p5)
 
 
-[^a]: [[Moses 1.32|Moses 1:32.]]
-[^b]: [[Psalms 33.9|Ps. 33:9]]; [[2 Corinthians 4.6|2 Cor. 4:6.]]
-[^c]: [[Genesis 1.5|Gen. 1:5.]]
+[^a]: [[Moses 1.32|Moses 1:32]].  
+[^b]: [[Psalms 33.9|Ps. 33:9]]; [[2 Corinthians 4.6|2 Cor. 4:6]].  
+[^c]: [[Genesis 1.5|Gen. 1:5]].  

@@ -5,6 +5,6 @@
 [Jacob 6:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/6?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[Shame]].
-[^b]: [[Jacob 7.19|Jacob 7:19]]; [[Mosiah 15.26|Mosiah 15:26.]]
-[^c]: TG [[Guiltless]]; [[Judgment, the Last]].
+[^a]: [[Shame|TG Shame]].  
+[^b]: [[Jacob 7.19|Jacob 7:19]]; [[Mosiah 15.26|Mosiah 15:26]].  
+[^c]: [[Guilt, Guilty|TG Guilt]]; [[Judgment, the Last|Judgment, the Last]].  

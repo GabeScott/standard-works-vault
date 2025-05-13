@@ -5,4 +5,4 @@
 [Luke 4:44](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.44?lang=eng#p44)
 
 
-[^a]: [[Matthew 4.23|Matt. 4:23 (23-25).]]
+[^a]: [[Matthew 4.23|Matt. 4:23 (23–25)]][[Matthew 4.24|]][[Matthew 4.25|]].  

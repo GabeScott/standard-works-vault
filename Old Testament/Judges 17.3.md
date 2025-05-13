@@ -5,4 +5,4 @@
 [Judges 17:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/17.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 20.4|Ex. 20:4 (4, 23)]]; [[Leviticus 19.4|Lev. 19:4]]; [[Mosiah 12.36|Mosiah 12:36.]]
+[^a]: [[Exodus 20.4|Ex. 20:4 (4, 23)]][[Exodus 20.23|]]; [[Leviticus 19.4|Lev. 19:4]]; [[Mosiah 12.36|Mosiah 12:36]].  

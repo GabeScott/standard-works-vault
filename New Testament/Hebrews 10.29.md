@@ -5,5 +5,5 @@
 [Hebrews 10:29](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.29?lang=eng#p29)
 
 
-[^a]: [[Hebrews 2.3|Heb. 2:3.]]
-[^b]: GR insult.
+[^a]: [[Hebrews 2.3|Heb. 2:3]].  
+[^b]: GR insult.  

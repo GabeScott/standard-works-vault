@@ -5,4 +5,4 @@
 [Isaiah 49:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.9?lang=eng#p9)
 
 
-[^a]: TG [[Israel, Mission of]]; [[Salvation for the Dead]]; [[Spirits in Prison]].
+[^a]: [[Israel, Mission of|TG Israel, Mission of]]; [[Salvation for the Dead|Salvation for the Dead]]; [[Spirits in Prison|Spirits in Prison]].  

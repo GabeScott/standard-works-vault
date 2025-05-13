@@ -5,5 +5,5 @@
 [Leviticus 14:37](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.37?lang=eng#p37)
 
 
-[^a]: HEB sunken areas.
-[^b]: HEB whose appearance is depressed from (the rest of) the wall.
+[^a]: HEB sunken areas.  
+[^b]: HEB whose appearance is depressed from (the rest of) the wall.  

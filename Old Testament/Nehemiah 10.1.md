@@ -5,4 +5,4 @@
 [Nehemiah 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.1?lang=eng#p1)
 
 
-[^a]: OR governor.
+[^a]: OR governor.  

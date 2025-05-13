@@ -5,4 +5,4 @@
 [2 Samuel 22:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.27?lang=eng#p27)
 
 
-[^a]: OR deceitful, perverted, crooked.
+[^a]: OR deceitful, perverted, crooked.  

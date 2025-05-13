@@ -5,5 +5,5 @@
 [2 Samuel 5:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.20?lang=eng#p20)
 
 
-[^a]: [[1 Chronicles 14.11|1 Chr. 14:11 (10-11)]]; [[Isaiah 28.21|Isa. 28:21.]]
-[^b]: OR bursting-forth.
+[^a]: [[1 Chronicles 14.10|1 Chr. 14:11 (10–11)]][[1 Chronicles 14.11|]]; [[Isaiah 28.21|Isa. 28:21]].  
+[^b]: OR bursting-forth.  

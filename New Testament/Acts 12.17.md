@@ -5,4 +5,4 @@
 [Acts 12:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/12.17?lang=eng#p17)
 
 
-[^a]: [[Acts 21.40|Acts 21:40.]]
+[^a]: [[Acts 21.40|Acts 21:40]].  

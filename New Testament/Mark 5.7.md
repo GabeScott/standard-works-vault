@@ -5,4 +5,4 @@
 [Mark 5:7](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.7?lang=eng#p7)
 
 
-[^a]: OR implore.
+[^a]: OR implore.  

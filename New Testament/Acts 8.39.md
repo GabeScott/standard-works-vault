@@ -5,4 +5,4 @@
 [Acts 8:39](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.39?lang=eng#p39)
 
 
-[^a]: TG [[God, Spirit of]].
+[^a]: [[God, Spirit of|TG God, Spirit of]].  

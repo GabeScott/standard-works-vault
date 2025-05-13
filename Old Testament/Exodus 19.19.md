@@ -5,5 +5,5 @@
 [Exodus 19:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.19?lang=eng#p19)
 
 
-[^a]: [[D&C 43.25|D&C 43:25 (18, 25).]]
-[^b]: TG [[God, Manifestations of]].
+[^a]: [[D&C 43.18|D&C 43:25 (18, 25)]][[D&C 43.25|]].  
+[^b]: [[God, Manifestations of|TG God, Manifestations of]].  

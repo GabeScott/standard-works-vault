@@ -5,4 +5,4 @@
 [Mark 10:15](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.15?lang=eng#p15)
 
 
-[^a]: TG [[Meek, Meekness]].
+[^a]: [[Meek, Meekness|TG Meek]].  

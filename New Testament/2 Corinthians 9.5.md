@@ -5,4 +5,4 @@
 [2 Corinthians 9:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/9.5?lang=eng#p5)
 
 
-[^a]: GR gift, blessing, benevolence.
+[^a]: GR gift, blessing, benevolence.  

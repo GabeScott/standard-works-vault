@@ -5,5 +5,5 @@
 [Luke 15:31](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.31?lang=eng#p31)
 
 
-[^a]: TG [[Family, Love within]].
-[^b]: [[D&C 84.38|D&C 84:38.]]
+[^a]: [[Family, Love within|TG Family, Love within]].  
+[^b]: [[D&C 84.38|D&C 84:38]].  

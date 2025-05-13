@@ -5,4 +5,4 @@
 [Psalms 91:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/91.11?lang=eng#p11)
 
 
-[^a]: [[Luke 4.10|Luke 4:10 (10-11)]]. TG [[Angels]].
+[^a]: [[Luke 4.10|Luke 4:10 (10–11)]][[Luke 4.11|]]. [[Angels|TG Angels]].  

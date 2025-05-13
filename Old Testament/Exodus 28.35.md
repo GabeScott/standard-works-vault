@@ -5,4 +5,4 @@
 [Exodus 28:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.35?lang=eng#p35)
 
 
-[^a]: OR when he ministers.
+[^a]: OR when he ministers.  

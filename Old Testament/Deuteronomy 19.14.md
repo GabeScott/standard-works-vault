@@ -5,4 +5,4 @@
 [Deuteronomy 19:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.14?lang=eng#p14)
 
 
-[^a]: [[Deuteronomy 27.17|Deut. 27:17]]; [[Job 24.2|Job 24:2]]; [[Proverbs 22.28|Prov. 22:28]]; [[Hosea 5.10|Hosea 5:10.]]
+[^a]: [[Deuteronomy 27.17|Deut. 27:17]]; [[Job 24.2|Job 24:2]]; [[Proverbs 22.28|Prov. 22:28]]; [[Hosea 5.10|Hosea 5:10]].  

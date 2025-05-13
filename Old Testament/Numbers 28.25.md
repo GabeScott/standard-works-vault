@@ -5,4 +5,4 @@
 [Numbers 28:25](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.25?lang=eng#p25)
 
 
-[^a]: TG [[Meetings]].
+[^a]: [[Meetings|TG Meetings]].  

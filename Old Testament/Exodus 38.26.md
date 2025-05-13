@@ -5,5 +5,5 @@
 [Exodus 38:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/38.26?lang=eng#p26)
 
 
-[^a]: [[Exodus 30.13|Ex. 30:13]]; [[Matthew 17.27|Matt. 17:27 (24-27).]]
-[^b]: OR who was numbered in the census.
+[^a]: [[Exodus 30.13|Ex. 30:13]]; [[Matthew 17.24|Matt. 17:27 (24–27)]][[Matthew 17.25|]][[Matthew 17.26|]][[Matthew 17.27|]].  
+[^b]: OR who was numbered in the census.  

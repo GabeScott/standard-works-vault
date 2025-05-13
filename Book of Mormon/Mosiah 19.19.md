@@ -5,4 +5,4 @@
 [Mosiah 19:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/19?lang=eng&id=p19#p19)
 
 
-[^a]: [[Mosiah 19.11|Mosiah 19:11.]]
+[^a]: [[Mosiah 19.11|Mosiah 19:11]].  

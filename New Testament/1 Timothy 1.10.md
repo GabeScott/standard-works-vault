@@ -5,8 +5,8 @@
 [1 Timothy 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.10?lang=eng#p10)
 
 
-[^a]: TG [[Whore, Whoredom]].
-[^b]: GR homosexuals.
-[^c]: TG [[Homosexual Behavior]].
-[^d]: GR kidnappers.
-[^e]: 2 Tim. 4:3.
+[^a]: [[Whore, Whoredom|TG Whore]].  
+[^b]: GR homosexuals.  
+[^c]: [[Homosexual Behavior|TG Homosexual Behavior]].  
+[^d]: GR kidnappers.  
+[^e]: [[2 Timothy 4.3|2 Tim. 4:3]].  

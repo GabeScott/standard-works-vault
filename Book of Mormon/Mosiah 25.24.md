@@ -5,5 +5,5 @@
 [Mosiah 25:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/25?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[Sons and Daughters of God]].
-[^b]: TG [[God, Spirit of]]; [[Prosper]].
+[^a]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]]; [[Prosper|Prosper]].  

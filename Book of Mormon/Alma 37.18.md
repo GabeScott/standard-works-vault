@@ -5,4 +5,4 @@
 [Alma 37:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p18#p18)
 
 
-[^a]: [[D&C 5.9|D&C 5:9.]]
+[^a]: [[D&C 5.9|D&C 5:9]].  

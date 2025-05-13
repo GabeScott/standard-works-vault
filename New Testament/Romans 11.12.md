@@ -5,4 +5,4 @@
 [Romans 11:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.12?lang=eng#p12)
 
 
-[^a]: GR default, failure.
+[^a]: GR default, failure.  

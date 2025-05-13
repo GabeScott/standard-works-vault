@@ -5,6 +5,6 @@
 [Proverbs 16:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.20?lang=eng#p20)
 
 
-[^a]: [[D&C 58.27|D&C 58:27 (27-28).]]
-[^b]: TG [[Trust in God]].
-[^c]: TG [[Happiness, Happy]].
+[^a]: [[D&C 58.27|D&C 58:27 (27–28)]][[D&C 58.28|]].  
+[^b]: [[Trust in God|TG Trust in God]].  
+[^c]: [[Happiness, Happy|TG Happiness]].  

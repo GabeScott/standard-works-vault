@@ -5,7 +5,7 @@
 [Luke 10:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.21?lang=eng#p21)
 
 
-[^a]: [[Matthew 11.25|Matt. 11:25 (25-27).]]
-[^b]: JST Luke 10:22 … from them who think they are wise and prudent …
-[^c]: TG [[Prudence, Prudent]].
-[^d]: [[Alma 32.23|Alma 32:23]]; [[3 Nephi 26.14|3 Ne. 26:14 (14-16)]]; [[D&C 128.18|D&C 128:18.]]
+[^a]: [[Matthew 11.25|Matt. 11:25 (25–27)]][[Matthew 11.26|]][[Matthew 11.27|]].  
+[^b]: JST Luke 10:22 … from them who think they are wise and prudent …  
+[^c]: [[Prudence, Prudent|TG Prudence]].  
+[^d]: [[Alma 32.23|Alma 32:23]]; [[3 Nephi 26.14|3 Ne. 26:14 (14–16)]][[3 Nephi 26.15|]][[3 Nephi 26.16|]]; [[D&C 128.18|D&C 128:18]].  

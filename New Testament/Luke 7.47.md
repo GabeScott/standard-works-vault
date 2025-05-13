@@ -5,4 +5,4 @@
 [Luke 7:47](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.47?lang=eng#p47)
 
 
-[^a]: TG [[Forgive, Forgiveness]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]].  

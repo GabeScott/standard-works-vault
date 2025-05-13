@@ -5,4 +5,4 @@
 [Jeremiah 34:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.17?lang=eng#p17)
 
 
-[^a]: TG [[Liberty]].
+[^a]: [[Liberty|TG Liberty]].  

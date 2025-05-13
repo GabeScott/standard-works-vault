@@ -5,6 +5,6 @@
 [Ezekiel 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.1?lang=eng#p1)
 
 
-[^a]: TG [[God, Spirit of]]; [[Guidance, Divine]].
-[^b]: [[Ezekiel 10.19|Ezek. 10:19.]]
-[^c]: OR leaders.
+[^a]: [[God, Spirit of|TG God, Spirit of]]; [[Guidance, Divine|Guidance, Divine]].  
+[^b]: [[Ezekiel 10.19|Ezek. 10:19]].  
+[^c]: OR leaders.  

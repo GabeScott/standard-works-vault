@@ -5,6 +5,6 @@
 [James 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.18?lang=eng#p18)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Peace of God]]; [[Peace of God]] of God.
-[^c]: TG [[Peacemakers]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Peace|TG Peace]]; [[Peace of God|Peace of God]].  
+[^c]: [[Peacemakers|TG Peacemakers]].  

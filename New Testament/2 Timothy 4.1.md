@@ -5,4 +5,4 @@
 [2 Timothy 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.1?lang=eng#p1)
 
 
-[^a]: TG [[Jesus Christ, Judge]].
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

@@ -5,4 +5,4 @@
 [Amos 9:11](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.11?lang=eng#p11)
 
 
-[^a]: [[Acts 15.16|Acts 15:16 (15-17)]]. TG [[Genealogy and Temple Work]].
+[^a]: [[Acts 15.15|Acts 15:16 (15–17)]][[Acts 15.16|]][[Acts 15.17|]]. [[Temple|TG Temple]].  

@@ -5,4 +5,4 @@
 [Joshua 10:24](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.24?lang=eng#p24)
 
 
-[^a]: This symbolized triumph of one people over another.
+[^a]: This symbolized triumph of one people over another.  

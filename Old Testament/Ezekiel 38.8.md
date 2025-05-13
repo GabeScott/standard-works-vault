@@ -5,7 +5,7 @@
 [Ezekiel 38:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.8?lang=eng#p8)
 
 
-[^a]: OR mustered.
-[^b]: [[Ezekiel 34.13|Ezek. 34:13.]]
-[^c]: [[D&C 133.13|D&C 133:13.]]
-[^d]: [[Ezekiel 34.25|Ezek. 34:25.]]
+[^a]: OR mustered.  
+[^b]: [[Ezekiel 34.13|Ezek. 34:13]].  
+[^c]: [[D&C 133.13|D&C 133:13]].  
+[^d]: [[Ezekiel 34.25|Ezek. 34:25]].  

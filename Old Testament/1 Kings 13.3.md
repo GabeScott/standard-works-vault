@@ -5,4 +5,4 @@
 [1 Kings 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/13.3?lang=eng#p3)
 
 
-[^a]: OR torn down.
+[^a]: OR torn down.  

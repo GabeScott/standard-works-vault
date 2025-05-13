@@ -5,5 +5,5 @@
 [Ether 12:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p2#p2)
 
 
-[^a]: [[Ether 1.6|Ether 1:6]]; [[Ether 11.23|11:23]]; [[Ether 15.34|15:34 (33-34).]]
-[^b]: [[Jeremiah 20.9|Jer. 20:9]]; [[Enos 1.26|Enos 1:26]]; [[Alma 43.1|Alma 43:1.]]
+[^a]: [[Ether 1.6|Ether 1:6]]; [[Ether 11.23|11:23]]; [[Ether 15.33|15:34 (33–34)]][[Ether 15.34|]].  
+[^b]: [[Jeremiah 20.9|Jer. 20:9]]; [[Enos 1.26|Enos 1:26]]; [[Alma 43.1|Alma 43:1]].  

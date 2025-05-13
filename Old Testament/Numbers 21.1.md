@@ -5,7 +5,7 @@
 [Numbers 21:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.1?lang=eng#p1)
 
 
-[^a]: [[Numbers 33.40|Num. 33:40.]]
-[^b]: HEB of Arad.
-[^c]: HEB Negev.
-[^d]: HEB Atharim (a place).
+[^a]: [[Numbers 33.40|Num. 33:40]].  
+[^b]: HEB of Arad.  
+[^c]: HEB Negev.  
+[^d]: HEB Atharim (a place).  

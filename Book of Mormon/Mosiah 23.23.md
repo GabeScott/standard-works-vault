@@ -5,4 +5,4 @@
 [Mosiah 23:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 36.2|Alma 36:2.]]
+[^a]: [[Alma 36.2|Alma 36:2]].  

@@ -5,6 +5,6 @@
 [Proverbs 15:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.14?lang=eng#p14)
 
 
-[^a]: TG [[Understanding]].
-[^b]: [[Proverbs 14.6|Prov. 14:6]]. TG [[Knowledge]].
-[^c]: TG [[Foolishness]].
+[^a]: [[Understanding|TG Understanding]].  
+[^b]: [[Proverbs 14.6|Prov. 14:6]]. [[Knowledge|TG Knowledge]].  
+[^c]: [[Foolishness|TG Foolishness]].  

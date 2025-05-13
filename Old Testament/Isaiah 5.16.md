@@ -5,5 +5,5 @@
 [Isaiah 5:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.16?lang=eng#p16)
 
 
-[^a]: TG [[Jesus Christ, Judge]].
-[^b]: [[Leviticus 19.2|Lev. 19:2]]; [[Joshua 24.19|Josh. 24:19.]]
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  
+[^b]: [[Leviticus 19.2|Lev. 19:2]]; [[Joshua 24.19|Josh. 24:19]].  

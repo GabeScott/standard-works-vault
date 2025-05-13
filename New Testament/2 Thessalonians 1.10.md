@@ -5,5 +5,5 @@
 [2 Thessalonians 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/1.10?lang=eng#p10)
 
 
-[^a]: [[Isaiah 66.5|Isa. 66:5.]]
-[^b]: TG [[Mission of Latter-day Saints]].
+[^a]: [[Isaiah 66.5|Isa. 66:5]].  
+[^b]: [[Saints|TG Saints]].  

@@ -5,5 +5,5 @@
 [2 Nephi 25:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p7#p7)
 
 
-[^a]: [[2 Nephi 32.7|2 Ne. 32:7]]; [[Alma 13.23|Alma 13:23]]; [[Ether 12.39|Ether 12:39.]]
-[^b]: [[Ezekiel 12.23|Ezek. 12:23 (21-25).]]
+[^a]: [[2 Nephi 32.7|2 Ne. 32:7]]; [[Alma 13.23|Alma 13:23]]; [[Ether 12.39|Ether 12:39]].  
+[^b]: [[Ezekiel 12.21|Ezek. 12:23 (21–25)]][[Ezekiel 12.22|]][[Ezekiel 12.23|]][[Ezekiel 12.24|]][[Ezekiel 12.25|]].  

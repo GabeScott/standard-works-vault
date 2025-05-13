@@ -5,4 +5,4 @@
 [Judges 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/14.6?lang=eng#p6)
 
 
-[^a]: [[1 Nephi 7.17|1 Ne. 7:17 (17-18).]]
+[^a]: [[1 Nephi 7.17|1 Ne. 7:17 (17–18)]][[1 Nephi 7.18|]].  

@@ -5,4 +5,4 @@
 [Psalms 116:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.5?lang=eng#p5)
 
 
-[^a]: TG [[God, Mercy of]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  

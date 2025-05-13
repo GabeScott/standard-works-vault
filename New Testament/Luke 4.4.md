@@ -5,4 +5,4 @@
 [Luke 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.4?lang=eng#p4)
 
 
-[^a]: [[Deuteronomy 8.3|Deut. 8:3.]]
+[^a]: [[Deuteronomy 8.3|Deut. 8:3]].  

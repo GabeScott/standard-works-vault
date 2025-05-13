@@ -5,4 +5,4 @@
 [Daniel 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.6?lang=eng#p6)
 
 
-[^a]: Dan. 8:8; 11:4 (3-4).
+[^a]: [[Daniel 8.8|Dan. 8:8]]; [[Daniel 11.3|11:4 (3–4)]][[Daniel 11.4|]].  

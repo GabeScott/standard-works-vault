@@ -5,4 +5,4 @@
 [Daniel 11:8](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.8?lang=eng#p8)
 
 
-[^a]: HEB molten images.
+[^a]: HEB molten images.  

@@ -5,4 +5,4 @@
 [Revelation 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.17?lang=eng#p17)
 
 
-[^a]: TG [[Treasure]].
+[^a]: [[Treasure|TG Treasure]].  

@@ -5,4 +5,4 @@
 [Isaiah 38:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.9?lang=eng#p9)
 
 
-[^a]: TG [[Scriptures, Writing of]].
+[^a]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  

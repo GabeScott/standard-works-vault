@@ -5,5 +5,5 @@
 [Luke 20:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.28?lang=eng#p28)
 
 
-[^a]: [[Deuteronomy 25.5|Deut. 25:5.]]
-[^b]: [[Mark 12.19|Mark 12:19.]]
+[^a]: [[Deuteronomy 25.5|Deut. 25:5]].  
+[^b]: [[Mark 12.19|Mark 12:19]].  

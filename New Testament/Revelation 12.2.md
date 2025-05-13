@@ -5,4 +5,4 @@
 [Revelation 12:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 66.7|Isa. 66:7 (7-9).]]
+[^a]: [[Isaiah 66.7|Isa. 66:7 (7–9)]][[Isaiah 66.8|]][[Isaiah 66.9|]].  

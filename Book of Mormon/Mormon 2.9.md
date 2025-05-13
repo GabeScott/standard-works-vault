@@ -5,4 +5,4 @@
 [Mormon 2:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/2?lang=eng&id=p9#p9)
 
 
-[^a]: [[Moroni 9.17|Moro. 9:17.]]
+[^a]: [[Moroni 9.17|Moro. 9:17]].  

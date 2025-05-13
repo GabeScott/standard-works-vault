@@ -5,4 +5,4 @@
 [Numbers 33:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.7?lang=eng#p7)
 
 
-[^a]: [[Exodus 14.2|Ex. 14:2 (1-3).]]
+[^a]: [[Exodus 14.1|Ex. 14:2 (1–3)]][[Exodus 14.2|]][[Exodus 14.3|]].  

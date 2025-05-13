@@ -5,5 +5,5 @@
 [Isaiah 27:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/27.6?lang=eng#p6)
 
 
-[^a]: [[Ether 13.11|Ether 13:11.]]
-[^b]: IE the blessings of salvation. TG [[Vineyard of the Lord]].
+[^a]: [[Ether 13.11|Ether 13:11]].  
+[^b]: IE the blessings of salvation. [[Vineyard of the Lord|TG Vineyard of the Lord]].  

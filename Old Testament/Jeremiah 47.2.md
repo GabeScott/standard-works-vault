@@ -5,4 +5,4 @@
 [Jeremiah 47:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/47.2?lang=eng#p2)
 
 
-[^a]: [[Jeremiah 46.7|Jer. 46:7 (7-8).]]
+[^a]: [[Jeremiah 46.7|Jer. 46:7 (7–8)]][[Jeremiah 46.8|]].  

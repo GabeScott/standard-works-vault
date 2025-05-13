@@ -5,4 +5,4 @@
 [Ezekiel 48:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.28?lang=eng#p28)
 
 
-[^a]: HEB Meribah. Num. 20:13.
+[^a]: HEB Meribah. [[Numbers 20.13|Num. 20:13]].  

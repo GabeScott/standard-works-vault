@@ -5,5 +5,5 @@
 [Proverbs 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.9?lang=eng#p9)
 
 
-[^a]: [[2 Nephi 32.4|2 Ne. 32:4.]]
-[^b]: [[Proverbs 14.6|Prov. 14:6.]]
+[^a]: [[2 Nephi 32.4|2 Ne. 32:4]].  
+[^b]: [[Proverbs 14.6|Prov. 14:6]].  

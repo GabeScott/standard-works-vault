@@ -5,4 +5,4 @@
 [Alma 27:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p26#p26)
 
 
-[^a]: [[Alma 30.1|Alma 30:1.]]
+[^a]: [[Alma 30.1|Alma 30:1]].  

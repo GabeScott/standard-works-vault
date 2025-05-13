@@ -5,4 +5,4 @@
 [Exodus 21:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 21.20|JST Ex. 21:20 … put to death.]]
+[^a]: JST Ex. 21:20 … put to death.  

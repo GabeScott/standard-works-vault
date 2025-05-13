@@ -5,5 +5,5 @@
 [Luke 12:39](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.39?lang=eng#p39)
 
 
-[^a]: GR master.
-[^b]: GR allowed, permitted.
+[^a]: GR master.  
+[^b]: GR allowed, permitted.  

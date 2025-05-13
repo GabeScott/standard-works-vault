@@ -5,4 +5,4 @@
 [3 Nephi 15:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/15?lang=eng&id=p3#p3)
 
 
-[^a]: [[Hebrews 8.13|Heb. 8:13]]; [[Ether 13.9|Ether 13:9.]]
+[^a]: [[Hebrews 8.13|Heb. 8:13]]; [[Ether 13.9|Ether 13:9]].  

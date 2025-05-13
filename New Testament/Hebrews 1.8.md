@@ -5,5 +5,5 @@
 [Hebrews 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.8?lang=eng#p8)
 
 
-[^a]: TG [[Kingdom of God, in Heaven]].
-[^b]: [[D&C 88.104|D&C 88:104.]]
+[^a]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  
+[^b]: [[D&C 88.104|D&C 88:104]].  

@@ -5,7 +5,7 @@
 [Mosiah 5:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/5?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Good Works]].
-[^b]: TG [[Jesus Christ, Jehovah]]; [[Jesus Christ, Lord]].
-[^c]: TG [[Election, Elect]].
-[^d]: Col. 1:16; [[Mosiah 4.2|Mosiah 4:2]]; [[Alma 11.39|Alma 11:39.]]
+[^a]: [[Good Works|TG Good Works]].  
+[^b]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]]; [[Jesus Christ, Lord|Jesus Christ, Lord]].  
+[^c]: [[Election, Elect|TG Election]].  
+[^d]: [[Colossians 1.16|Col. 1:16]]; [[Mosiah 4.2|Mosiah 4:2]]; [[Alma 11.39|Alma 11:39]].  

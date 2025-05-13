@@ -5,4 +5,4 @@
 [Acts 13:46](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.46?lang=eng#p46)
 
 
-[^a]: [[Matthew 21.43|Matt. 21:43]]; [[Luke 14.24|Luke 14:24 (21-24)]]; [[Acts 28.28|Acts 28:28 (27-28).]]
+[^a]: [[Matthew 21.43|Matt. 21:43]]; [[Luke 14.21|Luke 14:24 (21–24)]][[Luke 14.22|]][[Luke 14.23|]][[Luke 14.24|]]; [[Acts 28.27|Acts 28:28 (27–28)]][[Acts 28.28|]].  

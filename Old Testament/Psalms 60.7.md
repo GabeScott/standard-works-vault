@@ -5,4 +5,4 @@
 [Psalms 60:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/60.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 49.10|Gen. 49:10.]]
+[^a]: [[Genesis 49.10|Gen. 49:10]].  

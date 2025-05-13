@@ -5,4 +5,4 @@
 [2 Nephi 20:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p15#p15)
 
 
-[^a]: IE Can the king prosper against God?
+[^a]: IE Can the king prosper against God?  

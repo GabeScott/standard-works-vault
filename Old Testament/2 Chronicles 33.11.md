@@ -5,4 +5,4 @@
 [2 Chronicles 33:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.11?lang=eng#p11)
 
 
-[^a]: HEB with hooks.
+[^a]: HEB with hooks.  

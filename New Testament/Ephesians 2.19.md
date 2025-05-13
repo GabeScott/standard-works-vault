@@ -5,7 +5,7 @@
 [Ephesians 2:19](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.19?lang=eng#p19)
 
 
-[^a]: TG [[Gentiles]]; [[Stranger]].
-[^b]: TG [[Citizenship]]; [[Fellowshipping]].
-[^c]: TG [[Mission of Latter-day Saints]].
-[^d]: TG [[Sons and Daughters of God]].
+[^a]: [[Gentiles|TG Gentiles]]; [[Stranger|Stranger]].  
+[^b]: [[Citizenship|TG Citizenship]]; [[Fellowshipping|Fellowshipping]].  
+[^c]: [[Saints|TG Saints]].  
+[^d]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  

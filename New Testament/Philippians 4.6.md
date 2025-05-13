@@ -5,7 +5,7 @@
 [Philippians 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.6?lang=eng#p6)
 
 
-[^a]: GR Don’t be unduly concerned about anything.
-[^b]: JST Philip. 4:6 … afflicted … Ps. 55:22; [[Proverbs 16.3|Prov. 16:3]]; [[Matthew 6.25|Matt. 6:25.]]
-[^c]: TG [[Prayer, Pray]].
-[^d]: TG [[Thanksgiving]].
+[^a]: GR Don’t be unduly concerned about anything.  
+[^b]: JST Philip. 4:6 … afflicted … [[Psalms 55.22|Ps. 55:22]]; [[Proverbs 16.3|Prov. 16:3]]; [[Matthew 6.25|Matt. 6:25]].  
+[^c]: [[Prayer, Pray|TG Prayer]].  
+[^d]: [[Thanksgiving|TG Thanksgiving]].  

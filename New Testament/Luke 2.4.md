@@ -5,4 +5,4 @@
 [Luke 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.4?lang=eng#p4)
 
 
-[^a]: [[1 Samuel 16.1|1 Sam. 16:1]]; [[Micah 5.2|Micah 5:2 (1-2)]]; [[John 7.42|John 7:42 (41-44)]]; [[Alma 7.10|Alma 7:10.]]
+[^a]: [[1 Samuel 16.1|1 Sam. 16:1]]; [[Micah 5.1|Micah 5:2 (1–2)]][[Micah 5.2|]]; [[John 7.41|John 7:42 (41–44)]][[John 7.42|]][[John 7.43|]][[John 7.44|]]; [[Alma 7.10|Alma 7:10]].  

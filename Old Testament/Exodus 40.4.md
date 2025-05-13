@@ -5,4 +5,4 @@
 [Exodus 40:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.4?lang=eng#p4)
 
 
-[^a]: [[Exodus 26.35|Ex. 26:35]]; [[Leviticus 24.6|Lev. 24:6 (5-6).]]
+[^a]: [[Exodus 26.35|Ex. 26:35]]; [[Leviticus 24.5|Lev. 24:6 (5–6)]][[Leviticus 24.6|]].  

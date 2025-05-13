@@ -5,4 +5,4 @@
 [1 Samuel 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.6?lang=eng#p6)
 
 
-[^a]: HEB made; i.e., established or appointed.
+[^a]: HEB made; i.e., established or appointed.  

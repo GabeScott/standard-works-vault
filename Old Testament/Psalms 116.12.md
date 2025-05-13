@@ -5,4 +5,4 @@
 [Psalms 116:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.12?lang=eng#p12)
 
 
-[^a]: TG [[Reward]].
+[^a]: [[Reward|TG Reward]].  

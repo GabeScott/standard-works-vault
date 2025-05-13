@@ -5,4 +5,4 @@
 [1 Corinthians 7:32](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.32?lang=eng#p32)
 
 
-[^a]: GR cares.
+[^a]: GR cares.  

@@ -5,4 +5,4 @@
 [Exodus 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.13?lang=eng#p13)
 
 
-[^a]: OR through whomever thou wilt send.
+[^a]: OR through whomever thou wilt send.  

@@ -5,5 +5,5 @@
 [Genesis 49:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.4?lang=eng#p4)
 
 
-[^a]: TG [[Sexual Immorality]].
-[^b]: TG [[Sensuality]].
+[^a]: [[Sexual Immorality|TG Sexual Immorality]].  
+[^b]: [[Sensuality|TG Sensuality]].  

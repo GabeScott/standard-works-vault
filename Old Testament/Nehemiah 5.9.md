@@ -5,5 +5,5 @@
 [Nehemiah 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/5.9?lang=eng#p9)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: TG [[Heathen]].
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Heathen|TG Heathen]].  

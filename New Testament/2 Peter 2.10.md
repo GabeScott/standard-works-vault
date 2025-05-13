@@ -5,8 +5,8 @@
 [2 Peter 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.10?lang=eng#p10)
 
 
-[^a]: TG [[Walking in Darkness]].
-[^b]: TG [[Lust]]; [[Sexual Immorality]].
-[^c]: TG [[Uncleanness, Unclean]].
-[^d]: GR constituted authority. TG [[Governments]].
-[^e]: TG [[Boast, Boasting]].
+[^a]: [[Walking in Darkness|TG Walking in Darkness]].  
+[^b]: [[Lust|TG Lust]]; [[Sexual Immorality|Sexual Immorality]].  
+[^c]: [[Uncleanness, Unclean|TG Uncleanness]].  
+[^d]: GR constituted authority. [[Governments|TG Governments]].  
+[^e]: [[Boast, Boasting|TG Boast]].  

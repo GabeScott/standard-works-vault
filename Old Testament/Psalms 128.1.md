@@ -5,4 +5,4 @@
 [Psalms 128:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/128.1?lang=eng#p1)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Righteousness|TG Righteousness]].  

@@ -5,4 +5,4 @@
 [2 Nephi 20:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p17#p17)
 
 
-[^a]: Obad. 1:18; [[2 Nephi 15.24|2 Ne. 15:24]]; [[3 Nephi 20.16|3 Ne. 20:16.]]
+[^a]: [[Obadiah 1.18|Obad. 1:18]]; [[2 Nephi 15.24|2 Ne. 15:24]]; [[3 Nephi 20.16|3 Ne. 20:16]].  

@@ -5,4 +5,4 @@
 [Alma 2:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 16.5|Alma 16:5.]]
+[^a]: [[Alma 16.5|Alma 16:5]].  

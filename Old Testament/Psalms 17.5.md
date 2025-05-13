@@ -5,4 +5,4 @@
 [Psalms 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/17.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 119.133|Ps. 119:133.]]
+[^a]: [[Psalms 119.133|Ps. 119:133]].  

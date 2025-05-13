@@ -5,4 +5,4 @@
 [Acts 5:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.15?lang=eng#p15)
 
 
-[^a]: [[Luke 8.44|Luke 8:44 (43-48)]]; [[Acts 19.12|Acts 19:12 (11-12).]]
+[^a]: [[Luke 8.43|Luke 8:44 (43–48)]][[Luke 8.44|]][[Luke 8.45|]][[Luke 8.46|]][[Luke 8.47|]][[Luke 8.48|]]; [[Acts 19.11|Acts 19:12 (11–12)]][[Acts 19.12|]].  

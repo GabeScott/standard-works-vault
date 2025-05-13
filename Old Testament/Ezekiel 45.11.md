@@ -5,5 +5,5 @@
 [Ezekiel 45:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.11?lang=eng#p11)
 
 
-[^a]: [[Isaiah 5.10|Isa. 5:10 (8-10).]]
-[^b]: [[Leviticus 27.16|Lev. 27:16.]]
+[^a]: [[Isaiah 5.8|Isa. 5:10 (8–10)]][[Isaiah 5.9|]][[Isaiah 5.10|]].  
+[^b]: [[Leviticus 27.16|Lev. 27:16]].  

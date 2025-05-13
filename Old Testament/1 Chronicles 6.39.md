@@ -5,4 +5,4 @@
 [1 Chronicles 6:39](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/6.39?lang=eng#p39)
 
 
-[^a]: [[1 Chronicles 25.1|1 Chr. 25:1.]]
+[^a]: [[1 Chronicles 25.1|1 Chr. 25:1]].  

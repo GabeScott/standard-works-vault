@@ -5,5 +5,5 @@
 [James 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.9?lang=eng#p9)
 
 
-[^a]: TG [[Curse]].
-[^b]: TG [[God, Body of, Corporeal Nature]].
+[^a]: [[Curse|TG Curse]].  
+[^b]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  

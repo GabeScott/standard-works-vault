@@ -5,4 +5,4 @@
 [Proverbs 6:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.23?lang=eng#p23)
 
 
-[^a]: [[Psalms 119.105|Ps. 119:105.]]
+[^a]: [[Psalms 119.105|Ps. 119:105]].  

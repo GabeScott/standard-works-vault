@@ -5,4 +5,4 @@
 [Revelation 17:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.12?lang=eng#p12)
 
 
-[^a]: Dan. 7:24.
+[^a]: [[Daniel 7.24|Dan. 7:24]].  

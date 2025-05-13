@@ -5,5 +5,5 @@
 [Judges 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 34.12|Ex. 34:12]]; [[Joshua 9.7|Josh. 9:7.]]
-[^b]: TG [[Disobedience, Disobey]].
+[^a]: [[Exodus 34.12|Ex. 34:12]]; [[Joshua 9.7|Josh. 9:7]].  
+[^b]: [[Disobedience, Disobey|TG Disobedience]].  

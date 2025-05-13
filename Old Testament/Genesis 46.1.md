@@ -5,4 +5,4 @@
 [Genesis 46:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 21.31|Gen. 21:31 (31, 33)]]; [[Genesis 26.23|26:23 (23, 33).]]
+[^a]: [[Genesis 21.31|Gen. 21:31 (31, 33)]][[Genesis 21.33|]]; [[Genesis 26.23|26:23 (23, 33)]][[Genesis 26.33|]].  

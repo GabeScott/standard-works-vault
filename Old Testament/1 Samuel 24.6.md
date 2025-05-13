@@ -5,4 +5,4 @@
 [1 Samuel 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/24.6?lang=eng#p6)
 
 
-[^a]: TG [[Anointing, Anoint]].
+[^a]: [[Anointing, Anoint|TG Anointing]].  

@@ -5,6 +5,6 @@
 [2 Nephi 2:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 11.3|2 Ne. 11:3]]; [[Jacob 7.5|Jacob 7:5]]. TG [[Jesus Christ, Appearances, Antemortal]].
-[^b]: [[Jude 1.3|Jude 1:3.]]
-[^c]: TG [[Grace]].
+[^a]: [[2 Nephi 11.3|2 Ne. 11:3]]; [[Jacob 7.5|Jacob 7:5]]. [[Jesus Christ, Appearances, Antemortal|TG Jesus Christ, Appearances, Antemortal]].  
+[^b]: [[Jude 1.3|Jude 1:3]].  
+[^c]: [[Grace|TG Grace]].  

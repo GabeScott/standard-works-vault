@@ -5,5 +5,5 @@
 [Mosiah 23:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mosiah 18.34|Mosiah 18:34]]; [[Alma 5.4|Alma 5:4]]. TG [[Warn, Warnings]].
-[^b]: [[Mosiah 27.16|Mosiah 27:16.]]
+[^a]: [[Mosiah 18.34|Mosiah 18:34]]; [[Alma 5.4|Alma 5:4]]. [[Warn, Warnings|TG Warn]].  
+[^b]: [[Mosiah 27.16|Mosiah 27:16]].  

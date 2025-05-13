@@ -5,5 +5,5 @@
 [1 Corinthians 15:21](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.21?lang=eng#p21)
 
 
-[^a]: [[Romans 5.12|Rom. 5:12]]. TG [[Death]].
-[^b]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Romans 5.12|Rom. 5:12]]. [[Death|TG Death]].  
+[^b]: [[Resurrection|TG Resurrection]].  

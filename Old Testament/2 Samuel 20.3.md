@@ -5,4 +5,4 @@
 [2 Samuel 20:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/20.3?lang=eng#p3)
 
 
-[^a]: [[Jacob 1.15|Jacob 1:15.]]
+[^a]: [[Jacob 1.15|Jacob 1:15]].  

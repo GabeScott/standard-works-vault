@@ -5,5 +5,5 @@
 [Micah 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.9?lang=eng#p9)
 
 
-[^a]: Lam. 3:27 (24-27).
-[^b]: [[3 Nephi 16.4|3 Ne. 16:4 (4-5).]]
+[^a]: [[Lamentations 3.24|Lam. 3:27 (24–27)]][[Lamentations 3.25|]][[Lamentations 3.26|]][[Lamentations 3.27|]].  
+[^b]: [[3 Nephi 16.4|3 Ne. 16:4 (4–5)]][[3 Nephi 16.5|]].  

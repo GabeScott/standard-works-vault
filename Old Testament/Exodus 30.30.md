@@ -5,4 +5,4 @@
 [Exodus 30:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.30?lang=eng#p30)
 
 
-[^a]: [[Exodus 40.15|Ex. 40:15 (12-15).]]
+[^a]: [[Exodus 40.12|Ex. 40:15 (12–15)]][[Exodus 40.13|]][[Exodus 40.14|]][[Exodus 40.15|]].  

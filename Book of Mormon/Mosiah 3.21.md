@@ -5,4 +5,4 @@
 [Mosiah 3:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3?lang=eng&id=p21#p21)
 
 
-[^a]: Col. 1:22; [[D&C 4.2|D&C 4:2]]. TG [[Accountability]].
+[^a]: [[Colossians 1.22|Col. 1:22]]; [[D&C 4.2|D&C 4:2]]. [[Accountability|TG Accountability]].  

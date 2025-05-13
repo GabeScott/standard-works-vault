@@ -5,4 +5,4 @@
 [Jeremiah 37:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/37.13?lang=eng#p13)
 
 
-[^a]: OR art deserting.
+[^a]: OR art deserting.  

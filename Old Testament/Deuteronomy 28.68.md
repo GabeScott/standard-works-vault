@@ -5,4 +5,4 @@
 [Deuteronomy 28:68](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.68?lang=eng#p68)
 
 
-[^a]: IE into captivity, symbolized by “Egypt.” Hosea 8:13.
+[^a]: IE into captivity, symbolized by “Egypt.” [[Hosea 8.13|Hosea 8:13]].  

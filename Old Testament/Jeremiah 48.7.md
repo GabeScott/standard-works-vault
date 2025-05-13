@@ -5,5 +5,5 @@
 [Jeremiah 48:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.7?lang=eng#p7)
 
 
-[^a]: [[Mosiah 12.29|Mosiah 12:29.]]
-[^b]: [[Jeremiah 43.12|Jer. 43:12]]; [[Jeremiah 49.3|49:3.]]
+[^a]: [[Mosiah 12.29|Mosiah 12:29]].  
+[^b]: [[Jeremiah 43.12|Jer. 43:12]]; [[Jeremiah 49.3|49:3]].  

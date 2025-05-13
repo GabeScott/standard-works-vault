@@ -5,7 +5,7 @@
 [Alma 42:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Punish, Punishment]].
-[^b]: [[D&C 19.11|D&C 19:11 (10-12).]]
-[^c]: TG [[Opposition]].
-[^d]: TG [[Eternity]].
+[^a]: [[Punish, Punishment|TG Punish]].  
+[^b]: [[D&C 19.10|D&C 19:11 (10–12)]][[D&C 19.11|]][[D&C 19.12|]].  
+[^c]: [[Opposition|TG Opposition]].  
+[^d]: [[Eternity|TG Eternity]].  

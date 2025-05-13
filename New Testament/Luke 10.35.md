@@ -5,4 +5,4 @@
 [Luke 10:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.35?lang=eng#p35)
 
 
-[^a]: GR innkeeper.
+[^a]: GR innkeeper.  

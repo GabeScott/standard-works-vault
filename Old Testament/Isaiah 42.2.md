@@ -5,4 +5,4 @@
 [Isaiah 42:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.2?lang=eng#p2)
 
 
-[^a]: IE the voice.
+[^a]: IE the voice.  

@@ -5,5 +5,5 @@
 [Moroni 10:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p26#p26)
 
 
-[^a]: [[Ezekiel 18.26|Ezek. 18:26]]; [[1 Nephi 15.33|1 Ne. 15:33 (32-33)]]; [[Mosiah 15.26|Mosiah 15:26.]]
-[^b]: [[John 8.21|John 8:21 (21-24).]]
+[^a]: [[Ezekiel 18.26|Ezek. 18:26]]; [[1 Nephi 15.32|1 Ne. 15:33 (32–33)]][[1 Nephi 15.33|]]; [[Mosiah 15.26|Mosiah 15:26]].  
+[^b]: [[John 8.21|John 8:21 (21–24)]][[John 8.22|]][[John 8.23|]][[John 8.24|]].  

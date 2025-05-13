@@ -5,4 +5,4 @@
 [2 Chronicles 30:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.24?lang=eng#p24)
 
 
-[^a]: [[2 Chronicles 29.34|2 Chr. 29:34.]]
+[^a]: [[2 Chronicles 29.34|2 Chr. 29:34]].  

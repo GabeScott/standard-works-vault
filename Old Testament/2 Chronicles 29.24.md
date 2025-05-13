@@ -5,5 +5,5 @@
 [2 Chronicles 29:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.24?lang=eng#p24)
 
 
-[^a]: TG [[Reconciliation, Reconcile]].
-[^b]: [[Leviticus 1.4|Lev. 1:4]]; [[Leviticus 4.26|4:26]]; [[Numbers 15.25|Num. 15:25.]]
+[^a]: [[Reconciliation, Reconcile|TG Reconciliation]].  
+[^b]: [[Leviticus 1.4|Lev. 1:4]]; [[Leviticus 4.26|4:26]]; [[Numbers 15.25|Num. 15:25]].  

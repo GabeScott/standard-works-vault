@@ -5,7 +5,7 @@
 [Alma 9:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p18#p18)
 
 
-[^a]: [[Deuteronomy 6.2|Deut. 6:2.]]
-[^b]: [[Alma 16.3|Alma 16:3.]]
-[^c]: [[Alma 16.9|Alma 16:9.]]
-[^d]: [[Alma 8.29|Alma 8:29.]]
+[^a]: [[Deuteronomy 6.2|Deut. 6:2]].  
+[^b]: [[Alma 16.3|Alma 16:3]].  
+[^c]: [[Alma 16.9|Alma 16:9]].  
+[^d]: [[Alma 8.29|Alma 8:29]].  

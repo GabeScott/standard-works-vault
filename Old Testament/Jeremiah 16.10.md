@@ -5,4 +5,4 @@
 [Jeremiah 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.10?lang=eng#p10)
 
 
-[^a]: [[Deuteronomy 29.24|Deut. 29:24.]]
+[^a]: [[Deuteronomy 29.24|Deut. 29:24]].  

@@ -5,4 +5,4 @@
 [Isaiah 35:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/35.4?lang=eng#p4)
 
 
-[^a]: [[Mormon 3.15|Morm. 3:15.]]
+[^a]: [[Mormon 3.15|Morm. 3:15]].  

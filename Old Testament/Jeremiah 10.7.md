@@ -5,5 +5,5 @@
 [Jeremiah 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.7?lang=eng#p7)
 
 
-[^a]: [[Esther 1.13|Esth. 1:13.]]
-[^b]: [[Exodus 8.10|Ex. 8:10 (8-10)]]; [[Psalms 89.6|Ps. 89:6.]]
+[^a]: [[Esther 1.13|Esth. 1:13]].  
+[^b]: [[Exodus 8.8|Ex. 8:10 (8–10)]][[Exodus 8.9|]][[Exodus 8.10|]]; [[Psalms 89.6|Ps. 89:6]].  

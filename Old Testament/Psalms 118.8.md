@@ -5,5 +5,5 @@
 [Psalms 118:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.8?lang=eng#p8)
 
 
-[^a]: TG [[Trust in God]].
-[^b]: TG [[Dependability]].
+[^a]: [[Trust in God|TG Trust in God]].  
+[^b]: [[Dependability|TG Dependability]].  

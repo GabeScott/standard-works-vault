@@ -5,7 +5,7 @@
 [Ezekiel 17:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.20?lang=eng#p20)
 
 
-[^a]: Lam. 1:13; [[Ezekiel 12.13|Ezek. 12:13]]; [[Hosea 7.12|Hosea 7:12.]]
-[^b]: [[Ezekiel 21.23|Ezek. 21:23.]]
-[^c]: TG [[Israel, Bondage of, in Other Lands]].
-[^d]: [[Ezekiel 20.35|Ezek. 20:35.]]
+[^a]: [[Lamentations 1.13|Lam. 1:13]]; [[Ezekiel 12.13|Ezek. 12:13]]; [[Hosea 7.12|Hosea 7:12]].  
+[^b]: [[Ezekiel 21.23|Ezek. 21:23]].  
+[^c]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  
+[^d]: [[Ezekiel 20.35|Ezek. 20:35]].  

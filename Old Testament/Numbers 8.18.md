@@ -5,5 +5,5 @@
 [Numbers 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/8.18?lang=eng#p18)
 
 
-[^a]: TG [[Priesthood, History of]].
-[^b]: TG [[Firstborn]].
+[^a]: [[Priesthood, History of|TG Priesthood, History of]].  
+[^b]: [[Firstborn|TG Firstborn]].  

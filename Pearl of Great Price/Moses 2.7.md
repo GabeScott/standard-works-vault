@@ -5,4 +5,4 @@
 [Moses 2:7](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.7?lang=eng#p7)
 
 
-[^a]: [[Amos 9.6|Amos 9:6]]; [[Abraham 4.9|Abr. 4:9 (9-10).]]
+[^a]: [[Amos 9.6|Amos 9:6]]; [[Abraham 4.9|Abr. 4:9 (9–10)]][[Abraham 4.10|]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/6.15?lang=eng#p15)
 
 
-[^a]: TG [[Israel, Judah, People of]].
+[^a]: [[Israel, Judah, People of|TG Israel, Judah, People of]].  

@@ -5,4 +5,4 @@
 [1 Nephi 13:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p16#p16)
 
 
-[^a]: [[D&C 101.80|D&C 101:80.]]
+[^a]: [[D&C 101.80|D&C 101:80]].  

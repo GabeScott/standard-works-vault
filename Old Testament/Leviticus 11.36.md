@@ -5,4 +5,4 @@
 [Leviticus 11:36](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.36?lang=eng#p36)
 
 
-[^a]: HEB a spring and a well.
+[^a]: HEB a spring and a well.  

@@ -5,5 +5,5 @@
 [Mark 7:27](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.27?lang=eng#p27)
 
 
-[^a]: JST Mark 7:26 … children of the kingdom first …
-[^b]: [[D&C 41.6|D&C 41:6.]]
+[^a]: JST Mark 7:26 … children of the kingdom first …  
+[^b]: [[D&C 41.6|D&C 41:6]].  

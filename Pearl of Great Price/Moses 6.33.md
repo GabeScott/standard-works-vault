@@ -5,5 +5,5 @@
 [Moses 6:33](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.33?lang=eng#p33)
 
 
-[^a]: TG [[Agency]].
-[^b]: TG [[Procrastination, Procrastinate]].
+[^a]: [[Agency|TG Agency]].  
+[^b]: [[Procrastination, Procrastinate|TG Procrastination]].  

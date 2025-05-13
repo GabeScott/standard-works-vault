@@ -5,5 +5,5 @@
 [Genesis 3:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.21?lang=eng#p21)
 
 
-[^a]: OR garments, or tunics.
-[^b]: TG [[Apparel]]; [[Clothing]].
+[^a]: OR garments, or tunics.  
+[^b]: [[Apparel|TG Apparel]]; [[Clothing|Clothing]].  

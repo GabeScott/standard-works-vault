@@ -5,6 +5,6 @@
 [Isaiah 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/25.9?lang=eng#p9)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
-[^b]: TG [[Jesus Christ, Foreordained]].
-[^c]: TG [[Salvation for the Dead]].
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^b]: [[Jesus Christ, Foreordained|TG Jesus Christ, Foreordained]].  
+[^c]: [[Salvation|TG Salvation]].  

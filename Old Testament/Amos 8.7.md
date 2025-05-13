@@ -5,5 +5,5 @@
 [Amos 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/8.7?lang=eng#p7)
 
 
-[^a]: [[Amos 6.8|Amos 6:8.]]
-[^b]: [[Hosea 8.13|Hosea 8:13.]]
+[^a]: [[Amos 6.8|Amos 6:8]].  
+[^b]: [[Hosea 8.13|Hosea 8:13]].  

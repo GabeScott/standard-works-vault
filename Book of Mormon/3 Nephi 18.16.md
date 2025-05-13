@@ -5,6 +5,6 @@
 [3 Nephi 18:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Jesus Christ, Head of the Church]].
-[^b]: TG [[Jesus Christ, Light of the World]].
-[^c]: TG [[God, the Standard of Righteousness]]; [[Jesus Christ, Exemplar]].
+[^a]: [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]].  
+[^b]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]].  
+[^c]: [[God, the Standard of Righteousness|TG God, the Standard of Righteousness]]; [[Jesus Christ, Exemplar|Jesus Christ, Exemplar]].  

@@ -5,4 +5,4 @@
 [2 Nephi 19:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p3#p3)
 
 
-[^a]: [[Isaiah 9.3|Isa. 9:3.]]
+[^a]: [[Isaiah 9.3|Isa. 9:3]].  

@@ -5,4 +5,4 @@
 [1 Kings 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.19?lang=eng#p19)
 
 
-[^a]: [[2 Samuel 7.12|2 Sam. 7:12 (12-13).]]
+[^a]: [[2 Samuel 7.12|2 Sam. 7:12 (12–13)]][[2 Samuel 7.13|]].  

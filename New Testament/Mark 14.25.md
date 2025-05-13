@@ -5,4 +5,4 @@
 [Mark 14:25](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.25?lang=eng#p25)
 
 
-[^a]: [[Matthew 26.29|Matt. 26:29]]; [[Luke 22.18|Luke 22:18]]; [[D&C 27.5|D&C 27:5.]]
+[^a]: [[Matthew 26.29|Matt. 26:29]]; [[Luke 22.18|Luke 22:18]]; [[D&C 27.5|D&C 27:5]].  

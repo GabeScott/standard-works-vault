@@ -5,4 +5,4 @@
 [Luke 7:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.28?lang=eng#p28)
 
 
-[^a]: [[Matthew 11.11|Matt. 11:11]]; [[D&C 50.26|D&C 50:26.]]
+[^a]: [[Matthew 11.11|Matt. 11:11]]; [[D&C 50.26|D&C 50:26]].  

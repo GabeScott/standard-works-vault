@@ -5,6 +5,6 @@
 [Luke 14:11](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.11?lang=eng#p11)
 
 
-[^a]: TG [[Haughtiness, Haughty]].
-[^b]: [[D&C 101.42|D&C 101:42]]. TG [[Shame]].
-[^c]: [[D&C 104.82|D&C 104:82]]. TG [[Contrite Heart]].
+[^a]: [[Haughtiness, Haughty|TG Haughtiness]].  
+[^b]: [[D&C 101.42|D&C 101:42]]. [[Shame|TG Shame]].  
+[^c]: [[D&C 104.82|D&C 104:82]]. [[Contrite Heart|TG Contrite Heart]].  

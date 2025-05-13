@@ -5,4 +5,4 @@
 [Exodus 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 46.8|Gen. 46:8.]]
+[^a]: [[Genesis 46.8|Gen. 46:8]].  

@@ -5,4 +5,4 @@
 [3 Nephi 18:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Rock]].
+[^a]: [[Rock|TG Rock]].  

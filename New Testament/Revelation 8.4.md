@@ -5,4 +5,4 @@
 [Revelation 8:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/8.4?lang=eng#p4)
 
 
-[^a]: [[Revelation 5.8|Rev. 5:8.]]
+[^a]: [[Revelation 5.8|Rev. 5:8]].  

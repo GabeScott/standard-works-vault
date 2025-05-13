@@ -5,5 +5,5 @@
 [Jeremiah 36:26](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.26?lang=eng#p26)
 
 
-[^a]: HEB the king.
-[^b]: [[1 Nephi 3.27|1 Ne. 3:27.]]
+[^a]: HEB the king.  
+[^b]: [[1 Nephi 3.27|1 Ne. 3:27]].  

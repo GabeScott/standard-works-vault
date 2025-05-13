@@ -5,4 +5,4 @@
 [Psalms 139:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/139.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 32.32|Ex. 32:32]]; [[Revelation 17.8|Rev. 17:8.]]
+[^a]: [[Exodus 32.32|Ex. 32:32]]; [[Revelation 17.8|Rev. 17:8]].  

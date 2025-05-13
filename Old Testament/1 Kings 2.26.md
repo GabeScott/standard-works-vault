@@ -5,5 +5,5 @@
 [1 Kings 2:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.26?lang=eng#p26)
 
 
-[^a]: [[1 Samuel 22.20|1 Sam. 22:20 (20, 23)]]; [[2 Samuel 15.24|2 Sam. 15:24 (24, 29).]]
-[^b]: [[Joshua 21.18|Josh. 21:18.]]
+[^a]: [[1 Samuel 22.20|1 Sam. 22:20 (20, 23)]][[1 Samuel 22.23|]]; [[2 Samuel 15.24|2 Sam. 15:24 (24, 29)]][[2 Samuel 15.29|]].  
+[^b]: [[Joshua 21.18|Josh. 21:18]].  

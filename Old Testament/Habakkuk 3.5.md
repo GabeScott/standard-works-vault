@@ -5,4 +5,4 @@
 [Habakkuk 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.5?lang=eng#p5)
 
 
-[^a]: HEB a flame.
+[^a]: HEB a flame.  

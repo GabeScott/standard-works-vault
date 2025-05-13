@@ -5,4 +5,4 @@
 [Mormon 6:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p21#p21)
 
 
-[^a]: [[1 Corinthians 15.53|1 Cor. 15:53 (53-54).]]
+[^a]: [[1 Corinthians 15.53|1 Cor. 15:53 (53–54)]][[1 Corinthians 15.54|]].  

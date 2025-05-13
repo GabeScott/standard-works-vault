@@ -5,5 +5,5 @@
 [Jeremiah 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.9?lang=eng#p9)
 
 
-[^a]: OR thoroughly.
-[^b]: OR unto the new branches.
+[^a]: OR thoroughly.  
+[^b]: OR unto the new branches.  

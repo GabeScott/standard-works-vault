@@ -5,5 +5,5 @@
 [Exodus 17:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.1?lang=eng#p1)
 
 
-[^a]: [[Numbers 33.12|Num. 33:12 (12-14).]]
-[^b]: OR encamped.
+[^a]: [[Numbers 33.12|Num. 33:12 (12–14)]][[Numbers 33.13|]][[Numbers 33.14|]].  
+[^b]: OR encamped.  

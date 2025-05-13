@@ -5,7 +5,7 @@
 [1 Timothy 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.12?lang=eng#p12)
 
 
-[^a]: [[1 Corinthians 16.11|1 Cor. 16:11 (10-11).]]
-[^b]: TG [[Example, Ensample]]; [[Priesthood, Qualifying for]].
-[^c]: GR conduct, behavior.
-[^d]: TG [[Chastity, Chaste]]; [[Purity, Pure]]; [[Virtue, Virtuous]].
+[^a]: [[1 Corinthians 16.10|1 Cor. 16:11 (10–11)]][[1 Corinthians 16.11|]].  
+[^b]: [[Example, Ensample|TG Example]]; [[Priesthood, Qualifying for|Priesthood, Qualifying for]].  
+[^c]: GR conduct, behavior.  
+[^d]: [[Chastity, Chaste|TG Chastity]]; [[Purity, Pure|Purity]]; [[Virtue, Virtuous|Virtue]].  

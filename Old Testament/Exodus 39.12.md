@@ -5,4 +5,4 @@
 [Exodus 39:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.12?lang=eng#p12)
 
 
-[^a]: HEB opal.
+[^a]: HEB opal.  

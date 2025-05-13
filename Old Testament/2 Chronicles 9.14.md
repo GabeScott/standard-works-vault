@@ -5,4 +5,4 @@
 [2 Chronicles 9:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/9.14?lang=eng#p14)
 
 
-[^a]: IE traders.
+[^a]: IE traders.  

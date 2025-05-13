@@ -5,4 +5,4 @@
 [Acts 10:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.22?lang=eng#p22)
 
 
-[^a]: TG [[Warn, Warnings]].
+[^a]: [[Warn, Warnings|TG Warn]].  

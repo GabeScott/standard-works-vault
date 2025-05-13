@@ -5,4 +5,4 @@
 [Deuteronomy 18:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.11?lang=eng#p11)
 
 
-[^a]: TG [[Spirits, Evil or Unclean]].
+[^a]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

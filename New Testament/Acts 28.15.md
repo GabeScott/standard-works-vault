@@ -5,5 +5,5 @@
 [Acts 28:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.15?lang=eng#p15)
 
 
-[^a]: TG [[Thanksgiving]].
-[^b]: TG [[Courage, Courageous]].
+[^a]: [[Thanksgiving|TG Thanksgiving]].  
+[^b]: [[Courage, Courageous|TG Courage]].  

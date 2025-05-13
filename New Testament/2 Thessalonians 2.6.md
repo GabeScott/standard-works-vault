@@ -5,5 +5,5 @@
 [2 Thessalonians 2:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.6?lang=eng#p6)
 
 
-[^a]: GR the one who possesses, holds in firm grasp, restrains.
-[^b]: GR disclosed, discovered, manifested.
+[^a]: GR the one who possesses, holds in firm grasp, restrains.  
+[^b]: GR disclosed, discovered, manifested.  

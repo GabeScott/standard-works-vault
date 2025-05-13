@@ -5,6 +5,6 @@
 [John 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.3?lang=eng#p3)
 
 
-[^a]: TG [[Man, New, Spiritually Reborn]].
-[^b]: GR from above, anew.
-[^c]: [[D&C 56.18|D&C 56:18.]]
+[^a]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  
+[^b]: GR from above, anew.  
+[^c]: [[D&C 56.18|D&C 56:18]].  

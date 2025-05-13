@@ -5,4 +5,4 @@
 [Jeremiah 5:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.24?lang=eng#p24)
 
 
-[^a]: IE winter and spring.
+[^a]: IE winter and spring.  

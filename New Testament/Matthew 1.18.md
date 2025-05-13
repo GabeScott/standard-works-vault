@@ -5,6 +5,6 @@
 [Matthew 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.18?lang=eng#p18)
 
 
-[^a]: JST Matt. 2:1 Now, as it is written, the birth of …
-[^b]: [[D&C 20.1|D&C 20:1.]]
-[^c]: GR in this way.
+[^a]: JST Matt. 2:1 Now, as it is written, the birth of …  
+[^b]: [[D&C 20.1|D&C 20:1]].  
+[^c]: GR in this way.  

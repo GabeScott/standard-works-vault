@@ -5,5 +5,5 @@
 [Abraham 4:2](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.2?lang=eng#p2)
 
 
-[^a]: TG [[Darkness, Physical]].
-[^b]: [[Genesis 1.2|Gen. 1:2]]; [[Moses 2.2|Moses 2:2.]]
+[^a]: [[Darkness, Physical|TG Darkness, Physical]].  
+[^b]: [[Genesis 1.2|Gen. 1:2]]; [[Moses 2.2|Moses 2:2]].  

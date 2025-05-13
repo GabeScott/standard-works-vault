@@ -5,7 +5,7 @@
 [Acts 20:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.24?lang=eng#p24)
 
 
-[^a]: Dan. 3:16; [[Matthew 10.19|Matt. 10:19.]]
-[^b]: [[Acts 21.13|Acts 21:13]]. TG [[Martyrdom]].
-[^c]: TG [[Gospel]].
-[^d]: TG [[Grace]].
+[^a]: [[Daniel 3.16|Dan. 3:16]]; [[Matthew 10.19|Matt. 10:19]].  
+[^b]: [[Acts 21.13|Acts 21:13]]. [[Martyrdom|TG Martyrdom]].  
+[^c]: [[Gospel|TG Gospel]].  
+[^d]: [[Grace|TG Grace]].  

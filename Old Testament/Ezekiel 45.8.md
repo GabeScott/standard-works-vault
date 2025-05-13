@@ -5,7 +5,7 @@
 [Ezekiel 45:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.8?lang=eng#p8)
 
 
-[^a]: OR It shall be his possession in the land of Israel.
-[^b]: [[Ezekiel 46.18|Ezek. 46:18.]]
-[^c]: TG [[Kings, Earthly]].
-[^d]: TG [[Israel, Twelve Tribes of]].
+[^a]: OR It shall be his possession in the land of Israel.  
+[^b]: [[Ezekiel 46.18|Ezek. 46:18]].  
+[^c]: [[Kings, Earthly|TG Kings, Earthly]].  
+[^d]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  

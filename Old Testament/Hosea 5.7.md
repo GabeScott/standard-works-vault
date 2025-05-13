@@ -5,4 +5,4 @@
 [Hosea 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/5.7?lang=eng#p7)
 
 
-[^a]: IE Within a month they and their property shall be destroyed.
+[^a]: IE Within a month they and their property shall be destroyed.  

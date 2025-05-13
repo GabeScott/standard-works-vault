@@ -5,4 +5,4 @@
 [Deuteronomy 11:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.11?lang=eng#p11)
 
 
-[^a]: [[3 Nephi 20.33|3 Ne. 20:33.]]
+[^a]: [[3 Nephi 20.33|3 Ne. 20:33]].  

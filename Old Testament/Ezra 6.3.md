@@ -5,4 +5,4 @@
 [Ezra 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.3?lang=eng#p3)
 
 
-[^a]: [[Haggai 1.8|Hag. 1:8.]]
+[^a]: [[Haggai 1.8|Hag. 1:8]].  

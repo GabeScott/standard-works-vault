@@ -5,6 +5,6 @@
 [Genesis 46:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.3?lang=eng#p3)
 
 
-[^a]: [[D&C 136.21|D&C 136:21.]]
-[^b]: TG [[Israel, Bondage of, in Egypt]].
-[^c]: TG [[Israel, Origins of]].
+[^a]: [[D&C 136.21|D&C 136:21]].  
+[^b]: [[Israel, Bondage of, in Egypt|TG Israel, Bondage of, in Egypt]].  
+[^c]: [[Israel, Origins of|TG Israel, Origins of]].  

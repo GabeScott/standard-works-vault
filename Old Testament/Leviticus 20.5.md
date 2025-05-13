@@ -5,5 +5,5 @@
 [Leviticus 20:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.5?lang=eng#p5)
 
 
-[^a]: [[Jeremiah 21.10|Jer. 21:10]]; [[Jeremiah 44.11|44:11.]]
-[^b]: [[Jeremiah 3.9|Jer. 3:9 (8-9)]]; [[Ezekiel 23.37|Ezek. 23:37.]]
+[^a]: [[Jeremiah 21.10|Jer. 21:10]]; [[Jeremiah 44.11|44:11]].  
+[^b]: [[Jeremiah 3.8|Jer. 3:9 (8–9)]][[Jeremiah 3.9|]]; [[Ezekiel 23.37|Ezek. 23:37]].  

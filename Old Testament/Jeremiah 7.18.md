@@ -5,4 +5,4 @@
 [Jeremiah 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.18?lang=eng#p18)
 
 
-[^a]: IE the fertility goddess, such as the Babylonian Ishtar.
+[^a]: IE the fertility goddess, such as the Babylonian Ishtar.  

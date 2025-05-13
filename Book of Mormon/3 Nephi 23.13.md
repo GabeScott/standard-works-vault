@@ -5,4 +5,4 @@
 [3 Nephi 23:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/23?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Record Keeping]].
+[^a]: [[Record Keeping|TG Record Keeping]].  

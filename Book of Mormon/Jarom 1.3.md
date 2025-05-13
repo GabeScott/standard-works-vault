@@ -5,5 +5,5 @@
 [Jarom 1:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/jarom/1?lang=eng&id=p3#p3)
 
 
-[^a]: [[Enos 1.22|Enos 1:22 (22-23).]]
-[^b]: [[Ether 2.8|Ether 2:8 (8-10).]]
+[^a]: [[Enos 1.22|Enos 1:22 (22–23)]][[Enos 1.23|]].  
+[^b]: [[Ether 2.8|Ether 2:8 (8–10)]][[Ether 2.9|]][[Ether 2.10|]].  

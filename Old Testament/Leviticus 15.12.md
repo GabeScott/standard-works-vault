@@ -5,4 +5,4 @@
 [Leviticus 15:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/15.12?lang=eng#p12)
 
 
-[^a]: [[Leviticus 6.28|Lev. 6:28.]]
+[^a]: [[Leviticus 6.28|Lev. 6:28]].  

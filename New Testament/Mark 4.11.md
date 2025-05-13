@@ -5,5 +5,5 @@
 [Mark 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.11?lang=eng#p11)
 
 
-[^a]: TG [[Mysteries of Godliness]].
-[^b]: [[Matthew 13.35|Matt. 13:35 (34-35)]]; [[Luke 8.10|Luke 8:10]]. TG [[Jesus Christ, Teaching Mode of]].
+[^a]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  
+[^b]: [[Matthew 13.34|Matt. 13:35 (34–35)]][[Matthew 13.35|]]; [[Luke 8.10|Luke 8:10]]. [[Jesus Christ, Teaching Mode of|TG Jesus Christ, Teaching Mode of]].  

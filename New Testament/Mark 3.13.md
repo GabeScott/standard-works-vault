@@ -5,4 +5,4 @@
 [Mark 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.13?lang=eng#p13)
 
 
-[^a]: GR desired.
+[^a]: GR desired.  

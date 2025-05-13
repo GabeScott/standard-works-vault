@@ -5,5 +5,5 @@
 [Mormon 2:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/2?lang=eng&id=p26#p26)
 
 
-[^a]: [[Mormon 3.8|Morm. 3:8 (7-8, 13).]]
-[^b]: TG [[God, Spirit of]]; [[Strength]].
+[^a]: [[Mormon 3.7|Morm. 3:8 (7–8, 13)]][[Mormon 3.8|]][[Mormon 3.13|]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]]; [[Strength|Strength]].  

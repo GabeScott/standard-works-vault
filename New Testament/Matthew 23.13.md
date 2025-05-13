@@ -5,6 +5,6 @@
 [Matthew 23:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.13?lang=eng#p13)
 
 
-[^a]: TG [[Scribe]].
-[^b]: TG [[Apostasy of Israel]].
-[^c]: GR actors.
+[^a]: [[Scribe|TG Scribe]].  
+[^b]: [[Apostasy of Israel|TG Apostasy of Israel]].  
+[^c]: GR actors.  

@@ -5,7 +5,7 @@
 [Acts 14:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.15?lang=eng#p15)
 
 
-[^a]: Dan. 2:46; [[James 5.17|James 5:17 (17-18)]]; [[1 Nephi 17.55|1 Ne. 17:55.]]
-[^b]: TG [[Lust]].
-[^c]: TG [[Vanity]].
-[^d]: TG [[Jesus Christ, Creator]].
+[^a]: [[Daniel 2.46|Dan. 2:46]]; [[James 5.17|James 5:17 (17–18)]][[James 5.18|]]; [[1 Nephi 17.55|1 Ne. 17:55]].  
+[^b]: [[Lust|TG Lust]].  
+[^c]: [[Vanity|TG Vanity]].  
+[^d]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  

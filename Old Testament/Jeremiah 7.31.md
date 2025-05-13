@@ -5,7 +5,7 @@
 [Jeremiah 7:31](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.31?lang=eng#p31)
 
 
-[^a]: [[2 Kings 23.10|2 Kgs. 23:10.]]
-[^b]: [[Joshua 18.16|Josh. 18:16.]]
-[^c]: TG [[Idolatry, Idol]].
-[^d]: [[Leviticus 18.21|Lev. 18:21]]; [[Deuteronomy 12.31|Deut. 12:31]]; [[Deuteronomy 18.10|18:10.]]
+[^a]: [[2 Kings 23.10|2 Kgs. 23:10]].  
+[^b]: [[Joshua 18.16|Josh. 18:16]].  
+[^c]: [[Idolatry, Idol|TG Idolatry]].  
+[^d]: [[Leviticus 18.21|Lev. 18:21]]; [[Deuteronomy 12.31|Deut. 12:31]]; [[Deuteronomy 18.10|18:10]].  

@@ -5,4 +5,4 @@
 [Ezekiel 26:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 1.2|Ezek. 1:2]]; [[Ezekiel 33.21|33:21.]]
+[^a]: [[Ezekiel 1.2|Ezek. 1:2]]; [[Ezekiel 33.21|33:21]].  

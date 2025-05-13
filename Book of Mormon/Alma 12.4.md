@@ -5,5 +5,5 @@
 [Alma 12:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p4#p4)
 
 
-[^a]: [[D&C 123.12|D&C 123:12.]]
-[^b]: TG [[Slander]].
+[^a]: [[D&C 123.12|D&C 123:12]].  
+[^b]: [[Slander|TG Slander]].  

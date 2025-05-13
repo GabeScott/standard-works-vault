@@ -5,4 +5,4 @@
 [Zechariah 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/2.10?lang=eng#p10)
 
 
-[^a]: [[Leviticus 26.12|Lev. 26:12]]; [[Jeremiah 3.17|Jer. 3:17]]; [[Joel 3.21|Joel 3:21 (18-21)]]; [[Revelation 22.3|Rev. 22:3 (3-4)]]. TG [[Jesus Christ, Millennial Reign]]; [[Millennium, Preparing a People for]].
+[^a]: [[Leviticus 26.12|Lev. 26:12]]; [[Jeremiah 3.17|Jer. 3:17]]; [[Joel 3.18|Joel 3:21 (18–21)]][[Joel 3.19|]][[Joel 3.20|]][[Joel 3.21|]]; [[Revelation 22.3|Rev. 22:3 (3–4)]][[Revelation 22.4|]]. [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]]; [[Millennium|Millennium]].  

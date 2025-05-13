@@ -5,6 +5,6 @@
 [Numbers 11:25](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.25?lang=eng#p25)
 
 
-[^a]: [[Numbers 12.5|Num. 12:5]]; [[Ether 2.4|Ether 2:4 (4-5, 14)]]; [[D&C 34.7|D&C 34:7 (7-9)]]; JS—H 1:68 (68-71).
-[^b]: TG [[Elder, Melchizedek Priesthood]].
-[^c]: TG [[Holy Ghost, Gifts of]].
+[^a]: [[Numbers 12.5|Num. 12:5]]; [[Ether 2.4|Ether 2:4 (4–5, 14)]][[Ether 2.5|]][[Ether 2.14|]]; [[D&C 34.7|D&C 34:7 (7–9)]][[D&C 34.8|]][[D&C 34.9|]]; [[Joseph Smith History 1.68|JS—H 1:68 (68–71)]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.70|]][[Joseph Smith History 1.71|]].  
+[^b]: [[Elder, Melchizedek Priesthood|TG Elder, Melchizedek Priesthood]].  
+[^c]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 10:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.20?lang=eng#p20)
 
 
-[^a]: [[Jacob 6.5|Jacob 6:5.]]
-[^b]: OR make an oath in.
+[^a]: [[Jacob 6.5|Jacob 6:5]].  
+[^b]: OR make an oath in.  

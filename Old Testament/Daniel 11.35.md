@@ -5,4 +5,4 @@
 [Daniel 11:35](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.35?lang=eng#p35)
 
 
-[^a]: Dan. 12:10; [[Zechariah 13.9|Zech. 13:9.]]
+[^a]: [[Daniel 12.10|Dan. 12:10]]; [[Zechariah 13.9|Zech. 13:9]].  

@@ -5,5 +5,5 @@
 [Genesis 41:40](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.40?lang=eng#p40)
 
 
-[^a]: [[Psalms 105.21|Ps. 105:21]]; Dan. 2:48; JS—M 1:49 (49-50).
-[^b]: [[Esther 10.3|Esth. 10:3.]]
+[^a]: [[Psalms 105.21|Ps. 105:21]]; [[Daniel 2.48|Dan. 2:48]]; [[Joseph Smith Matthew 1.49|JS—M 1:49 (49–50)]][[Joseph Smith Matthew 1.50|]].  
+[^b]: [[Esther 10.3|Esth. 10:3]].  

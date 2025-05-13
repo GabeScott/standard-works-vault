@@ -5,4 +5,4 @@
 [Revelation 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 25.31|Ex. 25:31.]]
+[^a]: [[Exodus 25.31|Ex. 25:31]].  

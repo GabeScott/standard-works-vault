@@ -5,4 +5,4 @@
 [Job 35:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/35.7?lang=eng#p7)
 
 
-[^a]: [[Proverbs 9.12|Prov. 9:12.]]
+[^a]: [[Proverbs 9.12|Prov. 9:12]].  

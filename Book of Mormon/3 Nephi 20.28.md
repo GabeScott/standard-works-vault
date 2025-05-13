@@ -5,5 +5,5 @@
 [3 Nephi 20:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p28#p28)
 
 
-[^a]: [[Joshua 23.13|Josh. 23:13]]; [[1 Nephi 2.24|1 Ne. 2:24]]; [[3 Nephi 16.8|3 Ne. 16:8 (8-10).]]
-[^b]: [[Isaiah 51.23|Isa. 51:23.]]
+[^a]: [[Joshua 23.13|Josh. 23:13]]; [[1 Nephi 2.24|1 Ne. 2:24]]; [[3 Nephi 16.8|3 Ne. 16:8 (8–10)]][[3 Nephi 16.9|]][[3 Nephi 16.10|]].  
+[^b]: [[Isaiah 51.23|Isa. 51:23]].  

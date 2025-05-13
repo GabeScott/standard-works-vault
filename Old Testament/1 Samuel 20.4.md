@@ -5,4 +5,4 @@
 [1 Samuel 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/20.4?lang=eng#p4)
 
 
-[^a]: [[1 Samuel 18.1|1 Sam. 18:1]]; [[D&C 88.123|D&C 88:123.]]
+[^a]: [[1 Samuel 18.1|1 Sam. 18:1]]; [[D&C 88.123|D&C 88:123]].  

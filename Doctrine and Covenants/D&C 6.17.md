@@ -5,4 +5,4 @@
 [D&C 6:17](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.17?lang=eng#p17)
 
 
-[^a]: [[D&C 18.2|D&C 18:2.]]
+[^a]: [[D&C 18.2|D&C 18:2]].  

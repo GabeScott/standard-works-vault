@@ -5,4 +5,4 @@
 [Deuteronomy 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.6?lang=eng#p6)
 
 
-[^a]: IE has a divided hoof, with two “toes.”
+[^a]: IE has a divided hoof, with two “toes.”  

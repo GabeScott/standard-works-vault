@@ -5,5 +5,5 @@
 [1 Samuel 22:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/22.9?lang=eng#p9)
 
 
-[^a]: [[1 Samuel 21.7|1 Sam. 21:7.]]
-[^b]: [[1 Samuel 21.1|1 Sam. 21:1.]]
+[^a]: [[1 Samuel 21.7|1 Sam. 21:7]].  
+[^b]: [[1 Samuel 21.1|1 Sam. 21:1]].  

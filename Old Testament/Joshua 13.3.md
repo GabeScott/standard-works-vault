@@ -5,4 +5,4 @@
 [Joshua 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.3?lang=eng#p3)
 
 
-[^a]: [[Judges 3.3|Judg. 3:3.]]
+[^a]: [[Judges 3.3|Judg. 3:3]].  

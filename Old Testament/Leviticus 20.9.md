@@ -5,6 +5,6 @@
 [Leviticus 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.9?lang=eng#p9)
 
 
-[^a]: TG [[Curse]].
-[^b]: TG [[Family, Children, Duties of]].
-[^c]: TG [[Accountability]].
+[^a]: [[Curse|TG Curse]].  
+[^b]: [[Family, Children, Duties of|TG Family, Children, Duties of]].  
+[^c]: [[Accountability|TG Accountability]].  

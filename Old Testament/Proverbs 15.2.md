@@ -5,5 +5,5 @@
 [Proverbs 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.2?lang=eng#p2)
 
 
-[^a]: TG [[Communication]].
-[^b]: TG [[Foolishness]]; [[Gossip]].
+[^a]: [[Communication|TG Communication]].  
+[^b]: [[Foolishness|TG Foolishness]]; [[Gossip|Gossip]].  

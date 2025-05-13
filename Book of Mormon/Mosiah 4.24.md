@@ -5,6 +5,6 @@
 [Mosiah 4:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p24#p24)
 
 
-[^a]: [[Deuteronomy 16.17|Deut. 16:17.]]
-[^b]: [[Acts 3.6|Acts 3:6 (5-7).]]
-[^c]: [[Mark 12.44|Mark 12:44.]]
+[^a]: [[Deuteronomy 16.17|Deut. 16:17]].  
+[^b]: [[Acts 3.5|Acts 3:6 (5–7)]][[Acts 3.6|]][[Acts 3.7|]].  
+[^c]: [[Mark 12.44|Mark 12:44]].  

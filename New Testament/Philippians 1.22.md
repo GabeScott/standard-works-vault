@@ -5,4 +5,4 @@
 [Philippians 1:22](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.22?lang=eng#p22)
 
 
-[^a]: GR know.
+[^a]: GR know.  

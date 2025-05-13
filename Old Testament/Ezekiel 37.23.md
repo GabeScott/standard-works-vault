@@ -5,6 +5,6 @@
 [Ezekiel 37:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.23?lang=eng#p23)
 
 
-[^a]: [[Ezekiel 36.25|Ezek. 36:25.]]
-[^b]: [[Zechariah 9.16|Zech. 9:16.]]
-[^c]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Ezekiel 36.25|Ezek. 36:25]].  
+[^b]: [[Zechariah 9.16|Zech. 9:16]].  
+[^c]: [[Purification, Purify, Purifying|TG Purification]].  

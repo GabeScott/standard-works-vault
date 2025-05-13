@@ -5,7 +5,7 @@
 [Moses 6:54](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.54?lang=eng#p54)
 
 
-[^a]: TG [[Jesus Christ, Divine Sonship]].
-[^b]: [[Mosiah 3.16|Mosiah 3:16]]. TG [[Jesus Christ, Atonement through]].
-[^c]: TG [[Children]].
-[^d]: TG [[Salvation of Little Children]].
+[^a]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  
+[^b]: [[Mosiah 3.16|Mosiah 3:16]]. [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  
+[^c]: [[Children|TG Children]].  
+[^d]: [[Salvation of Little Children|TG Salvation of Little Children]].  

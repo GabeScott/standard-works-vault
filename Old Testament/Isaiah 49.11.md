@@ -5,4 +5,4 @@
 [Isaiah 49:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.11?lang=eng#p11)
 
 
-[^a]: TG [[Jesus Christ, Second Coming]].
+[^a]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  

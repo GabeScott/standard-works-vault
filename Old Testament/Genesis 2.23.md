@@ -5,5 +5,5 @@
 [Genesis 2:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.23?lang=eng#p23)
 
 
-[^a]: [[Genesis 29.14|Gen. 29:14]]; [[Jacob 2.21|Jacob 2:21]]; [[Moses 3.23|Moses 3:23]]; [[Abraham 5.17|Abr. 5:17.]]
-[^b]: TG [[Creation, Create]]; [[Woman, Women]].
+[^a]: [[Genesis 29.14|Gen. 29:14]]; [[Jacob 2.21|Jacob 2:21]]; [[Moses 3.23|Moses 3:23]]; [[Abraham 5.17|Abr. 5:17]].  
+[^b]: [[Creation, Create|TG Creation]]; [[Woman, Women|Woman]].  

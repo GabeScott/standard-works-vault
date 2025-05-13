@@ -5,4 +5,4 @@
 [Psalms 148:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/148.13?lang=eng#p13)
 
 
-[^a]: TG [[Celestial Glory]].
+[^a]: [[Celestial Glory|TG Celestial Glory]].  

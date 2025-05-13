@@ -5,5 +5,5 @@
 [Psalms 105:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.16?lang=eng#p16)
 
 
-[^a]: TG [[Famine]].
-[^b]: [[Leviticus 26.26|Lev. 26:26.]]
+[^a]: [[Famine|TG Famine]].  
+[^b]: [[Leviticus 26.26|Lev. 26:26]].  

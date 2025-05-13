@@ -5,4 +5,4 @@
 [Matthew 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.15?lang=eng#p15)
 
 
-[^a]: [[Isaiah 9.1|Isa. 9:1 (1-2).]]
+[^a]: [[Isaiah 9.1|Isa. 9:1 (1–2)]][[Isaiah 9.2|]].  

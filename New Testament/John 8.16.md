@@ -5,6 +5,6 @@
 [John 8:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.16?lang=eng#p16)
 
 
-[^a]: TG [[Jesus Christ, Judge]].
-[^b]: TG [[Judgment]].
-[^c]: [[John 8.29|John 8:29]]; [[John 16.32|16:32.]]
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  
+[^b]: [[Judgment|TG Judgment]].  
+[^c]: [[John 8.29|John 8:29]]; [[John 16.32|16:32]].  

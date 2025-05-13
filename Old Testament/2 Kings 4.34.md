@@ -5,5 +5,5 @@
 [2 Kings 4:34](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.34?lang=eng#p34)
 
 
-[^a]: TG [[Administrations to the Sick]].
-[^b]: [[1 Kings 17.21|1 Kgs. 17:21.]]
+[^a]: [[Administrations to the Sick|TG Administrations to the Sick]].  
+[^b]: [[1 Kings 17.21|1 Kgs. 17:21]].  

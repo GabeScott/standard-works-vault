@@ -5,4 +5,4 @@
 [Acts 25:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/25.11?lang=eng#p11)
 
 
-[^a]: [[Acts 26.32|Acts 26:32.]]
+[^a]: [[Acts 26.32|Acts 26:32]].  

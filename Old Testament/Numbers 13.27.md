@@ -5,4 +5,4 @@
 [Numbers 13:27](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.27?lang=eng#p27)
 
 
-[^a]: [[Nehemiah 9.25|Neh. 9:25.]]
+[^a]: [[Nehemiah 9.25|Neh. 9:25]].  

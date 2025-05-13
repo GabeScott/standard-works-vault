@@ -5,4 +5,4 @@
 [2 Kings 19:30](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.30?lang=eng#p30)
 
 
-[^a]: TG [[Israel, Remnant of]].
+[^a]: [[Israel, Remnant of|TG Israel, Remnant of]].  

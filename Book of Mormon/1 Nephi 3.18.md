@@ -5,5 +5,5 @@
 [1 Nephi 3:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p18#p18)
 
 
-[^a]: [[Jeremiah 26.23|Jer. 26:23 (21-24)]]. TG [[Prophets, Rejection of]].
-[^b]: [[1 Nephi 5.21|1 Ne. 5:21]]; [[1 Nephi 7.2|7:2]]; [[1 Nephi 16.8|16:8.]]
+[^a]: [[Jeremiah 26.21|Jer. 26:23 (21–24)]][[Jeremiah 26.22|]][[Jeremiah 26.23|]][[Jeremiah 26.24|]]. [[Prophets, Rejection of|TG Prophets, Rejection of]].  
+[^b]: [[1 Nephi 5.21|1 Ne. 5:21]]; [[1 Nephi 7.2|7:2]]; [[1 Nephi 16.8|16:8]].  

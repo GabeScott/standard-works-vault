@@ -5,5 +5,5 @@
 [Genesis 49:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.9?lang=eng#p9)
 
 
-[^a]: [[Deuteronomy 33.22|Deut. 33:22]]; [[Revelation 5.5|Rev. 5:5.]]
-[^b]: [[Numbers 24.9|Num. 24:9]]; [[3 Nephi 20.16|3 Ne. 20:16 (15-16)]]; [[Mormon 5.24|Morm. 5:24.]]
+[^a]: [[Deuteronomy 33.22|Deut. 33:22]]; [[Revelation 5.5|Rev. 5:5]].  
+[^b]: [[Numbers 24.9|Num. 24:9]]; [[3 Nephi 20.15|3 Ne. 20:16 (15–16)]][[3 Nephi 20.16|]]; [[Mormon 5.24|Morm. 5:24]].  

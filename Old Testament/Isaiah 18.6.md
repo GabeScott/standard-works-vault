@@ -5,4 +5,4 @@
 [Isaiah 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/18.6?lang=eng#p6)
 
 
-[^a]: [[D&C 29.20|D&C 29:20.]]
+[^a]: [[D&C 29.20|D&C 29:20]].  

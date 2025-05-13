@@ -5,5 +5,5 @@
 [1 Samuel 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/22.8?lang=eng#p8)
 
 
-[^a]: TG [[Conspiracy]].
-[^b]: OR covenant, agreement.
+[^a]: [[Conspiracy|TG Conspiracy]].  
+[^b]: OR covenant, agreement.  

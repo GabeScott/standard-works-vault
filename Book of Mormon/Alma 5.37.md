@@ -5,9 +5,9 @@
 [Alma 5:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p37#p37)
 
 
-[^a]: TG [[Worldliness]].
-[^b]: [[2 Nephi 12.5|2 Ne. 12:5]]; [[2 Nephi 28.14|28:14]]; [[Mosiah 14.6|Mosiah 14:6.]]
-[^c]: [[Matthew 9.36|Matt. 9:36.]]
-[^d]: TG [[Shepherd]].
-[^e]: [[Proverbs 1.24|Prov. 1:24 (24-27)]]; [[Isaiah 65.12|Isa. 65:12]]; [[1 Nephi 17.13|1 Ne. 17:13]]; [[2 Nephi 7.2|2 Ne. 7:2.]]
-[^f]: [[2 Chronicles 33.10|2 Chr. 33:10]]; [[Jeremiah 26.4|Jer. 26:4]]; [[Alma 10.6|Alma 10:6 (5-6).]]
+[^a]: [[Worldliness|TG Worldliness]].  
+[^b]: [[2 Nephi 12.5|2 Ne. 12:5]]; [[2 Nephi 28.14|28:14]]; [[Mosiah 14.6|Mosiah 14:6]].  
+[^c]: [[Matthew 9.36|Matt. 9:36]].  
+[^d]: [[Shepherd|TG Shepherd]].  
+[^e]: [[Proverbs 1.24|Prov. 1:24 (24–27)]][[Proverbs 1.25|]][[Proverbs 1.26|]][[Proverbs 1.27|]]; [[Isaiah 65.12|Isa. 65:12]]; [[1 Nephi 17.13|1 Ne. 17:13]]; [[2 Nephi 7.2|2 Ne. 7:2]].  
+[^f]: [[2 Chronicles 33.10|2 Chr. 33:10]]; [[Jeremiah 26.4|Jer. 26:4]]; [[Alma 10.5|Alma 10:6 (5–6)]][[Alma 10.6|]].  

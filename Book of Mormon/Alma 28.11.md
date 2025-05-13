@@ -5,5 +5,5 @@
 [Alma 28:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/28?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 16.11|Alma 16:11.]]
-[^b]: [[Alma 48.23|Alma 48:23]]; [[D&C 42.45|D&C 42:45.]]
+[^a]: [[Alma 16.11|Alma 16:11]].  
+[^b]: [[Alma 48.23|Alma 48:23]]; [[D&C 42.45|D&C 42:45]].  

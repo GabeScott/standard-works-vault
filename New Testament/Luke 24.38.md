@@ -5,4 +5,4 @@
 [Luke 24:38](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.38?lang=eng#p38)
 
 
-[^a]: OR doubts, hesitations.
+[^a]: OR doubts, hesitations.  

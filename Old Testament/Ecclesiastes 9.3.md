@@ -5,4 +5,4 @@
 [Ecclesiastes 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.3?lang=eng#p3)
 
 
-[^a]: [[Alma 40.11|Alma 40:11 (11-12).]]
+[^a]: [[Alma 40.11|Alma 40:11 (11–12)]][[Alma 40.12|]].  

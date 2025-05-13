@@ -5,4 +5,4 @@
 [1 Chronicles 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/13.4?lang=eng#p4)
 
 
-[^a]: [[D&C 26.2|D&C 26:2.]]
+[^a]: [[D&C 26.2|D&C 26:2]].  

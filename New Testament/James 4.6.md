@@ -5,6 +5,6 @@
 [James 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.6?lang=eng#p6)
 
 
-[^a]: TG [[Grace]].
-[^b]: TG [[Pride]].
-[^c]: TG [[Poor in Spirit]].
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[Pride|TG Pride]].  
+[^c]: [[Poor in Spirit|TG Poor in Spirit]].  

@@ -5,4 +5,4 @@
 [Job 21:31](https://www.churchofjesuschrist.org/study/scriptures/ot/job/21.31?lang=eng#p31)
 
 
-[^a]: TG [[Retribution]].
+[^a]: [[Retribution|TG Retribution]].  

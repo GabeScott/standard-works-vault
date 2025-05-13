@@ -5,6 +5,6 @@
 [Alma 42:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Eden]].
-[^b]: [[Jacob 2.21|Jacob 2:21]]; [[Mosiah 2.25|Mosiah 2:25]]; [[Mormon 9.17|Morm. 9:17.]]
-[^c]: [[Genesis 3.24|Gen. 3:24]]; [[Alma 12.21|Alma 12:21]]; [[Moses 4.31|Moses 4:31.]]
+[^a]: [[Eden|TG Eden]].  
+[^b]: [[Jacob 2.21|Jacob 2:21]]; [[Mosiah 2.25|Mosiah 2:25]]; [[Mormon 9.17|Morm. 9:17]].  
+[^c]: [[Genesis 3.24|Gen. 3:24]]; [[Alma 12.21|Alma 12:21]]; [[Moses 4.31|Moses 4:31]].  

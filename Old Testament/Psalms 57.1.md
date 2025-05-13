@@ -5,4 +5,4 @@
 [Psalms 57:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/57.1?lang=eng#p1)
 
 
-[^a]: [[Ruth 2.12|Ruth 2:12.]]
+[^a]: [[Ruth 2.12|Ruth 2:12]].  

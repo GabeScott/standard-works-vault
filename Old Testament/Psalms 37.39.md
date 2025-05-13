@@ -5,4 +5,4 @@
 [Psalms 37:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.39?lang=eng#p39)
 
 
-[^a]: TG [[Salvation for the Dead]].
+[^a]: [[Salvation|TG Salvation]].  

@@ -5,5 +5,5 @@
 [Judges 15:6](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/15.6?lang=eng#p6)
 
 
-[^a]: [[Judges 14.15|Judg. 14:15.]]
-[^b]: Septuagint, Syriac, and many Hebrew texts: her father’s house.
+[^a]: [[Judges 14.15|Judg. 14:15]].  
+[^b]: Septuagint, Syriac, and many Hebrew texts: her father’s house.  

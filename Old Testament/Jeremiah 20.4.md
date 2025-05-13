@@ -5,4 +5,4 @@
 [Jeremiah 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.4?lang=eng#p4)
 
 
-[^a]: [[1 Nephi 1.13|1 Ne. 1:13 (11-14).]]
+[^a]: [[1 Nephi 1.11|1 Ne. 1:13 (11–14)]][[1 Nephi 1.12|]][[1 Nephi 1.13|]][[1 Nephi 1.14|]].  

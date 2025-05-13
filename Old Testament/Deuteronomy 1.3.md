@@ -5,4 +5,4 @@
 [Deuteronomy 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.3?lang=eng#p3)
 
 
-[^a]: [[Numbers 33.38|Num. 33:38 (38-39).]]
+[^a]: [[Numbers 33.38|Num. 33:38 (38–39)]][[Numbers 33.39|]].  

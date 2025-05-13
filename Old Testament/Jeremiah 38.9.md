@@ -5,4 +5,4 @@
 [Jeremiah 38:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/38.9?lang=eng#p9)
 
 
-[^a]: [[Jeremiah 37.21|Jer. 37:21.]]
+[^a]: [[Jeremiah 37.21|Jer. 37:21]].  

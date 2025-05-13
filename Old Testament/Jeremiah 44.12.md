@@ -5,6 +5,6 @@
 [Jeremiah 44:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.12?lang=eng#p12)
 
 
-[^a]: [[Jeremiah 42.15|Jer. 42:15.]]
-[^b]: [[Jeremiah 14.15|Jer. 14:15.]]
-[^c]: [[Jeremiah 42.18|Jer. 42:18.]]
+[^a]: [[Jeremiah 42.15|Jer. 42:15]].  
+[^b]: [[Jeremiah 14.15|Jer. 14:15]].  
+[^c]: [[Jeremiah 42.18|Jer. 42:18]].  

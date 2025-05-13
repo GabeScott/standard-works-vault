@@ -5,4 +5,4 @@
 [Zechariah 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.1?lang=eng#p1)
 
 
-[^a]: [[D&C 1.14|D&C 1:14.]]
+[^a]: [[D&C 1.14|D&C 1:14]].  

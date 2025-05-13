@@ -5,5 +5,5 @@
 [Isaiah 7:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.16?lang=eng#p16)
 
 
-[^a]: IE before he is mature. Isa. 8:4.
-[^b]: TG [[Evil]].
+[^a]: IE before he is mature. [[Isaiah 8.4|Isa. 8:4]].  
+[^b]: [[Evil|TG Evil]].  

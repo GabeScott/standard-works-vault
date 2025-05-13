@@ -5,4 +5,4 @@
 [Psalms 78:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.30?lang=eng#p30)
 
 
-[^a]: TG [[Lust]].
+[^a]: [[Lust|TG Lust]].  

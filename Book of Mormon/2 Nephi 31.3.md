@@ -5,6 +5,6 @@
 [2 Nephi 31:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p3#p3)
 
 
-[^a]: [[2 Nephi 25.7|2 Ne. 25:7 (7-8)]]; [[2 Nephi 32.7|32:7.]]
-[^b]: TG [[Understanding]].
-[^c]: [[D&C 1.24|D&C 1:24]]. TG [[Language]].
+[^a]: [[2 Nephi 25.7|2 Ne. 25:7 (7–8)]][[2 Nephi 25.8|]]; [[2 Nephi 32.7|32:7]].  
+[^b]: [[Understanding|TG Understanding]].  
+[^c]: [[D&C 1.24|D&C 1:24]]. [[Language|TG Language]].  

@@ -5,12 +5,12 @@
 [2 Nephi 9:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p14#p14)
 
 
-[^a]: [[Mosiah 3.25|Mosiah 3:25.]]
-[^b]: [[Isaiah 59.12|Isa. 59:12]]; [[Alma 5.18|Alma 5:18]]; [[Alma 11.43|11:43.]]
-[^c]: TG [[Guiltless]].
-[^d]: TG [[Uncleanness, Unclean]].
-[^e]: [[Genesis 2.25|Gen. 2:25]]; [[Exodus 32.25|Ex. 32:25]]; [[Moses 4.13|Moses 4:13 (13, 16-17).]]
-[^f]: TG [[God, the Standard of Righteousness]].
-[^g]: [[Proverbs 31.25|Prov. 31:25.]]
-[^h]: TG [[Purity, Pure]].
-[^i]: [[D&C 109.76|D&C 109:76.]]
+[^a]: [[Mosiah 3.25|Mosiah 3:25]].  
+[^b]: [[Isaiah 59.12|Isa. 59:12]]; [[Alma 5.18|Alma 5:18]]; [[Alma 11.43|11:43]].  
+[^c]: [[Guilt, Guilty|TG Guilt]].  
+[^d]: [[Uncleanness, Unclean|TG Uncleanness]].  
+[^e]: [[Genesis 2.25|Gen. 2:25]]; [[Exodus 32.25|Ex. 32:25]]; [[Moses 4.13|Moses 4:13 (13, 16–17)]][[Moses 4.16|]][[Moses 4.17|]].  
+[^f]: [[Righteousness|TG Righteousness]].  
+[^g]: [[Proverbs 31.25|Prov. 31:25]].  
+[^h]: [[Purity, Pure|TG Purity]].  
+[^i]: [[D&C 109.76|D&C 109:76]].  

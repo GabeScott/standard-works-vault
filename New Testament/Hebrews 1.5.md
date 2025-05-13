@@ -5,5 +5,5 @@
 [Hebrews 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.5?lang=eng#p5)
 
 
-[^a]: [[Hebrews 5.5|Heb. 5:5]]. TG [[Jesus Christ, Divine Sonship]].
-[^b]: [[2 Samuel 7.14|2 Sam. 7:14]]; [[1 Chronicles 17.13|1 Chr. 17:13.]]
+[^a]: [[Hebrews 5.5|Heb. 5:5]]. [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  
+[^b]: [[2 Samuel 7.14|2 Sam. 7:14]]; [[1 Chronicles 17.13|1 Chr. 17:13]].  

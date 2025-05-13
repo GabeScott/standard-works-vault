@@ -5,5 +5,5 @@
 [Matthew 12:43](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.43?lang=eng#p43)
 
 
-[^a]: JST Matt. 12:37-38 (Appendix).
-[^b]: TG [[Uncleanness, Unclean]].
+[^a]: [[JST Matthew 12.37|JST Matt. 12:37–38 (Appendix)]][[JST Matthew 12.38|]].  
+[^b]: [[Uncleanness, Unclean|TG Uncleanness]].  

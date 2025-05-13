@@ -5,6 +5,6 @@
 [Revelation 22:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.12?lang=eng#p12)
 
 
-[^a]: 1 Thes. 2:19; 3:13; [[Revelation 1.7|Rev. 1:7.]]
-[^b]: TG [[Reward]].
-[^c]: [[Alma 41.13|Alma 41:13.]]
+[^a]: [[1 Thessalonians 2.19|1 Thes. 2:19]]; [[1 Thessalonians 3.13|3:13]]; [[Revelation 1.7|Rev. 1:7]].  
+[^b]: [[Reward|TG Reward]].  
+[^c]: [[Alma 41.13|Alma 41:13]].  

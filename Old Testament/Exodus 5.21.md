@@ -5,5 +5,5 @@
 [Exodus 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/5.21?lang=eng#p21)
 
 
-[^a]: HEB us as an offensive savor.
-[^b]: [[Exodus 14.12|Ex. 14:12 (11-12).]]
+[^a]: HEB us as an offensive savor.  
+[^b]: [[Exodus 14.11|Ex. 14:12 (11–12)]][[Exodus 14.12|]].  

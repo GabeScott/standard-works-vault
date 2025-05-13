@@ -5,4 +5,4 @@
 [Acts 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.10?lang=eng#p10)
 
 
-[^a]: OR immediately.
+[^a]: OR immediately.  

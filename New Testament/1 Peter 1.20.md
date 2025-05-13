@@ -5,5 +5,5 @@
 [1 Peter 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.20?lang=eng#p20)
 
 
-[^a]: GR Having been foreknown before the foundation.
-[^b]: TG [[Foreordination]]; [[Jesus Christ, Authority of]]; [[Jesus Christ, Foreordained]]; [[Salvation, Plan of]].
+[^a]: GR Having been foreknown before the foundation.  
+[^b]: [[Foreordination|TG Foreordination]]; [[Jesus Christ, Authority of|Jesus Christ, Authority of]]; [[Jesus Christ, Foreordained|Jesus Christ, Foreordained]]; [[Salvation, Plan of|Salvation, Plan of]].  

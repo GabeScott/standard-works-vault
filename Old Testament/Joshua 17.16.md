@@ -5,4 +5,4 @@
 [Joshua 17:16](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/17.16?lang=eng#p16)
 
 
-[^a]: [[Judges 1.19|Judg. 1:19]]; [[Judges 4.3|4:3.]]
+[^a]: [[Judges 1.19|Judg. 1:19]]; [[Judges 4.3|4:3]].  

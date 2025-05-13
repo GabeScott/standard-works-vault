@@ -5,4 +5,4 @@
 [Ether 11:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p9#p9)
 
 
-[^a]: [[Ether 10.30|Ether 10:30]]; [[Ether 11.18|11:18 (18-19).]]
+[^a]: [[Ether 10.30|Ether 10:30]]; [[Ether 11.18|11:18 (18–19)]][[Ether 11.19|]].  

@@ -5,6 +5,6 @@
 [1 Kings 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.10?lang=eng#p10)
 
 
-[^a]: [[2 Kings 9.9|2 Kgs. 9:9.]]
-[^b]: HEB burn, consume, destroy.
-[^c]: [[1 Kings 15.29|1 Kgs. 15:29 (25-30).]]
+[^a]: [[2 Kings 9.9|2 Kgs. 9:9]].  
+[^b]: HEB burn, consume, destroy.  
+[^c]: [[1 Kings 15.25|1 Kgs. 15:29 (25–30)]][[1 Kings 15.26|]][[1 Kings 15.27|]][[1 Kings 15.28|]][[1 Kings 15.29|]][[1 Kings 15.30|]].  

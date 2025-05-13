@@ -5,4 +5,4 @@
 [Jeremiah 48:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.10?lang=eng#p10)
 
 
-[^a]: TG [[Curse]].
+[^a]: [[Curse|TG Curse]].  

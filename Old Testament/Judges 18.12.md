@@ -5,5 +5,5 @@
 [Judges 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.12?lang=eng#p12)
 
 
-[^a]: [[Joshua 15.60|Josh. 15:60.]]
-[^b]: IE Camp of Dan.
+[^a]: [[Joshua 15.60|Josh. 15:60]].  
+[^b]: IE Camp of Dan.  

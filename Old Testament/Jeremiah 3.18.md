@@ -5,6 +5,6 @@
 [Jeremiah 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.18?lang=eng#p18)
 
 
-[^a]: [[2 Nephi 29.14|2 Ne. 29:14 (8, 14).]]
-[^b]: [[Jeremiah 16.15|Jer. 16:15.]]
-[^c]: TG [[Israel, Ten Lost Tribes of]].
+[^a]: [[2 Nephi 29.8|2 Ne. 29:14 (8, 14)]][[2 Nephi 29.14|]].  
+[^b]: [[Jeremiah 16.15|Jer. 16:15]].  
+[^c]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  

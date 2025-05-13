@@ -5,5 +5,5 @@
 [Genesis 30:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.20?lang=eng#p20)
 
 
-[^a]: OR honor me, exalt me.
-[^b]: The Hebrew zevul means “exalted abode”; see in Isa. 63:15. Gen. 49:13; [[2 Nephi 19.1|2 Ne. 19:1.]]
+[^a]: OR honor me, exalt me.  
+[^b]: The Hebrew zevul means “exalted abode”; see in [[Isaiah 63.15|Isa. 63:15]]. [[Genesis 49.13|Gen. 49:13]]; [[2 Nephi 19.1|2 Ne. 19:1]].  

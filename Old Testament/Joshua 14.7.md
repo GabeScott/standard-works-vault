@@ -5,4 +5,4 @@
 [Joshua 14:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/14.7?lang=eng#p7)
 
 
-[^a]: [[Numbers 13.2|Num. 13:2 (2-3, 6).]]
+[^a]: [[Numbers 13.2|Num. 13:2 (2–3, 6)]][[Numbers 13.3|]][[Numbers 13.6|]].  

@@ -5,5 +5,5 @@
 [Jeremiah 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.18?lang=eng#p18)
 
 
-[^a]: [[Isaiah 30.2|Isa. 30:2 (1-2).]]
-[^b]: IE the Euphrates.
+[^a]: [[Isaiah 30.1|Isa. 30:2 (1–2)]][[Isaiah 30.2|]].  
+[^b]: IE the Euphrates.  

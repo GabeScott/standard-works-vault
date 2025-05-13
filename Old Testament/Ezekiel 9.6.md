@@ -5,5 +5,5 @@
 [Ezekiel 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/9.6?lang=eng#p6)
 
 
-[^a]: [[Jeremiah 25.29|Jer. 25:29.]]
-[^b]: HEB elders.
+[^a]: [[Jeremiah 25.29|Jer. 25:29]].  
+[^b]: HEB elders.  

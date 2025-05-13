@@ -5,4 +5,4 @@
 [Matthew 24:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.19?lang=eng#p19)
 
 
-[^a]: [[Luke 23.29|Luke 23:29.]]
+[^a]: [[Luke 23.29|Luke 23:29]].  

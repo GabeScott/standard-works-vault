@@ -5,6 +5,6 @@
 [Moses 1:9](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.9?lang=eng#p9)
 
 
-[^a]: [[Job 10.12|Job 10:12.]]
-[^b]: TG [[Telestial Glory]].
-[^c]: [[Isaiah 6.5|Isa. 6:5]]; [[Acts 9.4|Acts 9:4]]; JS—H 1:20.
+[^a]: [[Job 10.12|Job 10:12]].  
+[^b]: [[Glory|TG Glory]].  
+[^c]: [[Isaiah 6.5|Isa. 6:5]]; [[Acts 9.4|Acts 9:4]]; [[Joseph Smith History 1.20|JS—H 1:20]].  

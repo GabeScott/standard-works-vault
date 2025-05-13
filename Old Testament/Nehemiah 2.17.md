@@ -5,4 +5,4 @@
 [Nehemiah 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/2.17?lang=eng#p17)
 
 
-[^a]: [[Ezekiel 5.14|Ezek. 5:14.]]
+[^a]: [[Ezekiel 5.14|Ezek. 5:14]].  

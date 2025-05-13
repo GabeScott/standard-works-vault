@@ -5,4 +5,4 @@
 [2 Peter 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.16?lang=eng#p16)
 
 
-[^a]: [[Numbers 22.30|Num. 22:30.]]
+[^a]: [[Numbers 22.30|Num. 22:30]].  

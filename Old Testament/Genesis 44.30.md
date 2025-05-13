@@ -5,4 +5,4 @@
 [Genesis 44:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/44.30?lang=eng#p30)
 
 
-[^a]: [[1 Samuel 18.1|1 Sam. 18:1.]]
+[^a]: [[1 Samuel 18.1|1 Sam. 18:1]].  

@@ -5,4 +5,4 @@
 [Proverbs 11:31](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.31?lang=eng#p31)
 
 
-[^a]: [[D&C 1.10|D&C 1:10]]; [[D&C 56.19|56:19.]]
+[^a]: [[D&C 1.10|D&C 1:10]]; [[D&C 56.19|56:19]].  

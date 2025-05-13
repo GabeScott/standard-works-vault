@@ -5,6 +5,6 @@
 [Nehemiah 9:26](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.26?lang=eng#p26)
 
 
-[^a]: TG [[Disobedience, Disobey]].
-[^b]: TG [[Rebellion, Rebel]].
-[^c]: [[Helaman 13.24|Hel. 13:24 (24-26).]]
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  
+[^b]: [[Rebellion, Rebel|TG Rebellion]].  
+[^c]: [[Helaman 13.24|Hel. 13:24 (24–26)]][[Helaman 13.25|]][[Helaman 13.26|]].  

@@ -5,4 +5,4 @@
 [Philippians 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.11?lang=eng#p11)
 
 
-[^a]: JST Philip. 3:11 … just.
+[^a]: JST Philip. 3:11 … just.  

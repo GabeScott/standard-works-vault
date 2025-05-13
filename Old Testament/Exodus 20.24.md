@@ -5,4 +5,4 @@
 [Exodus 20:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.24?lang=eng#p24)
 
 
-[^a]: TG [[Self-Sacrifice]].
+[^a]: [[Sacrifice|TG Sacrifice]].  

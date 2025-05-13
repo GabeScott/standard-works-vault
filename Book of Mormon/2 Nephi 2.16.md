@@ -5,6 +5,6 @@
 [2 Nephi 2:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p16#p16)
 
 
-[^a]: [[Alma 12.31|Alma 12:31]]. TG [[Initiative]].
-[^b]: [[2 Nephi 10.23|2 Ne. 10:23]]. TG [[Agency]].
-[^c]: [[D&C 29.39|D&C 29:39 (39-40).]]
+[^a]: [[Alma 12.31|Alma 12:31]]. [[Initiative|TG Initiative]].  
+[^b]: [[2 Nephi 10.23|2 Ne. 10:23]]. [[Agency|TG Agency]].  
+[^c]: [[D&C 29.39|D&C 29:39 (39–40)]][[D&C 29.40|]].  

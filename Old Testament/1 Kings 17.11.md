@@ -5,4 +5,4 @@
 [1 Kings 17:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/17.11?lang=eng#p11)
 
 
-[^a]: [[Alma 8.20|Alma 8:20.]]
+[^a]: [[Alma 8.20|Alma 8:20]].  

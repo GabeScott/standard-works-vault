@@ -5,4 +5,4 @@
 [Ruth 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.13?lang=eng#p13)
 
 
-[^a]: TG [[Friendship, Friend]].
+[^a]: [[Friendship, Friend|TG Friendship]].  

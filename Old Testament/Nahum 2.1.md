@@ -5,4 +5,4 @@
 [Nahum 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/2.1?lang=eng#p1)
 
 
-[^a]: TG [[Watch, Watchfulness]].
+[^a]: [[Watch, Watchfulness|TG Watch]].  

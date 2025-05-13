@@ -5,5 +5,5 @@
 [Ezra 6:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.10?lang=eng#p10)
 
 
-[^a]: [[Mosiah 2.3|Mosiah 2:3.]]
-[^b]: [[Alma 6.6|Alma 6:6.]]
+[^a]: [[Mosiah 2.3|Mosiah 2:3]].  
+[^b]: [[Alma 6.6|Alma 6:6]].  

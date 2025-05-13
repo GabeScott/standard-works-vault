@@ -5,4 +5,4 @@
 [Exodus 14:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.25?lang=eng#p25)
 
 
-[^a]: OR bound.
+[^a]: OR bound.  

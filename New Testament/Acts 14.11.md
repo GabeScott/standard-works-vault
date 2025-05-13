@@ -5,4 +5,4 @@
 [Acts 14:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.11?lang=eng#p11)
 
 
-[^a]: [[Acts 28.6|Acts 28:6 (3-6).]]
+[^a]: [[Acts 28.3|Acts 28:6 (3–6)]][[Acts 28.4|]][[Acts 28.5|]][[Acts 28.6|]].  

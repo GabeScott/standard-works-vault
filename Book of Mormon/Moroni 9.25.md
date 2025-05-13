@@ -5,6 +5,6 @@
 [Moroni 9:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/9?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Jesus Christ, Death of]].
-[^b]: TG [[Forbear, Forbearance]].
-[^c]: TG [[Mind, Minded]].
+[^a]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  
+[^b]: [[Forbear, Forbearance|TG Forbear]].  
+[^c]: [[Mind, Minded|TG Mind]].  

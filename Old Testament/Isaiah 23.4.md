@@ -5,5 +5,5 @@
 [Isaiah 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/23.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 25.22|Jer. 25:22]]; [[Ezekiel 28.21|Ezek. 28:21.]]
-[^b]: [[Ezekiel 26.17|Ezek. 26:17.]]
+[^a]: [[Jeremiah 25.22|Jer. 25:22]]; [[Ezekiel 28.21|Ezek. 28:21]].  
+[^b]: [[Ezekiel 26.17|Ezek. 26:17]].  

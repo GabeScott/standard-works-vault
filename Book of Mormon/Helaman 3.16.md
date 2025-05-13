@@ -5,6 +5,6 @@
 [Helaman 3:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p16#p16)
 
 
-[^a]: [[1 Nephi 5.18|1 Ne. 5:18 (16-19)]]; [[Alma 37.4|Alma 37:4.]]
-[^b]: [[Ezekiel 36.19|Ezek. 36:19 (16-20).]]
-[^c]: [[Alma 45.13|Alma 45:13 (12-14).]]
+[^a]: [[1 Nephi 5.16|1 Ne. 5:18 (16–19)]][[1 Nephi 5.17|]][[1 Nephi 5.18|]][[1 Nephi 5.19|]]; [[Alma 37.4|Alma 37:4]].  
+[^b]: [[Ezekiel 36.16|Ezek. 36:19 (16–20)]][[Ezekiel 36.17|]][[Ezekiel 36.18|]][[Ezekiel 36.19|]][[Ezekiel 36.20|]].  
+[^c]: [[Alma 45.12|Alma 45:13 (12–14)]][[Alma 45.13|]][[Alma 45.14|]].  

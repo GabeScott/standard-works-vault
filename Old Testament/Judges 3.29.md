@@ -5,4 +5,4 @@
 [Judges 3:29](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/3.29?lang=eng#p29)
 
 
-[^a]: HEB fat or hardy.
+[^a]: HEB fat or hardy.  

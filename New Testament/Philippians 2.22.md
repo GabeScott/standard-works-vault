@@ -5,4 +5,4 @@
 [Philippians 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.22?lang=eng#p22)
 
 
-[^a]: GR trial.
+[^a]: GR trial.  

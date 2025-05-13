@@ -5,5 +5,5 @@
 [Helaman 14:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p13#p13)
 
 
-[^a]: [[Acts 16.31|Acts 16:31 (30-31).]]
-[^b]: [[D&C 19.16|D&C 19:16 (16-20).]]
+[^a]: [[Acts 16.30|Acts 16:31 (30–31)]][[Acts 16.31|]].  
+[^b]: [[D&C 19.16|D&C 19:16 (16–20)]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]][[D&C 19.20|]].  

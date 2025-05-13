@@ -5,5 +5,5 @@
 [2 Chronicles 26:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.5?lang=eng#p5)
 
 
-[^a]: [[2 Nephi 4.23|2 Ne. 4:23.]]
-[^b]: [[Helaman 12.1|Hel. 12:1 (1-2).]]
+[^a]: [[2 Nephi 4.23|2 Ne. 4:23]].  
+[^b]: [[Helaman 12.1|Hel. 12:1 (1–2)]][[Helaman 12.2|]].  

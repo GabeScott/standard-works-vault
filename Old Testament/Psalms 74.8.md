@@ -5,5 +5,5 @@
 [Psalms 74:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.8?lang=eng#p8)
 
 
-[^a]: [[Psalms 83.4|Ps. 83:4.]]
-[^b]: HEB assembly places.
+[^a]: [[Psalms 83.4|Ps. 83:4]].  
+[^b]: HEB assembly places.  

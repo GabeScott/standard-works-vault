@@ -5,4 +5,4 @@
 [Revelation 19:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.14?lang=eng#p14)
 
 
-[^a]: TG [[Clothing]].
+[^a]: [[Clothing|TG Clothing]].  

@@ -5,7 +5,7 @@
 [Matthew 5:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.28?lang=eng#p28)
 
 
-[^a]: [[D&C 63.16|D&C 63:16 (16-17).]]
-[^b]: TG [[Body, Sanctity of]]; [[Woman, Women]].
-[^c]: [[Mosiah 4.30|Mosiah 4:30 (29-30)]]. TG [[Carnal Mind]]; [[Chastity, Chaste]]; [[Fornication]]; [[Lust]]; [[Motivations]]; [[Sensuality]].
-[^d]: TG [[Adulterer, Adultery]]; [[Sexual Immorality]].
+[^a]: [[D&C 63.16|D&C 63:16 (16–17)]][[D&C 63.17|]].  
+[^b]: [[Body, Sanctity of|TG Body, Sanctity of]]; [[Woman, Women|Woman]].  
+[^c]: [[Mosiah 4.29|Mosiah 4:30 (29–30)]][[Mosiah 4.30|]]. [[Carnal Mind|TG Carnal Mind]]; [[Chastity, Chaste|Chastity]]; [[Fornication|Fornication]]; [[Lust|Lust]]; [[Motivations|Motivations]]; [[Sensuality|Sensuality]].  
+[^d]: [[Adulterer, Adultery|TG Adulterer]]; [[Sexual Immorality|Sexual Immorality]].  

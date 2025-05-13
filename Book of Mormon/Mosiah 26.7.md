@@ -5,5 +5,5 @@
 [Mosiah 26:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Priest, Melchizedek Priesthood]].
-[^b]: [[Mosiah 23.16|Mosiah 23:16]]; [[Mosiah 29.42|29:42.]]
+[^a]: [[Priest, Melchizedek Priesthood|TG Priest, Melchizedek Priesthood]].  
+[^b]: [[Mosiah 23.16|Mosiah 23:16]]; [[Mosiah 29.42|29:42]].  

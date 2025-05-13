@@ -5,5 +5,5 @@
 [Hebrews 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.13?lang=eng#p13)
 
 
-[^a]: [[Alma 34.39|Alma 34:39]]; [[D&C 38.23|D&C 38:23]]. TG [[Chastening]].
-[^b]: [[D&C 45.6|D&C 45:6.]]
+[^a]: [[Alma 34.39|Alma 34:39]]; [[D&C 38.23|D&C 38:23]]. [[Chastening|TG Chastening]].  
+[^b]: [[D&C 45.6|D&C 45:6]].  

@@ -5,4 +5,4 @@
 [Psalms 78:49](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.49?lang=eng#p49)
 
 
-[^a]: TG [[Spirits, Evil or Unclean]].
+[^a]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

@@ -5,5 +5,5 @@
 [Matthew 27:46](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.46?lang=eng#p46)
 
 
-[^a]: [[Psalms 22.1|Ps. 22:1.]]
-[^b]: [[D&C 121.1|D&C 121:1 (1-8).]]
+[^a]: [[Psalms 22.1|Ps. 22:1]].  
+[^b]: [[D&C 121.1|D&C 121:1 (1–8)]][[D&C 121.2|]][[D&C 121.3|]][[D&C 121.4|]][[D&C 121.5|]][[D&C 121.6|]][[D&C 121.7|]][[D&C 121.8|]].  

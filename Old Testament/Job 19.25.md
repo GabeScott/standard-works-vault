@@ -5,7 +5,7 @@
 [Job 19:25](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.25?lang=eng#p25)
 
 
-[^a]: TG [[Loyalty]]; [[Testimony]].
-[^b]: TG [[Jesus Christ, Foreordained]]; [[Jesus Christ, Redeemer]].
-[^c]: TG [[Jesus Christ, Second Coming]].
-[^d]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Loyalty|TG Loyalty]]; [[Testimony|Testimony]].  
+[^b]: [[Jesus Christ, Foreordained|TG Jesus Christ, Foreordained]]; [[Jesus Christ, Redeemer|Jesus Christ, Redeemer]].  
+[^c]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  
+[^d]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

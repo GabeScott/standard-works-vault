@@ -5,4 +5,4 @@
 [Genesis 37:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.5?lang=eng#p5)
 
 
-[^a]: TG [[Dream]].
+[^a]: [[Dream|TG Dream]].  

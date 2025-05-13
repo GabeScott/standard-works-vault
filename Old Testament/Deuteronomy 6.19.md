@@ -5,4 +5,4 @@
 [Deuteronomy 6:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.19?lang=eng#p19)
 
 
-[^a]: [[Exodus 23.24|Ex. 23:24]]; [[Numbers 33.52|Num. 33:52 (52-53).]]
+[^a]: [[Exodus 23.24|Ex. 23:24]]; [[Numbers 33.52|Num. 33:52 (52–53)]][[Numbers 33.53|]].  

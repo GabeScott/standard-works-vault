@@ -5,6 +5,6 @@
 [1 Nephi 19:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p24#p24)
 
 
-[^a]: [[2 Kings 19.31|2 Kgs. 19:31.]]
-[^b]: [[Genesis 49.22|Gen. 49:22 (22-26)]]; [[1 Nephi 15.12|1 Ne. 15:12 (12, 16)]]; [[2 Nephi 3.5|2 Ne. 3:5 (4-5).]]
-[^c]: TG [[Scriptures, Study of]].
+[^a]: [[2 Kings 19.31|2 Kgs. 19:31]].  
+[^b]: [[Genesis 49.22|Gen. 49:22 (22–26)]][[Genesis 49.23|]][[Genesis 49.24|]][[Genesis 49.25|]][[Genesis 49.26|]]; [[1 Nephi 15.12|1 Ne. 15:12 (12, 16)]][[1 Nephi 15.16|]]; [[2 Nephi 3.4|2 Ne. 3:5 (4–5)]][[2 Nephi 3.5|]].  
+[^c]: [[Scriptures, Study of|TG Scriptures, Study of]].  

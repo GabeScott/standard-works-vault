@@ -5,4 +5,4 @@
 [Jeremiah 29:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.5?lang=eng#p5)
 
 
-[^a]: TG [[Nature, Earth]].
+[^a]: [[Nature, Earth|TG Nature, Earth]].  

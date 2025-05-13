@@ -5,5 +5,5 @@
 [2 Nephi 26:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p11#p11)
 
 
-[^a]: [[Genesis 6.3|Gen. 6:3]]; [[Ether 2.15|Ether 2:15]]; [[Moses 8.17|Moses 8:17.]]
-[^b]: TG [[Holy Ghost, Loss of]].
+[^a]: [[Genesis 6.3|Gen. 6:3]]; [[Ether 2.15|Ether 2:15]]; [[Moses 8.17|Moses 8:17]].  
+[^b]: [[Holy Ghost, Loss of|TG Holy Ghost, Loss of]].  

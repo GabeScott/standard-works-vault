@@ -5,6 +5,6 @@
 [Psalms 57:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/57.4?lang=eng#p4)
 
 
-[^a]: [[Proverbs 30.14|Prov. 30:14.]]
-[^b]: [[Psalms 52.2|Ps. 52:2]]; [[Psalms 64.3|64:3.]]
-[^c]: [[Psalms 59.7|Ps. 59:7]]; [[Proverbs 25.18|Prov. 25:18.]]
+[^a]: [[Proverbs 30.14|Prov. 30:14]].  
+[^b]: [[Psalms 52.2|Ps. 52:2]]; [[Psalms 64.3|64:3]].  
+[^c]: [[Psalms 59.7|Ps. 59:7]]; [[Proverbs 25.18|Prov. 25:18]].  

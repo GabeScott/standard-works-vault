@@ -5,5 +5,5 @@
 [Mosiah 18:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p30#p30)
 
 
-[^a]: [[Mosiah 26.15|Mosiah 26:15.]]
-[^b]: TG [[Praise]]; [[Singing, Sing, Sang, Sung]].
+[^a]: [[Mosiah 26.15|Mosiah 26:15]].  
+[^b]: [[Praise|TG Praise]]; [[Singing, Sing, Sang, Sung|Singing]].  

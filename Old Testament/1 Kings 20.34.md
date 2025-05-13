@@ -5,4 +5,4 @@
 [1 Kings 20:34](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.34?lang=eng#p34)
 
 
-[^a]: IE bazaars, trading centers.
+[^a]: IE bazaars, trading centers.  

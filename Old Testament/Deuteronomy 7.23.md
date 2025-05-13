@@ -5,5 +5,5 @@
 [Deuteronomy 7:23](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.23?lang=eng#p23)
 
 
-[^a]: [[D&C 98.29|D&C 98:29.]]
-[^b]: HEB throw them into great tumults.
+[^a]: [[D&C 98.29|D&C 98:29]].  
+[^b]: HEB throw them into great tumults.  

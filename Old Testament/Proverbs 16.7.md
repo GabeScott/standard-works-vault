@@ -5,5 +5,5 @@
 [Proverbs 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.7?lang=eng#p7)
 
 
-[^a]: [[Exodus 34.24|Ex. 34:24.]]
-[^b]: Dan. 1:9. TG [[Peace of God]]; [[Peace of God]] of God.
+[^a]: [[Exodus 34.24|Ex. 34:24]].  
+[^b]: [[Daniel 1.9|Dan. 1:9]]. [[Peace|TG Peace]]; [[Peace of God|Peace of God]].  

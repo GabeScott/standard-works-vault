@@ -5,5 +5,5 @@
 [Esther 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/9.2?lang=eng#p2)
 
 
-[^a]: [[Esther 8.11|Esth. 8:11.]]
-[^b]: [[Esther 8.17|Esth. 8:17.]]
+[^a]: [[Esther 8.11|Esth. 8:11]].  
+[^b]: [[Esther 8.17|Esth. 8:17]].  

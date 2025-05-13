@@ -5,4 +5,4 @@
 [3 Nephi 15:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/15?lang=eng&id=p2#p2)
 
 
-[^a]: [[3 Nephi 12.47|3 Ne. 12:47 (46-47).]]
+[^a]: [[3 Nephi 12.46|3 Ne. 12:47 (46–47)]][[3 Nephi 12.47|]].  

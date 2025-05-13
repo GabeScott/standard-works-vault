@@ -5,9 +5,9 @@
 [Deuteronomy 4:34](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.34?lang=eng#p34)
 
 
-[^a]: OR attempted.
-[^b]: [[1 Nephi 17.34|1 Ne. 17:34 (33-35).]]
-[^c]: HEB trials, tests. TG [[Testament]].
-[^d]: [[1 Nephi 17.30|1 Ne. 17:30 (26-32).]]
-[^e]: [[Psalms 136.12|Ps. 136:12.]]
-[^f]: [[Jeremiah 21.5|Jer. 21:5.]]
+[^a]: OR attempted.  
+[^b]: [[1 Nephi 17.33|1 Ne. 17:34 (33–35)]][[1 Nephi 17.34|]][[1 Nephi 17.35|]].  
+[^c]: HEB trials, tests. [[Test, Try, Prove|TG Test]].  
+[^d]: [[1 Nephi 17.26|1 Ne. 17:30 (26–32)]][[1 Nephi 17.27|]][[1 Nephi 17.28|]][[1 Nephi 17.29|]][[1 Nephi 17.30|]][[1 Nephi 17.31|]][[1 Nephi 17.32|]].  
+[^e]: [[Psalms 136.12|Ps. 136:12]].  
+[^f]: [[Jeremiah 21.5|Jer. 21:5]].  

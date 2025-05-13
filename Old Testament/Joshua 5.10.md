@@ -5,4 +5,4 @@
 [Joshua 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.10?lang=eng#p10)
 
 
-[^a]: TG [[Passover]].
+[^a]: [[Passover|TG Passover]].  

@@ -5,4 +5,4 @@
 [Esther 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.12?lang=eng#p12)
 
 
-[^a]: [[Mosiah 17.3|Mosiah 17:3]]; [[Alma 47.3|Alma 47:3 (1-3).]]
+[^a]: [[Mosiah 17.3|Mosiah 17:3]]; [[Alma 47.1|Alma 47:3 (1–3)]][[Alma 47.2|]][[Alma 47.3|]].  

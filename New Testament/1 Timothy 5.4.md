@@ -5,6 +5,6 @@
 [1 Timothy 5:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.4?lang=eng#p4)
 
 
-[^a]: TG [[Children]].
-[^b]: GR grandchildren, descendants.
-[^c]: TG [[Family, Love within]]; [[Respecter]].
+[^a]: [[Children|TG Children]].  
+[^b]: GR grandchildren, descendants.  
+[^c]: [[Family, Love within|TG Family, Love within]]; [[Respect|Respect]].  

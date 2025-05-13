@@ -5,5 +5,5 @@
 [Luke 9:54](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.54?lang=eng#p54)
 
 
-[^a]: [[Mark 3.17|Mark 3:17.]]
-[^b]: [[2 Kings 1.10|2 Kgs. 1:10 (9-16).]]
+[^a]: [[Mark 3.17|Mark 3:17]].  
+[^b]: [[2 Kings 1.9|2 Kgs. 1:10 (9–16)]][[2 Kings 1.10|]][[2 Kings 1.11|]][[2 Kings 1.12|]][[2 Kings 1.13|]][[2 Kings 1.14|]][[2 Kings 1.15|]][[2 Kings 1.16|]].  

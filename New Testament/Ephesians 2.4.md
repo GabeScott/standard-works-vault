@@ -5,4 +5,4 @@
 [Ephesians 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.4?lang=eng#p4)
 
 
-[^a]: TG [[God, Mercy of]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  

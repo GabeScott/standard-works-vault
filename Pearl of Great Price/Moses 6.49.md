@@ -5,8 +5,8 @@
 [Moses 6:49](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.49?lang=eng#p49)
 
 
-[^a]: [[Moses 1.12|Moses 1:12]]. TG [[Temptation]].
-[^b]: TG [[Assembly for Worship]].
-[^c]: [[Mosiah 16.3|Mosiah 16:3 (3-4)]]; [[Moses 5.13|Moses 5:13]]. TG [[Carnal Mind]]; [[Man, Natural, Not Spiritually Reborn]].
-[^d]: TG [[Sensuality]].
-[^e]: [[Genesis 4.16|Gen. 4:16]]; [[Moses 5.41|Moses 5:41.]]
+[^a]: [[Moses 1.12|Moses 1:12]]. [[Temptation|TG Temptation]].  
+[^b]: [[Worship|TG Worship]].  
+[^c]: [[Mosiah 16.3|Mosiah 16:3 (3–4)]][[Mosiah 16.4|]]; [[Moses 5.13|Moses 5:13]]. [[Carnal Mind|TG Carnal Mind]]; [[Man, Natural, Not Spiritually Reborn|Man, Natural, Not Spiritually Reborn]].  
+[^d]: [[Sensuality|TG Sensuality]].  
+[^e]: [[Genesis 4.16|Gen. 4:16]]; [[Moses 5.41|Moses 5:41]].  

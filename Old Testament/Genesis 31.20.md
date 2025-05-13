@@ -5,4 +5,4 @@
 [Genesis 31:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.20?lang=eng#p20)
 
 
-[^a]: HEB Aramean (also v. 24).
+[^a]: HEB Aramean (also [[Genesis 31.24|v. 24]]).  

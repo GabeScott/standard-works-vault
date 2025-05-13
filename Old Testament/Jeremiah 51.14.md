@@ -5,4 +5,4 @@
 [Jeremiah 51:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.14?lang=eng#p14)
 
 
-[^a]: [[Amos 6.8|Amos 6:8.]]
+[^a]: [[Amos 6.8|Amos 6:8]].  

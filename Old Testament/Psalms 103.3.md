@@ -5,5 +5,5 @@
 [Psalms 103:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/103.3?lang=eng#p3)
 
 
-[^a]: TG [[Forgive, Forgiveness]].
-[^b]: TG [[Sickness, Sick]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]].  
+[^b]: [[Sickness, Sick|TG Sickness]].  

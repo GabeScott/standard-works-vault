@@ -5,4 +5,4 @@
 [Isaiah 51:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.20?lang=eng#p20)
 
 
-[^a]: OR antelope.
+[^a]: OR antelope.  

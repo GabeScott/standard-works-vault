@@ -5,5 +5,5 @@
 [Hebrews 10:19](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.19?lang=eng#p19)
 
 
-[^a]: GR license, authority.
-[^b]: [[Leviticus 16.2|Lev. 16:2 (2-4)]]; [[Hebrews 9.12|Heb. 9:12.]]
+[^a]: GR license, authority.  
+[^b]: [[Leviticus 16.2|Lev. 16:2 (2–4)]][[Leviticus 16.3|]][[Leviticus 16.4|]]; [[Hebrews 9.12|Heb. 9:12]].  

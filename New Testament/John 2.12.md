@@ -5,4 +5,4 @@
 [John 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Jesus Christ, Family of]].
+[^a]: [[Jesus Christ, Family of|TG Jesus Christ, Family of]].  

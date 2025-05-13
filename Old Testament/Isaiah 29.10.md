@@ -5,8 +5,8 @@
 [Isaiah 29:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.10?lang=eng#p10)
 
 
-[^a]: [[Romans 11.8|Rom. 11:8 (7-8).]]
-[^b]: TG [[Spiritual Blindness]].
-[^c]: [[2 Nephi 27.5|2 Ne. 27:5.]]
-[^d]: TG [[Seer]].
-[^e]: [[Micah 3.7|Micah 3:7.]]
+[^a]: [[Romans 11.7|Rom. 11:8 (7–8)]][[Romans 11.8|]].  
+[^b]: [[Spiritual Blindness|TG Spiritual Blindness]].  
+[^c]: [[2 Nephi 27.5|2 Ne. 27:5]].  
+[^d]: [[Seer|TG Seer]].  
+[^e]: [[Micah 3.7|Micah 3:7]].  

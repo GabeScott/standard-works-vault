@@ -5,4 +5,4 @@
 [Isaiah 26:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.12?lang=eng#p12)
 
 
-[^a]: [[Alma 5.40|Alma 5:40 (40-41).]]
+[^a]: [[Alma 5.40|Alma 5:40 (40–41)]][[Alma 5.41|]].  

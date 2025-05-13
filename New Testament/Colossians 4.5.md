@@ -5,5 +5,5 @@
 [Colossians 4:5](https://www.churchofjesuschrist.org/study/scriptures/nt/col/4.5?lang=eng#p5)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: TG [[Wisdom]].
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Wisdom|TG Wisdom]].  

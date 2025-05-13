@@ -5,4 +5,4 @@
 [Numbers 21:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.29?lang=eng#p29)
 
 
-[^a]: [[1 Kings 11.7|1 Kgs. 11:7.]]
+[^a]: [[1 Kings 11.7|1 Kgs. 11:7]].  

@@ -5,7 +5,7 @@
 [Psalms 110:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/110.4?lang=eng#p4)
 
 
-[^a]: TG [[Oath]].
-[^b]: [[1 Samuel 15.35|1 Sam. 15:35]]; [[Psalms 135.14|Ps. 135:14.]]
-[^c]: TG [[High Priest, Melchizedek Priesthood]]; [[Jesus Christ, Prophecies about]]; [[Priesthood, Melchizedek]].
-[^d]: TG [[Jesus Christ, Types of, in Anticipation]].
+[^a]: [[Oath|TG Oath]].  
+[^b]: [[1 Samuel 15.35|1 Sam. 15:35]]; [[Psalms 135.14|Ps. 135:14]].  
+[^c]: [[High Priest, Melchizedek Priesthood|TG High Priest, Melchizedek Priesthood]]; [[Jesus Christ, Prophecies about|Jesus Christ, Prophecies about]]; [[Priesthood, Melchizedek|Priesthood, Melchizedek]].  
+[^d]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]].  

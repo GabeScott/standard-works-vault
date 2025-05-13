@@ -5,7 +5,7 @@
 [1 Nephi 15:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p35#p35)
 
 
-[^a]: [[2 Nephi 9.19|2 Ne. 9:19]]; [[Mosiah 26.27|Mosiah 26:27.]]
-[^b]: TG [[Hell]].
-[^c]: [[1 Nephi 14.9|1 Ne. 14:9]]; [[D&C 1.35|D&C 1:35.]]
-[^d]: TG [[God, Justice of]].
+[^a]: [[2 Nephi 9.19|2 Ne. 9:19]]; [[Mosiah 26.27|Mosiah 26:27]].  
+[^b]: [[Hell|TG Hell]].  
+[^c]: [[1 Nephi 14.9|1 Ne. 14:9]]; [[D&C 1.35|D&C 1:35]].  
+[^d]: [[Justice|TG Justice]].  

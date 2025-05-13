@@ -5,4 +5,4 @@
 [Isaiah 43:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.23?lang=eng#p23)
 
 
-[^a]: HEB lambs or kids.
+[^a]: HEB lambs or kids.  

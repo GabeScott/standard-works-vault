@@ -5,4 +5,4 @@
 [Helaman 5:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p18#p18)
 
 
-[^a]: [[D&C 24.6|D&C 24:6]]; [[D&C 100.5|100:5 (5-8)]]. TG [[Prophets, Mission of]].
+[^a]: [[D&C 24.6|D&C 24:6]]; [[D&C 100.5|100:5 (5–8)]][[D&C 100.6|]][[D&C 100.7|]][[D&C 100.8|]]. [[Prophets, Mission of|TG Prophets, Mission of]].  

@@ -5,4 +5,4 @@
 [Joshua 19:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/19.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 49.13|Gen. 49:13.]]
+[^a]: [[Genesis 49.13|Gen. 49:13]].  

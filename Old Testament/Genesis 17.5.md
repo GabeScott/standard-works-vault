@@ -5,4 +5,4 @@
 [Genesis 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.5?lang=eng#p5)
 
 
-[^a]: [[1 Chronicles 1.27|1 Chr. 1:27.]]
+[^a]: [[1 Chronicles 1.27|1 Chr. 1:27]].  

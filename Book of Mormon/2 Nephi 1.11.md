@@ -5,5 +5,5 @@
 [2 Nephi 1:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p11#p11)
 
 
-[^a]: [[1 Nephi 13.14|1 Ne. 13:14 (12-20)]]; [[Mormon 5.19|Morm. 5:19 (19-20).]]
-[^b]: [[1 Nephi 22.7|1 Ne. 22:7.]]
+[^a]: [[1 Nephi 13.12|1 Ne. 13:14 (12–20)]][[1 Nephi 13.13|]][[1 Nephi 13.14|]][[1 Nephi 13.15|]][[1 Nephi 13.16|]][[1 Nephi 13.17|]][[1 Nephi 13.18|]][[1 Nephi 13.19|]][[1 Nephi 13.20|]]; [[Mormon 5.19|Morm. 5:19 (19–20)]][[Mormon 5.20|]].  
+[^b]: [[1 Nephi 22.7|1 Ne. 22:7]].  

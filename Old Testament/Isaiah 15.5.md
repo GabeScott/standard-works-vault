@@ -5,7 +5,7 @@
 [Isaiah 15:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/15.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 16.11|Isa. 16:11]]; [[Jeremiah 48.36|Jer. 48:36.]]
-[^b]: IE Zoar should still have been young and vigorous.
-[^c]: OR the ascent of Luhith.
-[^d]: [[Jeremiah 48.3|Jer. 48:3.]]
+[^a]: [[Isaiah 16.11|Isa. 16:11]]; [[Jeremiah 48.36|Jer. 48:36]].  
+[^b]: IE Zoar should still have been young and vigorous.  
+[^c]: OR the ascent of Luhith.  
+[^d]: [[Jeremiah 48.3|Jer. 48:3]].  

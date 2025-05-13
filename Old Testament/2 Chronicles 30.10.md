@@ -5,4 +5,4 @@
 [2 Chronicles 30:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.10?lang=eng#p10)
 
 
-[^a]: [[Luke 8.53|Luke 8:53]]; [[Alma 26.23|Alma 26:23.]]
+[^a]: [[Luke 8.53|Luke 8:53]]; [[Alma 26.23|Alma 26:23]].  

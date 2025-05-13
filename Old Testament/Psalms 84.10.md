@@ -5,4 +5,4 @@
 [Psalms 84:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/84.10?lang=eng#p10)
 
 
-[^a]: IE a thousand elsewhere.
+[^a]: IE a thousand elsewhere.  

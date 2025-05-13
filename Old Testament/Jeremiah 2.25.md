@@ -5,4 +5,4 @@
 [Jeremiah 2:25](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.25?lang=eng#p25)
 
 
-[^a]: [[Jeremiah 18.12|Jer. 18:12.]]
+[^a]: [[Jeremiah 18.12|Jer. 18:12]].  

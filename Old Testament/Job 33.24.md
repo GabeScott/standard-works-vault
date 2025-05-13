@@ -5,4 +5,4 @@
 [Job 33:24](https://www.churchofjesuschrist.org/study/scriptures/ot/job/33.24?lang=eng#p24)
 
 
-[^a]: [[1 Timothy 2.6|1 Tim. 2:6.]]
+[^a]: [[1 Timothy 2.6|1 Tim. 2:6]].  

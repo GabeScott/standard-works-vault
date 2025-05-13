@@ -5,6 +5,6 @@
 [Ephesians 6:4](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.4?lang=eng#p4)
 
 
-[^a]: TG [[Family, Love within]]; [[Family, Patriarchal]]; [[Marriage, Fatherhood]].
-[^b]: TG [[Provoking, Provoke]].
-[^c]: TG [[Family, Children, Responsibilities toward]].
+[^a]: [[Family, Love within|TG Family, Love within]]; [[Family, Patriarchal|Family, Patriarchal]]; [[Marriage, Fatherhood|Marriage, Fatherhood]].  
+[^b]: [[Provoking, Provoke|TG Provoking]].  
+[^c]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  

@@ -5,4 +5,4 @@
 [Jeremiah 46:26](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.26?lang=eng#p26)
 
 
-[^a]: [[Ezekiel 29.13|Ezek. 29:13.]]
+[^a]: [[Ezekiel 29.13|Ezek. 29:13]].  

@@ -5,4 +5,4 @@
 [Romans 11:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.7?lang=eng#p7)
 
 
-[^a]: GR became callous.
+[^a]: GR became callous.  

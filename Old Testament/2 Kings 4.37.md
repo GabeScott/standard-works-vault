@@ -5,4 +5,4 @@
 [2 Kings 4:37](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.37?lang=eng#p37)
 
 
-[^a]: [[1 Kings 17.23|1 Kgs. 17:23.]]
+[^a]: [[1 Kings 17.23|1 Kgs. 17:23]].  

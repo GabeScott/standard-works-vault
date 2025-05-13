@@ -5,4 +5,4 @@
 [Acts 13:33](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.33?lang=eng#p33)
 
 
-[^a]: TG [[Jesus Christ, Divine Sonship]].
+[^a]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  

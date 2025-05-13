@@ -5,5 +5,5 @@
 [Esther 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/2.21?lang=eng#p21)
 
 
-[^a]: [[Esther 6.2|Esth. 6:2.]]
-[^b]: [[Ether 9.5|Ether 9:5.]]
+[^a]: [[Esther 6.2|Esth. 6:2]].  
+[^b]: [[Ether 9.5|Ether 9:5]].  

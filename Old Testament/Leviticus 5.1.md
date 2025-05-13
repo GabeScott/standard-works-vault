@@ -5,5 +5,5 @@
 [Leviticus 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/5.1?lang=eng#p1)
 
 
-[^a]: IE an oath or curse.
-[^b]: [[Leviticus 7.18|Lev. 7:18]]; [[Leviticus 19.8|19:8.]]
+[^a]: IE an oath or curse.  
+[^b]: [[Leviticus 7.18|Lev. 7:18]]; [[Leviticus 19.8|19:8]].  

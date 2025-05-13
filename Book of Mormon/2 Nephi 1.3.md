@@ -5,5 +5,5 @@
 [2 Nephi 1:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p3#p3)
 
 
-[^a]: [[Genesis 19.16|Gen. 19:16.]]
-[^b]: TG [[Warn, Warnings]].
+[^a]: [[Genesis 19.16|Gen. 19:16]].  
+[^b]: [[Warn, Warnings|TG Warn]].  

@@ -5,4 +5,4 @@
 [Ezekiel 16:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.15?lang=eng#p15)
 
 
-[^a]: [[Hosea 4.15|Hosea 4:15 (14-15).]]
+[^a]: [[Hosea 4.14|Hosea 4:15 (14–15)]][[Hosea 4.15|]].  

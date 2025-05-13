@@ -5,5 +5,5 @@
 [Helaman 4:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p3#p3)
 
 
-[^a]: [[Helaman 11.24|Hel. 11:24.]]
-[^b]: [[Helaman 1.32|Hel. 1:32 (30-33).]]
+[^a]: [[Helaman 11.24|Hel. 11:24]].  
+[^b]: [[Helaman 1.30|Hel. 1:32 (30–33)]][[Helaman 1.31|]][[Helaman 1.32|]][[Helaman 1.33|]].  

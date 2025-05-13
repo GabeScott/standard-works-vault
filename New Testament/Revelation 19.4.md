@@ -5,4 +5,4 @@
 [Revelation 19:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.4?lang=eng#p4)
 
 
-[^a]: TG [[Cherubim]].
+[^a]: [[Cherubim|TG Cherubim]].  

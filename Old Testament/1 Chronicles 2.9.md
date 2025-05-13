@@ -5,4 +5,4 @@
 [1 Chronicles 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/2.9?lang=eng#p9)
 
 
-[^a]: [[Matthew 1.3|Matt. 1:3 (3-4).]]
+[^a]: [[Matthew 1.3|Matt. 1:3 (3–4)]][[Matthew 1.4|]].  

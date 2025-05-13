@@ -5,5 +5,5 @@
 [Isaiah 48:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 22.18|Ezek. 22:18 (18-22).]]
-[^b]: TG [[Affliction]].
+[^a]: [[Ezekiel 22.18|Ezek. 22:18 (18–22)]][[Ezekiel 22.19|]][[Ezekiel 22.20|]][[Ezekiel 22.21|]][[Ezekiel 22.22|]].  
+[^b]: [[Affliction|TG Affliction]].  

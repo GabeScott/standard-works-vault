@@ -5,4 +5,4 @@
 [2 Kings 23:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.2?lang=eng#p2)
 
 
-[^a]: TG [[Scriptures, Study of]].
+[^a]: [[Scriptures, Study of|TG Scriptures, Study of]].  

@@ -5,4 +5,4 @@
 [Ether 1:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/1?lang=eng&id=p36#p36)
 
 
-[^a]: [[Ether 2.1|Ether 2:1.]]
+[^a]: [[Ether 2.1|Ether 2:1]].  

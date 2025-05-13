@@ -5,5 +5,5 @@
 [Ephesians 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.17?lang=eng#p17)
 
 
-[^a]: TG [[Wisdom]].
-[^b]: TG [[Revelation]].
+[^a]: [[Wisdom|TG Wisdom]].  
+[^b]: [[Revelation|TG Revelation]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 21:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/21.19?lang=eng#p19)
 
 
-[^a]: IE the gate of the city nearest his house.
+[^a]: IE the gate of the city nearest his house.  

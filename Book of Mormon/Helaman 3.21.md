@@ -5,4 +5,4 @@
 [Helaman 3:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p21#p21)
 
 
-[^a]: [[Helaman 3.37|Hel. 3:37]]; [[Helaman 4.14|4:14]]; 5:4-5; [[3 Nephi 1.2|3 Ne. 1:2.]]
+[^a]: [[Helaman 3.37|Hel. 3:37]]; [[Helaman 4.14|4:14]]; [[Helaman 5.4|5:4–5]][[Helaman 5.5|]]; [[3 Nephi 1.2|3 Ne. 1:2]].  

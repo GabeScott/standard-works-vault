@@ -5,10 +5,10 @@
 [2 Nephi 9:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p30#p30)
 
 
-[^a]: [[Jeremiah 17.11|Jer. 17:11]]; [[Luke 12.34|Luke 12:34]]; [[D&C 56.16|D&C 56:16.]]
-[^b]: [[Matthew 19.23|Matt. 19:23.]]
-[^c]: TG [[World, End of]].
-[^d]: TG [[Poor]].
-[^e]: TG [[Hardheartedness, Harden, Hardness]].
-[^f]: TG [[Treasure]].
-[^g]: [[Proverbs 27.24|Prov. 27:24.]]
+[^a]: [[Jeremiah 17.11|Jer. 17:11]]; [[Luke 12.34|Luke 12:34]]; [[D&C 56.16|D&C 56:16]].  
+[^b]: [[Matthew 19.23|Matt. 19:23]].  
+[^c]: [[World|TG World]].  
+[^d]: [[Poor|TG Poor]].  
+[^e]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  
+[^f]: [[Treasure|TG Treasure]].  
+[^g]: [[Proverbs 27.24|Prov. 27:24]].  

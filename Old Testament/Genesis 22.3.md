@@ -5,4 +5,4 @@
 [Genesis 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.3?lang=eng#p3)
 
 
-[^a]: [[Nehemiah 10.34|Neh. 10:34.]]
+[^a]: [[Nehemiah 10.34|Neh. 10:34]].  

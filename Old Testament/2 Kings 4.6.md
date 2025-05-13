@@ -5,4 +5,4 @@
 [2 Kings 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.6?lang=eng#p6)
 
 
-[^a]: HEB stopped.
+[^a]: HEB stopped.  

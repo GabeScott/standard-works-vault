@@ -5,4 +5,4 @@
 [Matthew 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.13?lang=eng#p13)
 
 
-[^a]: See Lev. 2:13 and Num. 18:19, where salt is a token of the covenant and was part of sacrificial ritual. TG [[Salt]].
+[^a]: See [[Leviticus 2.13|Lev. 2:13]] and [[Numbers 18.19|Num. 18:19]], where salt is a token of the covenant and was part of sacrificial ritual. [[Salt|TG Salt]].  

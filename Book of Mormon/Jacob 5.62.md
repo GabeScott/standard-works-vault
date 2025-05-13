@@ -5,4 +5,4 @@
 [Jacob 5:62](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p62#p62)
 
 
-[^a]: [[D&C 75.2|D&C 75:2.]]
+[^a]: [[D&C 75.2|D&C 75:2]].  

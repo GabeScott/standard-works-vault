@@ -5,6 +5,6 @@
 [Psalms 71:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/71.19?lang=eng#p19)
 
 
-[^a]: TG [[God, Perfection of]].
-[^b]: [[Psalms 36.5|Ps. 36:5.]]
-[^c]: [[1 Kings 8.23|1 Kgs. 8:23]]; [[Jeremiah 10.6|Jer. 10:6.]]
+[^a]: [[God, Perfection of|TG God, Perfection of]].  
+[^b]: [[Psalms 36.5|Ps. 36:5]].  
+[^c]: [[1 Kings 8.23|1 Kgs. 8:23]]; [[Jeremiah 10.6|Jer. 10:6]].  

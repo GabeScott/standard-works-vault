@@ -5,5 +5,5 @@
 [Job 37:23](https://www.churchofjesuschrist.org/study/scriptures/ot/job/37.23?lang=eng#p23)
 
 
-[^a]: TG [[God, Justice of]].
-[^b]: [[1 Corinthians 10.13|1 Cor. 10:13]]; [[Alma 13.28|Alma 13:28.]]
+[^a]: [[God, Justice of|TG God, Justice of]].  
+[^b]: [[1 Corinthians 10.13|1 Cor. 10:13]]; [[Alma 13.28|Alma 13:28]].  

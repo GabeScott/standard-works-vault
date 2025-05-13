@@ -5,5 +5,5 @@
 [3 Nephi 6:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p20#p20)
 
 
-[^a]: TG [[Inspiration, Inspire]]; [[Prophets, Mission of]].
-[^b]: TG [[Jesus Christ, Death of]].
+[^a]: [[Inspiration, Inspire|TG Inspiration]]; [[Prophets, Mission of|Prophets, Mission of]].  
+[^b]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

@@ -5,4 +5,4 @@
 [Ezra 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/3.4?lang=eng#p4)
 
 
-[^a]: [[Leviticus 23.34|Lev. 23:34]]; [[Zechariah 14.16|Zech. 14:16.]]
+[^a]: [[Leviticus 23.34|Lev. 23:34]]; [[Zechariah 14.16|Zech. 14:16]].  

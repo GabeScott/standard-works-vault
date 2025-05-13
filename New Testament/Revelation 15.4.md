@@ -5,4 +5,4 @@
 [Revelation 15:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/15.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 99.3|Ps. 99:3.]]
+[^a]: [[Psalms 99.3|Ps. 99:3]].  

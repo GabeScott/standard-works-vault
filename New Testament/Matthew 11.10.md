@@ -5,5 +5,5 @@
 [Matthew 11:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.10?lang=eng#p10)
 
 
-[^a]: Mal. 3:1; [[Mark 1.2|Mark 1:2]]; [[1 Nephi 11.27|1 Ne. 11:27]]; [[D&C 35.4|D&C 35:4]]; [[D&C 45.9|45:9.]]
-[^b]: [[Isaiah 40.3|Isa. 40:3.]]
+[^a]: [[Malachi 3.1|Mal. 3:1]]; [[Mark 1.2|Mark 1:2]]; [[1 Nephi 11.27|1 Ne. 11:27]]; [[D&C 35.4|D&C 35:4]]; [[D&C 45.9|45:9]].  
+[^b]: [[Isaiah 40.3|Isa. 40:3]].  

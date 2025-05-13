@@ -5,7 +5,7 @@
 [1 Corinthians 8:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/8.6?lang=eng#p6)
 
 
-[^a]: TG [[Godhead]].
-[^b]: Dan. 2:47; [[Ephesians 4.6|Eph. 4:6.]]
-[^c]: TG [[Jesus Christ, Lord]].
-[^d]: TG [[Jesus Christ, Power of]].
+[^a]: [[Godhead|TG Godhead]].  
+[^b]: [[Daniel 2.47|Dan. 2:47]]; [[Ephesians 4.6|Eph. 4:6]].  
+[^c]: [[Jesus Christ, Lord|TG Jesus Christ, Lord]].  
+[^d]: [[Jesus Christ, Power of|TG Jesus Christ, Power of]].  

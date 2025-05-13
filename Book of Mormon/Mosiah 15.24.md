@@ -5,4 +5,4 @@
 [Mosiah 15:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p24#p24)
 
 
-[^a]: [[2 Nephi 9.26|2 Ne. 9:26 (25-26)]]; [[D&C 137.7|D&C 137:7.]]
+[^a]: [[2 Nephi 9.25|2 Ne. 9:26 (25–26)]][[2 Nephi 9.26|]]; [[D&C 137.7|D&C 137:7]].  

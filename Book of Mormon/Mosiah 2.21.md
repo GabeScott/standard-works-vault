@@ -5,9 +5,9 @@
 [Mosiah 2:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p21#p21)
 
 
-[^a]: [[Job 22.3|Job 22:3 (3-4).]]
-[^b]: [[Nehemiah 9.6|Neh. 9:6.]]
-[^c]: [[2 Nephi 9.26|2 Ne. 9:26.]]
-[^d]: TG [[Agency]].
-[^e]: TG [[Dedication, Dedicate]].
-[^f]: [[Luke 17.10|Luke 17:10 (7-10)]]; [[Romans 3.12|Rom. 3:12.]]
+[^a]: [[Job 22.3|Job 22:3 (3–4)]][[Job 22.4|]].  
+[^b]: [[Nehemiah 9.6|Neh. 9:6]].  
+[^c]: [[2 Nephi 9.26|2 Ne. 9:26]].  
+[^d]: [[Agency|TG Agency]].  
+[^e]: [[Dedication, Dedicate|TG Dedication]].  
+[^f]: [[Luke 17.7|Luke 17:10 (7–10)]][[Luke 17.8|]][[Luke 17.9|]][[Luke 17.10|]]; [[Romans 3.12|Rom. 3:12]].  

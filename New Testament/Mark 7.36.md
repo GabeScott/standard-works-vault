@@ -5,4 +5,4 @@
 [Mark 7:36](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.36?lang=eng#p36)
 
 
-[^a]: [[Matthew 9.31|Matt. 9:31.]]
+[^a]: [[Matthew 9.31|Matt. 9:31]].  

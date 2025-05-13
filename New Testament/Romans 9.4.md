@@ -5,5 +5,5 @@
 [Romans 9:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.4?lang=eng#p4)
 
 
-[^a]: TG [[Election, Elect]]; [[Sons and Daughters of God]].
-[^b]: TG [[Abrahamic Covenant]].
+[^a]: [[Election, Elect|TG Election]]; [[Sons and Daughters of God|Sons and Daughters of God]].  
+[^b]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  

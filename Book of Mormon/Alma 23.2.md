@@ -5,5 +5,5 @@
 [Alma 23:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/23?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 21.20|Alma 21:20 (4-6, 20)]]; [[Alma 26.29|26:29.]]
-[^b]: [[Helaman 3.14|Hel. 3:14 (9, 14).]]
+[^a]: [[Alma 21.4|Alma 21:20 (4–6, 20)]][[Alma 21.5|]][[Alma 21.6|]][[Alma 21.20|]]; [[Alma 26.29|26:29]].  
+[^b]: [[Helaman 3.9|Hel. 3:14 (9, 14)]][[Helaman 3.14|]].  

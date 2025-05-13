@@ -5,4 +5,4 @@
 [Luke 8:43](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.43?lang=eng#p43)
 
 
-[^a]: [[Leviticus 15.25|Lev. 15:25.]]
+[^a]: [[Leviticus 15.25|Lev. 15:25]].  

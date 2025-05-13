@@ -5,4 +5,4 @@
 [Mark 9:45](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.45?lang=eng#p45)
 
 
-[^a]: GR cause thee to stumble.
+[^a]: GR cause thee to stumble.  

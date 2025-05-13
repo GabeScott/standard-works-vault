@@ -5,5 +5,5 @@
 [Ephesians 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.3?lang=eng#p3)
 
 
-[^a]: Col. 1:27 (26-27).
-[^b]: TG [[Scriptures, Lost]].
+[^a]: [[Colossians 1.26|Col. 1:27 (26–27)]][[Colossians 1.27|]].  
+[^b]: [[Scriptures, Lost|TG Scriptures, Lost]].  

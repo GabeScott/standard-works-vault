@@ -5,7 +5,7 @@
 [D&C 6:32](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.32?lang=eng#p32)
 
 
-[^a]: [[Matthew 18.19|Matt. 18:19 (19-20)]]; [[D&C 29.6|D&C 29:6]]; [[D&C 84.1|84:1.]]
-[^b]: TG [[Unity]].
-[^c]: [[D&C 32.3|D&C 32:3]]; [[D&C 38.7|38:7.]]
-[^d]: [[D&C 29.5|D&C 29:5]]; [[D&C 88.63|88:63 (62-63).]]
+[^a]: [[Matthew 18.19|Matt. 18:19 (19–20)]][[Matthew 18.20|]]; [[D&C 29.6|D&C 29:6]]; [[D&C 84.1|84:1]].  
+[^b]: [[Unity|TG Unity]].  
+[^c]: [[D&C 32.3|D&C 32:3]]; [[D&C 38.7|38:7]].  
+[^d]: [[D&C 29.5|D&C 29:5]]; [[D&C 88.62|88:63 (62–63)]][[D&C 88.63|]].  

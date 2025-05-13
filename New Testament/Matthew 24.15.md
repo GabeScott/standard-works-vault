@@ -5,6 +5,6 @@
 [Matthew 24:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.15?lang=eng#p15)
 
 
-[^a]: TG [[Abomination of Desolation]].
-[^b]: TG [[Jerusalem]].
-[^c]: [[D&C 57.9|D&C 57:9.]]
+[^a]: [[Abomination of Desolation|TG Abomination of Desolation]].  
+[^b]: [[Jerusalem|TG Jerusalem]].  
+[^c]: [[D&C 57.9|D&C 57:9]].  

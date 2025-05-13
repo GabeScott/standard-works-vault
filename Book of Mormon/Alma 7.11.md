@@ -5,6 +5,6 @@
 [Alma 7:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p11#p11)
 
 
-[^a]: [[Isaiah 53.5|Isa. 53:5 (3-5).]]
-[^b]: TG [[Jesus Christ, Temptation of]].
-[^c]: [[Mosiah 14.4|Mosiah 14:4 (3-5).]]
+[^a]: [[Isaiah 53.3|Isa. 53:5 (3–5)]][[Isaiah 53.4|]][[Isaiah 53.5|]].  
+[^b]: [[Jesus Christ, Temptation of|TG Jesus Christ, Temptation of]].  
+[^c]: [[Mosiah 14.3|Mosiah 14:4 (3–5)]][[Mosiah 14.4|]][[Mosiah 14.5|]].  

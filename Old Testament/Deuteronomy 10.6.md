@@ -5,4 +5,4 @@
 [Deuteronomy 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.6?lang=eng#p6)
 
 
-[^a]: [[Numbers 20.28|Num. 20:28 (22-29).]]
+[^a]: [[Numbers 20.22|Num. 20:28 (22–29)]][[Numbers 20.23|]][[Numbers 20.24|]][[Numbers 20.25|]][[Numbers 20.26|]][[Numbers 20.27|]][[Numbers 20.28|]][[Numbers 20.29|]].  

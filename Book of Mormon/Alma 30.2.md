@@ -5,5 +5,5 @@
 [Alma 30:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 28.6|Alma 28:6.]]
-[^b]: TG [[Mourning, Mourn]].
+[^a]: [[Alma 28.6|Alma 28:6]].  
+[^b]: [[Mourning, Mourn|TG Mourning]].  

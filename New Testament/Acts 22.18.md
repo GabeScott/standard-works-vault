@@ -5,4 +5,4 @@
 [Acts 22:18](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.18?lang=eng#p18)
 
 
-[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^a]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  

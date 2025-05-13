@@ -5,4 +5,4 @@
 [Mark 8:3](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/8.3?lang=eng#p3)
 
 
-[^a]: GR some.
+[^a]: GR some.  

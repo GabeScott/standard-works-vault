@@ -5,4 +5,4 @@
 [Nehemiah 12:44](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/12.44?lang=eng#p44)
 
 
-[^a]: TG [[Tithing]].
+[^a]: [[Tithing|TG Tithing]].  

@@ -5,4 +5,4 @@
 [3 Nephi 27:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p30#p30)
 
 
-[^a]: [[John 17.12|John 17:12.]]
+[^a]: [[John 17.12|John 17:12]].  

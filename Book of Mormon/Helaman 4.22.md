@@ -5,4 +5,4 @@
 [Helaman 4:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 1.1|Alma 1:1.]]
+[^a]: [[Alma 1.1|Alma 1:1]].  

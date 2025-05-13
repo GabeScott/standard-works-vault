@@ -5,4 +5,4 @@
 [Abraham 1:29](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.29?lang=eng#p29)
 
 
-[^a]: Abr. 2:1, 17. TG [[Famine]].
+[^a]: [[Abraham 2.1|Abr. 2:1, 17]][[Abraham 2.17|]]. [[Famine|TG Famine]].  

@@ -5,4 +5,4 @@
 [2 Samuel 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/14.14?lang=eng#p14)
 
 
-[^a]: TG [[God, Mercy of]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  

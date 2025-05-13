@@ -5,5 +5,5 @@
 [Jeremiah 9:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.14?lang=eng#p14)
 
 
-[^a]: [[1 Nephi 12.18|1 Ne. 12:18.]]
-[^b]: [[2 Chronicles 33.3|2 Chr. 33:3.]]
+[^a]: [[1 Nephi 12.18|1 Ne. 12:18]].  
+[^b]: [[2 Chronicles 33.3|2 Chr. 33:3]].  

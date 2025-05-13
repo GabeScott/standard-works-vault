@@ -5,6 +5,6 @@
 [1 John 3:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.22?lang=eng#p22)
 
 
-[^a]: TG [[Prayer, Pray]].
-[^b]: 1 Jn. 2:3.
-[^c]: TG [[Good Works]].
+[^a]: [[Prayer, Pray|TG Prayer]].  
+[^b]: [[1 John 2.3|1 Jn. 2:3]].  
+[^c]: [[Good Works|TG Good Works]].  

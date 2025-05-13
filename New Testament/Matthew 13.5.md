@@ -5,4 +5,4 @@
 [Matthew 13:5](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.5?lang=eng#p5)
 
 
-[^a]: IE rocky land over which a thin layer of soil is spread.
+[^a]: IE rocky land over which a thin layer of soil is spread.  

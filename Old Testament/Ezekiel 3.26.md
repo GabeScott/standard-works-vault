@@ -5,4 +5,4 @@
 [Ezekiel 3:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.26?lang=eng#p26)
 
 
-[^a]: [[Ezekiel 24.27|Ezek. 24:27.]]
+[^a]: [[Ezekiel 24.27|Ezek. 24:27]].  

@@ -5,5 +5,5 @@
 [Acts 15:36](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.36?lang=eng#p36)
 
 
-[^a]: [[Acts 12.25|Acts 12:25 (20-25).]]
-[^b]: TG [[Brotherhood and Sisterhood]].
+[^a]: [[Acts 12.20|Acts 12:25 (20–25)]][[Acts 12.21|]][[Acts 12.22|]][[Acts 12.23|]][[Acts 12.24|]][[Acts 12.25|]].  
+[^b]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  

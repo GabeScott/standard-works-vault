@@ -5,4 +5,4 @@
 [2 Nephi 1:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p6#p6)
 
 
-[^a]: [[2 Nephi 10.22|2 Ne. 10:22.]]
+[^a]: [[2 Nephi 10.22|2 Ne. 10:22]].  

@@ -5,5 +5,5 @@
 [Daniel 8:25](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.25?lang=eng#p25)
 
 
-[^a]: OR in a time of peace.
-[^b]: Dan. 2:34; [[D&C 65.2|D&C 65:2.]]
+[^a]: OR in a time of peace.  
+[^b]: [[Daniel 2.34|Dan. 2:34]]; [[D&C 65.2|D&C 65:2]].  

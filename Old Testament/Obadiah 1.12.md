@@ -5,4 +5,4 @@
 [Obadiah 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/obad/1.12?lang=eng#p12)
 
 
-[^a]: [[Proverbs 17.5|Prov. 17:5.]]
+[^a]: [[Proverbs 17.5|Prov. 17:5]].  

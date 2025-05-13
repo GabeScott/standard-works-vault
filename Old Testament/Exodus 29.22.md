@@ -5,5 +5,5 @@
 [Exodus 29:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.22?lang=eng#p22)
 
 
-[^a]: HEB fat tail.
-[^b]: [[1 Samuel 9.24|1 Sam. 9:24 (21-24).]]
+[^a]: HEB fat tail.  
+[^b]: [[1 Samuel 9.21|1 Sam. 9:24 (21–24)]][[1 Samuel 9.22|]][[1 Samuel 9.23|]][[1 Samuel 9.24|]].  

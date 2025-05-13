@@ -5,5 +5,5 @@
 [Alma 31:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p32#p32)
 
 
-[^a]: [[Alma 8.21|Alma 8:21]]; [[Alma 34.1|34:1.]]
-[^b]: [[Alma 31.7|Alma 31:7.]]
+[^a]: [[Alma 8.21|Alma 8:21]]; [[Alma 34.1|34:1]].  
+[^b]: [[Alma 31.7|Alma 31:7]].  

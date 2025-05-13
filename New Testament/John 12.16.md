@@ -5,4 +5,4 @@
 [John 12:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.16?lang=eng#p16)
 
 
-[^a]: [[Luke 9.45|Luke 9:45]]; [[Luke 18.34|18:34 (31-34).]]
+[^a]: [[Luke 9.45|Luke 9:45]]; [[Luke 18.31|18:34 (31–34)]][[Luke 18.32|]][[Luke 18.33|]][[Luke 18.34|]].  

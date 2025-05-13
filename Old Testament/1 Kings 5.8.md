@@ -5,4 +5,4 @@
 [1 Kings 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/5.8?lang=eng#p8)
 
 
-[^a]: [[1 Kings 6.34|1 Kgs. 6:34.]]
+[^a]: [[1 Kings 6.34|1 Kgs. 6:34]].  

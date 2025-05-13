@@ -5,4 +5,4 @@
 [Jeremiah 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.10?lang=eng#p10)
 
 
-[^a]: JS—H 1:19.
+[^a]: [[Joseph Smith History 1.19|JS—H 1:19]].  

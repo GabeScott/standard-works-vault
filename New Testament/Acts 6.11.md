@@ -5,4 +5,4 @@
 [Acts 6:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.11?lang=eng#p11)
 
 
-[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^a]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  

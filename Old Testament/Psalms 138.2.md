@@ -5,4 +5,4 @@
 [Psalms 138:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/138.2?lang=eng#p2)
 
 
-[^a]: TG [[Assembly for Worship]].
+[^a]: [[Worship|TG Worship]].  

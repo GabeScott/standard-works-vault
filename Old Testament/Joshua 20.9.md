@@ -5,5 +5,5 @@
 [Joshua 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/20.9?lang=eng#p9)
 
 
-[^a]: [[Numbers 35.15|Num. 35:15.]]
-[^b]: [[Judges 17.8|Judg. 17:8 (7-9)]]; [[Judges 19.16|19:16.]]
+[^a]: [[Numbers 35.15|Num. 35:15]].  
+[^b]: [[Judges 17.7|Judg. 17:8 (7–9)]][[Judges 17.8|]][[Judges 17.9|]]; [[Judges 19.16|19:16]].  

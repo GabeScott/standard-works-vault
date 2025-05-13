@@ -5,4 +5,4 @@
 [Numbers 15:24](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.24?lang=eng#p24)
 
 
-[^a]: HEB ordinance.
+[^a]: HEB ordinance.  

@@ -5,4 +5,4 @@
 [Ecclesiastes 11:7](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/11.7?lang=eng#p7)
 
 
-[^a]: TG [[Light]].
+[^a]: [[Light [noun]|TG Light [noun]]].  

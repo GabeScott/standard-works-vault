@@ -5,8 +5,8 @@
 [John 5:36](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.36?lang=eng#p36)
 
 
-[^a]: JST John 5:37 But I have a greater witness than the testimony of John …
-[^b]: GR the greater witness than John’s.
-[^c]: TG [[God, Works of]].
-[^d]: [[Matthew 11.4|Matt. 11:4]]; [[John 10.25|John 10:25.]]
-[^e]: TG [[Jesus Christ, Messenger of the Covenant]].
+[^a]: JST John 5:37 But I have a greater witness than the testimony of John …  
+[^b]: GR the greater witness than John’s.  
+[^c]: [[God, Works of|TG God, Works of]].  
+[^d]: [[Matthew 11.4|Matt. 11:4]]; [[John 10.25|John 10:25]].  
+[^e]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  

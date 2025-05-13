@@ -5,4 +5,4 @@
 [Psalms 90:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/90.16?lang=eng#p16)
 
 
-[^a]: [[Moses 1.39|Moses 1:39.]]
+[^a]: [[Moses 1.39|Moses 1:39]].  

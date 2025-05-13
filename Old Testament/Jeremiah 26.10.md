@@ -5,4 +5,4 @@
 [Jeremiah 26:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.10?lang=eng#p10)
 
 
-[^a]: HEB officers, or rulers.
+[^a]: HEB officers, or rulers.  

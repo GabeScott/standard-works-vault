@@ -5,4 +5,4 @@
 [3 Nephi 19:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p29#p29)
 
 
-[^a]: [[John 17.6|John 17:6.]]
+[^a]: [[John 17.6|John 17:6]].  

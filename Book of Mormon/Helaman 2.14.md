@@ -5,4 +5,4 @@
 [Helaman 2:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/2?lang=eng&id=p14#p14)
 
 
-[^a]: W of M 1:9; [[3 Nephi 5.10|3 Ne. 5:10.]]
+[^a]: [[Words of Mormon 1.9|W of M 1:9]]; [[3 Nephi 5.10|3 Ne. 5:10]].  

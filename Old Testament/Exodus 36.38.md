@@ -5,4 +5,4 @@
 [Exodus 36:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.38?lang=eng#p38)
 
 
-[^a]: OR capitals or tops of the pillars.
+[^a]: OR capitals or tops of the pillars.  

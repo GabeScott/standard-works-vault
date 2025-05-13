@@ -5,4 +5,4 @@
 [Numbers 11:24](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.24?lang=eng#p24)
 
 
-[^a]: TG [[Seventy]].
+[^a]: [[Seventy|TG Seventy]].  

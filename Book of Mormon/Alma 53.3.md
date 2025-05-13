@@ -5,5 +5,5 @@
 [Alma 53:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 52.6|Alma 52:6.]]
-[^b]: [[Alma 52.9|Alma 52:9 (9, 17, 27)]]; [[Alma 63.5|63:5.]]
+[^a]: [[Alma 52.6|Alma 52:6]].  
+[^b]: [[Alma 52.9|Alma 52:9 (9, 17, 27)]][[Alma 52.17|]][[Alma 52.27|]]; [[Alma 63.5|63:5]].  

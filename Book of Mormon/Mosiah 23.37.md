@@ -5,4 +5,4 @@
 [Mosiah 23:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p37#p37)
 
 
-[^a]: [[Mosiah 24.9|Mosiah 24:9 (8-15)]]; [[Alma 5.5|Alma 5:5.]]
+[^a]: [[Mosiah 24.8|Mosiah 24:9 (8–15)]][[Mosiah 24.9|]][[Mosiah 24.10|]][[Mosiah 24.11|]][[Mosiah 24.12|]][[Mosiah 24.13|]][[Mosiah 24.14|]][[Mosiah 24.15|]]; [[Alma 5.5|Alma 5:5]].  

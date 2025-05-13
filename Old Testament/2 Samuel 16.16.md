@@ -5,4 +5,4 @@
 [2 Samuel 16:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/16.16?lang=eng#p16)
 
 
-[^a]: HEB Let the king live, let the king live!
+[^a]: HEB Let the king live, let the king live!  

@@ -5,9 +5,9 @@
 [Matthew 23:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.23?lang=eng#p23)
 
 
-[^a]: TG [[Hypocrisy, Hypocrite]].
-[^b]: TG [[Tithing]].
-[^c]: GR dill.
-[^d]: GR abandoned.
-[^e]: TG [[God, Justice of]].
-[^f]: TG [[Mercy, Merciful]].
+[^a]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  
+[^b]: [[Tithing|TG Tithing]].  
+[^c]: GR dill.  
+[^d]: GR abandoned.  
+[^e]: [[Justice|TG Justice]].  
+[^f]: [[Mercy, Merciful|TG Mercy]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 17:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/17.19?lang=eng#p19)
 
 
-[^a]: [[2 Samuel 7.21|2 Sam. 7:21.]]
+[^a]: [[2 Samuel 7.21|2 Sam. 7:21]].  

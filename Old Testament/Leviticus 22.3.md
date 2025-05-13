@@ -5,6 +5,6 @@
 [Leviticus 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.3?lang=eng#p3)
 
 
-[^a]: HEB and any impurity is upon him.
-[^b]: [[Numbers 18.11|Num. 18:11]]; [[Mormon 9.29|Morm. 9:29.]]
-[^c]: TG [[Death, Spiritual, First]].
+[^a]: HEB and any impurity is upon him.  
+[^b]: [[Numbers 18.11|Num. 18:11]]; [[Mormon 9.29|Morm. 9:29]].  
+[^c]: [[Death, Spiritual, First|TG Death, Spiritual, First]].  

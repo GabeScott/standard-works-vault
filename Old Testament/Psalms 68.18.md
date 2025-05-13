@@ -5,5 +5,5 @@
 [Psalms 68:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.18?lang=eng#p18)
 
 
-[^a]: [[Acts 1.9|Acts 1:9]]; [[Ephesians 4.8|Eph. 4:8]]; [[D&C 88.6|D&C 88:6.]]
-[^b]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Acts 1.9|Acts 1:9]]; [[Ephesians 4.8|Eph. 4:8]]; [[D&C 88.6|D&C 88:6]].  
+[^b]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

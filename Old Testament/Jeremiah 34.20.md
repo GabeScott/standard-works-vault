@@ -5,4 +5,4 @@
 [Jeremiah 34:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.20?lang=eng#p20)
 
 
-[^a]: [[Jeremiah 22.25|Jer. 22:25.]]
+[^a]: [[Jeremiah 22.25|Jer. 22:25]].  

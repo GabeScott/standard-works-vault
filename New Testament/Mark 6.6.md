@@ -5,4 +5,4 @@
 [Mark 6:6](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.6?lang=eng#p6)
 
 
-[^a]: OR lack of faith.
+[^a]: OR lack of faith.  

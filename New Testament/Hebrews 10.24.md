@@ -5,5 +5,5 @@
 [Hebrews 10:24](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.24?lang=eng#p24)
 
 
-[^a]: GR understand.
-[^b]: TG [[Provoking, Provoke]].
+[^a]: GR understand.  
+[^b]: [[Provoking, Provoke|TG Provoking]].  

@@ -5,4 +5,4 @@
 [Ecclesiastes 10:8](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.8?lang=eng#p8)
 
 
-[^a]: [[Alma 30.60|Alma 30:60.]]
+[^a]: [[Alma 30.60|Alma 30:60]].  

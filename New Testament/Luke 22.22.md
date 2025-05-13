@@ -5,5 +5,5 @@
 [Luke 22:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.22?lang=eng#p22)
 
 
-[^a]: GR appointed, decreed. TG [[Foreordination]].
-[^b]: [[Matthew 26.24|Matt. 26:24]]; [[Acts 2.23|Acts 2:23.]]
+[^a]: GR appointed, decreed. [[Foreordination|TG Foreordination]].  
+[^b]: [[Matthew 26.24|Matt. 26:24]]; [[Acts 2.23|Acts 2:23]].  

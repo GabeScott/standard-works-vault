@@ -5,6 +5,6 @@
 [John 12:50](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.50?lang=eng#p50)
 
 
-[^a]: [[Deuteronomy 18.18|Deut. 18:18.]]
-[^b]: [[3 Nephi 15.18|3 Ne. 15:18.]]
-[^c]: TG [[Jesus Christ, Teaching Mode of]].
+[^a]: [[Deuteronomy 18.18|Deut. 18:18]].  
+[^b]: [[3 Nephi 15.18|3 Ne. 15:18]].  
+[^c]: [[Jesus Christ, Teaching Mode of|TG Jesus Christ, Teaching Mode of]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 32:46](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.46?lang=eng#p46)
 
 
-[^a]: [[Deuteronomy 6.6|Deut. 6:6]]; [[D&C 64.34|D&C 64:34.]]
-[^b]: [[Ephesians 6.4|Eph. 6:4 (1-4).]]
+[^a]: [[Deuteronomy 6.6|Deut. 6:6]]; [[D&C 64.34|D&C 64:34]].  
+[^b]: [[Ephesians 6.1|Eph. 6:4 (1–4)]][[Ephesians 6.2|]][[Ephesians 6.3|]][[Ephesians 6.4|]].  

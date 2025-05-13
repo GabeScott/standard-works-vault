@@ -5,4 +5,4 @@
 [Matthew 27:63](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.63?lang=eng#p63)
 
 
-[^a]: [[John 2.19|John 2:19.]]
+[^a]: [[John 2.19|John 2:19]].  

@@ -5,5 +5,5 @@
 [Mosiah 7:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p5#p5)
 
 
-[^a]: [[Mosiah 11.13|Mosiah 11:13.]]
-[^b]: [[Mosiah 9.14|Mosiah 9:14 (6, 8, 14)]]; [[Mosiah 11.12|11:12 (12-13)]]; [[Mosiah 22.11|22:11 (8, 11)]]; [[Alma 23.12|Alma 23:12.]]
+[^a]: [[Mosiah 11.13|Mosiah 11:13]].  
+[^b]: [[Mosiah 9.6|Mosiah 9:14 (6, 8, 14)]][[Mosiah 9.8|]][[Mosiah 9.14|]]; [[Mosiah 11.12|11:12 (12–13)]][[Mosiah 11.13|]]; [[Mosiah 22.8|22:11 (8, 11)]][[Mosiah 22.11|]]; [[Alma 23.12|Alma 23:12]].  

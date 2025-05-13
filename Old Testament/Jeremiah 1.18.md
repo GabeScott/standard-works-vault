@@ -5,4 +5,4 @@
 [Jeremiah 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.18?lang=eng#p18)
 
 
-[^a]: OR rulers, or officers.
+[^a]: OR rulers, or officers.  

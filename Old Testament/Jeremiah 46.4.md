@@ -5,4 +5,4 @@
 [Jeremiah 46:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.4?lang=eng#p4)
 
 
-[^a]: OR armor.
+[^a]: OR armor.  

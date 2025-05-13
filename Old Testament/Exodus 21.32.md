@@ -5,4 +5,4 @@
 [Exodus 21:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.32?lang=eng#p32)
 
 
-[^a]: [[Matthew 26.15|Matt. 26:15 (14-16).]]
+[^a]: [[Matthew 26.14|Matt. 26:15 (14–16)]][[Matthew 26.15|]][[Matthew 26.16|]].  

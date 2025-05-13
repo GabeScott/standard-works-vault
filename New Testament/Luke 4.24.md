@@ -5,4 +5,4 @@
 [Luke 4:24](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.24?lang=eng#p24)
 
 
-[^a]: TG [[Prophets, Rejection of]].
+[^a]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

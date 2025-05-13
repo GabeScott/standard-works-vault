@@ -5,4 +5,4 @@
 [1 Kings 18:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.27?lang=eng#p27)
 
 
-[^a]: OR gone aside, or withdrawn.
+[^a]: OR gone aside, or withdrawn.  

@@ -5,4 +5,4 @@
 [2 Chronicles 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.20?lang=eng#p20)
 
 
-[^a]: [[Deuteronomy 29.28|Deut. 29:28 (26-28).]]
+[^a]: [[Deuteronomy 29.26|Deut. 29:28 (26–28)]][[Deuteronomy 29.27|]][[Deuteronomy 29.28|]].  

@@ -5,4 +5,4 @@
 [Alma 22:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 18.42|Alma 18:42 (42-43).]]
+[^a]: [[Alma 18.42|Alma 18:42 (42–43)]][[Alma 18.43|]].  

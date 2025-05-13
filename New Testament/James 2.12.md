@@ -5,4 +5,4 @@
 [James 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Liberty]].
+[^a]: [[Liberty|TG Liberty]].  

@@ -5,5 +5,5 @@
 [Luke 7:37](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.37?lang=eng#p37)
 
 
-[^a]: TG [[Woman, Women]].
-[^b]: GR flask.
+[^a]: [[Woman, Women|TG Woman]].  
+[^b]: GR flask.  

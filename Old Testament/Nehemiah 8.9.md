@@ -5,7 +5,7 @@
 [Nehemiah 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.9?lang=eng#p9)
 
 
-[^a]: [[Nehemiah 7.65|Neh. 7:65.]]
-[^b]: TG [[Preaching, Preach]].
-[^c]: TG [[Mourning, Mourn]].
-[^d]: [[Mosiah 4.1|Mosiah 4:1 (1-2).]]
+[^a]: [[Nehemiah 7.65|Neh. 7:65]].  
+[^b]: [[Preaching, Preach|TG Preaching]].  
+[^c]: [[Mourning, Mourn|TG Mourning]].  
+[^d]: [[Mosiah 4.1|Mosiah 4:1 (1–2)]][[Mosiah 4.2|]].  

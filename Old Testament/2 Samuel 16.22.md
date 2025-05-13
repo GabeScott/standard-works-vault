@@ -5,4 +5,4 @@
 [2 Samuel 16:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/16.22?lang=eng#p22)
 
 
-[^a]: [[2 Samuel 12.12|2 Sam. 12:12.]]
+[^a]: [[2 Samuel 12.12|2 Sam. 12:12]].  

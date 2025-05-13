@@ -5,4 +5,4 @@
 [2 Chronicles 28:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.23?lang=eng#p23)
 
 
-[^a]: [[Alma 30.60|Alma 30:60.]]
+[^a]: [[Alma 30.60|Alma 30:60]].  

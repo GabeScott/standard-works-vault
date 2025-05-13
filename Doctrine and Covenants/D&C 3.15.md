@@ -5,4 +5,4 @@
 [D&C 3:15](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.15?lang=eng#p15)
 
 
-[^a]: IE the Lord; see v. 6.
+[^a]: IE the Lord; see [[D&C 3.6|v. 6]].  

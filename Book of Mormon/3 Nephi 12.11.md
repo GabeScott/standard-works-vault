@@ -5,4 +5,4 @@
 [3 Nephi 12:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Reviling, Revile]].
+[^a]: [[Reviling, Revile|TG Reviling]].  

@@ -5,5 +5,5 @@
 [1 Chronicles 22:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/22.1?lang=eng#p1)
 
 
-[^a]: [[2 Chronicles 3.1|2 Chr. 3:1.]]
-[^b]: [[2 Samuel 24.18|2 Sam. 24:18.]]
+[^a]: [[2 Chronicles 3.1|2 Chr. 3:1]].  
+[^b]: [[2 Samuel 24.18|2 Sam. 24:18]].  

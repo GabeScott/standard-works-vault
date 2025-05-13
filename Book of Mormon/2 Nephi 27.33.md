@@ -5,4 +5,4 @@
 [2 Nephi 27:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p33#p33)
 
 
-[^a]: TG [[Israel, Restoration of]].
+[^a]: [[Israel, Restoration of|TG Israel, Restoration of]].  

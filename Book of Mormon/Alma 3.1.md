@@ -5,4 +5,4 @@
 [Alma 3:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 2.19|Alma 2:19]]; [[Alma 4.2|4:2.]]
+[^a]: [[Alma 2.19|Alma 2:19]]; [[Alma 4.2|4:2]].  

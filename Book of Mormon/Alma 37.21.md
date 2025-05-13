@@ -5,7 +5,7 @@
 [Alma 37:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p21#p21)
 
 
-[^a]: [[Mosiah 8.9|Mosiah 8:9]]; [[Mosiah 21.27|21:27]]; [[Mosiah 28.11|28:11]]; [[Ether 1.2|Ether 1:2 (1-5)]]; [[Ether 15.33|15:33.]]
-[^b]: TG [[Secret Combinations]].
-[^c]: [[Proverbs 26.26|Prov. 26:26]]; [[Alma 14.3|Alma 14:3 (2-3).]]
-[^d]: TG [[Urim and Thummim]].
+[^a]: [[Mosiah 8.9|Mosiah 8:9]]; [[Mosiah 21.27|21:27]]; [[Mosiah 28.11|28:11]]; [[Ether 1.1|Ether 1:2 (1–5)]][[Ether 1.2|]][[Ether 1.3|]][[Ether 1.4|]][[Ether 1.5|]]; [[Ether 15.33|15:33]].  
+[^b]: [[Secret Combinations|TG Secret Combinations]].  
+[^c]: [[Proverbs 26.26|Prov. 26:26]]; [[Alma 14.2|Alma 14:3 (2–3)]][[Alma 14.3|]].  
+[^d]: [[Urim and Thummim|TG Urim and Thummim]].  

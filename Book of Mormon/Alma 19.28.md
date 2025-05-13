@@ -5,4 +5,4 @@
 [Alma 19:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p28#p28)
 
 
-[^a]: [[Alma 19.16|Alma 19:16.]]
+[^a]: [[Alma 19.16|Alma 19:16]].  

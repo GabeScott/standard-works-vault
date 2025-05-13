@@ -5,4 +5,4 @@
 [Ezekiel 39:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.3?lang=eng#p3)
 
 
-[^a]: [[Joel 2.20|Joel 2:20]]; [[Zechariah 12.9|Zech. 12:9.]]
+[^a]: [[Joel 2.20|Joel 2:20]]; [[Zechariah 12.9|Zech. 12:9]].  

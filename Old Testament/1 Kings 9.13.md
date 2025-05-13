@@ -5,4 +5,4 @@
 [1 Kings 9:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.13?lang=eng#p13)
 
 
-[^a]: IE Displeasing or Dirty.
+[^a]: IE Displeasing or Dirty.  

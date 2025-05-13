@@ -5,4 +5,4 @@
 [Galatians 4:9](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.9?lang=eng#p9)
 
 
-[^a]: [[D&C 84.51|D&C 84:51 (50-51).]]
+[^a]: [[D&C 84.50|D&C 84:51 (50–51)]][[D&C 84.51|]].  

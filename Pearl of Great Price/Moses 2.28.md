@@ -5,5 +5,5 @@
 [Moses 2:28](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.28?lang=eng#p28)
 
 
-[^a]: TG [[Birth Control]].
-[^b]: [[Moses 5.2|Moses 5:2]]. TG [[Marriage, Fatherhood]].
+[^a]: [[Birth Control|TG Birth Control]].  
+[^b]: [[Moses 5.2|Moses 5:2]]. [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  

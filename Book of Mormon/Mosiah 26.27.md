@@ -5,6 +5,6 @@
 [Mosiah 26:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p27#p27)
 
 
-[^a]: [[Matthew 7.23|Matt. 7:23 (21-23).]]
-[^b]: [[Luke 13.27|Luke 13:27.]]
-[^c]: [[1 Nephi 15.35|1 Ne. 15:35 (32-36).]]
+[^a]: [[Matthew 7.21|Matt. 7:23 (21–23)]][[Matthew 7.22|]][[Matthew 7.23|]].  
+[^b]: [[Luke 13.27|Luke 13:27]].  
+[^c]: [[1 Nephi 15.32|1 Ne. 15:35 (32–36)]][[1 Nephi 15.33|]][[1 Nephi 15.34|]][[1 Nephi 15.35|]][[1 Nephi 15.36|]].  

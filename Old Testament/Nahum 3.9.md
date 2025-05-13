@@ -5,6 +5,6 @@
 [Nahum 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/3.9?lang=eng#p9)
 
 
-[^a]: HEB without limit.
-[^b]: [[Genesis 10.6|Gen. 10:6.]]
-[^c]: IE the Libyans. 2 Chr. 12:3 (2-3).
+[^a]: HEB without limit.  
+[^b]: [[Genesis 10.6|Gen. 10:6]].  
+[^c]: IE the Libyans. [[2 Chronicles 12.2|2 Chr. 12:3 (2–3)]][[2 Chronicles 12.3|]].  

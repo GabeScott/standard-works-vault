@@ -5,5 +5,5 @@
 [1 Samuel 2:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.29?lang=eng#p29)
 
 
-[^a]: IE treat with scorn.
-[^b]: [[Matthew 10.37|Matt. 10:37.]]
+[^a]: IE treat with scorn.  
+[^b]: [[Matthew 10.37|Matt. 10:37]].  

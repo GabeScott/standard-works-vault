@@ -5,4 +5,4 @@
 [Numbers 23:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/23.7?lang=eng#p7)
 
 
-[^a]: HEB denounce (also v. 8).
+[^a]: HEB denounce (also [[Numbers 23.8|v. 8]]).  

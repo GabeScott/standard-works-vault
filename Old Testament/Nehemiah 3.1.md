@@ -5,5 +5,5 @@
 [Nehemiah 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/3.1?lang=eng#p1)
 
 
-[^a]: TG [[Priesthood, Aaronic]].
-[^b]: A gate probably in the northeast wall of Jerusalem near the temple, for access of sacrificial animals.
+[^a]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  
+[^b]: A gate probably in the northeast wall of Jerusalem near the temple, for access of sacrificial animals.  

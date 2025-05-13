@@ -5,5 +5,5 @@
 [1 Nephi 7:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/7?lang=eng&id=p17#p17)
 
 
-[^a]: [[Judges 14.6|Judg. 14:6.]]
-[^b]: [[Jacob 4.6|Jacob 4:6]]; [[Alma 14.28|Alma 14:28 (26-28)]]; [[3 Nephi 28.20|3 Ne. 28:20 (19-22).]]
+[^a]: [[Judges 14.6|Judg. 14:6]].  
+[^b]: [[Jacob 4.6|Jacob 4:6]]; [[Alma 14.26|Alma 14:28 (26–28)]][[Alma 14.27|]][[Alma 14.28|]]; [[3 Nephi 28.19|3 Ne. 28:20 (19–22)]][[3 Nephi 28.20|]][[3 Nephi 28.21|]][[3 Nephi 28.22|]].  

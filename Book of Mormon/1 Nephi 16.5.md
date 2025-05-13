@@ -5,4 +5,4 @@
 [1 Nephi 16:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p5#p5)
 
 
-[^a]: [[1 Nephi 15.20|1 Ne. 15:20]]; [[1 Nephi 16.24|16:24 (24, 39)]]; [[1 Nephi 18.4|18:4.]]
+[^a]: [[1 Nephi 15.20|1 Ne. 15:20]]; [[1 Nephi 16.24|16:24 (24, 39)]][[1 Nephi 16.39|]]; [[1 Nephi 18.4|18:4]].  

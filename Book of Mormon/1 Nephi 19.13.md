@@ -5,4 +5,4 @@
 [1 Nephi 19:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p13#p13)
 
 
-[^a]: [[Matthew 23.38|Matt. 23:38 (37-39)]]; [[Luke 23.28|Luke 23:28 (27-30).]]
+[^a]: [[Matthew 23.37|Matt. 23:38 (37–39)]][[Matthew 23.38|]][[Matthew 23.39|]]; [[Luke 23.27|Luke 23:28 (27–30)]][[Luke 23.28|]][[Luke 23.29|]][[Luke 23.30|]].  

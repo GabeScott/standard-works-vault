@@ -5,5 +5,5 @@
 [Jeremiah 51:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.30?lang=eng#p30)
 
 
-[^a]: OR ceased.
-[^b]: [[Nahum 3.13|Nahum 3:13.]]
+[^a]: OR ceased.  
+[^b]: [[Nahum 3.13|Nahum 3:13]].  

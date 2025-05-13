@@ -5,6 +5,6 @@
 [2 Peter 2:3](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.3?lang=eng#p3)
 
 
-[^a]: [[Romans 16.18|Rom. 16:18.]]
-[^b]: [[Deuteronomy 32.35|Deut. 32:35.]]
-[^c]: TG [[Damnation, Damned]].
+[^a]: [[Romans 16.18|Rom. 16:18]].  
+[^b]: [[Deuteronomy 32.35|Deut. 32:35]].  
+[^c]: [[Damnation, Damned|TG Damnation]].  

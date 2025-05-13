@@ -5,6 +5,6 @@
 [Amos 5:22](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.22?lang=eng#p22)
 
 
-[^a]: TG [[Hypocrisy, Hypocrite]].
-[^b]: [[Hosea 8.13|Hosea 8:13]]; Mal. 1:10.
-[^c]: TG [[Self-Sacrifice]].
+[^a]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  
+[^b]: [[Hosea 8.13|Hosea 8:13]]; [[Malachi 1.10|Mal. 1:10]].  
+[^c]: [[Sacrifice|TG Sacrifice]].  

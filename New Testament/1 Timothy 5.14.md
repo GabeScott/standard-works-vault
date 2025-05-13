@@ -5,7 +5,7 @@
 [1 Timothy 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.14?lang=eng#p14)
 
 
-[^a]: GR desire.
-[^b]: TG [[Marriage, Wives]]; [[Woman, Women]].
-[^c]: TG [[Children]].
-[^d]: [[Titus 2.5|Titus 2:5 (4-5).]]
+[^a]: GR desire.  
+[^b]: [[Marriage, Wives|TG Marriage, Wives]]; [[Woman, Women|Woman]].  
+[^c]: [[Children|TG Children]].  
+[^d]: [[Titus 2.4|Titus 2:5 (4–5)]][[Titus 2.5|]].  

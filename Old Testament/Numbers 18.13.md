@@ -5,4 +5,4 @@
 [Numbers 18:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.13?lang=eng#p13)
 
 
-[^a]: [[Deuteronomy 26.2|Deut. 26:2.]]
+[^a]: [[Deuteronomy 26.2|Deut. 26:2]].  

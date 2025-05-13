@@ -5,4 +5,4 @@
 [Joshua 11:22](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/11.22?lang=eng#p22)
 
 
-[^a]: [[1 Samuel 17.4|1 Sam. 17:4.]]
+[^a]: [[1 Samuel 17.4|1 Sam. 17:4]].  

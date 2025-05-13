@@ -5,5 +5,5 @@
 [Daniel 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.2?lang=eng#p2)
 
 
-[^a]: [[2 Chronicles 36.21|2 Chr. 36:21]]; [[Jeremiah 25.12|Jer. 25:12.]]
-[^b]: TG [[Israel, Bondage of, in Other Lands]].
+[^a]: [[2 Chronicles 36.21|2 Chr. 36:21]]; [[Jeremiah 25.12|Jer. 25:12]].  
+[^b]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  

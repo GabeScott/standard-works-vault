@@ -5,4 +5,4 @@
 [1 Chronicles 9:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/9.18?lang=eng#p18)
 
 
-[^a]: [[Ezekiel 46.1|Ezek. 46:1 (1-2).]]
+[^a]: [[Ezekiel 46.1|Ezek. 46:1 (1–2)]][[Ezekiel 46.2|]].  

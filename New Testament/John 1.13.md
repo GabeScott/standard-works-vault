@@ -5,4 +5,4 @@
 [John 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.13?lang=eng#p13)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]].
+[^a]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  

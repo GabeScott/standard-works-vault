@@ -5,5 +5,5 @@
 [1 Chronicles 29:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.9?lang=eng#p9)
 
 
-[^a]: [[Moroni 7.8|Moro. 7:8]]; [[D&C 64.34|D&C 64:34.]]
-[^b]: TG [[Initiative]].
+[^a]: [[Moroni 7.8|Moro. 7:8]]; [[D&C 64.34|D&C 64:34]].  
+[^b]: [[Initiative|TG Initiative]].  

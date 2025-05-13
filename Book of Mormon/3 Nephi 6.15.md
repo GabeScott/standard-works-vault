@@ -5,6 +5,6 @@
 [3 Nephi 6:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p15#p15)
 
 
-[^a]: [[Moses 6.15|Moses 6:15.]]
-[^b]: [[1 Nephi 22.26|1 Ne. 22:26]]; [[Alma 48.17|Alma 48:17.]]
-[^c]: TG [[Selfishness]].
+[^a]: [[Moses 6.15|Moses 6:15]].  
+[^b]: [[1 Nephi 22.26|1 Ne. 22:26]]; [[Alma 48.17|Alma 48:17]].  
+[^c]: [[Selfishness|TG Selfishness]].  

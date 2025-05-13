@@ -5,4 +5,4 @@
 [Matthew 14:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.35?lang=eng#p35)
 
 
-[^a]: GR recognized Him.
+[^a]: GR recognized Him.  

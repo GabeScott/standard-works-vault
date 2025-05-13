@@ -5,6 +5,6 @@
 [Helaman 16:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/16?lang=eng&id=p22#p22)
 
 
-[^a]: [[Genesis 6.5|Gen. 6:5.]]
-[^b]: 4 Ne. 1:43.
-[^c]: [[Proverbs 6.18|Prov. 6:18 (16-19).]]
+[^a]: [[Genesis 6.5|Gen. 6:5]].  
+[^b]: [[4 Nephi 1.43|4 Ne. 1:43]].  
+[^c]: [[Proverbs 6.16|Prov. 6:18 (16–19)]][[Proverbs 6.17|]][[Proverbs 6.18|]][[Proverbs 6.19|]].  

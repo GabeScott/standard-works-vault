@@ -5,4 +5,4 @@
 [Luke 17:27](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.27?lang=eng#p27)
 
 
-[^a]: [[Matthew 24.37|Matt. 24:37 (36-38).]]
+[^a]: [[Matthew 24.36|Matt. 24:37 (36–38)]][[Matthew 24.37|]][[Matthew 24.38|]].  

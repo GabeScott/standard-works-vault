@@ -5,4 +5,4 @@
 [Jeremiah 49:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.3?lang=eng#p3)
 
 
-[^a]: [[Jeremiah 48.7|Jer. 48:7.]]
+[^a]: [[Jeremiah 48.7|Jer. 48:7]].  

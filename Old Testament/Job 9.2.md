@@ -5,4 +5,4 @@
 [Job 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/job/9.2?lang=eng#p2)
 
 
-[^a]: IE before.
+[^a]: IE before.  

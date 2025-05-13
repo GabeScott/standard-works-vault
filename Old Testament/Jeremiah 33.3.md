@@ -5,4 +5,4 @@
 [Jeremiah 33:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/33.3?lang=eng#p3)
 
 
-[^a]: TG [[God, Omniscience of]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  

@@ -5,4 +5,4 @@
 [1 Corinthians 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.11?lang=eng#p11)
 
 
-[^a]: GR roughly treated, afflicted.
+[^a]: GR roughly treated, afflicted.  

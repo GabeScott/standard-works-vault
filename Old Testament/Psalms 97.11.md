@@ -5,4 +5,4 @@
 [Psalms 97:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/97.11?lang=eng#p11)
 
 
-[^a]: [[D&C 50.24|D&C 50:24.]]
+[^a]: [[D&C 50.24|D&C 50:24]].  

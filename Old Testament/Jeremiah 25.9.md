@@ -5,7 +5,7 @@
 [Jeremiah 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.9?lang=eng#p9)
 
 
-[^a]: IE send for.
-[^b]: [[Jeremiah 43.10|Jer. 43:10.]]
-[^c]: TG [[Israel, Bondage of, in Other Lands]].
-[^d]: [[2 Kings 24.2|2 Kgs. 24:2.]]
+[^a]: IE send for.  
+[^b]: [[Jeremiah 43.10|Jer. 43:10]].  
+[^c]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  
+[^d]: [[2 Kings 24.2|2 Kgs. 24:2]].  

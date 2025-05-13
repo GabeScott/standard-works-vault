@@ -5,4 +5,4 @@
 [Luke 10:30](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.30?lang=eng#p30)
 
 
-[^a]: TG [[Cruelty, Cruel]].
+[^a]: [[Cruelty, Cruel|TG Cruelty]].  

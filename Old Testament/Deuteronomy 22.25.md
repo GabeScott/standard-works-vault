@@ -5,4 +5,4 @@
 [Deuteronomy 22:25](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.25?lang=eng#p25)
 
 
-[^a]: TG [[Sexual Immorality]].
+[^a]: [[Sexual Immorality|TG Sexual Immorality]].  

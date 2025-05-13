@@ -5,4 +5,4 @@
 [Haggai 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.18?lang=eng#p18)
 
 
-[^a]: [[Haggai 1.5|Hag. 1:5.]]
+[^a]: [[Haggai 1.5|Hag. 1:5]].  

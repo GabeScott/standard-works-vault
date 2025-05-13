@@ -5,5 +5,5 @@
 [Jeremiah 15:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/15.3?lang=eng#p3)
 
 
-[^a]: HEB destroyers.
-[^b]: [[D&C 29.20|D&C 29:20.]]
+[^a]: HEB destroyers.  
+[^b]: [[D&C 29.20|D&C 29:20]].  

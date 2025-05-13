@@ -5,8 +5,8 @@
 [John 11:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.25?lang=eng#p25)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]]; [[Jesus Christ, Resurrection]].
-[^b]: TG [[Jesus Christ, Atonement through]].
-[^c]: TG [[Faith]].
-[^d]: TG [[Death]].
-[^e]: [[Alma 37.46|Alma 37:46 (46-47)]]; [[Helaman 8.15|Hel. 8:15]]; [[3 Nephi 15.9|3 Ne. 15:9.]]
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]]; [[Resurrection|Resurrection]].  
+[^b]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  
+[^c]: [[Faith|TG Faith]].  
+[^d]: [[Death|TG Death]].  
+[^e]: [[Alma 37.46|Alma 37:46 (46–47)]][[Alma 37.47|]]; [[Helaman 8.15|Hel. 8:15]]; [[3 Nephi 15.9|3 Ne. 15:9]].  

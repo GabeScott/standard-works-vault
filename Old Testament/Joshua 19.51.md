@@ -5,5 +5,5 @@
 [Joshua 19:51](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/19.51?lang=eng#p51)
 
 
-[^a]: TG [[Inheritance]].
-[^b]: [[Numbers 34.17|Num. 34:17.]]
+[^a]: [[Inheritance|TG Inheritance]].  
+[^b]: [[Numbers 34.17|Num. 34:17]].  

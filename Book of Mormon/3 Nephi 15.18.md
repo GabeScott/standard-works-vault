@@ -5,7 +5,7 @@
 [3 Nephi 15:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/15?lang=eng&id=p18#p18)
 
 
-[^a]: TG [[Stiffnecked, Stiffneckedness]].
-[^b]: TG [[Doubt, Doubtful]]; [[Unbelief, Unbelievers]].
-[^c]: [[D&C 10.59|D&C 10:59.]]
-[^d]: [[John 12.50|John 12:50.]]
+[^a]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  
+[^b]: [[Doubt, Doubtful|TG Doubt]]; [[Unbelief, Unbelievers|Unbelief]].  
+[^c]: [[D&C 10.59|D&C 10:59]].  
+[^d]: [[John 12.50|John 12:50]].  

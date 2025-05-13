@@ -5,6 +5,6 @@
 [Colossians 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.4?lang=eng#p4)
 
 
-[^a]: [[Ether 4.12|Ether 4:12.]]
-[^b]: 1 Jn. 3:2.
-[^c]: [[1 Corinthians 15.43|1 Cor. 15:43 (42-44).]]
+[^a]: [[Ether 4.12|Ether 4:12]].  
+[^b]: [[1 John 3.2|1 Jn. 3:2]].  
+[^c]: [[1 Corinthians 15.42|1 Cor. 15:43 (42–44)]][[1 Corinthians 15.43|]][[1 Corinthians 15.44|]].  

@@ -5,5 +5,5 @@
 [Jacob 1:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/1?lang=eng&id=p4#p4)
 
 
-[^a]: TG [[Sacred]].
-[^b]: IE the dominant, important items.
+[^a]: [[Sacred|TG Sacred]].  
+[^b]: IE the dominant, important items.  

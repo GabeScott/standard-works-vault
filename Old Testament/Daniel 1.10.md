@@ -5,6 +5,6 @@
 [Daniel 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/1.10?lang=eng#p10)
 
 
-[^a]: TG [[Courage, Courageous]]; [[Fearful]].
-[^b]: IE less healthy.
-[^c]: OR age.
+[^a]: [[Courage, Courageous|TG Courage]]; [[Fearful|Fearful]].  
+[^b]: IE less healthy.  
+[^c]: OR age.  

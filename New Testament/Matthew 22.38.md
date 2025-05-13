@@ -5,4 +5,4 @@
 [Matthew 22:38](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.38?lang=eng#p38)
 
 
-[^a]: TG [[Commandments of God]].
+[^a]: [[Commandments of God|TG Commandments of God]].  

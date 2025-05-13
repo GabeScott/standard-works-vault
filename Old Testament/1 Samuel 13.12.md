@@ -5,4 +5,4 @@
 [1 Samuel 13:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/13.12?lang=eng#p12)
 
 
-[^a]: TG [[Priesthood, Qualifying for]].
+[^a]: [[Priesthood, Qualifying for|TG Priesthood, Qualifying for]].  

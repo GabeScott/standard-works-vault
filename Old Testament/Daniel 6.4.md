@@ -5,4 +5,4 @@
 [Daniel 6:4](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.4?lang=eng#p4)
 
 
-[^a]: [[D&C 64.8|D&C 64:8]]; [[D&C 88.124|88:124.]]
+[^a]: [[D&C 64.8|D&C 64:8]]; [[D&C 88.124|88:124]].  

@@ -5,5 +5,5 @@
 [Numbers 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/2.2?lang=eng#p2)
 
 
-[^a]: [[Numbers 24.2|Num. 24:2.]]
-[^b]: OR facing the tent of meeting on all sides.
+[^a]: [[Numbers 24.2|Num. 24:2]].  
+[^b]: OR facing the tent of meeting on all sides.  

@@ -5,4 +5,4 @@
 [2 Kings 20:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.5?lang=eng#p5)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Heal, Healing|TG Heal]].  

@@ -5,5 +5,5 @@
 [Psalms 56:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/56.13?lang=eng#p13)
 
 
-[^a]: [[Psalms 116.8|Ps. 116:8.]]
-[^b]: TG [[Walking with God]].
+[^a]: [[Psalms 116.8|Ps. 116:8]].  
+[^b]: [[Walking with God|TG Walking with God]].  

@@ -5,4 +5,4 @@
 [Ether 8:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p10#p10)
 
 
-[^a]: [[Mark 6.24|Mark 6:24 (22-28).]]
+[^a]: [[Mark 6.22|Mark 6:24 (22–28)]][[Mark 6.23|]][[Mark 6.24|]][[Mark 6.25|]][[Mark 6.26|]][[Mark 6.27|]][[Mark 6.28|]].  

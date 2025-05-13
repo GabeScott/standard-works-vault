@@ -5,4 +5,4 @@
 [Acts 8:37](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.37?lang=eng#p37)
 
 
-[^a]: TG [[Baptism, Qualifications for]].
+[^a]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  

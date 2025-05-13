@@ -5,5 +5,5 @@
 [Revelation 6:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/6.9?lang=eng#p9)
 
 
-[^a]: [[D&C 135.7|D&C 135:7.]]
-[^b]: TG [[Martyrdom]]; [[Persecution, Persecute]].
+[^a]: [[D&C 135.7|D&C 135:7]].  
+[^b]: [[Martyrdom|TG Martyrdom]]; [[Persecution, Persecute|Persecution]].  

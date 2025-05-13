@@ -5,5 +5,5 @@
 [Abraham 3:22](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.22?lang=eng#p22)
 
 
-[^a]: TG [[Council in Heaven]]; [[Intelligence]]; [[Man, Antemortal Existence of]]; [[Man, a Spirit Child of Heavenly Father]]; [[Spirit Creation]].
-[^b]: [[D&C 138.55|D&C 138:55.]]
+[^a]: [[Council in Heaven|TG Council in Heaven]]; [[Intelligence|Intelligence]]; [[Man, Antemortal Existence of|Man, Antemortal Existence of]]; [[Man, a Spirit Child of Heavenly Father|Man, a Spirit Child of Heavenly Father]]; [[Spirit Creation|Spirit Creation]].  
+[^b]: [[D&C 138.55|D&C 138:55]].  

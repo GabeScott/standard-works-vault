@@ -5,7 +5,7 @@
 [Alma 19:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p17#p17)
 
 
-[^a]: JS—H 1:74.
-[^b]: [[Mosiah 4.1|Mosiah 4:1.]]
-[^c]: [[Moses 1.9|Moses 1:9 (9-10).]]
-[^d]: [[Mosiah 27.14|Mosiah 27:14.]]
+[^a]: [[Joseph Smith History 1.74|JS—H 1:74]].  
+[^b]: [[Mosiah 4.1|Mosiah 4:1]].  
+[^c]: [[Moses 1.9|Moses 1:9 (9–10)]][[Moses 1.10|]].  
+[^d]: [[Mosiah 27.14|Mosiah 27:14]].  

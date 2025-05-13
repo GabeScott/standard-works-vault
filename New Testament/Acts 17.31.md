@@ -5,6 +5,6 @@
 [Acts 17:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.31?lang=eng#p31)
 
 
-[^a]: TG [[Jesus Christ, Judge]]; [[Judgment, the Last]].
-[^b]: TG [[Jesus Christ, Authority of]].
-[^c]: [[Acts 10.40|Acts 10:40.]]
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]]; [[Judgment, the Last|Judgment, the Last]].  
+[^b]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^c]: [[Acts 10.40|Acts 10:40]].  

@@ -5,4 +5,4 @@
 [Alma 27:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 29.32|Mosiah 29:32 (32, 38, 40).]]
+[^a]: [[Mosiah 29.32|Mosiah 29:32 (32, 38, 40)]][[Mosiah 29.38|]][[Mosiah 29.40|]].  

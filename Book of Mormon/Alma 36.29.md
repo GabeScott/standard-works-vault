@@ -5,4 +5,4 @@
 [Alma 36:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p29#p29)
 
 
-[^a]: [[Mosiah 24.17|Mosiah 24:17]]; [[Mosiah 25.10|25:10]]; [[Mosiah 27.16|27:16]]; [[Alma 5.5|Alma 5:5 (5-6)]]; [[Alma 29.12|29:12 (11-12).]]
+[^a]: [[Mosiah 24.17|Mosiah 24:17]]; [[Mosiah 25.10|25:10]]; [[Mosiah 27.16|27:16]]; [[Alma 5.5|Alma 5:5 (5–6)]][[Alma 5.6|]]; [[Alma 29.11|29:12 (11–12)]][[Alma 29.12|]].  

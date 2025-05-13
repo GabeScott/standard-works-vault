@@ -5,4 +5,4 @@
 [Deuteronomy 2:34](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.34?lang=eng#p34)
 
 
-[^a]: [[Deuteronomy 7.2|Deut. 7:2]]; [[1 Samuel 15.3|1 Sam. 15:3.]]
+[^a]: [[Deuteronomy 7.2|Deut. 7:2]]; [[1 Samuel 15.3|1 Sam. 15:3]].  

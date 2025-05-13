@@ -5,6 +5,6 @@
 [Isaiah 1:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.23?lang=eng#p23)
 
 
-[^a]: TG [[Kings, Earthly]].
-[^b]: IE bribes. Ezek. 22:12. TG [[Bribe, Bribery]].
-[^c]: HEB “do not do justice to.” TG [[Judgment]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  
+[^b]: IE bribes. [[Ezekiel 22.12|Ezek. 22:12]]. [[Bribe, Bribery|TG Bribe]].  
+[^c]: HEB “do not do justice to.” [[Judgment|TG Judgment]].  

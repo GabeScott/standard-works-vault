@@ -5,4 +5,4 @@
 [Alma 24:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p20#p20)
 
 
-[^a]: [[Isaiah 7.6|Isa. 7:6.]]
+[^a]: [[Isaiah 7.6|Isa. 7:6]].  

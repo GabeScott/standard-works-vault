@@ -5,4 +5,4 @@
 [Jeremiah 2:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.24?lang=eng#p24)
 
 
-[^a]: JST Jer. 2:24 … shall not find her.
+[^a]: JST Jer. 2:24 … shall not find her.  

@@ -5,6 +5,6 @@
 [Revelation 21:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.4?lang=eng#p4)
 
 
-[^a]: [[Revelation 7.17|Rev. 7:17.]]
-[^b]: TG [[Mourning, Mourn]]; [[Sorrow]].
-[^c]: TG [[Pain]].
+[^a]: [[Revelation 7.17|Rev. 7:17]].  
+[^b]: [[Mourning, Mourn|TG Mourning]]; [[Sorrow|Sorrow]].  
+[^c]: [[Pain|TG Pain]].  

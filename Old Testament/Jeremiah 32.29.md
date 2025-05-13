@@ -5,4 +5,4 @@
 [Jeremiah 32:29](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.29?lang=eng#p29)
 
 
-[^a]: [[2 Kings 23.12|2 Kgs. 23:12.]]
+[^a]: [[2 Kings 23.12|2 Kgs. 23:12]].  

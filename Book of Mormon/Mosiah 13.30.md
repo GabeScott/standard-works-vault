@@ -5,6 +5,6 @@
 [Mosiah 13:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p30#p30)
 
 
-[^a]: [[Romans 7.1|Rom. 7:1 (1-3).]]
-[^b]: TG [[Ordinance]].
-[^c]: [[2 Nephi 25.24|2 Ne. 25:24]]; [[Jacob 4.5|Jacob 4:5.]]
+[^a]: [[Romans 7.1|Rom. 7:1 (1–3)]][[Romans 7.2|]][[Romans 7.3|]].  
+[^b]: [[Ordinance|TG Ordinance]].  
+[^c]: [[2 Nephi 25.24|2 Ne. 25:24]]; [[Jacob 4.5|Jacob 4:5]].  

@@ -5,4 +5,4 @@
 [Alma 31:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p23#p23)
 
 
-[^a]: [[James 1.22|James 1:22 (21-25).]]
+[^a]: [[James 1.21|James 1:22 (21–25)]][[James 1.22|]][[James 1.23|]][[James 1.24|]][[James 1.25|]].  

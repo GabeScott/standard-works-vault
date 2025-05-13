@@ -5,6 +5,6 @@
 [1 Corinthians 16:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.7?lang=eng#p7)
 
 
-[^a]: GR in passing.
-[^b]: GR hope.
-[^c]: [[2 Corinthians 1.15|2 Cor. 1:15 (15-16).]]
+[^a]: GR in passing.  
+[^b]: GR hope.  
+[^c]: [[2 Corinthians 1.15|2 Cor. 1:15 (15–16)]][[2 Corinthians 1.16|]].  

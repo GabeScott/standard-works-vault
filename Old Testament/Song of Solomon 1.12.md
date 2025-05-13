@@ -5,4 +5,4 @@
 [Song of Solomon 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/song/1.12?lang=eng#p12)
 
 
-[^a]: IE a fragrant ointment. Song 4:13 (13-14).
+[^a]: IE a fragrant ointment. [[Song of Solomon 4.13|Song 4:13 (13–14)]][[Song of Solomon 4.14|]].  

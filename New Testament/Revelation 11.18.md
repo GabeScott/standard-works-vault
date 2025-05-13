@@ -5,5 +5,5 @@
 [Revelation 11:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/11.18?lang=eng#p18)
 
 
-[^a]: Dan. 7:10; [[D&C 29.13|D&C 29:13.]]
-[^b]: GR corrupt, waste, pervert.
+[^a]: [[Daniel 7.10|Dan. 7:10]]; [[D&C 29.13|D&C 29:13]].  
+[^b]: GR corrupt, waste, pervert.  

@@ -5,4 +5,4 @@
 [Jeremiah 35:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/35.6?lang=eng#p6)
 
 
-[^a]: [[2 Kings 10.15|2 Kgs. 10:15.]]
+[^a]: [[2 Kings 10.15|2 Kgs. 10:15]].  

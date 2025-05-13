@@ -5,4 +5,4 @@
 [Exodus 35:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.32?lang=eng#p32)
 
 
-[^a]: OR artistic things (also v. 35).
+[^a]: OR artistic things (also [[Exodus 35.35|v. 35]]).  

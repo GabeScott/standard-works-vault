@@ -5,5 +5,5 @@
 [Ruth 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/1.2?lang=eng#p2)
 
 
-[^a]: HEB My God is king.
-[^b]: [[Genesis 35.19|Gen. 35:19.]]
+[^a]: HEB My God is king.  
+[^b]: [[Genesis 35.19|Gen. 35:19]].  

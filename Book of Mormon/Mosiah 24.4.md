@@ -5,6 +5,6 @@
 [Mosiah 24:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mosiah 2.4|Mosiah 2:4]]; [[Mosiah 18.18|18:18 (18-22)]]; [[Mosiah 23.14|23:14.]]
-[^b]: [[Mosiah 23.9|Mosiah 23:9 (9, 12, 31).]]
-[^c]: [[Omni 1.18|Omni 1:18.]]
+[^a]: [[Mosiah 2.4|Mosiah 2:4]]; [[Mosiah 18.18|18:18 (18–22)]][[Mosiah 18.19|]][[Mosiah 18.20|]][[Mosiah 18.21|]][[Mosiah 18.22|]]; [[Mosiah 23.14|23:14]].  
+[^b]: [[Mosiah 23.9|Mosiah 23:9 (9, 12, 31)]][[Mosiah 23.12|]][[Mosiah 23.31|]].  
+[^c]: [[Omni 1.18|Omni 1:18]].  

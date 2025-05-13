@@ -5,4 +5,4 @@
 [Isaiah 30:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 2.9|Ps. 2:9.]]
+[^a]: [[Psalms 2.9|Ps. 2:9]].  

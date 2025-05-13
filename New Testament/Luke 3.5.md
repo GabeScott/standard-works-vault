@@ -5,4 +5,4 @@
 [Luke 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 40.4|Isa. 40:4]]; [[Helaman 14.23|Hel. 14:23]]; [[D&C 109.74|D&C 109:74.]]
+[^a]: [[Isaiah 40.4|Isa. 40:4]]; [[Helaman 14.23|Hel. 14:23]]; [[D&C 109.74|D&C 109:74]].  

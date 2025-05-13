@@ -5,4 +5,4 @@
 [Exodus 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.6?lang=eng#p6)
 
 
-[^a]: IE sent word.
+[^a]: IE sent word.  

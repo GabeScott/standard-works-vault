@@ -5,4 +5,4 @@
 [Ezekiel 41:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.6?lang=eng#p6)
 
 
-[^a]: [[1 Kings 6.5|1 Kgs. 6:5 (5, 8).]]
+[^a]: [[1 Kings 6.5|1 Kgs. 6:5 (5, 8)]][[1 Kings 6.8|]].  

@@ -5,4 +5,4 @@
 [Job 31:29](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.29?lang=eng#p29)
 
 
-[^a]: [[Proverbs 17.5|Prov. 17:5.]]
+[^a]: [[Proverbs 17.5|Prov. 17:5]].  

@@ -5,4 +5,4 @@
 [2 Corinthians 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.9?lang=eng#p9)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Resurrection|TG Resurrection]].  

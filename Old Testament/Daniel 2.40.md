@@ -5,4 +5,4 @@
 [Daniel 2:40](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.40?lang=eng#p40)
 
 
-[^a]: Dan. 7:7.
+[^a]: [[Daniel 7.7|Dan. 7:7]].  

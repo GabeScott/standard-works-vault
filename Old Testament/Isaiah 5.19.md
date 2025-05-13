@@ -5,7 +5,7 @@
 [Isaiah 5:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.19?lang=eng#p19)
 
 
-[^a]: IE They will not believe in the Messiah until they see Him.
-[^b]: [[Amos 5.18|Amos 5:18.]]
-[^c]: 2 Pet. 3:4 (3-4).
-[^d]: TG [[Sign Seekers]].
+[^a]: IE They will not believe in the Messiah until they see Him.  
+[^b]: [[Amos 5.18|Amos 5:18]].  
+[^c]: [[2 Peter 3.3|2 Pet. 3:4 (3–4)]][[2 Peter 3.4|]].  
+[^d]: [[Sign Seekers|TG Sign Seekers]].  

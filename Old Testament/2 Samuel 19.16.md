@@ -5,4 +5,4 @@
 [2 Samuel 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.16?lang=eng#p16)
 
 
-[^a]: [[2 Samuel 16.5|2 Sam. 16:5.]]
+[^a]: [[2 Samuel 16.5|2 Sam. 16:5]].  

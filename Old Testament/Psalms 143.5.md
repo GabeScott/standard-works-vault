@@ -5,4 +5,4 @@
 [Psalms 143:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/143.5?lang=eng#p5)
 
 
-[^a]: TG [[Meditation, Meditate]].
+[^a]: [[Meditation, Meditate|TG Meditation]].  

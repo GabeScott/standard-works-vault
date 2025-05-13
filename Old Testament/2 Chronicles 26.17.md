@@ -5,4 +5,4 @@
 [2 Chronicles 26:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.17?lang=eng#p17)
 
 
-[^a]: [[1 Chronicles 6.10|1 Chr. 6:10.]]
+[^a]: [[1 Chronicles 6.10|1 Chr. 6:10]].  

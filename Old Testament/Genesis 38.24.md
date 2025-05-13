@@ -5,4 +5,4 @@
 [Genesis 38:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/38.24?lang=eng#p24)
 
 
-[^a]: [[Leviticus 21.9|Lev. 21:9.]]
+[^a]: [[Leviticus 21.9|Lev. 21:9]].  

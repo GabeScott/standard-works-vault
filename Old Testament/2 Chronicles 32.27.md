@@ -5,4 +5,4 @@
 [2 Chronicles 32:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.27?lang=eng#p27)
 
 
-[^a]: HEB desirable articles.
+[^a]: HEB desirable articles.  

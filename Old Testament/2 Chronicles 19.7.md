@@ -5,5 +5,5 @@
 [2 Chronicles 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/19.7?lang=eng#p7)
 
 
-[^a]: [[Deuteronomy 10.17|Deut. 10:17.]]
-[^b]: [[Exodus 18.21|Ex. 18:21 (21-22).]]
+[^a]: [[Deuteronomy 10.17|Deut. 10:17]].  
+[^b]: [[Exodus 18.21|Ex. 18:21 (21–22)]][[Exodus 18.22|]].  

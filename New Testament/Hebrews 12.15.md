@@ -5,5 +5,5 @@
 [Hebrews 12:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.15?lang=eng#p15)
 
 
-[^a]: GR want, fall short of, lack.
-[^b]: TG [[Grace]].
+[^a]: GR want, fall short of, lack.  
+[^b]: [[Grace|TG Grace]].  

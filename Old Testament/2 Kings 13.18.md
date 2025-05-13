@@ -5,4 +5,4 @@
 [2 Kings 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/13.18?lang=eng#p18)
 
 
-[^a]: HEB ceased, stopped.
+[^a]: HEB ceased, stopped.  

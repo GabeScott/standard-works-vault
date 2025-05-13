@@ -5,4 +5,4 @@
 [1 Corinthians 15:43](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.43?lang=eng#p43)
 
 
-[^a]: Col. 3:4.
+[^a]: [[Colossians 3.4|Col. 3:4]].  

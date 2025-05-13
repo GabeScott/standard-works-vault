@@ -5,4 +5,4 @@
 [Jeremiah 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.11?lang=eng#p11)
 
 
-[^a]: [[Ezekiel 16.51|Ezek. 16:51]]; [[D&C 88.39|D&C 88:39 (38-39).]]
+[^a]: [[Ezekiel 16.51|Ezek. 16:51]]; [[D&C 88.38|D&C 88:39 (38–39)]][[D&C 88.39|]].  

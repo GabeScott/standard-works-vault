@@ -5,5 +5,5 @@
 [Psalms 143:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/143.10?lang=eng#p10)
 
 
-[^a]: TG [[God, Will of]].
-[^b]: TG [[God, Spirit of]].
+[^a]: [[God, Will of|TG God, Will of]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]].  

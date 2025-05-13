@@ -5,5 +5,5 @@
 [Job 38:33](https://www.churchofjesuschrist.org/study/scriptures/ot/job/38.33?lang=eng#p33)
 
 
-[^a]: [[Jeremiah 31.35|Jer. 31:35.]]
-[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Jeremiah 31.35|Jer. 31:35]].  
+[^b]: [[Heaven|TG Heaven]].  

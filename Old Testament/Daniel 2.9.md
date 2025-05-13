@@ -5,4 +5,4 @@
 [Daniel 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.9?lang=eng#p9)
 
 
-[^a]: IE till with time circumstance will change.
+[^a]: IE till with time circumstance will change.  

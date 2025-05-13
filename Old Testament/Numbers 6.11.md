@@ -5,5 +5,5 @@
 [Numbers 6:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.11?lang=eng#p11)
 
 
-[^a]: [[Acts 21.26|Acts 21:26.]]
-[^b]: IE being near a dead body.
+[^a]: [[Acts 21.26|Acts 21:26]].  
+[^b]: IE being near a dead body.  

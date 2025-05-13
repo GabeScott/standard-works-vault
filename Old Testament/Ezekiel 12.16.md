@@ -5,4 +5,4 @@
 [Ezekiel 12:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.16?lang=eng#p16)
 
 
-[^a]: TG [[Israel, Remnant of]].
+[^a]: [[Israel, Remnant of|TG Israel, Remnant of]].  

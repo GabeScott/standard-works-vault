@@ -5,4 +5,4 @@
 [1 Nephi 17:53](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p53#p53)
 
 
-[^a]: IE cause to shake or tremble; see vv. 54-55.
+[^a]: IE cause to shake or tremble; see [[1 Nephi 17.54|vv. 54–55]][[1 Nephi 17.55|]].  

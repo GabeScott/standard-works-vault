@@ -5,4 +5,4 @@
 [1 Chronicles 16:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.26?lang=eng#p26)
 
 
-[^a]: TG [[Idolatry, Idol]].
+[^a]: [[Idolatry, Idol|TG Idolatry]].  

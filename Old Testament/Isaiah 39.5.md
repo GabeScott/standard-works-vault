@@ -5,4 +5,4 @@
 [Isaiah 39:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/39.5?lang=eng#p5)
 
 
-[^a]: [[D&C 70.1|D&C 70:1.]]
+[^a]: [[D&C 70.1|D&C 70:1]].  

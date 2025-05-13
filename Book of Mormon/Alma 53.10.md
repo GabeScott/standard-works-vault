@@ -5,5 +5,5 @@
 [Alma 53:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 27.26|Alma 27:26.]]
-[^b]: [[Alma 23.13|Alma 23:13 (8-13).]]
+[^a]: [[Alma 27.26|Alma 27:26]].  
+[^b]: [[Alma 23.8|Alma 23:13 (8–13)]][[Alma 23.9|]][[Alma 23.10|]][[Alma 23.11|]][[Alma 23.12|]][[Alma 23.13|]].  

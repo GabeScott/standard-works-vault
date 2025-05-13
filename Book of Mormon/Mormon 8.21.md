@@ -5,6 +5,6 @@
 [Mormon 8:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p21#p21)
 
 
-[^a]: [[Proverbs 19.19|Prov. 19:19.]]
-[^b]: TG [[Strife]].
-[^c]: [[1 Nephi 14.17|1 Ne. 14:17.]]
+[^a]: [[Proverbs 19.19|Prov. 19:19]].  
+[^b]: [[Strife|TG Strife]].  
+[^c]: [[1 Nephi 14.17|1 Ne. 14:17]].  

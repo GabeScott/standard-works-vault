@@ -5,4 +5,4 @@
 [Alma 18:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p14#p14)
 
 
-[^a]: [[3 Nephi 8.19|3 Ne. 8:19.]]
+[^a]: [[3 Nephi 8.19|3 Ne. 8:19]].  

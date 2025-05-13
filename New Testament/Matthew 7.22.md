@@ -5,5 +5,5 @@
 [Matthew 7:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.22?lang=eng#p22)
 
 
-[^a]: [[Jeremiah 23.25|Jer. 23:25 (25-32)]]. TG [[Unrighteous Dominion]].
-[^b]: [[D&C 84.67|D&C 84:67]]. TG [[Name of the Lord]].
+[^a]: [[Jeremiah 23.25|Jer. 23:25 (25–32)]][[Jeremiah 23.26|]][[Jeremiah 23.27|]][[Jeremiah 23.28|]][[Jeremiah 23.29|]][[Jeremiah 23.30|]][[Jeremiah 23.31|]][[Jeremiah 23.32|]]. [[Unrighteous Dominion|TG Unrighteous Dominion]].  
+[^b]: [[D&C 84.67|D&C 84:67]]. [[Name|TG Name]].  

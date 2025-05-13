@@ -5,4 +5,4 @@
 [Job 15:14](https://www.churchofjesuschrist.org/study/scriptures/ot/job/15.14?lang=eng#p14)
 
 
-[^a]: [[Ether 12.37|Ether 12:37]]; [[D&C 38.42|D&C 38:42.]]
+[^a]: [[Ether 12.37|Ether 12:37]]; [[D&C 38.42|D&C 38:42]].  

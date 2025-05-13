@@ -5,5 +5,5 @@
 [1 Chronicles 26:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/26.28?lang=eng#p28)
 
 
-[^a]: TG [[Seer]].
-[^b]: [[2 Samuel 2.8|2 Sam. 2:8.]]
+[^a]: [[Seer|TG Seer]].  
+[^b]: [[2 Samuel 2.8|2 Sam. 2:8]].  

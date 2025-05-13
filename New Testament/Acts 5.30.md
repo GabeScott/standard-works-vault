@@ -5,4 +5,4 @@
 [Acts 5:30](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.30?lang=eng#p30)
 
 
-[^a]: TG [[Jesus Christ, Crucifixion of]].
+[^a]: [[Jesus Christ, Crucifixion of|TG Jesus Christ, Crucifixion of]].  

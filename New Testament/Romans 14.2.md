@@ -5,4 +5,4 @@
 [Romans 14:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.2?lang=eng#p2)
 
 
-[^a]: GR vegetables.
+[^a]: GR vegetables.  

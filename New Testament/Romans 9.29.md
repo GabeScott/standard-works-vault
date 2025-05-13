@@ -5,5 +5,5 @@
 [Romans 9:29](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.29?lang=eng#p29)
 
 
-[^a]: HEB hosts.
-[^b]: GR posterity.
+[^a]: HEB hosts.  
+[^b]: GR posterity.  

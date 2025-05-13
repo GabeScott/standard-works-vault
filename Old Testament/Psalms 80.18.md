@@ -5,4 +5,4 @@
 [Psalms 80:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/80.18?lang=eng#p18)
 
 
-[^a]: OR turn away.
+[^a]: OR turn away.  

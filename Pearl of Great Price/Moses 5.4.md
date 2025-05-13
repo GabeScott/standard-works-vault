@@ -5,6 +5,6 @@
 [Moses 5:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.4?lang=eng#p4)
 
 
-[^a]: [[Genesis 4.26|Gen. 4:26]]; [[Moses 6.4|Moses 6:4.]]
-[^b]: TG [[Eden]].
-[^c]: [[Alma 42.9|Alma 42:9.]]
+[^a]: [[Genesis 4.26|Gen. 4:26]]; [[Moses 6.4|Moses 6:4]].  
+[^b]: [[Eden|TG Eden]].  
+[^c]: [[Alma 42.9|Alma 42:9]].  

@@ -5,4 +5,4 @@
 [2 Thessalonians 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/1.12?lang=eng#p12)
 
 
-[^a]: TG [[Grace]].
+[^a]: [[Grace|TG Grace]].  

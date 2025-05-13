@@ -5,4 +5,4 @@
 [Ezekiel 47:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.3?lang=eng#p3)
 
 
-[^a]: [[Ezekiel 40.3|Ezek. 40:3]]; [[Zechariah 2.1|Zech. 2:1.]]
+[^a]: [[Ezekiel 40.3|Ezek. 40:3]]; [[Zechariah 2.1|Zech. 2:1]].  

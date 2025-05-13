@@ -5,5 +5,5 @@
 [2 Nephi 33:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p11#p11)
 
 
-[^a]: [[Ether 5.4|Ether 5:4 (4-6)]]; [[Moroni 7.35|Moro. 7:35.]]
-[^b]: TG [[Jesus Christ, Glory of]].
+[^a]: [[Ether 5.4|Ether 5:4 (4–6)]][[Ether 5.5|]][[Ether 5.6|]]; [[Moroni 7.35|Moro. 7:35]].  
+[^b]: [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  

@@ -5,5 +5,5 @@
 [Micah 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/1.6?lang=eng#p6)
 
 
-[^a]: [[2 Kings 17.5|2 Kgs. 17:5 (1-6, 24).]]
-[^b]: HEB lay bare.
+[^a]: [[2 Kings 17.1|2 Kgs. 17:5 (1–6, 24)]][[2 Kings 17.2|]][[2 Kings 17.3|]][[2 Kings 17.4|]][[2 Kings 17.5|]][[2 Kings 17.6|]][[2 Kings 17.24|]].  
+[^b]: HEB lay bare.  

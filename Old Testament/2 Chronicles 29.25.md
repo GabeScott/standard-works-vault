@@ -5,6 +5,6 @@
 [2 Chronicles 29:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.25?lang=eng#p25)
 
 
-[^a]: [[1 Chronicles 16.4|1 Chr. 16:4.]]
-[^b]: TG [[Seer]].
-[^c]: [[2 Samuel 12.1|2 Sam. 12:1.]]
+[^a]: [[1 Chronicles 16.4|1 Chr. 16:4]].  
+[^b]: [[Seer|TG Seer]].  
+[^c]: [[2 Samuel 12.1|2 Sam. 12:1]].  

@@ -5,4 +5,4 @@
 [Psalms 66:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/66.10?lang=eng#p10)
 
 
-[^a]: TG [[Testament]].
+[^a]: [[Test, Try, Prove|TG Test]].  

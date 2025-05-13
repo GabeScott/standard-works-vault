@@ -5,4 +5,4 @@
 [Alma 8:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p7#p7)
 
 
-[^a]: [[Ether 2.13|Ether 2:13.]]
+[^a]: [[Ether 2.13|Ether 2:13]].  

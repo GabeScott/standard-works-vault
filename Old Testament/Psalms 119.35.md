@@ -5,4 +5,4 @@
 [Psalms 119:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.35?lang=eng#p35)
 
 
-[^a]: [[Psalms 112.1|Ps. 112:1.]]
+[^a]: [[Psalms 112.1|Ps. 112:1]].  

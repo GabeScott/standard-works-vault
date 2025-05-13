@@ -5,4 +5,4 @@
 [Joshua 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.15?lang=eng#p15)
 
 
-[^a]: OR covenanted.
+[^a]: OR covenanted.  

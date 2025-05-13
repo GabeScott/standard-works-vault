@@ -5,5 +5,5 @@
 [2 Samuel 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.13?lang=eng#p13)
 
 
-[^a]: [[1 Kings 6.12|1 Kgs. 6:12]]; [[1 Kings 8.13|8:13.]]
-[^b]: TG [[Jesus Christ, Davidic Descent of]].
+[^a]: [[1 Kings 6.12|1 Kgs. 6:12]]; [[1 Kings 8.13|8:13]].  
+[^b]: [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  

@@ -5,4 +5,4 @@
 [Numbers 13:17](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.17?lang=eng#p17)
 
 
-[^a]: HEB through the Negev.
+[^a]: HEB through the Negev.  

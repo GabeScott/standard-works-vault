@@ -5,5 +5,5 @@
 [Romans 7:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.2?lang=eng#p2)
 
 
-[^a]: TG [[Marriage, Wives]].
-[^b]: TG [[Marriage, Marry]].
+[^a]: [[Marriage, Wives|TG Marriage, Wives]].  
+[^b]: [[Marriage, Marry|TG Marriage, Marry]].  

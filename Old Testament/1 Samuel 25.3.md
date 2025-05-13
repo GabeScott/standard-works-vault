@@ -5,4 +5,4 @@
 [1 Samuel 25:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.3?lang=eng#p3)
 
 
-[^a]: OR rude, rough, “hard.”
+[^a]: OR rude, rough, “hard.”  

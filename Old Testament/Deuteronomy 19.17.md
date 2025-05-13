@@ -5,4 +5,4 @@
 [Deuteronomy 19:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.17?lang=eng#p17)
 
 
-[^a]: TG [[Disputations, Dispute]].
+[^a]: [[Disputations, Dispute|TG Disputations]].  

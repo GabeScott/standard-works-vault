@@ -5,4 +5,4 @@
 [Mosiah 4:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p19#p19)
 
 
-[^a]: [[Proverbs 22.2|Prov. 22:2]]; [[1 Corinthians 4.7|1 Cor. 4:7.]]
+[^a]: [[Proverbs 22.2|Prov. 22:2]]; [[1 Corinthians 4.7|1 Cor. 4:7]].  

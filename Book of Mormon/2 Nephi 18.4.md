@@ -5,8 +5,8 @@
 [2 Nephi 18:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 17.16|2 Ne. 17:16.]]
-[^b]: [[Isaiah 8.4|Isa. 8:4.]]
-[^c]: [[2 Kings 15.29|2 Kgs. 15:29 (29-30).]]
-[^d]: [[2 Kings 17.6|2 Kgs. 17:6.]]
-[^e]: [[2 Kings 16.7|2 Kgs. 16:7 (7-18)]]; [[2 Nephi 20.12|2 Ne. 20:12]]. TG [[Israel, Scattering of]].
+[^a]: [[2 Nephi 17.16|2 Ne. 17:16]].  
+[^b]: [[Isaiah 8.4|Isa. 8:4]].  
+[^c]: [[2 Kings 15.29|2 Kgs. 15:29 (29–30)]][[2 Kings 15.30|]].  
+[^d]: [[2 Kings 17.6|2 Kgs. 17:6]].  
+[^e]: [[2 Kings 16.7|2 Kgs. 16:7 (7–18)]][[2 Kings 16.8|]][[2 Kings 16.9|]][[2 Kings 16.10|]][[2 Kings 16.11|]][[2 Kings 16.12|]][[2 Kings 16.13|]][[2 Kings 16.14|]][[2 Kings 16.15|]][[2 Kings 16.16|]][[2 Kings 16.17|]][[2 Kings 16.18|]]; [[2 Nephi 20.12|2 Ne. 20:12]]. [[Israel, Scattering of|TG Israel, Scattering of]].  

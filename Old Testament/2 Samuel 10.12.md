@@ -5,4 +5,4 @@
 [2 Samuel 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/10.12?lang=eng#p12)
 
 
-[^a]: [[1 Samuel 4.9|1 Sam. 4:9]]; [[Alma 46.12|Alma 46:12.]]
+[^a]: [[1 Samuel 4.9|1 Sam. 4:9]]; [[Alma 46.12|Alma 46:12]].  

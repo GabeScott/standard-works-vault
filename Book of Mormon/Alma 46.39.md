@@ -5,4 +5,4 @@
 [Alma 46:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p39#p39)
 
 
-[^a]: [[Moroni 7.41|Moro. 7:41 (3, 41).]]
+[^a]: [[Moroni 7.3|Moro. 7:41 (3, 41)]][[Moroni 7.41|]].  

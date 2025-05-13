@@ -5,4 +5,4 @@
 [1 Nephi 10:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p5#p5)
 
 
-[^a]: [[Jacob 7.11|Jacob 7:11]]; [[Mosiah 13.33|Mosiah 13:33]]; [[Helaman 8.24|Hel. 8:24 (19-24)]]; [[3 Nephi 20.24|3 Ne. 20:24 (23-24)]]. TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Jacob 7.11|Jacob 7:11]]; [[Mosiah 13.33|Mosiah 13:33]]; [[Helaman 8.19|Hel. 8:24 (19–24)]][[Helaman 8.20|]][[Helaman 8.21|]][[Helaman 8.22|]][[Helaman 8.23|]][[Helaman 8.24|]]; [[3 Nephi 20.23|3 Ne. 20:24 (23–24)]][[3 Nephi 20.24|]]. [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

@@ -5,7 +5,7 @@
 [Romans 9:27](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.27?lang=eng#p27)
 
 
-[^a]: IE Isaiah.
-[^b]: [[Isaiah 10.22|Isa. 10:22.]]
-[^c]: TG [[Israel, Blessings of]].
-[^d]: TG [[Israel, Remnant of]].
+[^a]: IE Isaiah.  
+[^b]: [[Isaiah 10.22|Isa. 10:22]].  
+[^c]: [[Israel, Blessings of|TG Israel, Blessings of]].  
+[^d]: [[Israel, Remnant of|TG Israel, Remnant of]].  

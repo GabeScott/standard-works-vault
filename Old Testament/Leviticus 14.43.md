@@ -5,4 +5,4 @@
 [Leviticus 14:43](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.43?lang=eng#p43)
 
 
-[^a]: HEB extracted.
+[^a]: HEB extracted.  

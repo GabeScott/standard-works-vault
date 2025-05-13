@@ -5,6 +5,6 @@
 [Moses 6:62](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.62?lang=eng#p62)
 
 
-[^a]: TG [[Gospel]]; [[Salvation, Plan of]].
-[^b]: TG [[Blood, Symbolism of]].
-[^c]: TG [[Jesus Christ, Birth of]].
+[^a]: [[Gospel|TG Gospel]]; [[Salvation, Plan of|Salvation, Plan of]].  
+[^b]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  
+[^c]: [[Jesus Christ, Birth of|TG Jesus Christ, Birth of]].  

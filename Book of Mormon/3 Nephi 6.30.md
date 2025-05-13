@@ -5,5 +5,5 @@
 [3 Nephi 6:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p30#p30)
 
 
-[^a]: [[1 Samuel 8.5|1 Sam. 8:5]]; [[Alma 51.5|Alma 51:5]]; [[3 Nephi 7.12|3 Ne. 7:12]]. TG [[Tyranny]].
-[^b]: TG [[Liberty]].
+[^a]: [[1 Samuel 8.5|1 Sam. 8:5]]; [[Alma 51.5|Alma 51:5]]; [[3 Nephi 7.12|3 Ne. 7:12]]. [[Tyranny|TG Tyranny]].  
+[^b]: [[Liberty|TG Liberty]].  

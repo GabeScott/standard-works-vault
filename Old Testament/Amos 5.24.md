@@ -5,5 +5,5 @@
 [Amos 5:24](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.24?lang=eng#p24)
 
 
-[^a]: [[Amos 6.12|Amos 6:12]]; [[2 Nephi 15.7|2 Ne. 15:7.]]
-[^b]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Amos 6.12|Amos 6:12]]; [[2 Nephi 15.7|2 Ne. 15:7]].  
+[^b]: [[Righteousness|TG Righteousness]].  

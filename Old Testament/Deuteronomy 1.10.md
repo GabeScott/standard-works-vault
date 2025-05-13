@@ -5,5 +5,5 @@
 [Deuteronomy 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.10?lang=eng#p10)
 
 
-[^a]: [[D&C 132.30|D&C 132:30.]]
-[^b]: TG [[Seed of Abraham]].
+[^a]: [[D&C 132.30|D&C 132:30]].  
+[^b]: [[Seed of Abraham|TG Seed of Abraham]].  

@@ -5,4 +5,4 @@
 [Numbers 35:26](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.26?lang=eng#p26)
 
 
-[^a]: OR outside of.
+[^a]: OR outside of.  

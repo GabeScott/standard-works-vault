@@ -5,5 +5,5 @@
 [Helaman 10:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/10?lang=eng&id=p7#p7)
 
 
-[^a]: [[Helaman 11.18|Hel. 11:18.]]
-[^b]: [[Matthew 16.19|Matt. 16:19]]. TG [[Priesthood, Authority]].
+[^a]: [[Helaman 11.18|Hel. 11:18]].  
+[^b]: [[Matthew 16.19|Matt. 16:19]]. [[Priesthood, Authority|TG Priesthood, Authority]].  

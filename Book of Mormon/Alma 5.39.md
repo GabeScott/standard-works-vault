@@ -5,7 +5,7 @@
 [Alma 5:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p39#p39)
 
 
-[^a]: [[Matthew 6.24|Matt. 6:24]]; [[Luke 16.13|Luke 16:13.]]
-[^b]: [[Mosiah 5.10|Mosiah 5:10]]. TG [[Devil, Church of]].
-[^c]: 1 Jn. 2:22.
-[^d]: [[2 Nephi 9.9|2 Ne. 9:9.]]
+[^a]: [[Matthew 6.24|Matt. 6:24]]; [[Luke 16.13|Luke 16:13]].  
+[^b]: [[Mosiah 5.10|Mosiah 5:10]]. [[Devil, Church of|TG Devil, Church of]].  
+[^c]: [[1 John 2.22|1 Jn. 2:22]].  
+[^d]: [[2 Nephi 9.9|2 Ne. 9:9]].  

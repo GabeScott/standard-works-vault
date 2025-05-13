@@ -5,7 +5,7 @@
 [Jarom 1:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/jarom/1?lang=eng&id=p6#p6)
 
 
-[^a]: [[Helaman 11.20|Hel. 11:20 (19-20).]]
-[^b]: [[Alma 2.27|Alma 2:27.]]
-[^c]: [[Jacob 7.24|Jacob 7:24]]; [[Enos 1.20|Enos 1:20]]; [[Alma 26.24|Alma 26:24 (23-25).]]
-[^d]: TG [[Blood, Eating of]].
+[^a]: [[Helaman 11.19|Hel. 11:20 (19–20)]][[Helaman 11.20|]].  
+[^b]: [[Alma 2.27|Alma 2:27]].  
+[^c]: [[Jacob 7.24|Jacob 7:24]]; [[Enos 1.20|Enos 1:20]]; [[Alma 26.23|Alma 26:24 (23–25)]][[Alma 26.24|]][[Alma 26.25|]].  
+[^d]: [[Blood, Eating of|TG Blood, Eating of]].  

@@ -5,5 +5,5 @@
 [Psalms 75:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/75.8?lang=eng#p8)
 
 
-[^a]: [[Mosiah 3.26|Mosiah 3:26 (24-26)]]; [[Alma 40.26|Alma 40:26.]]
-[^b]: [[Job 21.20|Job 21:20.]]
+[^a]: [[Mosiah 3.24|Mosiah 3:26 (24–26)]][[Mosiah 3.25|]][[Mosiah 3.26|]]; [[Alma 40.26|Alma 40:26]].  
+[^b]: [[Job 21.20|Job 21:20]].  

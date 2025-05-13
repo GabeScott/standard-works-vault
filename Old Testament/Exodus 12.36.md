@@ -5,6 +5,6 @@
 [Exodus 12:36](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.36?lang=eng#p36)
 
 
-[^a]: [[Genesis 15.14|Gen. 15:14 (13-14)]]; [[Exodus 3.21|Ex. 3:21 (21-22).]]
-[^b]: OR let them have.
-[^c]: OR despoiled. Ex. 3:22.
+[^a]: [[Genesis 15.13|Gen. 15:14 (13–14)]][[Genesis 15.14|]]; [[Exodus 3.21|Ex. 3:21 (21–22)]][[Exodus 3.22|]].  
+[^b]: OR let them have.  
+[^c]: OR despoiled. [[Exodus 3.22|Ex. 3:22]].  

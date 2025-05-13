@@ -5,5 +5,5 @@
 [Ezekiel 36:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.5?lang=eng#p5)
 
 
-[^a]: [[Deuteronomy 4.24|Deut. 4:24.]]
-[^b]: HEB Edom.
+[^a]: [[Deuteronomy 4.24|Deut. 4:24]].  
+[^b]: HEB Edom.  

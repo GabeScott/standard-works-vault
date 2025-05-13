@@ -5,4 +5,4 @@
 [Deuteronomy 28:60](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.60?lang=eng#p60)
 
 
-[^a]: [[Exodus 9.14|Ex. 9:14.]]
+[^a]: [[Exodus 9.14|Ex. 9:14]].  

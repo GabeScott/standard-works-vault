@@ -5,4 +5,4 @@
 [Luke 19:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.35?lang=eng#p35)
 
 
-[^a]: [[Zechariah 9.9|Zech. 9:9.]]
+[^a]: [[Zechariah 9.9|Zech. 9:9]].  

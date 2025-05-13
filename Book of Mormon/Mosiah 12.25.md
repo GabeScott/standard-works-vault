@@ -5,4 +5,4 @@
 [Mosiah 12:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/12?lang=eng&id=p25#p25)
 
 
-[^a]: [[John 3.10|John 3:10 (7-10)]]; [[Mosiah 11.5|Mosiah 11:5.]]
+[^a]: [[John 3.7|John 3:10 (7–10)]][[John 3.8|]][[John 3.9|]][[John 3.10|]]; [[Mosiah 11.5|Mosiah 11:5]].  

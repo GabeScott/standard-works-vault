@@ -5,5 +5,5 @@
 [Mosiah 1:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p11#p11)
 
 
-[^a]: [[Mosiah 5.8|Mosiah 5:8 (8-12)]]. TG [[Jesus Christ, Taking the Name of]].
-[^b]: TG [[Diligence, Diligent, Diligently]].
+[^a]: [[Mosiah 5.8|Mosiah 5:8 (8–12)]][[Mosiah 5.9|]][[Mosiah 5.10|]][[Mosiah 5.11|]][[Mosiah 5.12|]]. [[Jesus Christ, Taking the Name of|TG Jesus Christ, Taking the Name of]].  
+[^b]: [[Diligence, Diligent, Diligently|TG Diligence]].  

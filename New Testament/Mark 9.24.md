@@ -5,4 +5,4 @@
 [Mark 9:24](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.24?lang=eng#p24)
 
 
-[^a]: TG [[Doubt, Doubtful]].
+[^a]: [[Doubt, Doubtful|TG Doubt]].  

@@ -5,4 +5,4 @@
 [Daniel 9:24](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.24?lang=eng#p24)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]]; [[Reconciliation, Reconcile]].
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]]; [[Reconciliation, Reconcile|Reconciliation]].  

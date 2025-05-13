@@ -5,7 +5,7 @@
 [Deuteronomy 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.13?lang=eng#p13)
 
 
-[^a]: TG [[God, Love of]].
-[^b]: TG [[Birth Control]].
-[^c]: [[Hosea 2.8|Hosea 2:8.]]
-[^d]: HEB grain.
+[^a]: [[God, Love of|TG God, Love of]].  
+[^b]: [[Birth Control|TG Birth Control]].  
+[^c]: [[Hosea 2.8|Hosea 2:8]].  
+[^d]: HEB grain.  

@@ -5,4 +5,4 @@
 [Jeremiah 2:32](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.32?lang=eng#p32)
 
 
-[^a]: [[Jeremiah 18.15|Jer. 18:15.]]
+[^a]: [[Jeremiah 18.15|Jer. 18:15]].  

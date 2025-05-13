@@ -5,4 +5,4 @@
 [Job 22:29](https://www.churchofjesuschrist.org/study/scriptures/ot/job/22.29?lang=eng#p29)
 
 
-[^a]: TG [[Humility, Humble]]; [[Poor in Spirit]].
+[^a]: [[Humility, Humble|TG Humility]]; [[Poor in Spirit|Poor in Spirit]].  

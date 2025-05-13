@@ -5,4 +5,4 @@
 [Ephesians 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Grace]].
+[^a]: [[Grace|TG Grace]].  

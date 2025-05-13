@@ -5,4 +5,4 @@
 [Ecclesiastes 10:16](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 3.4|Isa. 3:4 (4-5, 12).]]
+[^a]: [[Isaiah 3.4|Isa. 3:4 (4–5, 12)]][[Isaiah 3.5|]][[Isaiah 3.12|]].  

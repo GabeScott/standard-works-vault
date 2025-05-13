@@ -5,6 +5,6 @@
 [Galatians 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.20?lang=eng#p20)
 
 
-[^a]: [[John 17.22|John 17:22 (20-23).]]
-[^b]: [[Romans 14.7|Rom. 14:7 (7-9).]]
-[^c]: TG [[Faith]].
+[^a]: [[John 17.20|John 17:22 (20–23)]][[John 17.21|]][[John 17.22|]][[John 17.23|]].  
+[^b]: [[Romans 14.7|Rom. 14:7 (7–9)]][[Romans 14.8|]][[Romans 14.9|]].  
+[^c]: [[Faith|TG Faith]].  

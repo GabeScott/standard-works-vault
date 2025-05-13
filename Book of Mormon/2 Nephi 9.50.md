@@ -5,6 +5,6 @@
 [2 Nephi 9:50](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p50#p50)
 
 
-[^a]: [[Isaiah 44.3|Isa. 44:3]]; [[Isaiah 55.1|55:1 (1-2).]]
-[^b]: TG [[Living Water]].
-[^c]: [[Alma 5.34|Alma 5:34]]; [[Alma 42.27|42:27.]]
+[^a]: [[Isaiah 44.3|Isa. 44:3]]; [[Isaiah 55.1|55:1 (1–2)]][[Isaiah 55.2|]].  
+[^b]: [[Living Water|TG Living Water]].  
+[^c]: [[Alma 5.34|Alma 5:34]]; [[Alma 42.27|42:27]].  

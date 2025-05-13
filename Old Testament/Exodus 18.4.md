@@ -5,4 +5,4 @@
 [Exodus 18:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.4?lang=eng#p4)
 
 
-[^a]: IE God of help.
+[^a]: IE God of help.  

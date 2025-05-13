@@ -5,5 +5,5 @@
 [Proverbs 29:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.20?lang=eng#p20)
 
 
-[^a]: TG [[Haste, Hasten, Hasty]]; [[Rashness]].
-[^b]: [[Proverbs 26.12|Prov. 26:12.]]
+[^a]: [[Haste, Hasten, Hasty|TG Haste]]; [[Rashness|Rashness]].  
+[^b]: [[Proverbs 26.12|Prov. 26:12]].  

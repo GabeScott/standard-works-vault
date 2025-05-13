@@ -5,7 +5,7 @@
 [Zechariah 14:16](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 66.23|Isa. 66:23]]; [[D&C 133.39|D&C 133:39 (37-40).]]
-[^b]: [[1 Timothy 6.15|1 Tim. 6:15.]]
-[^c]: [[Ezra 3.4|Ezra 3:4]]; [[Nehemiah 8.14|Neh. 8:14.]]
-[^d]: [[Leviticus 23.34|Lev. 23:34.]]
+[^a]: [[Isaiah 66.23|Isa. 66:23]]; [[D&C 133.37|D&C 133:39 (37–40)]][[D&C 133.38|]][[D&C 133.39|]][[D&C 133.40|]].  
+[^b]: [[1 Timothy 6.15|1 Tim. 6:15]].  
+[^c]: [[Ezra 3.4|Ezra 3:4]]; [[Nehemiah 8.14|Neh. 8:14]].  
+[^d]: [[Leviticus 23.34|Lev. 23:34]].  

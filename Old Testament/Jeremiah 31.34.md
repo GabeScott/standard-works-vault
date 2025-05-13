@@ -5,5 +5,5 @@
 [Jeremiah 31:34](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.34?lang=eng#p34)
 
 
-[^a]: TG [[God, Knowledge about]]; [[Millennium, Preparing a People for]].
-[^b]: TG [[Sin]].
+[^a]: [[God, Knowledge about|TG God, Knowledge about]]; [[Millennium, Preparing a People for|Millennium, Preparing a People for]].  
+[^b]: [[Sin|TG Sin]].  

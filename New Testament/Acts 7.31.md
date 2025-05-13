@@ -5,5 +5,5 @@
 [Acts 7:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.31?lang=eng#p31)
 
 
-[^a]: OR vision.
-[^b]: [[Exodus 3.4|Ex. 3:4 (3-6).]]
+[^a]: OR vision.  
+[^b]: [[Exodus 3.3|Ex. 3:4 (3–6)]][[Exodus 3.4|]][[Exodus 3.5|]][[Exodus 3.6|]].  

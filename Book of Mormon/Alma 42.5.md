@@ -5,5 +5,5 @@
 [Alma 42:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 12.23|Alma 12:23]]; [[Moses 4.28|Moses 4:28.]]
-[^b]: [[Genesis 2.9|Gen. 2:9]]; [[Genesis 3.24|3:24 (22-24)]]; [[1 Nephi 8.10|1 Ne. 8:10 (10-12)]]; [[Moses 3.9|Moses 3:9.]]
+[^a]: [[Alma 12.23|Alma 12:23]]; [[Moses 4.28|Moses 4:28]].  
+[^b]: [[Genesis 2.9|Gen. 2:9]]; [[Genesis 3.22|3:24 (22–24)]][[Genesis 3.23|]][[Genesis 3.24|]]; [[1 Nephi 8.10|1 Ne. 8:10 (10–12)]][[1 Nephi 8.11|]][[1 Nephi 8.12|]]; [[Moses 3.9|Moses 3:9]].  

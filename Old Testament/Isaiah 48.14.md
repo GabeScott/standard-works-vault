@@ -5,5 +5,5 @@
 [Isaiah 48:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.14?lang=eng#p14)
 
 
-[^a]: IE Cyrus will do his desire, or wish.
-[^b]: [[D&C 1.16|D&C 1:16]]; [[D&C 64.24|64:24.]]
+[^a]: IE Cyrus will do his desire, or wish.  
+[^b]: [[D&C 1.16|D&C 1:16]]; [[D&C 64.24|64:24]].  

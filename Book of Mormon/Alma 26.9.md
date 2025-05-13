@@ -5,5 +5,5 @@
 [Alma 26:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 28.2|Mosiah 28:2.]]
-[^b]: TG [[Stranger]].
+[^a]: [[Mosiah 28.2|Mosiah 28:2]].  
+[^b]: [[Stranger|TG Stranger]].  

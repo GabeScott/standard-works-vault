@@ -5,4 +5,4 @@
 [Exodus 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/11.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 3.21|Ex. 3:21 (21-22).]]
+[^a]: [[Exodus 3.21|Ex. 3:21 (21–22)]][[Exodus 3.22|]].  

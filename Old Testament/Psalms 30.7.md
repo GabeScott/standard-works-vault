@@ -5,4 +5,4 @@
 [Psalms 30:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/30.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 104.29|Ps. 104:29]]; [[D&C 84.23|D&C 84:23 (21-23).]]
+[^a]: [[Psalms 104.29|Ps. 104:29]]; [[D&C 84.21|D&C 84:23 (21–23)]][[D&C 84.22|]][[D&C 84.23|]].  

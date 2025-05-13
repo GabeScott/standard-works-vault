@@ -5,4 +5,4 @@
 [Daniel 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.11?lang=eng#p11)
 
 
-[^b]: TG [[Abomination of Desolation]].
+[^b]: [[Abomination of Desolation|TG Abomination of Desolation]].  

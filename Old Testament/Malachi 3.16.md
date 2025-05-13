@@ -5,5 +5,5 @@
 [Malachi 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.16?lang=eng#p16)
 
 
-[^a]: Dan. 7:10.
-[^b]: TG [[Book of Remembrance]].
+[^a]: [[Daniel 7.10|Dan. 7:10]].  
+[^b]: [[Book of Remembrance|TG Book of Remembrance]].  

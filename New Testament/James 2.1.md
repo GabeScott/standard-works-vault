@@ -5,5 +5,5 @@
 [James 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.1?lang=eng#p1)
 
 
-[^a]: GR not with partiality, have the faith of our Lord. JST James 2:1 … ye cannot have the faith of our Lord Jesus Christ, the Lord of glory, and yet have respect to persons.
-[^b]: TG [[Jesus Christ, Lord]].
+[^a]: GR not with partiality, have the faith of our Lord. [[JST James 2.1|JST James 2:1]] … ye cannot have the faith of our Lord Jesus Christ, the Lord of glory, and yet have respect to persons.  
+[^b]: [[Jesus Christ, Lord|TG Jesus Christ, Lord]].  

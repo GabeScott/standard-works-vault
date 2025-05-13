@@ -5,5 +5,5 @@
 [Judges 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.22?lang=eng#p22)
 
 
-[^a]: [[1 Nephi 2.24|1 Ne. 2:24 (23-24)]]. TG [[Testament]].
-[^b]: TG [[Walking with God]].
+[^a]: [[1 Nephi 2.23|1 Ne. 2:24 (23–24)]][[1 Nephi 2.24|]]. [[Test, Try, Prove|TG Test]].  
+[^b]: [[Walking with God|TG Walking with God]].  

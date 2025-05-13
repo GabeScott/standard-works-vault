@@ -5,4 +5,4 @@
 [Exodus 40:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.23?lang=eng#p23)
 
 
-[^a]: TG [[Order]].
+[^a]: [[Order|TG Order]].  

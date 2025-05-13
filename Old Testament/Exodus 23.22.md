@@ -5,4 +5,4 @@
 [Exodus 23:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.22?lang=eng#p22)
 
 
-[^a]: [[Genesis 12.3|Gen. 12:3]]; [[D&C 8.4|D&C 8:4]]; [[D&C 105.15|105:15]]; [[D&C 136.40|136:40.]]
+[^a]: [[Genesis 12.3|Gen. 12:3]]; [[D&C 8.4|D&C 8:4]]; [[D&C 105.15|105:15]]; [[D&C 136.40|136:40]].  

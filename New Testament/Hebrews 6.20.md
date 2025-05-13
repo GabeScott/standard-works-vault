@@ -5,4 +5,4 @@
 [Hebrews 6:20](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.20?lang=eng#p20)
 
 
-[^a]: TG [[High Priest, Melchizedek Priesthood]].
+[^a]: [[High Priest, Melchizedek Priesthood|TG High Priest, Melchizedek Priesthood]].  

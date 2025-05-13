@@ -5,5 +5,5 @@
 [2 Chronicles 19:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/19.10?lang=eng#p10)
 
 
-[^a]: HEB dispute.
-[^b]: TG [[Warn, Warnings]].
+[^a]: HEB dispute.  
+[^b]: [[Warn, Warnings|TG Warn]].  

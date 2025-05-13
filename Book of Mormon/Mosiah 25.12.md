@@ -5,6 +5,6 @@
 [Mosiah 25:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/25?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 20.3|Mosiah 20:3 (3-5).]]
-[^b]: [[Mosiah 23.33|Mosiah 23:33.]]
-[^c]: [[Jacob 1.14|Jacob 1:14 (13-14)]]; [[Alma 2.11|Alma 2:11.]]
+[^a]: [[Mosiah 20.3|Mosiah 20:3 (3–5)]][[Mosiah 20.4|]][[Mosiah 20.5|]].  
+[^b]: [[Mosiah 23.33|Mosiah 23:33]].  
+[^c]: [[Jacob 1.13|Jacob 1:14 (13–14)]][[Jacob 1.14|]]; [[Alma 2.11|Alma 2:11]].  

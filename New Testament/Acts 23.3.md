@@ -5,4 +5,4 @@
 [Acts 23:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 5.9|Ps. 5:9 (9-10)]]; [[Matthew 23.27|Matt. 23:27]]; [[Luke 11.44|Luke 11:44.]]
+[^a]: [[Psalms 5.9|Ps. 5:9 (9–10)]][[Psalms 5.10|]]; [[Matthew 23.27|Matt. 23:27]]; [[Luke 11.44|Luke 11:44]].  

@@ -5,4 +5,4 @@
 [Exodus 37:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/37.7?lang=eng#p7)
 
 
-[^a]: TG [[Cherubim]].
+[^a]: [[Cherubim|TG Cherubim]].  

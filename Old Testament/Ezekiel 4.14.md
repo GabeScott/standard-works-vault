@@ -5,7 +5,7 @@
 [Ezekiel 4:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/4.14?lang=eng#p14)
 
 
-[^a]: TG [[Pollution, Pollute]].
-[^b]: [[Leviticus 7.24|Lev. 7:24.]]
-[^c]: [[Exodus 22.31|Ex. 22:31.]]
-[^d]: [[Leviticus 7.18|Lev. 7:18]]; [[Leviticus 19.7|19:7.]]
+[^a]: [[Pollution, Pollute|TG Pollution]].  
+[^b]: [[Leviticus 7.24|Lev. 7:24]].  
+[^c]: [[Exodus 22.31|Ex. 22:31]].  
+[^d]: [[Leviticus 7.18|Lev. 7:18]]; [[Leviticus 19.7|19:7]].  

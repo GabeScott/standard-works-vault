@@ -5,4 +5,4 @@
 [1 Corinthians 15:27](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.27?lang=eng#p27)
 
 
-[^a]: GR clear, plain, evident.
+[^a]: GR clear, plain, evident.  

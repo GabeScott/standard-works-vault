@@ -5,4 +5,4 @@
 [1 Kings 22:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.6?lang=eng#p6)
 
 
-[^a]: [[1 Kings 18.19|1 Kgs. 18:19.]]
+[^a]: [[1 Kings 18.19|1 Kgs. 18:19]].  

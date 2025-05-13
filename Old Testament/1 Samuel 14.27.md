@@ -5,4 +5,4 @@
 [1 Samuel 14:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.27?lang=eng#p27)
 
 
-[^a]: IE refreshed from being tired.
+[^a]: IE refreshed from being tired.  

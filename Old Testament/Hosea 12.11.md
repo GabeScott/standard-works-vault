@@ -5,4 +5,4 @@
 [Hosea 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.11?lang=eng#p11)
 
 
-[^a]: [[Hosea 9.15|Hosea 9:15 (13-15).]]
+[^a]: [[Hosea 9.13|Hosea 9:15 (13–15)]][[Hosea 9.14|]][[Hosea 9.15|]].  

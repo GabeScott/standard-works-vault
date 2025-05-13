@@ -5,5 +5,5 @@
 [Isaiah 26:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.11?lang=eng#p11)
 
 
-[^a]: OR let them see Thy zeal for Thy people, and be ashamed; yea, let fire destroy Thine enemies.
-[^b]: [[Mosiah 27.31|Mosiah 27:31.]]
+[^a]: OR let them see Thy zeal for Thy people, and be ashamed; yea, let fire destroy Thine enemies.  
+[^b]: [[Mosiah 27.31|Mosiah 27:31]].  

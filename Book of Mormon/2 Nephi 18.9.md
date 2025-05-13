@@ -5,4 +5,4 @@
 [2 Nephi 18:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p9#p9)
 
 
-[^a]: [[Joel 3.9|Joel 3:9 (9-14).]]
+[^a]: [[Joel 3.9|Joel 3:9 (9–14)]][[Joel 3.10|]][[Joel 3.11|]][[Joel 3.12|]][[Joel 3.13|]][[Joel 3.14|]].  

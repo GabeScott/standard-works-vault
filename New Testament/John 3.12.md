@@ -5,4 +5,4 @@
 [John 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.12?lang=eng#p12)
 
 
-[^a]: TG [[Faith]].
+[^a]: [[Faith|TG Faith]].  

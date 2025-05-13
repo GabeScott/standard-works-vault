@@ -5,4 +5,4 @@
 [Leviticus 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.10?lang=eng#p10)
 
 
-[^a]: HEB a ewe, a year old.
+[^a]: HEB a ewe, a year old.  

@@ -5,4 +5,4 @@
 [Alma 47:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/47?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 44.19|Alma 44:19 (8, 19).]]
+[^a]: [[Alma 44.8|Alma 44:19 (8, 19)]][[Alma 44.19|]].  

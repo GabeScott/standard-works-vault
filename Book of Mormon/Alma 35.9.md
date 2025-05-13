@@ -5,4 +5,4 @@
 [Alma 35:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/35?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 4.26|Mosiah 4:26]]; [[D&C 42.43|D&C 42:43]]. TG [[Nourish]]; [[Welfare]].
+[^a]: [[Mosiah 4.26|Mosiah 4:26]]; [[D&C 42.43|D&C 42:43]]. [[Nourish|TG Nourish]]; [[Welfare|Welfare]].  

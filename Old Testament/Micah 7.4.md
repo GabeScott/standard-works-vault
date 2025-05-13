@@ -5,4 +5,4 @@
 [Micah 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.4?lang=eng#p4)
 
 
-[^a]: IE punishment.
+[^a]: IE punishment.  

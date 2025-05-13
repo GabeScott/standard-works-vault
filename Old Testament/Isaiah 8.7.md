@@ -5,6 +5,6 @@
 [Isaiah 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.7?lang=eng#p7)
 
 
-[^a]: IE upon northern Israel first.
-[^b]: [[Jeremiah 46.7|Jer. 46:7 (7-8).]]
-[^c]: [[Isaiah 10.12|Isa. 10:12.]]
+[^a]: IE upon northern Israel first.  
+[^b]: [[Jeremiah 46.7|Jer. 46:7 (7–8)]][[Jeremiah 46.8|]].  
+[^c]: [[Isaiah 10.12|Isa. 10:12]].  

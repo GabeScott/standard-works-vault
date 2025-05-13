@@ -5,5 +5,5 @@
 [Helaman 6:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p21#p21)
 
 
-[^a]: [[Helaman 6.2|Hel. 6:2.]]
-[^b]: TG [[Stealing, Stolen]].
+[^a]: [[Helaman 6.2|Hel. 6:2]].  
+[^b]: [[Stealing, Stolen|TG Stealing]].  

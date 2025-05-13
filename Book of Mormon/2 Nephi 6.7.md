@@ -5,6 +5,6 @@
 [2 Nephi 6:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/6?lang=eng&id=p7#p7)
 
 
-[^a]: [[Isaiah 60.16|Isa. 60:16.]]
-[^b]: [[Isaiah 44.8|Isa. 44:8]]; [[Isaiah 45.5|45:5 (5-22)]]; [[Isaiah 46.9|46:9]]; [[3 Nephi 24.6|3 Ne. 24:6]]; [[Moses 1.6|Moses 1:6.]]
-[^c]: Lam. 3:25 (25-26); [[D&C 133.45|D&C 133:45.]]
+[^a]: [[Isaiah 60.16|Isa. 60:16]].  
+[^b]: [[Isaiah 44.8|Isa. 44:8]]; [[Isaiah 45.5|45:5 (5–22)]][[Isaiah 45.6|]][[Isaiah 45.7|]][[Isaiah 45.8|]][[Isaiah 45.9|]][[Isaiah 45.10|]][[Isaiah 45.11|]][[Isaiah 45.12|]][[Isaiah 45.13|]][[Isaiah 45.14|]][[Isaiah 45.15|]][[Isaiah 45.16|]][[Isaiah 45.17|]][[Isaiah 45.18|]][[Isaiah 45.19|]][[Isaiah 45.20|]][[Isaiah 45.21|]][[Isaiah 45.22|]]; [[Isaiah 46.9|46:9]]; [[3 Nephi 24.6|3 Ne. 24:6]]; [[Moses 1.6|Moses 1:6]].  
+[^c]: [[Lamentations 3.25|Lam. 3:25 (25–26)]][[Lamentations 3.26|]]; [[D&C 133.45|D&C 133:45]].  

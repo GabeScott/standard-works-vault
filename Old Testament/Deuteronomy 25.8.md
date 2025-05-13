@@ -5,4 +5,4 @@
 [Deuteronomy 25:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.8?lang=eng#p8)
 
 
-[^a]: OR persists.
+[^a]: OR persists.  

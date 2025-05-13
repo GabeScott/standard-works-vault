@@ -5,5 +5,5 @@
 [Alma 1:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 1.2|Alma 1:2]]; [[Alma 2.1|2:1 (1, 20).]]
-[^b]: [[Deuteronomy 13.5|Deut. 13:5 (1-9).]]
+[^a]: [[Alma 1.2|Alma 1:2]]; [[Alma 2.1|2:1 (1, 20)]][[Alma 2.20|]].  
+[^b]: [[Deuteronomy 13.1|Deut. 13:5 (1–9)]][[Deuteronomy 13.2|]][[Deuteronomy 13.3|]][[Deuteronomy 13.4|]][[Deuteronomy 13.5|]][[Deuteronomy 13.6|]][[Deuteronomy 13.7|]][[Deuteronomy 13.8|]][[Deuteronomy 13.9|]].  

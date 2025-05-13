@@ -5,5 +5,5 @@
 [Genesis 24:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.10?lang=eng#p10)
 
 
-[^a]: HEB Aram-naharaim; i.e., Aram of the two rivers.
-[^b]: [[Genesis 24.24|Gen. 24:24]]; [[Genesis 27.43|27:43]]; [[Abraham 2.4|Abr. 2:4 (4-6, 14-15).]]
+[^a]: HEB Aram-naharaim; i.e., Aram of the two rivers.  
+[^b]: [[Genesis 24.24|Gen. 24:24]]; [[Genesis 27.43|27:43]]; [[Abraham 2.4|Abr. 2:4 (4–6, 14–15)]][[Abraham 2.5|]][[Abraham 2.6|]][[Abraham 2.14|]][[Abraham 2.15|]].  

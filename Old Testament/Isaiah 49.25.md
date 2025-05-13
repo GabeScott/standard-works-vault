@@ -5,4 +5,4 @@
 [Isaiah 49:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.25?lang=eng#p25)
 
 
-[^a]: [[Psalms 35.1|Ps. 35:1]]; 2 Ne. 6:16-17; [[D&C 98.37|D&C 98:37.]]
+[^a]: [[Psalms 35.1|Ps. 35:1]]; [[2 Nephi 6.16|2 Ne. 6:16–17]][[2 Nephi 6.17|]]; [[D&C 98.37|D&C 98:37]].  

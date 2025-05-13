@@ -5,4 +5,4 @@
 [Alma 36:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p10#p10)
 
 
-[^a]: [[Mosiah 27.23|Mosiah 27:23 (19-23)]]; [[Alma 38.8|Alma 38:8.]]
+[^a]: [[Mosiah 27.19|Mosiah 27:23 (19–23)]][[Mosiah 27.20|]][[Mosiah 27.21|]][[Mosiah 27.22|]][[Mosiah 27.23|]]; [[Alma 38.8|Alma 38:8]].  

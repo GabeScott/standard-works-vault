@@ -5,4 +5,4 @@
 [Ether 6:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/6?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Kings, Earthly]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  

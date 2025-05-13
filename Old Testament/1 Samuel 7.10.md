@@ -5,4 +5,4 @@
 [1 Samuel 7:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/7.10?lang=eng#p10)
 
 
-[^a]: HEB caused them confusion.
+[^a]: HEB caused them confusion.  

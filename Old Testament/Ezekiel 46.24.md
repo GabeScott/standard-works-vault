@@ -5,4 +5,4 @@
 [Ezekiel 46:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.24?lang=eng#p24)
 
 
-[^a]: [[Ezekiel 44.11|Ezek. 44:11]]; [[Ezekiel 45.5|45:5.]]
+[^a]: [[Ezekiel 44.11|Ezek. 44:11]]; [[Ezekiel 45.5|45:5]].  

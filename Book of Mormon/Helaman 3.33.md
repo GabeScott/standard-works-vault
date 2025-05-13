@@ -5,4 +5,4 @@
 [Helaman 3:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p33#p33)
 
 
-[^a]: [[D&C 112.26|D&C 112:26.]]
+[^a]: [[D&C 112.26|D&C 112:26]].  

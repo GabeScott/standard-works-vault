@@ -5,4 +5,4 @@
 [Proverbs 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.15?lang=eng#p15)
 
 
-[^a]: TG [[Abstain, Abstinence]]; [[Self-Mastery]].
+[^a]: [[Abstain, Abstinence|TG Abstain]]; [[Self-Mastery|Self-Mastery]].  

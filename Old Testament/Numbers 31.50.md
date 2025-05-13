@@ -5,6 +5,6 @@
 [Numbers 31:50](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.50?lang=eng#p50)
 
 
-[^a]: [[Exodus 30.12|Ex. 30:12 (11-16).]]
-[^b]: [[Exodus 35.22|Ex. 35:22.]]
-[^c]: [[Exodus 30.15|Ex. 30:15 (12, 15-16).]]
+[^a]: [[Exodus 30.11|Ex. 30:12 (11–16)]][[Exodus 30.12|]][[Exodus 30.13|]][[Exodus 30.14|]][[Exodus 30.15|]][[Exodus 30.16|]].  
+[^b]: [[Exodus 35.22|Ex. 35:22]].  
+[^c]: [[Exodus 30.12|Ex. 30:15 (12, 15–16)]][[Exodus 30.15|]][[Exodus 30.16|]].  

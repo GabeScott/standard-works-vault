@@ -5,5 +5,5 @@
 [2 Nephi 20:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p20#p20)
 
 
-[^a]: [[Amos 9.8|Amos 9:8 (8-9)]]; [[2 Nephi 6.11|2 Ne. 6:11 (10-11).]]
-[^b]: IE depend upon. 2 Kgs. 16:8 (7-9); [[2 Chronicles 28.21|2 Chr. 28:21 (20-21).]]
+[^a]: [[Amos 9.8|Amos 9:8 (8–9)]][[Amos 9.9|]]; [[2 Nephi 6.10|2 Ne. 6:11 (10–11)]][[2 Nephi 6.11|]].  
+[^b]: IE depend upon. [[2 Kings 16.7|2 Kgs. 16:8 (7–9)]][[2 Kings 16.8|]][[2 Kings 16.9|]]; [[2 Chronicles 28.20|2 Chr. 28:21 (20–21)]][[2 Chronicles 28.21|]].  

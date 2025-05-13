@@ -5,5 +5,5 @@
 [Genesis 35:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.29?lang=eng#p29)
 
 
-[^a]: TG [[Family, Eternal]].
-[^b]: [[Genesis 25.9|Gen. 25:9.]]
+[^a]: [[Family, Eternal|TG Family, Eternal]].  
+[^b]: [[Genesis 25.9|Gen. 25:9]].  

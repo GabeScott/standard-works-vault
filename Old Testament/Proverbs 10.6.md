@@ -5,4 +5,4 @@
 [Proverbs 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.6?lang=eng#p6)
 
 
-[^a]: [[D&C 39.8|D&C 39:8.]]
+[^a]: [[D&C 39.8|D&C 39:8]].  

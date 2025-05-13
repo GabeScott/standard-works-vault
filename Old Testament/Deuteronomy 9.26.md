@@ -5,5 +5,5 @@
 [Deuteronomy 9:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.26?lang=eng#p26)
 
 
-[^a]: [[Exodus 32.32|Ex. 32:32 (31-32).]]
-[^b]: TG [[Inheritance]].
+[^a]: [[Exodus 32.31|Ex. 32:32 (31–32)]][[Exodus 32.32|]].  
+[^b]: [[Inheritance|TG Inheritance]].  

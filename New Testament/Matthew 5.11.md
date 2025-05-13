@@ -5,6 +5,6 @@
 [Matthew 5:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.11?lang=eng#p11)
 
 
-[^a]: TG [[Malice]]; [[Reviling, Revile]].
-[^b]: TG [[Backbiting]]; [[Slander]].
-[^c]: GR on account of me.
+[^a]: [[Malice|TG Malice]]; [[Reviling, Revile|Reviling]].  
+[^b]: [[Backbiting|TG Backbiting]]; [[Slander|Slander]].  
+[^c]: GR on account of me.  

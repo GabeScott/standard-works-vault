@@ -5,4 +5,4 @@
 [Jacob 5:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p40#p40)
 
 
-[^a]: [[Helaman 15.4|Hel. 15:4 (3-4).]]
+[^a]: [[Helaman 15.3|Hel. 15:4 (3–4)]][[Helaman 15.4|]].  

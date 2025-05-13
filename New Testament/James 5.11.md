@@ -5,8 +5,8 @@
 [James 5:11](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.11?lang=eng#p11)
 
 
-[^a]: TG [[Happiness, Happy]].
-[^b]: TG [[Perseverance]]; [[Steadfastness, Steadfast]].
-[^c]: [[Job 1.1|Job 1:1.]]
-[^d]: TG [[Compassion]].
-[^e]: TG [[God, Mercy of]]; [[Kindness]].
+[^a]: [[Happiness, Happy|TG Happiness]].  
+[^b]: [[Perseverance|TG Perseverance]]; [[Steadfastness, Steadfast|Steadfastness]].  
+[^c]: [[Job 1.1|Job 1:1]].  
+[^d]: [[Compassion|TG Compassion]].  
+[^e]: [[God, Mercy of|TG God, Mercy of]]; [[Kindness|Kindness]].  

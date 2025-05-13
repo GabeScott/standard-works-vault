@@ -5,5 +5,5 @@
 [Judges 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.4?lang=eng#p4)
 
 
-[^a]: TG [[Tyranny]].
-[^b]: HEB empty (or idle) and reckless (or violent).
+[^a]: [[Tyranny|TG Tyranny]].  
+[^b]: HEB empty (or idle) and reckless (or violent).  

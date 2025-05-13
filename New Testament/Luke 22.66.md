@@ -5,4 +5,4 @@
 [Luke 22:66](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.66?lang=eng#p66)
 
 
-[^a]: IE the Sanhedrin.
+[^a]: IE the Sanhedrin.  

@@ -5,4 +5,4 @@
 [Romans 7:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.13?lang=eng#p13)
 
 
-[^a]: GR May it not be!
+[^a]: GR May it not be!  

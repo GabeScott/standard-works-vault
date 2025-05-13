@@ -5,4 +5,4 @@
 [Psalms 119:162](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.162?lang=eng#p162)
 
 
-[^a]: [[Isaiah 9.3|Isa. 9:3.]]
+[^a]: [[Isaiah 9.3|Isa. 9:3]].  

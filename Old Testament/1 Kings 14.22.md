@@ -5,5 +5,5 @@
 [1 Kings 14:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.22?lang=eng#p22)
 
 
-[^a]: TG [[Apostasy of Israel]].
-[^b]: TG [[Provoking, Provoke]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  
+[^b]: [[Provoking, Provoke|TG Provoking]].  

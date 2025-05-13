@@ -5,4 +5,4 @@
 [Numbers 20:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.19?lang=eng#p19)
 
 
-[^a]: [[Deuteronomy 2.28|Deut. 2:28.]]
+[^a]: [[Deuteronomy 2.28|Deut. 2:28]].  

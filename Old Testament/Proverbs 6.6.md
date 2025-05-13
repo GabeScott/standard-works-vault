@@ -5,5 +5,5 @@
 [Proverbs 6:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.6?lang=eng#p6)
 
 
-[^a]: [[Proverbs 30.25|Prov. 30:25]]. TG [[Work, Value of]].
-[^b]: TG [[Apathy]]; [[Laziness]].
+[^a]: [[Proverbs 30.25|Prov. 30:25]]. [[Work, Value of|TG Work, Value of]].  
+[^b]: [[Apathy|TG Apathy]]; [[Laziness|Laziness]].  

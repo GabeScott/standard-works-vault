@@ -5,4 +5,4 @@
 [Mosiah 24:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p13#p13)
 
 
-[^a]: [[Jeremiah 33.3|Jer. 33:3 (1-3)]]; [[Matthew 6.6|Matt. 6:6.]]
+[^a]: [[Jeremiah 33.1|Jer. 33:3 (1–3)]][[Jeremiah 33.2|]][[Jeremiah 33.3|]]; [[Matthew 6.6|Matt. 6:6]].  

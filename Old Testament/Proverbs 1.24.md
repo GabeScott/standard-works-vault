@@ -5,4 +5,4 @@
 [Proverbs 1:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.24?lang=eng#p24)
 
 
-[^a]: TG [[Disobedience, Disobey]].
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  

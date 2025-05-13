@@ -5,6 +5,6 @@
 [Romans 6:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.5?lang=eng#p5)
 
 
-[^a]: TG [[Jesus Christ, Types of, in Memory]].
-[^b]: Col. 2:20; 3:3; 2 Tim. 2:11.
-[^c]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Jesus Christ, Types of, in Memory|TG Jesus Christ, Types of, in Memory]].  
+[^b]: [[Colossians 2.20|Col. 2:20]]; [[Colossians 3.3|3:3]]; [[2 Timothy 2.11|2 Tim. 2:11]].  
+[^c]: [[Resurrection|TG Resurrection]].  

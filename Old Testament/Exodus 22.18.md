@@ -5,4 +5,4 @@
 [Exodus 22:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.18?lang=eng#p18)
 
 
-[^a]: IE a sorceress or a sorcerer. JST Ex. 22:18 … murderer … TG [[Sorcery]].
+[^a]: IE a sorceress or a sorcerer. [[JST Exodus 22.18|JST Ex. 22:18]] … murderer … [[Sorcery|TG Sorcery]].  

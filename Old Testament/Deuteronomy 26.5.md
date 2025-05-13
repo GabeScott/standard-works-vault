@@ -5,7 +5,7 @@
 [Deuteronomy 26:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.5?lang=eng#p5)
 
 
-[^a]: HEB Aramean. Abraham migrated to Aram and from there to the land of promise. Gen. 28:5; [[Hosea 12.12|Hosea 12:12.]]
-[^b]: [[Genesis 47.4|Gen. 47:4.]]
-[^c]: TG [[Israel, Origins of]].
-[^d]: [[Exodus 1.7|Ex. 1:7.]]
+[^a]: HEB Aramean. Abraham migrated to Aram and from there to the land of promise. [[Genesis 28.5|Gen. 28:5]]; [[Hosea 12.12|Hosea 12:12]].  
+[^b]: [[Genesis 47.4|Gen. 47:4]].  
+[^c]: [[Israel, Origins of|TG Israel, Origins of]].  
+[^d]: [[Exodus 1.7|Ex. 1:7]].  

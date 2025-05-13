@@ -5,4 +5,4 @@
 [Leviticus 23:35](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.35?lang=eng#p35)
 
 
-[^a]: TG [[Meetings]].
+[^a]: [[Meetings|TG Meetings]].  

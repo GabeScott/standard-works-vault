@@ -5,7 +5,7 @@
 [Matthew 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.16?lang=eng#p16)
 
 
-[^a]: GR deceived by.
-[^b]: GR became extremely angry.
-[^c]: TG [[Tyranny]].
-[^d]: GR surrounding regions.
+[^a]: GR deceived by.  
+[^b]: GR became extremely angry.  
+[^c]: [[Tyranny|TG Tyranny]].  
+[^d]: GR surrounding regions.  

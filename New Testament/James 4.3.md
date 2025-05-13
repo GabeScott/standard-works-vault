@@ -5,8 +5,8 @@
 [James 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.3?lang=eng#p3)
 
 
-[^a]: TG [[Prayer, Pray]].
-[^b]: [[Helaman 10.5|Hel. 10:5 (4-6).]]
-[^c]: GR wickedly, wrongly. Rom. 8:26 (26-27); [[D&C 46.30|D&C 46:30 (28-30)]]; [[D&C 88.65|88:65 (64-65).]]
-[^d]: GR waste, expend. D&C 46:9.
-[^e]: TG [[Lust]].
+[^a]: [[Prayer, Pray|TG Prayer]].  
+[^b]: [[Helaman 10.4|Hel. 10:5 (4–6)]][[Helaman 10.5|]][[Helaman 10.6|]].  
+[^c]: GR wickedly, wrongly. [[Romans 8.26|Rom. 8:26 (26–27)]][[Romans 8.27|]]; [[D&C 46.28|D&C 46:30 (28–30)]][[D&C 46.29|]][[D&C 46.30|]]; [[D&C 88.64|88:65 (64–65)]][[D&C 88.65|]].  
+[^d]: GR waste, expend. [[D&C 46.9|D&C 46:9]].  
+[^e]: [[Lust|TG Lust]].  

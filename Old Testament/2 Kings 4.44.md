@@ -5,4 +5,4 @@
 [2 Kings 4:44](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.44?lang=eng#p44)
 
 
-[^a]: [[Matthew 14.20|Matt. 14:20 (19-21)]]; [[Matthew 15.37|15:37 (36-38).]]
+[^a]: [[Matthew 14.19|Matt. 14:20 (19–21)]][[Matthew 14.20|]][[Matthew 14.21|]]; [[Matthew 15.36|15:37 (36–38)]][[Matthew 15.37|]][[Matthew 15.38|]].  

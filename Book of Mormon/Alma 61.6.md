@@ -5,7 +5,7 @@
 [Alma 61:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/61?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 62.5|Alma 62:5.]]
-[^b]: [[Acts 2.47|Acts 2:47.]]
-[^c]: TG [[Liberty]].
-[^d]: TG [[Injustice]].
+[^a]: [[Alma 62.5|Alma 62:5]].  
+[^b]: [[Acts 2.47|Acts 2:47]].  
+[^c]: [[Liberty|TG Liberty]].  
+[^d]: [[Injustice|TG Injustice]].  

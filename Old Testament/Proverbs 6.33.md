@@ -5,4 +5,4 @@
 [Proverbs 6:33](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.33?lang=eng#p33)
 
 
-[^a]: [[D&C 42.24|D&C 42:24 (24-26).]]
+[^a]: [[D&C 42.24|D&C 42:24 (24–26)]][[D&C 42.25|]][[D&C 42.26|]].  

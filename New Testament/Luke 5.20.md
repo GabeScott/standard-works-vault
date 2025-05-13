@@ -5,4 +5,4 @@
 [Luke 5:20](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.20?lang=eng#p20)
 
 
-[^a]: TG [[Forgive, Forgiveness]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]].  

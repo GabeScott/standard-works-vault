@@ -5,4 +5,4 @@
 [Nehemiah 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/5.11?lang=eng#p11)
 
 
-[^a]: OR the hundred pieces of silver.
+[^a]: OR the hundred pieces of silver.  

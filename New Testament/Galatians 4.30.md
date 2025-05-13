@@ -5,4 +5,4 @@
 [Galatians 4:30](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.30?lang=eng#p30)
 
 
-[^a]: [[Genesis 21.10|Gen. 21:10.]]
+[^a]: [[Genesis 21.10|Gen. 21:10]].  

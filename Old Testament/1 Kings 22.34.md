@@ -5,4 +5,4 @@
 [1 Kings 22:34](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.34?lang=eng#p34)
 
 
-[^a]: HEB between the armor and the breastplate.
+[^a]: HEB between the armor and the breastplate.  

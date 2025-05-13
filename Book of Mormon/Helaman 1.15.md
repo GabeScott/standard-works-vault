@@ -5,5 +5,5 @@
 [Helaman 1:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p15#p15)
 
 
-[^a]: [[Helaman 1.30|Hel. 1:30.]]
-[^b]: [[Alma 31.8|Alma 31:8]]; [[Alma 53.8|53:8]]; [[Helaman 4.8|Hel. 4:8.]]
+[^a]: [[Helaman 1.30|Hel. 1:30]].  
+[^b]: [[Alma 31.8|Alma 31:8]]; [[Alma 53.8|53:8]]; [[Helaman 4.8|Hel. 4:8]].  

@@ -5,4 +5,4 @@
 [1 Nephi 13:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p19#p19)
 
 
-[^a]: [[2 Nephi 10.10|2 Ne. 10:10 (10-14)]]; [[3 Nephi 21.4|3 Ne. 21:4]]; [[Ether 2.12|Ether 2:12.]]
+[^a]: [[2 Nephi 10.10|2 Ne. 10:10 (10–14)]][[2 Nephi 10.11|]][[2 Nephi 10.12|]][[2 Nephi 10.13|]][[2 Nephi 10.14|]]; [[3 Nephi 21.4|3 Ne. 21:4]]; [[Ether 2.12|Ether 2:12]].  

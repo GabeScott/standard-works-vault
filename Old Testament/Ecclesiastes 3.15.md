@@ -5,4 +5,4 @@
 [Ecclesiastes 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.15?lang=eng#p15)
 
 
-[^a]: [[Ecclesiastes 1.9|Eccl. 1:9.]]
+[^a]: [[Ecclesiastes 1.9|Eccl. 1:9]].  

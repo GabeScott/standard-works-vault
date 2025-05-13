@@ -5,4 +5,4 @@
 [Exodus 25:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.14?lang=eng#p14)
 
 
-[^a]: [[1 Chronicles 15.15|1 Chr. 15:15.]]
+[^a]: [[1 Chronicles 15.15|1 Chr. 15:15]].  

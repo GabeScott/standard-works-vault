@@ -5,4 +5,4 @@
 [Mark 15:17](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.17?lang=eng#p17)
 
 
-[^a]: TG [[Jesus Christ, Trials of]].
+[^a]: [[Jesus Christ, Trials of|TG Jesus Christ, Trials of]].  

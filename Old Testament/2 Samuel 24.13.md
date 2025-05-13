@@ -5,4 +5,4 @@
 [2 Samuel 24:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/24.13?lang=eng#p13)
 
 
-[^a]: [[1 Chronicles 21.12|1 Chr. 21:12.]]
+[^a]: [[1 Chronicles 21.12|1 Chr. 21:12]].  

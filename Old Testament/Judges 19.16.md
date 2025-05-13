@@ -5,4 +5,4 @@
 [Judges 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/19.16?lang=eng#p16)
 
 
-[^a]: [[Joshua 20.9|Josh. 20:9.]]
+[^a]: [[Joshua 20.9|Josh. 20:9]].  

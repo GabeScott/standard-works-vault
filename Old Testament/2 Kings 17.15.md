@@ -5,4 +5,4 @@
 [2 Kings 17:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.15?lang=eng#p15)
 
 
-[^a]: [[Romans 1.21|Rom. 1:21.]]
+[^a]: [[Romans 1.21|Rom. 1:21]].  

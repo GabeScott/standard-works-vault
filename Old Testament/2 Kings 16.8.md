@@ -5,4 +5,4 @@
 [2 Kings 16:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/16.8?lang=eng#p8)
 
 
-[^a]: [[2 Chronicles 28.21|2 Chr. 28:21.]]
+[^a]: [[2 Chronicles 28.21|2 Chr. 28:21]].  

@@ -5,5 +5,5 @@
 [2 Nephi 17:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/17?lang=eng&id=p14#p14)
 
 
-[^a]: [[Isaiah 7.14|Isa. 7:14.]]
-[^b]: [[Isaiah 8.8|Isa. 8:8]]; 2 Ne. 18:8, 10.
+[^a]: [[Isaiah 7.14|Isa. 7:14]].  
+[^b]: [[Isaiah 8.8|Isa. 8:8]]; [[2 Nephi 18.8|2 Ne. 18:8, 10]][[2 Nephi 18.10|]].  

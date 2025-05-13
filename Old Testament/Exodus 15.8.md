@@ -5,5 +5,5 @@
 [Exodus 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 14.21|Ex. 14:21 (21-22).]]
-[^b]: [[Joshua 3.13|Josh. 3:13.]]
+[^a]: [[Exodus 14.21|Ex. 14:21 (21–22)]][[Exodus 14.22|]].  
+[^b]: [[Joshua 3.13|Josh. 3:13]].  

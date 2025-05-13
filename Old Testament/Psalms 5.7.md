@@ -5,5 +5,5 @@
 [Psalms 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/5.7?lang=eng#p7)
 
 
-[^a]: OR reverence.
-[^b]: [[1 Kings 8.48|1 Kgs. 8:48 (44-48)]]; Dan. 6:10; [[Jonah 2.4|Jonah 2:4.]]
+[^a]: OR reverence.  
+[^b]: [[1 Kings 8.44|1 Kgs. 8:48 (44–48)]][[1 Kings 8.45|]][[1 Kings 8.46|]][[1 Kings 8.47|]][[1 Kings 8.48|]]; [[Daniel 6.10|Dan. 6:10]]; [[Jonah 2.4|Jonah 2:4]].  

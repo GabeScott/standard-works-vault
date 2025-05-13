@@ -5,5 +5,5 @@
 [Isaiah 1:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.20?lang=eng#p20)
 
 
-[^a]: TG [[Rebellion, Rebel]].
-[^b]: TG [[Punish, Punishment]].
+[^a]: [[Rebellion, Rebel|TG Rebellion]].  
+[^b]: [[Punish, Punishment|TG Punish]].  

@@ -5,5 +5,5 @@
 [Genesis 45:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/45.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 43.30|Gen. 43:30 (30-31).]]
-[^b]: [[Genesis 46.29|Gen. 46:29.]]
+[^a]: [[Genesis 43.30|Gen. 43:30 (30–31)]][[Genesis 43.31|]].  
+[^b]: [[Genesis 46.29|Gen. 46:29]].  

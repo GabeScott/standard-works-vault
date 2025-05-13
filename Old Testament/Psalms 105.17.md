@@ -5,5 +5,5 @@
 [Psalms 105:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.17?lang=eng#p17)
 
 
-[^a]: [[Genesis 45.5|Gen. 45:5.]]
-[^b]: [[Genesis 37.36|Gen. 37:36 (28, 36).]]
+[^a]: [[Genesis 45.5|Gen. 45:5]].  
+[^b]: [[Genesis 37.28|Gen. 37:36 (28, 36)]][[Genesis 37.36|]].  

@@ -5,4 +5,4 @@
 [Ecclesiastes 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/8.1?lang=eng#p1)
 
 
-[^a]: [[D&C 50.24|D&C 50:24]]; [[D&C 84.45|84:45.]]
+[^a]: [[D&C 50.24|D&C 50:24]]; [[D&C 84.45|84:45]].  

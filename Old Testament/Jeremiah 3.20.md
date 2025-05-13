@@ -5,4 +5,4 @@
 [Jeremiah 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.20?lang=eng#p20)
 
 
-[^a]: TG [[Divorce, Divorcement]].
+[^a]: [[Divorce, Divorcement|TG Divorce]].  

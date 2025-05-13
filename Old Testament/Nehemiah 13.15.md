@@ -5,5 +5,5 @@
 [Nehemiah 13:15](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.15?lang=eng#p15)
 
 
-[^a]: TG [[Sabbath]].
-[^b]: OR supplies.
+[^a]: [[Sabbath|TG Sabbath]].  
+[^b]: OR supplies.  

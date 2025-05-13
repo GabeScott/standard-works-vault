@@ -5,4 +5,4 @@
 [Isaiah 14:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.21?lang=eng#p21)
 
 
-[^a]: IE Let not another evil generation arise and resume an evil regime. Deut. 24:16.
+[^a]: IE Let not another evil generation arise and resume an evil regime. [[Deuteronomy 24.16|Deut. 24:16]].  

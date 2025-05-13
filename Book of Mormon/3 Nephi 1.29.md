@@ -5,5 +5,5 @@
 [3 Nephi 1:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p29#p29)
 
 
-[^a]: TG [[Peer Influence]].
-[^b]: [[Alma 30.59|Alma 30:59]]; [[Alma 43.4|43:4.]]
+[^a]: [[Peer Influence|TG Peer Influence]].  
+[^b]: [[Alma 30.59|Alma 30:59]]; [[Alma 43.4|43:4]].  

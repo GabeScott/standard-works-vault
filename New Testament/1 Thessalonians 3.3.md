@@ -5,6 +5,6 @@
 [1 Thessalonians 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/3.3?lang=eng#p3)
 
 
-[^a]: GR disturbed, perturbed.
-[^b]: [[Acts 20.23|Acts 20:23]]; JS—H 1:24 (23-24).
-[^c]: [[Acts 9.15|Acts 9:15 (15-16).]]
+[^a]: GR disturbed, perturbed.  
+[^b]: [[Acts 20.23|Acts 20:23]]; [[Joseph Smith History 1.23|JS—H 1:24 (23–24)]][[Joseph Smith History 1.24|]].  
+[^c]: [[Acts 9.15|Acts 9:15 (15–16)]][[Acts 9.16|]].  

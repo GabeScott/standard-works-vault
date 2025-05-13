@@ -5,6 +5,6 @@
 [Isaiah 65:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.23?lang=eng#p23)
 
 
-[^a]: TG [[Labor]].
-[^b]: [[Isaiah 61.9|Isa. 61:9.]]
-[^c]: TG [[Family, Eternal]].
+[^a]: [[Labor|TG Labor]].  
+[^b]: [[Isaiah 61.9|Isa. 61:9]].  
+[^c]: [[Family, Eternal|TG Family, Eternal]].  

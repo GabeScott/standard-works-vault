@@ -5,4 +5,4 @@
 [2 Kings 10:30](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.30?lang=eng#p30)
 
 
-[^a]: [[2 Kings 15.12|2 Kgs. 15:12.]]
+[^a]: [[2 Kings 15.12|2 Kgs. 15:12]].  

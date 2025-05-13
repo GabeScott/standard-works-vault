@@ -5,4 +5,4 @@
 [Acts 20:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.10?lang=eng#p10)
 
 
-[^a]: [[1 Kings 17.21|1 Kgs. 17:21.]]
+[^a]: [[1 Kings 17.21|1 Kgs. 17:21]].  

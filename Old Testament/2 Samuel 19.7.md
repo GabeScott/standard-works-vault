@@ -5,4 +5,4 @@
 [2 Samuel 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.7?lang=eng#p7)
 
 
-[^a]: HEB speak to the heart; i.e., show appreciation.
+[^a]: HEB speak to the heart; i.e., show appreciation.  

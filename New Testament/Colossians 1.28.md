@@ -5,5 +5,5 @@
 [Colossians 1:28](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.28?lang=eng#p28)
 
 
-[^a]: TG [[Preaching, Preach]].
-[^b]: TG [[Warn, Warnings]].
+[^a]: [[Preaching, Preach|TG Preaching]].  
+[^b]: [[Warn, Warnings|TG Warn]].  

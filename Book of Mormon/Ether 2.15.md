@@ -5,7 +5,7 @@
 [Ether 2:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[God, Spirit of]].
-[^b]: [[Genesis 6.3|Gen. 6:3]]; [[2 Nephi 26.11|2 Ne. 26:11]]; [[Mormon 5.16|Morm. 5:16]]; [[Moses 8.17|Moses 8:17.]]
-[^c]: TG [[Earth, Purpose of]].
-[^d]: [[Ether 9.20|Ether 9:20.]]
+[^a]: [[God, Spirit of|TG God, Spirit of]].  
+[^b]: [[Genesis 6.3|Gen. 6:3]]; [[2 Nephi 26.11|2 Ne. 26:11]]; [[Mormon 5.16|Morm. 5:16]]; [[Moses 8.17|Moses 8:17]].  
+[^c]: [[Earth, Purpose of|TG Earth, Purpose of]].  
+[^d]: [[Ether 9.20|Ether 9:20]].  

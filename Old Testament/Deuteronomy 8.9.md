@@ -5,4 +5,4 @@
 [Deuteronomy 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.9?lang=eng#p9)
 
 
-[^a]: HEB bronze, copper, brass.
+[^a]: HEB bronze, copper, brass.  

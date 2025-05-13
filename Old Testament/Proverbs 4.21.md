@@ -5,5 +5,5 @@
 [Proverbs 4:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/4.21?lang=eng#p21)
 
 
-[^a]: [[Proverbs 4.25|Prov. 4:25]]; [[Mormon 8.15|Morm. 8:15]]; [[D&C 82.19|D&C 82:19.]]
-[^b]: [[Proverbs 2.1|Prov. 2:1.]]
+[^a]: [[Proverbs 4.25|Prov. 4:25]]; [[Mormon 8.15|Morm. 8:15]]; [[D&C 82.19|D&C 82:19]].  
+[^b]: [[Proverbs 2.1|Prov. 2:1]].  

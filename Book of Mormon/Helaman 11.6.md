@@ -5,4 +5,4 @@
 [Helaman 11:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Drought]].
+[^a]: [[Drought|TG Drought]].  

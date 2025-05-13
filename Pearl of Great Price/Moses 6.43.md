@@ -5,4 +5,4 @@
 [Moses 6:43](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.43?lang=eng#p43)
 
 
-[^a]: [[Proverbs 1.25|Prov. 1:25 (24-33)]]; [[D&C 56.14|D&C 56:14 (14-15).]]
+[^a]: [[Proverbs 1.24|Prov. 1:25 (24–33)]][[Proverbs 1.25|]][[Proverbs 1.26|]][[Proverbs 1.27|]][[Proverbs 1.28|]][[Proverbs 1.29|]][[Proverbs 1.30|]][[Proverbs 1.31|]][[Proverbs 1.32|]][[Proverbs 1.33|]]; [[D&C 56.14|D&C 56:14 (14–15)]][[D&C 56.15|]].  

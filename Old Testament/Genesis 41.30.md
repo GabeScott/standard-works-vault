@@ -5,4 +5,4 @@
 [Genesis 41:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.30?lang=eng#p30)
 
 
-[^a]: TG [[Famine]].
+[^a]: [[Famine|TG Famine]].  

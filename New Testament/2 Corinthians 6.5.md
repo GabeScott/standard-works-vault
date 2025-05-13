@@ -5,4 +5,4 @@
 [2 Corinthians 6:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/6.5?lang=eng#p5)
 
 
-[^a]: TG [[Rioting and Reveling]].
+[^a]: [[Rioting and Reveling|TG Rioting and Reveling]].  

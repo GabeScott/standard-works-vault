@@ -5,4 +5,4 @@
 [Psalms 79:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/79.8?lang=eng#p8)
 
 
-[^a]: HEB come to us.
+[^a]: HEB come to us.  

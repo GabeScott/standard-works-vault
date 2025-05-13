@@ -5,5 +5,5 @@
 [Numbers 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/num/8.17?lang=eng#p17)
 
 
-[^a]: [[Exodus 12.29|Ex. 12:29.]]
-[^b]: TG [[Sanctification, Sanctify]].
+[^a]: [[Exodus 12.29|Ex. 12:29]].  
+[^b]: [[Sanctification, Sanctify|TG Sanctification]].  

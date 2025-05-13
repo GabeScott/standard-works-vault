@@ -5,5 +5,5 @@
 [Jeremiah 30:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.18?lang=eng#p18)
 
 
-[^a]: [[D&C 101.9|D&C 101:9.]]
-[^b]: HEB the citadel shall stand in its right place.
+[^a]: [[D&C 101.9|D&C 101:9]].  
+[^b]: HEB the citadel shall stand in its right place.  

@@ -5,4 +5,4 @@
 [1 Kings 4:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.27?lang=eng#p27)
 
 
-[^a]: [[1 Kings 4.5|1 Kgs. 4:5.]]
+[^a]: [[1 Kings 4.5|1 Kgs. 4:5]].  

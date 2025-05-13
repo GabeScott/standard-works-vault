@@ -5,4 +5,4 @@
 [Exodus 40:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.29?lang=eng#p29)
 
 
-[^a]: OR meal or cereal.
+[^a]: OR meal or cereal.  

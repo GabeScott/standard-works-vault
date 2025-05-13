@@ -5,6 +5,6 @@
 [Helaman 6:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p31#p31)
 
 
-[^a]: [[Genesis 6.12|Gen. 6:12]]; [[2 Nephi 28.11|2 Ne. 28:11.]]
-[^b]: [[1 Nephi 19.7|1 Ne. 19:7.]]
-[^c]: [[Judges 2.17|Judg. 2:17]]; [[2 Nephi 9.37|2 Ne. 9:37]]; [[Alma 7.6|Alma 7:6.]]
+[^a]: [[Genesis 6.12|Gen. 6:12]]; [[2 Nephi 28.11|2 Ne. 28:11]].  
+[^b]: [[1 Nephi 19.7|1 Ne. 19:7]].  
+[^c]: [[Judges 2.17|Judg. 2:17]]; [[2 Nephi 9.37|2 Ne. 9:37]]; [[Alma 7.6|Alma 7:6]].  

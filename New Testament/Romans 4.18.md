@@ -5,6 +5,6 @@
 [Romans 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.18?lang=eng#p18)
 
 
-[^a]: TG [[Hope]].
-[^b]: TG [[Nations]].
-[^c]: TG [[Seed of Abraham]].
+[^a]: [[Hope|TG Hope]].  
+[^b]: [[Nations|TG Nations]].  
+[^c]: [[Seed of Abraham|TG Seed of Abraham]].  

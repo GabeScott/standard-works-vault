@@ -5,4 +5,4 @@
 [1 Kings 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.3?lang=eng#p3)
 
 
-[^a]: HEB matters, concerns.
+[^a]: HEB matters, concerns.  

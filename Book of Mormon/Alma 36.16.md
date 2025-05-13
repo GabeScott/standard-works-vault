@@ -5,5 +5,5 @@
 [Alma 36:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Pain]].
-[^b]: TG [[Damnation, Damned]].
+[^a]: [[Pain|TG Pain]].  
+[^b]: [[Damnation, Damned|TG Damnation]].  

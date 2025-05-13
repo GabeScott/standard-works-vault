@@ -5,4 +5,4 @@
 [2 Chronicles 23:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/23.13?lang=eng#p13)
 
 
-[^a]: [[1 Chronicles 25.7|1 Chr. 25:7.]]
+[^a]: [[1 Chronicles 25.7|1 Chr. 25:7]].  

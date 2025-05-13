@@ -5,6 +5,6 @@
 [Matthew 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.8?lang=eng#p8)
 
 
-[^a]: TG [[Chastity, Chaste]]; [[Cleanliness]]; [[Purity, Pure]].
-[^b]: TG [[Heart]].
-[^c]: TG [[God, Presence of]]; [[God, Privilege of Seeing]].
+[^a]: [[Chastity, Chaste|TG Chastity]]; [[Cleanliness|Cleanliness]]; [[Purity, Pure|Purity]].  
+[^b]: [[Heart|TG Heart]].  
+[^c]: [[God, Presence of|TG God, Presence of]]; [[God, Privilege of Seeing|God, Privilege of Seeing]].  

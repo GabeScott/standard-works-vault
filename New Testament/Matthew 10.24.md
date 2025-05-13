@@ -5,4 +5,4 @@
 [Matthew 10:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.24?lang=eng#p24)
 
 
-[^a]: [[John 15.20|John 15:20.]]
+[^a]: [[John 15.20|John 15:20]].  

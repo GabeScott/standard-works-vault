@@ -5,5 +5,5 @@
 [Alma 34:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p34#p34)
 
 
-[^a]: [[Alma 40.14|Alma 40:14 (13-14)]]; [[Ether 9.34|Ether 9:34.]]
-[^b]: [[Romans 6.16|Rom. 6:16 (14-18).]]
+[^a]: [[Alma 40.13|Alma 40:14 (13–14)]][[Alma 40.14|]]; [[Ether 9.34|Ether 9:34]].  
+[^b]: [[Romans 6.14|Rom. 6:16 (14–18)]][[Romans 6.15|]][[Romans 6.16|]][[Romans 6.17|]][[Romans 6.18|]].  

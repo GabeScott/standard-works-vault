@@ -5,8 +5,8 @@
 [Daniel 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.2?lang=eng#p2)
 
 
-[^a]: [[John 5.28|John 5:28 (28-29)]]; [[Mormon 9.13|Morm. 9:13 (13-14)]]; [[D&C 43.18|D&C 43:18.]]
-[^b]: TG [[Jesus Christ, Resurrection]].
-[^c]: TG [[Eternal Life]]; [[Immortality, Immortal]].
-[^d]: TG [[Damnation, Damned]]; [[Hell]]; [[Shame]].
-[^e]: TG [[Death, Spiritual, Second]].
+[^a]: [[John 5.28|John 5:28 (28–29)]][[John 5.29|]]; [[Mormon 9.13|Morm. 9:13 (13–14)]][[Mormon 9.14|]]; [[D&C 43.18|D&C 43:18]].  
+[^b]: [[Resurrection|TG Resurrection]].  
+[^c]: [[Eternal Life|TG Eternal Life]]; [[Immortality, Immortal|Immortality]].  
+[^d]: [[Damnation, Damned|TG Damnation]]; [[Hell|Hell]]; [[Shame|Shame]].  
+[^e]: [[Death, Spiritual, Second|TG Death, Spiritual, Second]].  

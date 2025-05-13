@@ -5,4 +5,4 @@
 [Exodus 12:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.38?lang=eng#p38)
 
 
-[^a]: HEB a blending of many; i.e., of other peoples. Neh. 13:3.
+[^a]: HEB a blending of many; i.e., of other peoples. [[Nehemiah 13.3|Neh. 13:3]].  

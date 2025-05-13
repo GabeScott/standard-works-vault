@@ -5,4 +5,4 @@
 [Alma 1:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p21#p21)
 
 
-[^a]: [[Alma 4.8|Alma 4:8]]. TG [[Persecution, Persecute]].
+[^a]: [[Alma 4.8|Alma 4:8]]. [[Persecution, Persecute|TG Persecution]].  

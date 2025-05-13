@@ -5,4 +5,4 @@
 [Deuteronomy 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.18?lang=eng#p18)
 
 
-[^a]: HEB territory (also v. 4).
+[^a]: HEB territory (also [[Deuteronomy 2.4|v. 4]]).  

@@ -5,5 +5,5 @@
 [Numbers 35:27](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.27?lang=eng#p27)
 
 
-[^a]: TG [[Capital Punishment]].
-[^b]: TG [[Guiltless]].
+[^a]: [[Capital Punishment|TG Capital Punishment]].  
+[^b]: [[Guilt, Guilty|TG Guilt]].  

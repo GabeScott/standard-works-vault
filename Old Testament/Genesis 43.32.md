@@ -5,4 +5,4 @@
 [Genesis 43:32](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.32?lang=eng#p32)
 
 
-[^a]: [[Genesis 46.34|Gen. 46:34.]]
+[^a]: [[Genesis 46.34|Gen. 46:34]].  

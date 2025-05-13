@@ -5,7 +5,7 @@
 [Proverbs 15:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.18?lang=eng#p18)
 
 
-[^a]: [[Proverbs 14.29|Prov. 14:29.]]
-[^b]: TG [[Strife]].
-[^c]: TG [[Anger]].
-[^d]: TG [[Contention]].
+[^a]: [[Proverbs 14.29|Prov. 14:29]].  
+[^b]: [[Strife|TG Strife]].  
+[^c]: [[Anger|TG Anger]].  
+[^d]: [[Contention|TG Contention]].  

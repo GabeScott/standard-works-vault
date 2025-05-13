@@ -5,4 +5,4 @@
 [Ezekiel 25:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/25.6?lang=eng#p6)
 
 
-[^a]: OR contempt (malice).
+[^a]: OR contempt (malice).  

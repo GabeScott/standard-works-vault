@@ -5,8 +5,8 @@
 [Deuteronomy 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.6?lang=eng#p6)
 
 
-[^a]: [[Ezra 3.2|Ezra 3:2.]]
-[^b]: TG [[Tithing]].
-[^c]: HEB given contributions (also vv. 11, 17).
-[^d]: OR vowed offerings.
-[^e]: [[Mosiah 2.3|Mosiah 2:3.]]
+[^a]: [[Ezra 3.2|Ezra 3:2]].  
+[^b]: [[Tithing|TG Tithing]].  
+[^c]: HEB given contributions (also [[Deuteronomy 12.11|vv. 11, 17]][[Deuteronomy 12.17|]]).  
+[^d]: OR vowed offerings.  
+[^e]: [[Mosiah 2.3|Mosiah 2:3]].  

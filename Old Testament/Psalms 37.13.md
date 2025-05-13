@@ -5,4 +5,4 @@
 [Psalms 37:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.13?lang=eng#p13)
 
 
-[^a]: TG [[Laughter, Laugh]].
+[^a]: [[Laughter, Laugh|TG Laughter]].  

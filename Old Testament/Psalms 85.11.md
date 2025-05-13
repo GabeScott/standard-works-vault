@@ -5,5 +5,5 @@
 [Psalms 85:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/85.11?lang=eng#p11)
 
 
-[^a]: TG [[Truth]].
-[^b]: TG [[Book of Mormon]].
+[^a]: [[Truth|TG Truth]].  
+[^b]: [[Book of Mormon|TG Book of Mormon]].  

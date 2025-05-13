@@ -5,4 +5,4 @@
 [Psalms 104:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.10?lang=eng#p10)
 
 
-[^a]: TG [[Nature, Earth]].
+[^a]: [[Nature, Earth|TG Nature, Earth]].  

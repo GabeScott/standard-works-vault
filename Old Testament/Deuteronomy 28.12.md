@@ -5,6 +5,6 @@
 [Deuteronomy 28:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.12?lang=eng#p12)
 
 
-[^a]: TG [[Treasure]].
-[^b]: [[Leviticus 26.4|Lev. 26:4]]; [[Deuteronomy 11.14|Deut. 11:14.]]
-[^c]: TG [[Borrow, Borrowing]].
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[Leviticus 26.4|Lev. 26:4]]; [[Deuteronomy 11.14|Deut. 11:14]].  
+[^c]: [[Borrow, Borrowing|TG Borrow]].  

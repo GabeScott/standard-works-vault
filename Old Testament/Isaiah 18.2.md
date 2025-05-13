@@ -5,5 +5,5 @@
 [Isaiah 18:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/18.2?lang=eng#p2)
 
 
-[^a]: HEB reed or papyrus.
-[^b]: HEB cut up or divided.
+[^a]: HEB reed or papyrus.  
+[^b]: HEB cut up or divided.  

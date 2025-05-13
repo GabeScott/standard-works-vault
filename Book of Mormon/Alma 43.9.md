@@ -5,6 +5,6 @@
 [Alma 43:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 44.5|Alma 44:5]]; [[Alma 46.12|46:12]]; [[Alma 48.10|48:10 (10, 24).]]
-[^b]: TG [[Citizenship]].
-[^c]: TG [[Liberty]].
+[^a]: [[Alma 44.5|Alma 44:5]]; [[Alma 46.12|46:12]]; [[Alma 48.10|48:10 (10, 24)]][[Alma 48.24|]].  
+[^b]: [[Citizenship|TG Citizenship]].  
+[^c]: [[Liberty|TG Liberty]].  

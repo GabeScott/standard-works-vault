@@ -5,5 +5,5 @@
 [Alma 36:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p27#p27)
 
 
-[^a]: [[Alma 14.28|Alma 14:28 (26-29).]]
-[^b]: [[Psalms 34.17|Ps. 34:17.]]
+[^a]: [[Alma 14.26|Alma 14:28 (26–29)]][[Alma 14.27|]][[Alma 14.28|]][[Alma 14.29|]].  
+[^b]: [[Psalms 34.17|Ps. 34:17]].  

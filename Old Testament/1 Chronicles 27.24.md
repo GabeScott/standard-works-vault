@@ -5,5 +5,5 @@
 [1 Chronicles 27:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/27.24?lang=eng#p24)
 
 
-[^a]: [[1 Chronicles 21.7|1 Chr. 21:7 (1-7).]]
-[^b]: [[1 Kings 14.19|1 Kgs. 14:19]]; [[Esther 10.2|Esth. 10:2.]]
+[^a]: [[1 Chronicles 21.1|1 Chr. 21:7 (1–7)]][[1 Chronicles 21.2|]][[1 Chronicles 21.3|]][[1 Chronicles 21.4|]][[1 Chronicles 21.5|]][[1 Chronicles 21.6|]][[1 Chronicles 21.7|]].  
+[^b]: [[1 Kings 14.19|1 Kgs. 14:19]]; [[Esther 10.2|Esth. 10:2]].  

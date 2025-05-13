@@ -5,5 +5,5 @@
 [John 19:6](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.6?lang=eng#p6)
 
 
-[^a]: [[Acts 3.13|Acts 3:13.]]
-[^b]: GR cause, crime, motive.
+[^a]: [[Acts 3.13|Acts 3:13]].  
+[^b]: GR cause, crime, motive.  

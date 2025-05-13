@@ -5,7 +5,7 @@
 [3 Nephi 27:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p20#p20)
 
 
-[^a]: [[Ether 4.18|Ether 4:18]]; [[Moroni 7.34|Moro. 7:34.]]
-[^b]: TG [[Baptism, Essential]].
-[^c]: TG [[Sanctification, Sanctify]].
-[^d]: [[1 Corinthians 1.8|1 Cor. 1:8]]; [[D&C 4.2|D&C 4:2.]]
+[^a]: [[Ether 4.18|Ether 4:18]]; [[Moroni 7.34|Moro. 7:34]].  
+[^b]: [[Baptism, Essential|TG Baptism, Essential]].  
+[^c]: [[Sanctification, Sanctify|TG Sanctification]].  
+[^d]: [[1 Corinthians 1.8|1 Cor. 1:8]]; [[D&C 4.2|D&C 4:2]].  

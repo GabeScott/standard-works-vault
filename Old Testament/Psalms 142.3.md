@@ -5,5 +5,5 @@
 [Psalms 142:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/142.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 77.3|Ps. 77:3.]]
-[^b]: [[Psalms 140.5|Ps. 140:5.]]
+[^a]: [[Psalms 77.3|Ps. 77:3]].  
+[^b]: [[Psalms 140.5|Ps. 140:5]].  

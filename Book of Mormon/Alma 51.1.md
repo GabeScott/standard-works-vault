@@ -5,4 +5,4 @@
 [Alma 51:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p1#p1)
 
 
-[^a]: TG [[Peacemakers]].
+[^a]: [[Peacemakers|TG Peacemakers]].  

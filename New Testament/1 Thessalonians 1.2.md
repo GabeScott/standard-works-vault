@@ -5,4 +5,4 @@
 [1 Thessalonians 1:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/1.2?lang=eng#p2)
 
 
-[^a]: [[D&C 46.32|D&C 46:32.]]
+[^a]: [[D&C 46.32|D&C 46:32]].  

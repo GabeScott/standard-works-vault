@@ -5,10 +5,10 @@
 [Isaiah 52:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.7?lang=eng#p7)
 
 
-[^a]: TG [[Beauty]].
-[^b]: TG [[Dispensations]].
-[^c]: TG [[Gospel]].
-[^d]: [[Isaiah 40.9|Isa. 40:9]]; [[Mosiah 15.14|Mosiah 15:14 (13-18)]]; [[D&C 128.19|D&C 128:19.]]
-[^e]: TG [[Missionary Work]].
-[^f]: TG [[Peace of God]]; [[Peace of God]]makers.
-[^g]: TG [[Zion, Sion]].
+[^a]: [[Beauty|TG Beauty]].  
+[^b]: [[Dispensations|TG Dispensations]].  
+[^c]: [[Gospel|TG Gospel]].  
+[^d]: [[Isaiah 40.9|Isa. 40:9]]; [[Mosiah 15.13|Mosiah 15:14 (13–18)]][[Mosiah 15.14|]][[Mosiah 15.15|]][[Mosiah 15.16|]][[Mosiah 15.17|]][[Mosiah 15.18|]]; [[D&C 128.19|D&C 128:19]].  
+[^e]: [[Missionary Work|TG Missionary Work]].  
+[^f]: [[Peace|TG Peace]]; [[Peacemakers|Peacemakers]].  
+[^g]: [[Zion, Sion|TG Zion]].  

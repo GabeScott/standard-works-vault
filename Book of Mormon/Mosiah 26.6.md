@@ -5,6 +5,6 @@
 [Mosiah 26:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p6#p6)
 
 
-[^a]: Col. 2:18 (16-23). TG [[Deceit, Deceive]].
-[^b]: TG [[Flatter, Flattery]].
-[^c]: [[Alma 5.57|Alma 5:57 (57-58)]]; [[Alma 6.3|6:3]]. TG [[Warn, Warnings]].
+[^a]: [[Colossians 2.16|Col. 2:18 (16–23)]][[Colossians 2.17|]][[Colossians 2.18|]][[Colossians 2.19|]][[Colossians 2.20|]][[Colossians 2.21|]][[Colossians 2.22|]][[Colossians 2.23|]]. [[Deceit, Deceive|TG Deceit]].  
+[^b]: [[Flatter, Flattery|TG Flatter]].  
+[^c]: [[Alma 5.57|Alma 5:57 (57–58)]][[Alma 5.58|]]; [[Alma 6.3|6:3]]. [[Warn, Warnings|TG Warn]].  

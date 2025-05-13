@@ -5,6 +5,6 @@
 [Moses 3:9](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.9?lang=eng#p9)
 
 
-[^a]: [[Moses 3.5|Moses 3:5.]]
-[^b]: TG [[Life, Sanctity of]].
-[^c]: [[Genesis 2.9|Gen. 2:9]]; [[1 Nephi 11.25|1 Ne. 11:25]]; [[1 Nephi 15.22|15:22 (22, 28, 36)]]; [[Alma 42.5|Alma 42:5 (2-6)]]; [[Moses 4.28|Moses 4:28 (28, 31)]]; [[Abraham 5.9|Abr. 5:9.]]
+[^a]: [[Moses 3.5|Moses 3:5]].  
+[^b]: [[Life, Sanctity of|TG Life, Sanctity of]].  
+[^c]: [[Genesis 2.9|Gen. 2:9]]; [[1 Nephi 11.25|1 Ne. 11:25]]; [[1 Nephi 15.22|15:22 (22, 28, 36)]][[1 Nephi 15.28|]][[1 Nephi 15.36|]]; [[Alma 42.2|Alma 42:5 (2–6)]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]]; [[Moses 4.28|Moses 4:28 (28, 31)]][[Moses 4.31|]]; [[Abraham 5.9|Abr. 5:9]].  

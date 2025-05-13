@@ -5,4 +5,4 @@
 [Ecclesiastes 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.19?lang=eng#p19)
 
 
-[^a]: [[Ecclesiastes 2.16|Eccl. 2:16.]]
+[^a]: [[Ecclesiastes 2.16|Eccl. 2:16]].  

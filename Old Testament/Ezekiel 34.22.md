@@ -5,4 +5,4 @@
 [Ezekiel 34:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.22?lang=eng#p22)
 
 
-[^a]: [[2 Nephi 25.16|2 Ne. 25:16 (15-18).]]
+[^a]: [[2 Nephi 25.15|2 Ne. 25:16 (15–18)]][[2 Nephi 25.16|]][[2 Nephi 25.17|]][[2 Nephi 25.18|]].  

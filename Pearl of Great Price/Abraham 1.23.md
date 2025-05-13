@@ -5,4 +5,4 @@
 [Abraham 1:23](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.23?lang=eng#p23)
 
 
-[^a]: [[Genesis 10.6|Gen. 10:6]]; [[Psalms 105.23|Ps. 105:23.]]
+[^a]: [[Genesis 10.6|Gen. 10:6]]; [[Psalms 105.23|Ps. 105:23]].  

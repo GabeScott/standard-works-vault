@@ -5,7 +5,7 @@
 [Mormon 6:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p22#p22)
 
 
-[^a]: [[2 Samuel 1.27|2 Sam. 1:27 (17-27).]]
-[^b]: [[2 Samuel 7.20|2 Sam. 7:20]]; [[D&C 6.16|D&C 6:16.]]
-[^c]: TG [[God, Justice of]].
-[^d]: [[Psalms 36.5|Ps. 36:5 (5-6)]]; [[Alma 26.16|Alma 26:16]]; [[D&C 97.6|D&C 97:6.]]
+[^a]: [[2 Samuel 1.17|2 Sam. 1:27 (17–27)]][[2 Samuel 1.18|]][[2 Samuel 1.19|]][[2 Samuel 1.20|]][[2 Samuel 1.21|]][[2 Samuel 1.22|]][[2 Samuel 1.23|]][[2 Samuel 1.24|]][[2 Samuel 1.25|]][[2 Samuel 1.26|]][[2 Samuel 1.27|]].  
+[^b]: [[2 Samuel 7.20|2 Sam. 7:20]]; [[D&C 6.16|D&C 6:16]].  
+[^c]: [[God, Justice of|TG God, Justice of]].  
+[^d]: [[Psalms 36.5|Ps. 36:5 (5–6)]][[Psalms 36.6|]]; [[Alma 26.16|Alma 26:16]]; [[D&C 97.6|D&C 97:6]].  

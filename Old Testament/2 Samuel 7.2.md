@@ -5,4 +5,4 @@
 [2 Samuel 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.2?lang=eng#p2)
 
 
-[^a]: [[2 Samuel 11.11|2 Sam. 11:11.]]
+[^a]: [[2 Samuel 11.11|2 Sam. 11:11]].  

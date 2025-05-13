@@ -5,5 +5,5 @@
 [John 12:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.25?lang=eng#p25)
 
 
-[^a]: See JST Luke 9:24-25 (Appendix).
-[^b]: TG [[Hate]].
+[^a]: See [[JST Luke 9.24|JST Luke 9:24–25 (Appendix)]][[JST Luke 9.25|]].  
+[^b]: [[Hate|TG Hate]].  

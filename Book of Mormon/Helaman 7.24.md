@@ -5,5 +5,5 @@
 [Helaman 7:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p24#p24)
 
 
-[^a]: [[Exodus 20.12|Ex. 20:12]]; [[1 Nephi 17.55|1 Ne. 17:55]]; [[Alma 9.16|Alma 9:16]]; [[D&C 5.33|D&C 5:33.]]
-[^b]: [[Alma 9.19|Alma 9:19]]; [[Helaman 10.14|Hel. 10:14.]]
+[^a]: [[Exodus 20.12|Ex. 20:12]]; [[1 Nephi 17.55|1 Ne. 17:55]]; [[Alma 9.16|Alma 9:16]]; [[D&C 5.33|D&C 5:33]].  
+[^b]: [[Alma 9.19|Alma 9:19]]; [[Helaman 10.14|Hel. 10:14]].  

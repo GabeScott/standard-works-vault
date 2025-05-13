@@ -5,4 +5,4 @@
 [Exodus 29:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.31?lang=eng#p31)
 
 
-[^a]: OR cook its flesh. Lev. 8:31 (31-32).
+[^a]: OR cook its flesh. [[Leviticus 8.31|Lev. 8:31 (31–32)]][[Leviticus 8.32|]].  

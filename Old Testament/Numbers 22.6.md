@@ -5,4 +5,4 @@
 [Numbers 22:6](https://www.churchofjesuschrist.org/study/scriptures/ot/num/22.6?lang=eng#p6)
 
 
-[^a]: OR know.
+[^a]: OR know.  

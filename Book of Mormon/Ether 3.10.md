@@ -5,4 +5,4 @@
 [Ether 3:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p10#p10)
 
 
-[^a]: [[Exodus 33.18|Ex. 33:18 (17-18).]]
+[^a]: [[Exodus 33.17|Ex. 33:18 (17–18)]][[Exodus 33.18|]].  

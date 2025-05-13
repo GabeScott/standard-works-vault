@@ -5,5 +5,5 @@
 [2 Corinthians 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.6?lang=eng#p6)
 
 
-[^a]: GR active, operative.
-[^b]: [[D&C 63.20|D&C 63:20]]; [[D&C 101.35|101:35.]]
+[^a]: GR active, operative.  
+[^b]: [[D&C 63.20|D&C 63:20]]; [[D&C 101.35|101:35]].  

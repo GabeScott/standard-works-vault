@@ -5,4 +5,4 @@
 [Mark 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.17?lang=eng#p17)
 
 
-[^a]: TG [[Apostles]]; [[Missionary Work]].
+[^a]: [[Apostles|TG Apostles]]; [[Missionary Work|Missionary Work]].  

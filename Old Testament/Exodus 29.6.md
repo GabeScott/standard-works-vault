@@ -5,4 +5,4 @@
 [Exodus 29:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.6?lang=eng#p6)
 
 
-[^a]: HEB turban.
+[^a]: HEB turban.  

@@ -5,5 +5,5 @@
 [Jeremiah 44:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.30?lang=eng#p30)
 
 
-[^a]: [[Jeremiah 46.25|Jer. 46:25]]; [[Ezekiel 17.17|Ezek. 17:17.]]
-[^b]: [[Jeremiah 39.5|Jer. 39:5]]; [[1 Nephi 1.4|1 Ne. 1:4.]]
+[^a]: [[Jeremiah 46.25|Jer. 46:25]]; [[Ezekiel 17.17|Ezek. 17:17]].  
+[^b]: [[Jeremiah 39.5|Jer. 39:5]]; [[1 Nephi 1.4|1 Ne. 1:4]].  

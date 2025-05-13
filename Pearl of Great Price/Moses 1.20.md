@@ -5,8 +5,8 @@
 [Moses 1:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.20?lang=eng#p20)
 
 
-[^a]: TG [[Fearful]].
-[^b]: [[D&C 76.47|D&C 76:47 (44-47)]]. TG [[Hell]].
-[^c]: JS—H 1:16 (15-16). TG [[Prayer, Pray]].
-[^d]: TG [[God, Power of]]; [[Strength]].
-[^e]: TG [[Telestial Glory]].
+[^a]: [[Fearful|TG Fearful]].  
+[^b]: [[D&C 76.44|D&C 76:47 (44–47)]][[D&C 76.45|]][[D&C 76.46|]][[D&C 76.47|]]. [[Hell|TG Hell]].  
+[^c]: [[Joseph Smith History 1.15|JS—H 1:16 (15–16)]][[Joseph Smith History 1.16|]]. [[Prayer, Pray|TG Prayer]].  
+[^d]: [[God, Power of|TG God, Power of]]; [[Strength|Strength]].  
+[^e]: [[Glory|TG Glory]].  

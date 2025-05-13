@@ -5,4 +5,4 @@
 [Joshua 9:24](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.24?lang=eng#p24)
 
 
-[^a]: [[Deuteronomy 7.2|Deut. 7:2 (1-4).]]
+[^a]: [[Deuteronomy 7.1|Deut. 7:2 (1–4)]][[Deuteronomy 7.2|]][[Deuteronomy 7.3|]][[Deuteronomy 7.4|]].  

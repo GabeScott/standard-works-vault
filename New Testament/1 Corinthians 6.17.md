@@ -5,4 +5,4 @@
 [1 Corinthians 6:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/6.17?lang=eng#p17)
 
 
-[^a]: [[3 Nephi 19.23|3 Ne. 19:23 (23, 29).]]
+[^a]: [[3 Nephi 19.23|3 Ne. 19:23 (23, 29)]][[3 Nephi 19.29|]].  

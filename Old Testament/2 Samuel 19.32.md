@@ -5,4 +5,4 @@
 [2 Samuel 19:32](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.32?lang=eng#p32)
 
 
-[^a]: [[2 Samuel 17.27|2 Sam. 17:27.]]
+[^a]: [[2 Samuel 17.27|2 Sam. 17:27]].  

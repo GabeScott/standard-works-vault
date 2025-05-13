@@ -5,4 +5,4 @@
 [Numbers 21:34](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.34?lang=eng#p34)
 
 
-[^a]: [[Joshua 2.10|Josh. 2:10.]]
+[^a]: [[Joshua 2.10|Josh. 2:10]].  

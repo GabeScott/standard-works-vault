@@ -5,4 +5,4 @@
 [Ezekiel 11:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.22?lang=eng#p22)
 
 
-[^a]: [[Ezekiel 1.28|Ezek. 1:28.]]
+[^a]: [[Ezekiel 1.28|Ezek. 1:28]].  

@@ -5,4 +5,4 @@
 [Jeremiah 29:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.11?lang=eng#p11)
 
 
-[^a]: [[Jeremiah 31.17|Jer. 31:17.]]
+[^a]: [[Jeremiah 31.17|Jer. 31:17]].  

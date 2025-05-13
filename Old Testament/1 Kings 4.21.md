@@ -5,5 +5,5 @@
 [1 Kings 4:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.21?lang=eng#p21)
 
 
-[^a]: [[2 Chronicles 9.26|2 Chr. 9:26.]]
-[^b]: IE the Euphrates. Gen. 15:18.
+[^a]: [[2 Chronicles 9.26|2 Chr. 9:26]].  
+[^b]: IE the Euphrates. [[Genesis 15.18|Gen. 15:18]].  

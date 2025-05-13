@@ -5,6 +5,6 @@
 [John 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.19?lang=eng#p19)
 
 
-[^a]: TG [[Light]]; [[Light of Christ]].
-[^b]: TG [[Darkness, Spiritual]]; [[Secret Combinations]].
-[^c]: [[D&C 10.21|D&C 10:21]]; [[D&C 29.45|29:45.]]
+[^a]: [[Light [noun]|TG Light [noun]]]; [[Light of Christ|Light of Christ]].  
+[^b]: [[Darkness, Spiritual|TG Darkness, Spiritual]]; [[Secret Combinations|Secret Combinations]].  
+[^c]: [[D&C 10.21|D&C 10:21]]; [[D&C 29.45|29:45]].  

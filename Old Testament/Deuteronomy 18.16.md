@@ -5,4 +5,4 @@
 [Deuteronomy 18:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 20.19|Ex. 20:19]]; [[Deuteronomy 5.25|Deut. 5:25]]. TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[Exodus 20.19|Ex. 20:19]]; [[Deuteronomy 5.25|Deut. 5:25]]. [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

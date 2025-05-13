@@ -5,4 +5,4 @@
 [Psalms 78:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.27?lang=eng#p27)
 
 
-[^a]: [[Exodus 16.13|Ex. 16:13.]]
+[^a]: [[Exodus 16.13|Ex. 16:13]].  

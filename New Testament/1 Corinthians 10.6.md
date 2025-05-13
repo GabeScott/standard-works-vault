@@ -5,5 +5,5 @@
 [1 Corinthians 10:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.6?lang=eng#p6)
 
 
-[^a]: GR types.
-[^b]: GR desire, long for. TG [[Lust]].
+[^a]: GR types.  
+[^b]: GR desire, long for. [[Lust|TG Lust]].  

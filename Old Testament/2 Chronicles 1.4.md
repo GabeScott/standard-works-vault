@@ -5,4 +5,4 @@
 [2 Chronicles 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/1.4?lang=eng#p4)
 
 
-[^a]: [[1 Kings 3.15|1 Kgs. 3:15.]]
+[^a]: [[1 Kings 3.15|1 Kgs. 3:15]].  

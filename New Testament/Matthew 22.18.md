@@ -5,4 +5,4 @@
 [Matthew 22:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.18?lang=eng#p18)
 
 
-[^a]: GR are you testing. TG [[Testament]].
+[^a]: GR are you testing. [[Test, Try, Prove|TG Test]].  

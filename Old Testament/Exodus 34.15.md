@@ -5,8 +5,8 @@
 [Exodus 34:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.15?lang=eng#p15)
 
 
-[^a]: TG [[Separation, Separate]].
-[^b]: [[Deuteronomy 31.16|Deut. 31:16.]]
-[^c]: [[Judges 2.17|Judg. 2:17.]]
-[^e]: [[Numbers 25.2|Num. 25:2 (1-2).]]
-[^f]: [[Psalms 106.28|Ps. 106:28]]; [[1 Corinthians 10.27|1 Cor. 10:27.]]
+[^a]: [[Separation, Separate|TG Separation]].  
+[^b]: [[Deuteronomy 31.16|Deut. 31:16]].  
+[^c]: [[Judges 2.17|Judg. 2:17]].  
+[^e]: [[Numbers 25.1|Num. 25:2 (1–2)]][[Numbers 25.2|]].  
+[^f]: [[Psalms 106.28|Ps. 106:28]]; [[1 Corinthians 10.27|1 Cor. 10:27]].  

@@ -5,4 +5,4 @@
 [Nehemiah 12:36](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/12.36?lang=eng#p36)
 
 
-[^a]: [[1 Chronicles 23.5|1 Chr. 23:5.]]
+[^a]: [[1 Chronicles 23.5|1 Chr. 23:5]].  

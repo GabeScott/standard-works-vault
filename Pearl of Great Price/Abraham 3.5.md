@@ -5,4 +5,4 @@
 [Abraham 3:5](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.5?lang=eng#p5)
 
 
-[^a]: IE It rotates on its axis more slowly. See also v. 7.
+[^a]: IE It rotates on its axis more slowly. See also [[Abraham 3.7|v. 7]].  

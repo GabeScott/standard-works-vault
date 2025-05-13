@@ -5,4 +5,4 @@
 [2 Nephi 30:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/30?lang=eng&id=p1#p1)
 
 
-[^a]: [[Luke 13.3|Luke 13:3 (1-5).]]
+[^a]: [[Luke 13.1|Luke 13:3 (1–5)]][[Luke 13.2|]][[Luke 13.3|]][[Luke 13.4|]][[Luke 13.5|]].  

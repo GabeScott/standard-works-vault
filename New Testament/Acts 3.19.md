@@ -5,7 +5,7 @@
 [Acts 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.19?lang=eng#p19)
 
 
-[^a]: TG [[Repent, Repentance]].
-[^b]: TG [[Conversion, Convert]].
-[^c]: [[Psalms 51.1|Ps. 51:1]]; [[Mosiah 26.30|Mosiah 26:30]]; [[Alma 5.14|Alma 5:14 (11-15, 21).]]
-[^d]: TG [[God, Presence of]].
+[^a]: [[Repent, Repentance|TG Repent]].  
+[^b]: [[Conversion, Convert|TG Conversion]].  
+[^c]: [[Psalms 51.1|Ps. 51:1]]; [[Mosiah 26.30|Mosiah 26:30]]; [[Alma 5.11|Alma 5:14 (11–15, 21)]][[Alma 5.12|]][[Alma 5.13|]][[Alma 5.14|]][[Alma 5.15|]][[Alma 5.21|]].  
+[^d]: [[God, Presence of|TG God, Presence of]].  

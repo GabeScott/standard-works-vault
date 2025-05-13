@@ -5,5 +5,5 @@
 [Galatians 4:29](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.29?lang=eng#p29)
 
 
-[^a]: TG [[Man, Natural, Not Spiritually Reborn]].
-[^b]: [[Genesis 21.9|Gen. 21:9.]]
+[^a]: [[Man, Natural, Not Spiritually Reborn|TG Man, Natural, Not Spiritually Reborn]].  
+[^b]: [[Genesis 21.9|Gen. 21:9]].  

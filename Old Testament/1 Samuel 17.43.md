@@ -5,4 +5,4 @@
 [1 Samuel 17:43](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.43?lang=eng#p43)
 
 
-[^a]: [[2 Samuel 3.8|2 Sam. 3:8.]]
+[^a]: [[2 Samuel 3.8|2 Sam. 3:8]].  

@@ -5,4 +5,4 @@
 [Genesis 4:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.14?lang=eng#p14)
 
 
-[^a]: [[Moses 5.39|Moses 5:39 (38-41).]]
+[^a]: [[Moses 5.38|Moses 5:39 (38–41)]][[Moses 5.39|]][[Moses 5.40|]][[Moses 5.41|]].  

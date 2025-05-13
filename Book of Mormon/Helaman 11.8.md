@@ -5,5 +5,5 @@
 [Helaman 11:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p8#p8)
 
 
-[^a]: [[Exodus 10.7|Ex. 10:7.]]
-[^b]: [[Helaman 10.11|Hel. 10:11 (11-14).]]
+[^a]: [[Exodus 10.7|Ex. 10:7]].  
+[^b]: [[Helaman 10.11|Hel. 10:11 (11–14)]][[Helaman 10.12|]][[Helaman 10.13|]][[Helaman 10.14|]].  

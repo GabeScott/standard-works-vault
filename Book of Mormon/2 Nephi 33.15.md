@@ -5,5 +5,5 @@
 [2 Nephi 33:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p15#p15)
 
 
-[^a]: [[2 Nephi 25.22|2 Ne. 25:22]]; [[3 Nephi 27.25|3 Ne. 27:25 (23-27)]]; [[Ether 4.10|Ether 4:10 (8-10).]]
-[^b]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[2 Nephi 25.22|2 Ne. 25:22]]; [[3 Nephi 27.23|3 Ne. 27:25 (23–27)]][[3 Nephi 27.24|]][[3 Nephi 27.25|]][[3 Nephi 27.26|]][[3 Nephi 27.27|]]; [[Ether 4.8|Ether 4:10 (8–10)]][[Ether 4.9|]][[Ether 4.10|]].  
+[^b]: [[Obedience, Obedient, Obey|TG Obedience]].  

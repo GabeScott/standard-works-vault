@@ -5,4 +5,4 @@
 [Helaman 13:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p28#p28)
 
 
-[^a]: 2 Tim. 4:3 (3-4).
+[^a]: [[2 Timothy 4.3|2 Tim. 4:3 (3–4)]][[2 Timothy 4.4|]].  

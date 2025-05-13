@@ -5,4 +5,4 @@
 [Isaiah 10:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.18?lang=eng#p18)
 
 
-[^a]: IE Assyria will vanish completely.
+[^a]: IE Assyria will vanish completely.  

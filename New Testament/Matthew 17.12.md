@@ -5,4 +5,4 @@
 [Matthew 17:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.12?lang=eng#p12)
 
 
-[^a]: GR desired.
+[^a]: GR desired.  

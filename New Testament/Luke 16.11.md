@@ -5,4 +5,4 @@
 [Luke 16:11](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.11?lang=eng#p11)
 
 
-[^a]: TG [[Trustworthiness]].
+[^a]: [[Trustworthiness|TG Trustworthiness]].  

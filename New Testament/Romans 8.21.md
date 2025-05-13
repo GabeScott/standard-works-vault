@@ -5,7 +5,7 @@
 [Romans 8:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.21?lang=eng#p21)
 
 
-[^a]: GR creation, material universe.
-[^b]: TG [[Deliver, Deliverance]].
-[^c]: [[1 Corinthians 15.42|1 Cor. 15:42.]]
-[^d]: TG [[Liberty]].
+[^a]: GR creation, material universe.  
+[^b]: [[Deliver, Deliverance|TG Deliver]].  
+[^c]: [[1 Corinthians 15.42|1 Cor. 15:42]].  
+[^d]: [[Liberty|TG Liberty]].  

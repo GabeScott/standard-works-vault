@@ -5,4 +5,4 @@
 [Exodus 4:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.26?lang=eng#p26)
 
 
-[^a]: TG [[Circumcision]].
+[^a]: [[Circumcision|TG Circumcision]].  

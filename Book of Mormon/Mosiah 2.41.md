@@ -5,7 +5,7 @@
 [Mosiah 2:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p41#p41)
 
 
-[^a]: [[Matthew 11.29|Matt. 11:29 (28-30)]]; [[Alma 50.23|Alma 50:23]]; 4 Ne. 1:16 (15-18). TG [[Happiness, Happy]]; [[Joy]].
-[^b]: [[Genesis 39.3|Gen. 39:3 (1-6)]]; [[Psalms 37.25|Ps. 37:25]]; [[Matthew 6.33|Matt. 6:33]]; [[1 Nephi 17.3|1 Ne. 17:3 (1-5, 12-14).]]
-[^c]: [[Psalms 31.23|Ps. 31:23]]; [[Ether 4.19|Ether 4:19]]; [[D&C 6.13|D&C 6:13]]; [[D&C 63.47|63:47.]]
-[^d]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Matthew 11.28|Matt. 11:29 (28–30)]][[Matthew 11.29|]][[Matthew 11.30|]]; [[Alma 50.23|Alma 50:23]]; [[4 Nephi 1.15|4 Ne. 1:16 (15–18)]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]]. [[Happiness, Happy|TG Happiness]]; [[Joy|Joy]].  
+[^b]: [[Genesis 39.1|Gen. 39:3 (1–6)]][[Genesis 39.2|]][[Genesis 39.3|]][[Genesis 39.4|]][[Genesis 39.5|]][[Genesis 39.6|]]; [[Psalms 37.25|Ps. 37:25]]; [[Matthew 6.33|Matt. 6:33]]; [[1 Nephi 17.1|1 Ne. 17:3 (1–5, 12–14)]][[1 Nephi 17.2|]][[1 Nephi 17.3|]][[1 Nephi 17.4|]][[1 Nephi 17.5|]][[1 Nephi 17.12|]][[1 Nephi 17.13|]][[1 Nephi 17.14|]].  
+[^c]: [[Psalms 31.23|Ps. 31:23]]; [[Ether 4.19|Ether 4:19]]; [[D&C 6.13|D&C 6:13]]; [[D&C 63.47|63:47]].  
+[^d]: [[Heaven|TG Heaven]].  

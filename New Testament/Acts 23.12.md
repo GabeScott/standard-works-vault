@@ -5,5 +5,5 @@
 [Acts 23:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.12?lang=eng#p12)
 
 
-[^a]: TG [[Curse]].
-[^b]: [[Acts 25.3|Acts 25:3 (2-3)]]; [[Alma 49.27|Alma 49:27 (26-27)]]; [[Alma 51.9|51:9.]]
+[^a]: [[Curse|TG Curse]].  
+[^b]: [[Acts 25.2|Acts 25:3 (2–3)]][[Acts 25.3|]]; [[Alma 49.26|Alma 49:27 (26–27)]][[Alma 49.27|]]; [[Alma 51.9|51:9]].  

@@ -5,8 +5,8 @@
 [Alma 34:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Mercy, Merciful]].
-[^b]: TG [[God, Justice of]].
-[^c]: [[Mosiah 15.27|Mosiah 15:27]]; [[Alma 12.32|Alma 12:32.]]
-[^d]: TG [[Salvation, Plan of]].
-[^e]: TG [[Redemption]].
+[^a]: [[Mercy, Merciful|TG Mercy]].  
+[^b]: [[God, Justice of|TG God, Justice of]].  
+[^c]: [[Mosiah 15.27|Mosiah 15:27]]; [[Alma 12.32|Alma 12:32]].  
+[^d]: [[Salvation, Plan of|TG Salvation, Plan of]].  
+[^e]: [[Redemption|TG Redemption]].  

@@ -5,5 +5,5 @@
 [Psalms 50:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.14?lang=eng#p14)
 
 
-[^a]: TG [[Thanksgiving]].
-[^b]: TG [[Vow]].
+[^a]: [[Thanksgiving|TG Thanksgiving]].  
+[^b]: [[Vow|TG Vow]].  

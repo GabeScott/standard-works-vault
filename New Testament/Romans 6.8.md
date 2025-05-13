@@ -5,4 +5,4 @@
 [Romans 6:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.8?lang=eng#p8)
 
 
-[^a]: TG [[Jesus Christ, Death of]].
+[^a]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

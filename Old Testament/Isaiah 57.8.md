@@ -5,4 +5,4 @@
 [Isaiah 57:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.8?lang=eng#p8)
 
 
-[^a]: HEB exposed.
+[^a]: HEB exposed.  

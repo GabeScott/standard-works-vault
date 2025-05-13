@@ -5,4 +5,4 @@
 [Habakkuk 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.16?lang=eng#p16)
 
 
-[^a]: OR more with shame than with glory. TG [[Shame]].
+[^a]: OR more with shame than with glory. [[Shame|TG Shame]].  

@@ -5,5 +5,5 @@
 [1 Samuel 13:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/13.20?lang=eng#p20)
 
 
-[^a]: OR plowshare.
-[^b]: IE a cutter on a plow to cut the turf.
+[^a]: OR plowshare.  
+[^b]: IE a cutter on a plow to cut the turf.  

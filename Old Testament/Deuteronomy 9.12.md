@@ -5,4 +5,4 @@
 [Deuteronomy 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 32.7|Ex. 32:7 (7-10).]]
+[^a]: [[Exodus 32.7|Ex. 32:7 (7–10)]][[Exodus 32.8|]][[Exodus 32.9|]][[Exodus 32.10|]].  

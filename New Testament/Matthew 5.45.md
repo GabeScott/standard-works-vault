@@ -5,6 +5,6 @@
 [Matthew 5:45](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.45?lang=eng#p45)
 
 
-[^a]: GR may become; see Mosiah 5:7.
-[^b]: TG [[Sons and Daughters of God]].
-[^c]: [[Job 2.10|Job 2:10]]; [[2 Nephi 2.11|2 Ne. 2:11]]; [[Alma 60.13|Alma 60:13]]; [[D&C 5.22|D&C 5:22]]; [[D&C 29.39|29:39]]; [[D&C 122.7|122:7 (5-9).]]
+[^a]: GR may become; see [[Mosiah 5.7|Mosiah 5:7]].  
+[^b]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  
+[^c]: [[Job 2.10|Job 2:10]]; [[2 Nephi 2.11|2 Ne. 2:11]]; [[Alma 60.13|Alma 60:13]]; [[D&C 5.22|D&C 5:22]]; [[D&C 29.39|29:39]]; [[D&C 122.5|122:7 (5–9)]][[D&C 122.6|]][[D&C 122.7|]][[D&C 122.8|]][[D&C 122.9|]].  

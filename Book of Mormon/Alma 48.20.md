@@ -5,6 +5,6 @@
 [Alma 48:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p20#p20)
 
 
-[^a]: TG [[Humility, Humble]].
-[^b]: [[1 Nephi 15.20|1 Ne. 15:20]]; [[Helaman 6.5|Hel. 6:5.]]
-[^c]: [[1 Nephi 17.35|1 Ne. 17:35.]]
+[^a]: [[Humility, Humble|TG Humility]].  
+[^b]: [[1 Nephi 15.20|1 Ne. 15:20]]; [[Helaman 6.5|Hel. 6:5]].  
+[^c]: [[1 Nephi 17.35|1 Ne. 17:35]].  

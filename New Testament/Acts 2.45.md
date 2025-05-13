@@ -5,4 +5,4 @@
 [Acts 2:45](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.45?lang=eng#p45)
 
 
-[^a]: [[Acts 4.35|Acts 4:35 (32-35)]]; [[D&C 51.3|D&C 51:3.]]
+[^a]: [[Acts 4.32|Acts 4:35 (32–35)]][[Acts 4.33|]][[Acts 4.34|]][[Acts 4.35|]]; [[D&C 51.3|D&C 51:3]].  

@@ -5,4 +5,4 @@
 [Psalms 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/5.8?lang=eng#p8)
 
 
-[^a]: TG [[Enemies, Enemy]].
+[^a]: [[Enemies, Enemy|TG Enemies]].  

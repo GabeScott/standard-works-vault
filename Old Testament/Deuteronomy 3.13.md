@@ -5,4 +5,4 @@
 [Deuteronomy 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 48.5|Gen. 48:5.]]
+[^a]: [[Genesis 48.5|Gen. 48:5]].  

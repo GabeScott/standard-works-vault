@@ -5,4 +5,4 @@
 [Alma 7:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p19#p19)
 
 
-[^a]: [[Matthew 3.3|Matt. 3:3.]]
+[^a]: [[Matthew 3.3|Matt. 3:3]].  

@@ -5,10 +5,10 @@
 [D&C 8:1](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/8.1?lang=eng#p1)
 
 
-[^a]: JS—H 1:66.
-[^b]: Dan. 5:16; [[Mosiah 8.13|Mosiah 8:13 (13-18)]]; [[D&C 6.25|D&C 6:25]]; [[D&C 9.5|9:5 (1-5)]]. TG [[Testimony]].
-[^c]: [[Isaiah 58.9|Isa. 58:9 (8-9).]]
-[^d]: TG [[Prayer, Pray]]; [[Sincere, Sincerity]].
-[^e]: TG [[Knowledge]].
-[^f]: [[D&C 6.26|D&C 6:26]]; [[D&C 9.2|9:2.]]
-[^g]: [[D&C 5.16|D&C 5:16.]]
+[^a]: [[Joseph Smith History 1.66|JS—H 1:66]].  
+[^b]: [[Daniel 5.16|Dan. 5:16]]; [[Mosiah 8.13|Mosiah 8:13 (13–18)]][[Mosiah 8.14|]][[Mosiah 8.15|]][[Mosiah 8.16|]][[Mosiah 8.17|]][[Mosiah 8.18|]]; [[D&C 6.25|D&C 6:25]]; [[D&C 9.1|9:5 (1–5)]][[D&C 9.2|]][[D&C 9.3|]][[D&C 9.4|]][[D&C 9.5|]]. [[Testimony|TG Testimony]].  
+[^c]: [[Isaiah 58.8|Isa. 58:9 (8–9)]][[Isaiah 58.9|]].  
+[^d]: [[Prayer, Pray|TG Prayer]]; [[Sincere, Sincerity|Sincere]].  
+[^e]: [[Knowledge|TG Knowledge]].  
+[^f]: [[D&C 6.26|D&C 6:26]]; [[D&C 9.2|9:2]].  
+[^g]: [[D&C 5.16|D&C 5:16]].  

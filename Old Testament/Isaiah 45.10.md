@@ -5,4 +5,4 @@
 [Isaiah 45:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.10?lang=eng#p10)
 
 
-[^a]: IE his mother.
+[^a]: IE his mother.  

@@ -5,4 +5,4 @@
 [2 Chronicles 34:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/34.21?lang=eng#p21)
 
 
-[^a]: [[Deuteronomy 6.6|Deut. 6:6 (6-8)]]; [[1 Nephi 15.24|1 Ne. 15:24 (23-24)]]; [[Mosiah 1.5|Mosiah 1:5.]]
+[^a]: [[Deuteronomy 6.6|Deut. 6:6 (6–8)]][[Deuteronomy 6.7|]][[Deuteronomy 6.8|]]; [[1 Nephi 15.23|1 Ne. 15:24 (23–24)]][[1 Nephi 15.24|]]; [[Mosiah 1.5|Mosiah 1:5]].  

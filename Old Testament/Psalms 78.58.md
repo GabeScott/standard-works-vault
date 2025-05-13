@@ -5,4 +5,4 @@
 [Psalms 78:58](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.58?lang=eng#p58)
 
 
-[^a]: [[Deuteronomy 32.16|Deut. 32:16.]]
+[^a]: [[Deuteronomy 32.16|Deut. 32:16]].  

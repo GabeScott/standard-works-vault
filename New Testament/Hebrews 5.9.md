@@ -5,6 +5,6 @@
 [Hebrews 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.9?lang=eng#p9)
 
 
-[^a]: TG [[God, Perfection of]]; [[Perfection, Perfect, Perfectly]].
-[^b]: TG [[Jesus Christ, Authority of]].
-[^c]: TG [[Gospel]]; [[Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of]]; [[Salvation for the Dead]]; [[Salvation for the Dead]], Plan of.
+[^a]: [[God, Perfection of|TG God, Perfection of]]; [[Perfection, Perfect, Perfectly|Perfection]].  
+[^b]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^c]: [[Gospel|TG Gospel]]; [[Jesus Christ, Atonement through|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of|Jesus Christ, Mission of]]; [[Salvation|Salvation]]; [[Salvation, Plan of|Salvation, Plan of]].  

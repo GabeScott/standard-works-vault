@@ -5,5 +5,5 @@
 [Colossians 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.19?lang=eng#p19)
 
 
-[^a]: TG [[Marriage, Husbands]].
-[^b]: TG [[Marriage, Continuing Courtship in]].
+[^a]: [[Marriage, Husbands|TG Marriage, Husbands]].  
+[^b]: [[Marriage, Continuing Courtship in|TG Marriage, Continuing Courtship in]].  

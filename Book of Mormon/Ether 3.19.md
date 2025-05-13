@@ -5,7 +5,7 @@
 [Ether 3:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Knowledge]].
-[^b]: TG [[Veil]].
-[^c]: [[Alma 32.34|Alma 32:34.]]
-[^d]: TG [[Doubt, Doubtful]].
+[^a]: [[Knowledge|TG Knowledge]].  
+[^b]: [[Veil|TG Veil]].  
+[^c]: [[Alma 32.34|Alma 32:34]].  
+[^d]: [[Doubt, Doubtful|TG Doubt]].  

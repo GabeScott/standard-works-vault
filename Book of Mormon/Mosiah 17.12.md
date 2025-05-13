@@ -5,5 +5,5 @@
 [Mosiah 17:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/17?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 11.5|Mosiah 11:5]]; [[Mosiah 12.25|12:25 (17, 25).]]
-[^b]: [[Proverbs 20.2|Prov. 20:2.]]
+[^a]: [[Mosiah 11.5|Mosiah 11:5]]; [[Mosiah 12.17|12:25 (17, 25)]][[Mosiah 12.25|]].  
+[^b]: [[Proverbs 20.2|Prov. 20:2]].  

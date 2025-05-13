@@ -5,4 +5,4 @@
 [Helaman 11:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p13#p13)
 
 
-[^a]: [[1 Kings 18.41|1 Kgs. 18:41 (1, 41-46).]]
+[^a]: [[1 Kings 18.1|1 Kgs. 18:41 (1, 41–46)]][[1 Kings 18.41|]][[1 Kings 18.42|]][[1 Kings 18.43|]][[1 Kings 18.44|]][[1 Kings 18.45|]][[1 Kings 18.46|]].  

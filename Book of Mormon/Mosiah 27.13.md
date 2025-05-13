@@ -5,5 +5,5 @@
 [Mosiah 27:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p13#p13)
 
 
-[^a]: [[Mosiah 26.22|Mosiah 26:22]]. TG [[Jesus Christ, Head of the Church]].
-[^b]: [[Hosea 13.9|Hosea 13:9]]. TG [[Apostasy of Individuals]].
+[^a]: [[Mosiah 26.22|Mosiah 26:22]]. [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]].  
+[^b]: [[Hosea 13.9|Hosea 13:9]]. [[Apostasy of Individuals|TG Apostasy of Individuals]].  

@@ -5,4 +5,4 @@
 [Ether 9:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p22#p22)
 
 
-[^a]: [[3 Nephi 25.2|3 Ne. 25:2.]]
+[^a]: [[3 Nephi 25.2|3 Ne. 25:2]].  

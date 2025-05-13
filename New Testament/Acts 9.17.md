@@ -5,7 +5,7 @@
 [Acts 9:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.17?lang=eng#p17)
 
 
-[^a]: TG [[Administrations to the Sick]]; [[Hands, Laying on of]].
-[^b]: [[1 Corinthians 9.1|1 Cor. 9:1.]]
-[^c]: TG [[Called of God]]; [[Delegation of Responsibility]].
-[^d]: TG [[Holy Ghost, Gift of]].
+[^a]: [[Administrations to the Sick|TG Administrations to the Sick]]; [[Hands, Laying on of|Hands, Laying on of]].  
+[^b]: [[1 Corinthians 9.1|1 Cor. 9:1]].  
+[^c]: [[Called of God|TG Called of God]]; [[Delegation of Responsibility|Delegation of Responsibility]].  
+[^d]: [[Holy Ghost, Gift of|TG Holy Ghost, Gift of]].  

@@ -5,5 +5,5 @@
 [Exodus 26:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/26.6?lang=eng#p6)
 
 
-[^a]: OR clasps (also v. 11).
-[^b]: OR the tabernacle shall be unified.
+[^a]: OR clasps (also [[Exodus 26.11|v. 11]]).  
+[^b]: OR the tabernacle shall be unified.  

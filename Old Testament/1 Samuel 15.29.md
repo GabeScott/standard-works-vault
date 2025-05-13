@@ -5,4 +5,4 @@
 [1 Samuel 15:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.29?lang=eng#p29)
 
 
-[^a]: IE the Lord.
+[^a]: IE the Lord.  

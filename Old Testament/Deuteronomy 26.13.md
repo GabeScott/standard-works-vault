@@ -5,5 +5,5 @@
 [Deuteronomy 26:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.13?lang=eng#p13)
 
 
-[^a]: HEB consecrated.
-[^b]: [[James 1.27|James 1:27.]]
+[^a]: HEB consecrated.  
+[^b]: [[James 1.27|James 1:27]].  

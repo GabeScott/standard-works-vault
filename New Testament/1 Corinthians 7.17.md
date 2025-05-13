@@ -5,5 +5,5 @@
 [1 Corinthians 7:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.17?lang=eng#p17)
 
 
-[^a]: [[Romans 12.3|Rom. 12:3.]]
-[^b]: GR order, prescribe.
+[^a]: [[Romans 12.3|Rom. 12:3]].  
+[^b]: GR order, prescribe.  

@@ -5,4 +5,4 @@
 [Leviticus 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.4?lang=eng#p4)
 
 
-[^a]: IE scarlet dyed cloth.
+[^a]: IE scarlet dyed cloth.  

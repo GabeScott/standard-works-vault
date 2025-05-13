@@ -5,6 +5,6 @@
 [Deuteronomy 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.1?lang=eng#p1)
 
 
-[^a]: [[D&C 98.37|D&C 98:37]]; [[D&C 105.14|105:14.]]
-[^b]: [[Joshua 17.18|Josh. 17:18.]]
-[^c]: TG [[Courage, Courageous]].
+[^a]: [[D&C 98.37|D&C 98:37]]; [[D&C 105.14|105:14]].  
+[^b]: [[Joshua 17.18|Josh. 17:18]].  
+[^c]: [[Courage, Courageous|TG Courage]].  

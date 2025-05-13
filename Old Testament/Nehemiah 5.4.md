@@ -5,4 +5,4 @@
 [Nehemiah 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/5.4?lang=eng#p4)
 
 
-[^a]: TG [[Borrow, Borrowing]]; [[Debt]].
+[^a]: [[Borrow, Borrowing|TG Borrow]]; [[Debt|Debt]].  

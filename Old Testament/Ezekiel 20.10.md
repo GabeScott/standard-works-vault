@@ -5,4 +5,4 @@
 [Ezekiel 20:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 13.18|Ex. 13:18 (18, 20).]]
+[^a]: [[Exodus 13.18|Ex. 13:18 (18, 20)]][[Exodus 13.20|]].  

@@ -5,5 +5,5 @@
 [1 Corinthians 16:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.1?lang=eng#p1)
 
 
-[^a]: [[Acts 24.17|Acts 24:17 (17, 26).]]
-[^b]: GR directed, arranged.
+[^a]: [[Acts 24.17|Acts 24:17 (17, 26)]][[Acts 24.26|]].  
+[^b]: GR directed, arranged.  

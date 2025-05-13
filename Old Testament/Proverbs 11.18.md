@@ -5,6 +5,6 @@
 [Proverbs 11:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.18?lang=eng#p18)
 
 
-[^a]: TG [[Deceit, Deceive]].
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: TG [[Reward]]; [[Wages]].
+[^a]: [[Deceit, Deceive|TG Deceit]].  
+[^b]: [[Righteousness|TG Righteousness]].  
+[^c]: [[Reward|TG Reward]]; [[Wages|Wages]].  

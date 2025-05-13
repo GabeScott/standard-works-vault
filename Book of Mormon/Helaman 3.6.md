@@ -5,5 +5,5 @@
 [Helaman 3:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p6#p6)
 
 
-[^a]: [[Mosiah 8.8|Mosiah 8:8]]; [[Mosiah 21.26|21:26 (26-27).]]
-[^b]: [[Alma 22.31|Alma 22:31.]]
+[^a]: [[Mosiah 8.8|Mosiah 8:8]]; [[Mosiah 21.26|21:26 (26–27)]][[Mosiah 21.27|]].  
+[^b]: [[Alma 22.31|Alma 22:31]].  

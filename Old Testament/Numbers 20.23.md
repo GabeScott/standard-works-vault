@@ -5,4 +5,4 @@
 [Numbers 20:23](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.23?lang=eng#p23)
 
 
-[^a]: HEB border.
+[^a]: HEB border.  

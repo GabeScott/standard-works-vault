@@ -5,4 +5,4 @@
 [Malachi 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.5?lang=eng#p5)
 
 
-[^a]: [[Numbers 25.12|Num. 25:12 (11-13)]]; [[Isaiah 54.10|Isa. 54:10.]]
+[^a]: [[Numbers 25.11|Num. 25:12 (11–13)]][[Numbers 25.12|]][[Numbers 25.13|]]; [[Isaiah 54.10|Isa. 54:10]].  

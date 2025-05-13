@@ -5,4 +5,4 @@
 [Ezekiel 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/9.4?lang=eng#p4)
 
 
-[^a]: [[D&C 77.9|D&C 77:9.]]
+[^a]: [[D&C 77.9|D&C 77:9]].  

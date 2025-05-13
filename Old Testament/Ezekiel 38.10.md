@@ -5,4 +5,4 @@
 [Ezekiel 38:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.10?lang=eng#p10)
 
 
-[^a]: TG [[Mind, Minded]].
+[^a]: [[Mind, Minded|TG Mind]].  

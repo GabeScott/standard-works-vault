@@ -5,4 +5,4 @@
 [Judges 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.12?lang=eng#p12)
 
 
-[^a]: TG [[Vineyard of the Lord]].
+[^a]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  

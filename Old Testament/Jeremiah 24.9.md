@@ -5,5 +5,5 @@
 [Jeremiah 24:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/24.9?lang=eng#p9)
 
 
-[^a]: [[Deuteronomy 28.37|Deut. 28:37]]; [[Ezekiel 5.15|Ezek. 5:15 (14-15)]]; [[Joel 2.17|Joel 2:17 (17-19)]]; [[Micah 6.16|Micah 6:16]]; [[1 Nephi 19.14|1 Ne. 19:14 (13-16).]]
-[^b]: [[Jeremiah 26.6|Jer. 26:6.]]
+[^a]: [[Deuteronomy 28.37|Deut. 28:37]]; [[Ezekiel 5.14|Ezek. 5:15 (14–15)]][[Ezekiel 5.15|]]; [[Joel 2.17|Joel 2:17 (17–19)]][[Joel 2.18|]][[Joel 2.19|]]; [[Micah 6.16|Micah 6:16]]; [[1 Nephi 19.13|1 Ne. 19:14 (13–16)]][[1 Nephi 19.14|]][[1 Nephi 19.15|]][[1 Nephi 19.16|]].  
+[^b]: [[Jeremiah 26.6|Jer. 26:6]].  

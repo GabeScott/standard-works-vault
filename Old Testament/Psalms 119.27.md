@@ -5,4 +5,4 @@
 [Psalms 119:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.27?lang=eng#p27)
 
 
-[^a]: [[D&C 50.12|D&C 50:12.]]
+[^a]: [[D&C 50.12|D&C 50:12]].  

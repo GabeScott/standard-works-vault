@@ -5,5 +5,5 @@
 [Proverbs 1:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.25?lang=eng#p25)
 
 
-[^a]: [[Helaman 4.21|Hel. 4:21.]]
-[^b]: TG [[Counsel]].
+[^a]: [[Helaman 4.21|Hel. 4:21]].  
+[^b]: [[Counsel|TG Counsel]].  

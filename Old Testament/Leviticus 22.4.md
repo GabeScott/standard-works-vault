@@ -5,4 +5,4 @@
 [Leviticus 22:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.4?lang=eng#p4)
 
 
-[^a]: TG [[Leprosy, Leper, Leprous]].
+[^a]: [[Leprosy, Leper, Leprous|TG Leprosy]].  

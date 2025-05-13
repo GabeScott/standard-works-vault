@@ -5,4 +5,4 @@
 [Psalms 68:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.26?lang=eng#p26)
 
 
-[^a]: IE you who are the offspring of.
+[^a]: IE you who are the offspring of.  

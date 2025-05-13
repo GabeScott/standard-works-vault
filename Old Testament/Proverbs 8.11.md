@@ -5,5 +5,5 @@
 [Proverbs 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.11?lang=eng#p11)
 
 
-[^a]: TG [[Wisdom]].
-[^b]: [[Job 28.18|Job 28:18.]]
+[^a]: [[Wisdom|TG Wisdom]].  
+[^b]: [[Job 28.18|Job 28:18]].  

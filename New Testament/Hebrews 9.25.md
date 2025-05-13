@@ -5,4 +5,4 @@
 [Hebrews 9:25](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.25?lang=eng#p25)
 
 
-[^a]: [[Hebrews 9.7|Heb. 9:7.]]
+[^a]: [[Hebrews 9.7|Heb. 9:7]].  

@@ -5,4 +5,4 @@
 [Judges 19:29](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/19.29?lang=eng#p29)
 
 
-[^a]: [[1 Samuel 11.7|1 Sam. 11:7.]]
+[^a]: [[1 Samuel 11.7|1 Sam. 11:7]].  

@@ -5,4 +5,4 @@
 [Joshua 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 32.50|Deut. 32:50 (48-50)]]; [[Deuteronomy 34.5|34:5 (1-8).]]
+[^a]: [[Deuteronomy 32.48|Deut. 32:50 (48–50)]][[Deuteronomy 32.49|]][[Deuteronomy 32.50|]]; [[Deuteronomy 34.1|34:5 (1–8)]][[Deuteronomy 34.2|]][[Deuteronomy 34.3|]][[Deuteronomy 34.4|]][[Deuteronomy 34.5|]][[Deuteronomy 34.6|]][[Deuteronomy 34.7|]][[Deuteronomy 34.8|]].  

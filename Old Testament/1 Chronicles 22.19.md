@@ -5,4 +5,4 @@
 [1 Chronicles 22:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/22.19?lang=eng#p19)
 
 
-[^a]: TG [[Ark of the Covenant]].
+[^a]: [[Ark of the Covenant|TG Ark of the Covenant]].  

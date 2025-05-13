@@ -5,5 +5,5 @@
 [Jeremiah 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.8?lang=eng#p8)
 
 
-[^a]: TG [[Shepherd]].
-[^b]: TG [[False Prophets]].
+[^a]: [[Shepherd|TG Shepherd]].  
+[^b]: [[False Prophets|TG False Prophets]].  

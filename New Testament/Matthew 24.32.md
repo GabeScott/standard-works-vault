@@ -5,4 +5,4 @@
 [Matthew 24:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.32?lang=eng#p32)
 
 
-[^a]: [[D&C 35.16|D&C 35:16.]]
+[^a]: [[D&C 35.16|D&C 35:16]].  

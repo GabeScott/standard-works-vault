@@ -5,4 +5,4 @@
 [Isaiah 31:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/31.9?lang=eng#p9)
 
 
-[^a]: [[D&C 45.68|D&C 45:68 (68-71).]]
+[^a]: [[D&C 45.68|D&C 45:68 (68–71)]][[D&C 45.69|]][[D&C 45.70|]][[D&C 45.71|]].  

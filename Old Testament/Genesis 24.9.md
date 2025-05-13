@@ -5,4 +5,4 @@
 [Genesis 24:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.9?lang=eng#p9)
 
 
-[^a]: [[Genesis 24.8|JST Gen. 24:8 … hand …]]
+[^a]: JST Gen. 24:8 … hand …  

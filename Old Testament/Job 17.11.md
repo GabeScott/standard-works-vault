@@ -5,4 +5,4 @@
 [Job 17:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/17.11?lang=eng#p11)
 
 
-[^a]: [[Job 7.6|Job 7:6.]]
+[^a]: [[Job 7.6|Job 7:6]].  

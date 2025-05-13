@@ -5,6 +5,6 @@
 [1 Nephi 17:55](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p55#p55)
 
 
-[^a]: [[Exodus 3.12|Ex. 3:12]]; [[Alma 38.4|Alma 38:4.]]
-[^b]: Dan. 2:46; [[Acts 14.15|Acts 14:15 (11-15).]]
-[^c]: [[Exodus 20.12|Ex. 20:12]]; [[Proverbs 9.11|Prov. 9:11]]; [[Mosiah 14.10|Mosiah 14:10]]; [[Helaman 7.24|Hel. 7:24]]; [[D&C 5.33|D&C 5:33.]]
+[^a]: [[Exodus 3.12|Ex. 3:12]]; [[Alma 38.4|Alma 38:4]].  
+[^b]: [[Daniel 2.46|Dan. 2:46]]; [[Acts 14.11|Acts 14:15 (11–15)]][[Acts 14.12|]][[Acts 14.13|]][[Acts 14.14|]][[Acts 14.15|]].  
+[^c]: [[Exodus 20.12|Ex. 20:12]]; [[Proverbs 9.11|Prov. 9:11]]; [[Mosiah 14.10|Mosiah 14:10]]; [[Helaman 7.24|Hel. 7:24]]; [[D&C 5.33|D&C 5:33]].  

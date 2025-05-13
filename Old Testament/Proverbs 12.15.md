@@ -5,5 +5,5 @@
 [Proverbs 12:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.15?lang=eng#p15)
 
 
-[^a]: TG [[Problem-Solving]].
-[^b]: [[D&C 124.90|D&C 124:90 (89-90).]]
+[^a]: [[Problem-Solving|TG Problem-Solving]].  
+[^b]: [[D&C 124.89|D&C 124:90 (89–90)]][[D&C 124.90|]].  

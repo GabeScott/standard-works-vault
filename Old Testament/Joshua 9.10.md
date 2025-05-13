@@ -5,4 +5,4 @@
 [Joshua 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.10?lang=eng#p10)
 
 
-[^a]: [[Deuteronomy 1.4|Deut. 1:4]]; [[Deuteronomy 3.11|3:11 (10-11).]]
+[^a]: [[Deuteronomy 1.4|Deut. 1:4]]; [[Deuteronomy 3.10|3:11 (10–11)]][[Deuteronomy 3.11|]].  

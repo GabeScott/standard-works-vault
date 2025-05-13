@@ -5,5 +5,5 @@
 [Isaiah 42:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.9?lang=eng#p9)
 
 
-[^a]: TG [[God, Foreknowledge of]].
-[^b]: [[Amos 3.7|Amos 3:7.]]
+[^a]: [[God, Foreknowledge of|TG God, Foreknowledge of]].  
+[^b]: [[Amos 3.7|Amos 3:7]].  

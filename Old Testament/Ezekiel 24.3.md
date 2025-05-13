@@ -5,5 +5,5 @@
 [Ezekiel 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.3?lang=eng#p3)
 
 
-[^a]: [[Ezekiel 44.6|Ezek. 44:6 (6-7).]]
-[^b]: [[Jeremiah 1.13|Jer. 1:13 (13-14).]]
+[^a]: [[Ezekiel 44.6|Ezek. 44:6 (6–7)]][[Ezekiel 44.7|]].  
+[^b]: [[Jeremiah 1.13|Jer. 1:13 (13–14)]][[Jeremiah 1.14|]].  

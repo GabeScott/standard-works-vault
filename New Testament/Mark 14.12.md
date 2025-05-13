@@ -5,4 +5,4 @@
 [Mark 14:12](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.12?lang=eng#p12)
 
 
-[^a]: TG [[Passover]].
+[^a]: [[Passover|TG Passover]].  

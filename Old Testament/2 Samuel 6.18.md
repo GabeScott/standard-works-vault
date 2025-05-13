@@ -5,4 +5,4 @@
 [2 Samuel 6:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.18?lang=eng#p18)
 
 
-[^a]: [[1 Kings 8.14|1 Kgs. 8:14 (14-15)]]; [[1 Chronicles 16.2|1 Chr. 16:2.]]
+[^a]: [[1 Kings 8.14|1 Kgs. 8:14 (14–15)]][[1 Kings 8.15|]]; [[1 Chronicles 16.2|1 Chr. 16:2]].  

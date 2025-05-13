@@ -5,4 +5,4 @@
 [Exodus 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.21?lang=eng#p21)
 
 
-[^a]: [[Exodus 18.2|Ex. 18:2.]]
+[^a]: [[Exodus 18.2|Ex. 18:2]].  

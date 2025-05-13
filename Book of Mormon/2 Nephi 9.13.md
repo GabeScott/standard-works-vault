@@ -5,9 +5,9 @@
 [2 Nephi 9:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Salvation, Plan of]].
-[^b]: [[D&C 138.19|D&C 138:19]]. TG [[Paradise, Paradisiacal]].
-[^c]: [[Alma 11.43|Alma 11:43]]; [[Alma 40.23|40:23]]; [[Alma 41.4|41:4 (3-5)]]; [[D&C 138.17|D&C 138:17.]]
-[^d]: TG [[Immortality, Immortal]].
-[^e]: TG [[Perfection, Perfect, Perfectly]].
-[^f]: [[Ecclesiastes 9.10|Eccl. 9:10]]; [[D&C 130.18|D&C 130:18.]]
+[^a]: [[Salvation, Plan of|TG Salvation, Plan of]].  
+[^b]: [[D&C 138.19|D&C 138:19]]. [[Paradise, Paradisiacal|TG Paradise]].  
+[^c]: [[Alma 11.43|Alma 11:43]]; [[Alma 40.23|40:23]]; [[Alma 41.3|41:4 (3–5)]][[Alma 41.4|]][[Alma 41.5|]]; [[D&C 138.17|D&C 138:17]].  
+[^d]: [[Immortality, Immortal|TG Immortality]].  
+[^e]: [[Perfection, Perfect, Perfectly|TG Perfection]].  
+[^f]: [[Ecclesiastes 9.10|Eccl. 9:10]]; [[D&C 130.18|D&C 130:18]].  

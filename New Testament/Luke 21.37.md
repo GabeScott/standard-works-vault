@@ -5,4 +5,4 @@
 [Luke 21:37](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.37?lang=eng#p37)
 
 
-[^a]: [[Matthew 26.55|Matt. 26:55]]; [[John 8.2|John 8:2 (1-2).]]
+[^a]: [[Matthew 26.55|Matt. 26:55]]; [[John 8.1|John 8:2 (1–2)]][[John 8.2|]].  

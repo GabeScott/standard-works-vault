@@ -5,4 +5,4 @@
 [Galatians 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.17?lang=eng#p17)
 
 
-[^a]: TG [[Holy Ghost, Loss of]].
+[^a]: [[Holy Ghost, Loss of|TG Holy Ghost, Loss of]].  

@@ -5,5 +5,5 @@
 [Exodus 14:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.7?lang=eng#p7)
 
 
-[^a]: [[Exodus 15.4|Ex. 15:4.]]
-[^b]: IE all the other chariots.
+[^a]: [[Exodus 15.4|Ex. 15:4]].  
+[^b]: IE all the other chariots.  

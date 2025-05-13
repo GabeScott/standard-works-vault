@@ -5,5 +5,5 @@
 [2 Kings 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.1?lang=eng#p1)
 
 
-[^a]: [[Isaiah 38.1|Isa. 38:1 (1-8).]]
-[^b]: [[Ecclesiastes 3.2|Eccl. 3:2]]; [[D&C 42.48|D&C 42:48.]]
+[^a]: [[Isaiah 38.1|Isa. 38:1 (1–8)]][[Isaiah 38.2|]][[Isaiah 38.3|]][[Isaiah 38.4|]][[Isaiah 38.5|]][[Isaiah 38.6|]][[Isaiah 38.7|]][[Isaiah 38.8|]].  
+[^b]: [[Ecclesiastes 3.2|Eccl. 3:2]]; [[D&C 42.48|D&C 42:48]].  

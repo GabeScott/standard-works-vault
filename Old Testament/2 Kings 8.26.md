@@ -5,4 +5,4 @@
 [2 Kings 8:26](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/8.26?lang=eng#p26)
 
 
-[^a]: [[2 Chronicles 22.2|2 Chr. 22:2.]]
+[^a]: [[2 Chronicles 22.2|2 Chr. 22:2]].  

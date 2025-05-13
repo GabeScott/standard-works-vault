@@ -5,4 +5,4 @@
 [Habakkuk 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.6?lang=eng#p6)
 
 
-[^a]: [[D&C 133.31|D&C 133:31.]]
+[^a]: [[D&C 133.31|D&C 133:31]].  

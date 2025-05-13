@@ -5,7 +5,7 @@
 [Acts 5:41](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.41?lang=eng#p41)
 
 
-[^a]: [[Luke 6.23|Luke 6:23 (22-23)]]; Col. 1:11; 1 Thes. 1:6; [[1 Peter 4.13|1 Pet. 4:13.]]
-[^b]: TG [[Persecution, Persecute]]; [[Self-Sacrifice]]; [[Suffering]].
-[^c]: TG [[Shame]].
-[^d]: TG [[Jesus Christ, Taking the Name of]].
+[^a]: [[Luke 6.22|Luke 6:23 (22–23)]][[Luke 6.23|]]; [[Colossians 1.11|Col. 1:11]]; [[1 Thessalonians 1.6|1 Thes. 1:6]]; [[1 Peter 4.13|1 Pet. 4:13]].  
+[^b]: [[Persecution, Persecute|TG Persecution]]; [[Self-Sacrifice|Self-Sacrifice]]; [[Suffering|Suffering]].  
+[^c]: [[Shame|TG Shame]].  
+[^d]: [[Jesus Christ, Taking the Name of|TG Jesus Christ, Taking the Name of]].  

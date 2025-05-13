@@ -5,4 +5,4 @@
 [2 Samuel 7:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.7?lang=eng#p7)
 
 
-[^a]: [[1 Chronicles 17.6|1 Chr. 17:6.]]
+[^a]: [[1 Chronicles 17.6|1 Chr. 17:6]].  

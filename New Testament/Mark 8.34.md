@@ -5,5 +5,5 @@
 [Mark 8:34](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/8.34?lang=eng#p34)
 
 
-[^a]: TG [[Self-Mastery]].
-[^b]: TG [[Jesus Christ, Exemplar]].
+[^a]: [[Self-Mastery|TG Self-Mastery]].  
+[^b]: [[Jesus Christ, Exemplar|TG Jesus Christ, Exemplar]].  

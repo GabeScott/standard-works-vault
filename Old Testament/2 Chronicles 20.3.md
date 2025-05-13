@@ -5,4 +5,4 @@
 [2 Chronicles 20:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/20.3?lang=eng#p3)
 
 
-[^a]: TG [[Fast, Fasting]].
+[^a]: [[Fast, Fasting|TG Fast, Fasting]].  

@@ -5,4 +5,4 @@
 [Jeremiah 50:34](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.34?lang=eng#p34)
 
 
-[^a]: [[Isaiah 51.22|Isa. 51:22.]]
+[^a]: [[Isaiah 51.22|Isa. 51:22]].  

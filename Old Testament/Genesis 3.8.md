@@ -5,5 +5,5 @@
 [Genesis 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.8?lang=eng#p8)
 
 
-[^a]: [[Moses 4.14|Moses 4:14.]]
-[^b]: HEB at the wind of the day (i.e., at the time of the evening breeze).
+[^a]: [[Moses 4.14|Moses 4:14]].  
+[^b]: HEB at the wind of the day (i.e., at the time of the evening breeze).  

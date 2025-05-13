@@ -5,4 +5,4 @@
 [Judges 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/20.4?lang=eng#p4)
 
 
-[^a]: [[Hosea 10.9|Hosea 10:9.]]
+[^a]: [[Hosea 10.9|Hosea 10:9]].  

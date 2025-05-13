@@ -5,4 +5,4 @@
 [Alma 37:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p26#p26)
 
 
-[^a]: [[2 Nephi 10.15|2 Ne. 10:15.]]
+[^a]: [[2 Nephi 10.15|2 Ne. 10:15]].  

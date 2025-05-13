@@ -5,9 +5,9 @@
 [Exodus 28:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.1?lang=eng#p1)
 
 
-[^a]: [[1 Chronicles 23.13|1 Chr. 23:13]]; [[Hebrews 5.4|Heb. 5:4]]; [[D&C 28.3|D&C 28:3]]. TG [[Called of God]].
-[^b]: TG [[Priesthood, Aaronic]].
-[^c]: [[D&C 107.61|D&C 107:61.]]
-[^d]: [[Exodus 24.1|Ex. 24:1 (1-2).]]
-[^e]: [[Exodus 38.21|Ex. 38:21.]]
-[^f]: [[1 Chronicles 24.1|1 Chr. 24:1.]]
+[^a]: [[1 Chronicles 23.13|1 Chr. 23:13]]; [[Hebrews 5.4|Heb. 5:4]]; [[D&C 28.3|D&C 28:3]]. [[Called of God|TG Called of God]].  
+[^b]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  
+[^c]: [[D&C 107.61|D&C 107:61]].  
+[^d]: [[Exodus 24.1|Ex. 24:1 (1–2)]][[Exodus 24.2|]].  
+[^e]: [[Exodus 38.21|Ex. 38:21]].  
+[^f]: [[1 Chronicles 24.1|1 Chr. 24:1]].  

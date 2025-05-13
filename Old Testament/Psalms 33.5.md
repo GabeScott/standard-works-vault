@@ -5,6 +5,6 @@
 [Psalms 33:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.5?lang=eng#p5)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: HEB justice.
-[^c]: [[Psalms 119.64|Ps. 119:64.]]
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: HEB justice.  
+[^c]: [[Psalms 119.64|Ps. 119:64]].  

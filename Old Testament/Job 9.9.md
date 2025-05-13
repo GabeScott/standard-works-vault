@@ -5,4 +5,4 @@
 [Job 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/job/9.9?lang=eng#p9)
 
 
-[^a]: TG [[Astronomy]].
+[^a]: [[Astronomy|TG Astronomy]].  

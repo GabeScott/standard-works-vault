@@ -5,4 +5,4 @@
 [2 Nephi 8:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p22#p22)
 
 
-[^a]: [[Jeremiah 50.34|Jer. 50:34.]]
+[^a]: [[Jeremiah 50.34|Jer. 50:34]].  

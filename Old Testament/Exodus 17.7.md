@@ -5,6 +5,6 @@
 [Exodus 17:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.7?lang=eng#p7)
 
 
-[^a]: IE Testing, Trying, or Proving.
-[^b]: IE Strife, Complaint. Num. 20:13; [[Psalms 81.7|Ps. 81:7.]]
-[^c]: OR complaints, contention. Deut. 9:22.
+[^a]: IE Testing, Trying, or Proving.  
+[^b]: IE Strife, Complaint. [[Numbers 20.13|Num. 20:13]]; [[Psalms 81.7|Ps. 81:7]].  
+[^c]: OR complaints, contention. [[Deuteronomy 9.22|Deut. 9:22]].  

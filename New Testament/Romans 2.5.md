@@ -5,5 +5,5 @@
 [Romans 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.5?lang=eng#p5)
 
 
-[^a]: GR in accordance with.
-[^b]: TG [[Hardheartedness, Harden, Hardness]]; [[Stiffnecked, Stiffneckedness]].
+[^a]: GR in accordance with.  
+[^b]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]]; [[Stiffnecked, Stiffneckedness|Stiffnecked]].  

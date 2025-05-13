@@ -5,4 +5,4 @@
 [Jeremiah 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.4?lang=eng#p4)
 
 
-[^a]: TG [[Ignorance, Ignorant]].
+[^a]: [[Ignorance, Ignorant|TG Ignorance]].  

@@ -5,4 +5,4 @@
 [Micah 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/5.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 17.8|Isa. 17:8.]]
+[^a]: [[Isaiah 17.8|Isa. 17:8]].  

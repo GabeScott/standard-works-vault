@@ -5,5 +5,5 @@
 [Ezekiel 22:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.24?lang=eng#p24)
 
 
-[^a]: [[Psalms 68.9|Ps. 68:9]]; [[Ezekiel 34.26|Ezek. 34:26.]]
-[^b]: TG [[God, Indignation of]].
+[^a]: [[Psalms 68.9|Ps. 68:9]]; [[Ezekiel 34.26|Ezek. 34:26]].  
+[^b]: [[God, Indignation of|TG God, Indignation of]].  

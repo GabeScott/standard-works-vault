@@ -5,7 +5,7 @@
 [1 John 4:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.14?lang=eng#p14)
 
 
-[^a]: TG [[Witness, Witnesses]].
-[^b]: TG [[Jesus Christ, Authority of]].
-[^c]: TG [[Jesus Christ, Savior]].
-[^d]: [[D&C 66.1|D&C 66:1.]]
+[^a]: [[Witness, Witnesses|TG Witness]].  
+[^b]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^c]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]].  
+[^d]: [[D&C 66.1|D&C 66:1]].  

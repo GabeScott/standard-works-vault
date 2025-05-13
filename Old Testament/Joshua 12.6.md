@@ -5,5 +5,5 @@
 [Joshua 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/12.6?lang=eng#p6)
 
 
-[^a]: [[Numbers 32.33|Num. 32:33 (29-33).]]
-[^b]: [[Deuteronomy 3.12|Deut. 3:12.]]
+[^a]: [[Numbers 32.29|Num. 32:33 (29–33)]][[Numbers 32.30|]][[Numbers 32.31|]][[Numbers 32.32|]][[Numbers 32.33|]].  
+[^b]: [[Deuteronomy 3.12|Deut. 3:12]].  

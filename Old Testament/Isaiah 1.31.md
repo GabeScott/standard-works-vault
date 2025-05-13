@@ -5,5 +5,5 @@
 [Isaiah 1:31](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.31?lang=eng#p31)
 
 
-[^a]: IE as a tuft of inflammable fibers.
-[^b]: [[Isaiah 9.16|Isa. 9:16 (16-21).]]
+[^a]: IE as a tuft of inflammable fibers.  
+[^b]: [[Isaiah 9.16|Isa. 9:16 (16–21)]][[Isaiah 9.17|]][[Isaiah 9.18|]][[Isaiah 9.19|]][[Isaiah 9.20|]][[Isaiah 9.21|]].  

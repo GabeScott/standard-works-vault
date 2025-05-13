@@ -5,8 +5,8 @@
 [Revelation 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.18?lang=eng#p18)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]]; [[Jesus Christ, Resurrection]].
-[^b]: TG [[Jesus Christ, Death of]].
-[^c]: TG [[Immortality, Immortal]].
-[^d]: TG [[Jesus Christ, Authority of]].
-[^e]: TG [[Hell]].
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]]; [[Resurrection|Resurrection]].  
+[^b]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  
+[^c]: [[Immortality, Immortal|TG Immortality]].  
+[^d]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^e]: [[Hell|TG Hell]].  

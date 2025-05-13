@@ -5,6 +5,6 @@
 [Mormon 9:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 3.26|Mosiah 3:26]]; [[Moroni 8.8|Moro. 8:8.]]
-[^b]: TG [[Fall of Man]].
-[^c]: TG [[Jesus Christ, Redeemer]].
+[^a]: [[Mosiah 3.26|Mosiah 3:26]]; [[Moroni 8.8|Moro. 8:8]].  
+[^b]: [[Fall of Man|TG Fall of Man]].  
+[^c]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]].  

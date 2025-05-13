@@ -5,6 +5,6 @@
 [Numbers 24:17](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.17?lang=eng#p17)
 
 
-[^a]: IE His coming was to be in the future, long after Moses’ time.
-[^b]: TG [[Jesus Christ, Prophecies about]].
-[^c]: [[2 Samuel 8.2|2 Sam. 8:2]]; [[Jeremiah 48.45|Jer. 48:45.]]
+[^a]: IE His coming was to be in the future, long after Moses’ time.  
+[^b]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^c]: [[2 Samuel 8.2|2 Sam. 8:2]]; [[Jeremiah 48.45|Jer. 48:45]].  

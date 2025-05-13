@@ -5,7 +5,7 @@
 [Moses 8:19](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.19?lang=eng#p19)
 
 
-[^a]: [[D&C 107.52|D&C 107:52]]. TG [[Priesthood, Ordination]].
-[^b]: [[Abraham 1.19|Abr. 1:19.]]
-[^c]: TG [[Priesthood, Melchizedek]].
-[^d]: TG [[Missionary Work]].
+[^a]: [[D&C 107.52|D&C 107:52]]. [[Priesthood, Ordination|TG Priesthood, Ordination]].  
+[^b]: [[Abraham 1.19|Abr. 1:19]].  
+[^c]: [[Priesthood, Melchizedek|TG Priesthood, Melchizedek]].  
+[^d]: [[Missionary Work|TG Missionary Work]].  

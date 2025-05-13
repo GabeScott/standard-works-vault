@@ -5,4 +5,4 @@
 [Moses 8:9](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.9?lang=eng#p9)
 
 
-[^a]: [[Moses 4.23|Moses 4:23]]. TG [[Curse]].
+[^a]: [[Moses 4.23|Moses 4:23]]. [[Curse|TG Curse]].  

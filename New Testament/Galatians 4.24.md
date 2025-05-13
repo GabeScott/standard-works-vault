@@ -5,5 +5,5 @@
 [Galatians 4:24](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.24?lang=eng#p24)
 
 
-[^a]: TG [[Law of Moses]].
-[^b]: [[Genesis 16.1|Gen. 16:1.]]
+[^a]: [[Law of Moses|TG Law of Moses]].  
+[^b]: [[Genesis 16.1|Gen. 16:1]].  

@@ -5,4 +5,4 @@
 [Mormon 5:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p8#p8)
 
 
-[^a]: [[Matthew 10.26|Matt. 10:26 (26-33)]]; [[Luke 12.3|Luke 12:3]]; [[2 Nephi 27.11|2 Ne. 27:11]]; [[D&C 1.3|D&C 1:3]]; [[D&C 88.108|88:108.]]
+[^a]: [[Matthew 10.26|Matt. 10:26 (26–33)]][[Matthew 10.27|]][[Matthew 10.28|]][[Matthew 10.29|]][[Matthew 10.30|]][[Matthew 10.31|]][[Matthew 10.32|]][[Matthew 10.33|]]; [[Luke 12.3|Luke 12:3]]; [[2 Nephi 27.11|2 Ne. 27:11]]; [[D&C 1.3|D&C 1:3]]; [[D&C 88.108|88:108]].  

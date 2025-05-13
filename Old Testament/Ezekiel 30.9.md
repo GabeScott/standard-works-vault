@@ -5,4 +5,4 @@
 [Ezekiel 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/30.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 20.4|Isa. 20:4.]]
+[^a]: [[Isaiah 20.4|Isa. 20:4]].  

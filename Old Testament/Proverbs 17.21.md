@@ -5,4 +5,4 @@
 [Proverbs 17:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.21?lang=eng#p21)
 
 
-[^a]: [[Proverbs 10.1|Prov. 10:1]]; [[Proverbs 17.25|17:25.]]
+[^a]: [[Proverbs 10.1|Prov. 10:1]]; [[Proverbs 17.25|17:25]].  

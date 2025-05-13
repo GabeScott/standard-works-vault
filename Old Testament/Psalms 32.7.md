@@ -5,4 +5,4 @@
 [Psalms 32:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/32.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 91.1|Ps. 91:1]]; [[Psalms 119.114|119:114.]]
+[^a]: [[Psalms 91.1|Ps. 91:1]]; [[Psalms 119.114|119:114]].  

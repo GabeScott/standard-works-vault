@@ -5,4 +5,4 @@
 [Psalms 61:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/61.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 40.11|Ps. 40:11.]]
+[^a]: [[Psalms 40.11|Ps. 40:11]].  

@@ -5,6 +5,6 @@
 [Alma 24:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 53.11|Alma 53:11.]]
-[^b]: TG [[Covenants]].
-[^c]: TG [[Self-Sacrifice]].
+[^a]: [[Alma 53.11|Alma 53:11]].  
+[^b]: [[Covenants|TG Covenants]].  
+[^c]: [[Self-Sacrifice|TG Self-Sacrifice]].  

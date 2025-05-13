@@ -5,10 +5,10 @@
 [1 Nephi 13:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p34#p34)
 
 
-[^a]: [[D&C 124.8|D&C 124:8]]; [[Abraham 1.17|Abr. 1:17.]]
-[^b]: TG [[Israel, Joseph, People of]].
-[^c]: [[1 Nephi 14.1|1 Ne. 14:1 (1-3)]]; [[2 Nephi 26.20|2 Ne. 26:20.]]
-[^d]: TG [[Gospel]].
-[^e]: TG [[Millennium, Preparing a People for]].
-[^f]: TG [[Scriptures, Lost]].
-[^g]: [[D&C 10.62|D&C 10:62]]. TG [[Restoration of the Gospel]].
+[^a]: [[D&C 124.8|D&C 124:8]]; [[Abraham 1.17|Abr. 1:17]].  
+[^b]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  
+[^c]: [[1 Nephi 14.1|1 Ne. 14:1 (1–3)]][[1 Nephi 14.2|]][[1 Nephi 14.3|]]; [[2 Nephi 26.20|2 Ne. 26:20]].  
+[^d]: [[Gospel|TG Gospel]].  
+[^e]: [[Millennium, Preparing a People for|TG Millennium, Preparing a People for]].  
+[^f]: [[Scriptures, Lost|TG Scriptures, Lost]].  
+[^g]: [[D&C 10.62|D&C 10:62]]. [[Restoration of the Gospel|TG Restoration of the Gospel]].  

@@ -5,5 +5,5 @@
 [Alma 17:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p2#p2)
 
 
-[^a]: [[Mosiah 27.11|Mosiah 27:11 (11-17).]]
-[^b]: [[Jacob 7.23|Jacob 7:23]]; [[D&C 84.85|D&C 84:85]]. TG [[Scriptures, Study of]].
+[^a]: [[Mosiah 27.11|Mosiah 27:11 (11–17)]][[Mosiah 27.12|]][[Mosiah 27.13|]][[Mosiah 27.14|]][[Mosiah 27.15|]][[Mosiah 27.16|]][[Mosiah 27.17|]].  
+[^b]: [[Jacob 7.23|Jacob 7:23]]; [[D&C 84.85|D&C 84:85]]. [[Scriptures, Study of|TG Scriptures, Study of]].  

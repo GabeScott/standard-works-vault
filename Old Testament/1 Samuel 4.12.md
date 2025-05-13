@@ -5,4 +5,4 @@
 [1 Samuel 4:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/4.12?lang=eng#p12)
 
 
-[^a]: [[Joshua 7.6|Josh. 7:6.]]
+[^a]: [[Joshua 7.6|Josh. 7:6]].  

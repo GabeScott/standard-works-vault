@@ -5,6 +5,6 @@
 [2 Kings 21:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.3?lang=eng#p3)
 
 
-[^a]: [[2 Kings 18.4|2 Kgs. 18:4.]]
-[^b]: [[1 Kings 16.33|1 Kgs. 16:33 (32-33).]]
-[^c]: [[2 Kings 17.16|2 Kgs. 17:16 (15-17).]]
+[^a]: [[2 Kings 18.4|2 Kgs. 18:4]].  
+[^b]: [[1 Kings 16.32|1 Kgs. 16:33 (32–33)]][[1 Kings 16.33|]].  
+[^c]: [[2 Kings 17.15|2 Kgs. 17:16 (15–17)]][[2 Kings 17.16|]][[2 Kings 17.17|]].  

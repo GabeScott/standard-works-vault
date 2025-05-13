@@ -5,5 +5,5 @@
 [Genesis 35:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 24.59|Gen. 24:59.]]
-[^b]: IE Oak of weeping.
+[^a]: [[Genesis 24.59|Gen. 24:59]].  
+[^b]: IE Oak of weeping.  

@@ -5,5 +5,5 @@
 [Deuteronomy 22:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.1?lang=eng#p1)
 
 
-[^a]: TG [[Brotherhood and Sisterhood]].
-[^b]: [[Exodus 23.4|Ex. 23:4.]]
+[^a]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  
+[^b]: [[Exodus 23.4|Ex. 23:4]].  

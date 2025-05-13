@@ -5,4 +5,4 @@
 [1 Kings 21:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/21.23?lang=eng#p23)
 
 
-[^a]: [[2 Kings 9.36|2 Kgs. 9:36.]]
+[^a]: [[2 Kings 9.36|2 Kgs. 9:36]].  

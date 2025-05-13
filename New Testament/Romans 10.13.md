@@ -5,4 +5,4 @@
 [Romans 10:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.13?lang=eng#p13)
 
 
-[^a]: TG [[Prayer, Pray]].
+[^a]: [[Prayer, Pray|TG Prayer]].  

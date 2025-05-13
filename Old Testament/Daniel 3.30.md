@@ -5,4 +5,4 @@
 [Daniel 3:30](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/3.30?lang=eng#p30)
 
 
-[^a]: [[Esther 10.2|Esth. 10:2 (2-3).]]
+[^a]: [[Esther 10.2|Esth. 10:2 (2–3)]][[Esther 10.3|]].  

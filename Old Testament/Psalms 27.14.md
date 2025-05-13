@@ -5,6 +5,6 @@
 [Psalms 27:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/27.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 37.34|Ps. 37:34]]; [[Proverbs 20.22|Prov. 20:22]]; [[D&C 98.2|D&C 98:2 (2-3).]]
-[^b]: TG [[Courage, Courageous]].
-[^c]: TG [[Faith]].
+[^a]: [[Psalms 37.34|Ps. 37:34]]; [[Proverbs 20.22|Prov. 20:22]]; [[D&C 98.2|D&C 98:2 (2–3)]][[D&C 98.3|]].  
+[^b]: [[Courage, Courageous|TG Courage]].  
+[^c]: [[Faith|TG Faith]].  

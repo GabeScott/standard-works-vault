@@ -5,4 +5,4 @@
 [Psalms 64:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/64.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 11.2|Ps. 11:2.]]
+[^a]: [[Psalms 11.2|Ps. 11:2]].  

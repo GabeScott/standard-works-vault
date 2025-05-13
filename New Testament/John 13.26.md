@@ -5,4 +5,4 @@
 [John 13:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.26?lang=eng#p26)
 
 
-[^a]: GR morsel, mouthful.
+[^a]: GR morsel, mouthful.  

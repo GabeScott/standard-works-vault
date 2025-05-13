@@ -5,4 +5,4 @@
 [1 Thessalonians 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.5?lang=eng#p5)
 
 
-[^a]: GR sons. TG [[Children of Light]].
+[^a]: GR sons. [[Children of Light|TG Children of Light]].  

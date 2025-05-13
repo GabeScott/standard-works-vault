@@ -5,4 +5,4 @@
 [1 Nephi 18:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p20#p20)
 
 
-[^a]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

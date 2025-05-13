@@ -5,4 +5,4 @@
 [Jeremiah 50:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.7?lang=eng#p7)
 
 
-[^a]: HEB are not guilty.
+[^a]: HEB are not guilty.  

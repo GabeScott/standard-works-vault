@@ -5,4 +5,4 @@
 [1 Samuel 4:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/4.21?lang=eng#p21)
 
 
-[^a]: IE Where is the glory?
+[^a]: IE Where is the glory?  

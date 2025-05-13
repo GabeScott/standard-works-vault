@@ -5,4 +5,4 @@
 [Jeremiah 44:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.22?lang=eng#p22)
 
 
-[^a]: [[Jeremiah 5.9|Jer. 5:9]]; [[Jeremiah 9.9|9:9.]]
+[^a]: [[Jeremiah 5.9|Jer. 5:9]]; [[Jeremiah 9.9|9:9]].  

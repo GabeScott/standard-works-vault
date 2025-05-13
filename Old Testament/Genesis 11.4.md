@@ -5,4 +5,4 @@
 [Genesis 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.4?lang=eng#p4)
 
 
-[^a]: TG [[Name of the Lord]].
+[^a]: [[Name|TG Name]].  

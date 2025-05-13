@@ -5,6 +5,6 @@
 [Deuteronomy 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.6?lang=eng#p6)
 
 
-[^a]: IE of the cities, or towns.
-[^b]: [[Numbers 35.3|Num. 35:3 (2-3).]]
-[^c]: [[2 Chronicles 7.12|2 Chr. 7:12.]]
+[^a]: IE of the cities, or towns.  
+[^b]: [[Numbers 35.2|Num. 35:3 (2–3)]][[Numbers 35.3|]].  
+[^c]: [[2 Chronicles 7.12|2 Chr. 7:12]].  

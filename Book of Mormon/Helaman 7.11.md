@@ -5,4 +5,4 @@
 [Helaman 7:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 50.4|Alma 50:4.]]
+[^a]: [[Alma 50.4|Alma 50:4]].  

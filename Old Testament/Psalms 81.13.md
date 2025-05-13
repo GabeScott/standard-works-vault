@@ -5,4 +5,4 @@
 [Psalms 81:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/81.13?lang=eng#p13)
 
 
-[^a]: [[Deuteronomy 32.29|Deut. 32:29.]]
+[^a]: [[Deuteronomy 32.29|Deut. 32:29]].  

@@ -5,6 +5,6 @@
 [John 17:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.12?lang=eng#p12)
 
 
-[^a]: [[John 6.39|John 6:39]]; [[John 18.9|18:9.]]
-[^b]: [[D&C 50.42|D&C 50:42.]]
-[^c]: [[3 Nephi 27.32|3 Ne. 27:32]]. TG [[Damnation, Damned]]; [[Death, Spiritual, Second]]; [[Hell]].
+[^a]: [[John 6.39|John 6:39]]; [[John 18.9|18:9]].  
+[^b]: [[D&C 50.42|D&C 50:42]].  
+[^c]: [[3 Nephi 27.32|3 Ne. 27:32]]. [[Damnation, Damned|TG Damnation]]; [[Death, Spiritual, Second|Death, Spiritual, Second]]; [[Hell|Hell]].  

@@ -5,4 +5,4 @@
 [Exodus 36:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.4?lang=eng#p4)
 
 
-[^a]: TG [[Wisdom]].
+[^a]: [[Wisdom|TG Wisdom]].  

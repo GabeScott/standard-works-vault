@@ -5,4 +5,4 @@
 [2 Chronicles 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/2.6?lang=eng#p6)
 
 
-[^a]: [[1 Kings 8.27|1 Kgs. 8:27.]]
+[^a]: [[1 Kings 8.27|1 Kgs. 8:27]].  

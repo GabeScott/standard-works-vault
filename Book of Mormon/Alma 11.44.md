@@ -5,7 +5,7 @@
 [Alma 11:44](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p44#p44)
 
 
-[^a]: [[Revelation 20.12|Rev. 20:12 (12-15).]]
-[^b]: TG [[Godhead]].
-[^c]: [[3 Nephi 11.27|3 Ne. 11:27 (27-28, 36)]]. TG [[God, Eternal Nature of]].
-[^d]: 2 Pet. 2:9. TG [[Jesus Christ, Judge]].
+[^a]: [[Revelation 20.12|Rev. 20:12 (12–15)]][[Revelation 20.13|]][[Revelation 20.14|]][[Revelation 20.15|]].  
+[^b]: [[Godhead|TG Godhead]].  
+[^c]: [[3 Nephi 11.27|3 Ne. 11:27 (27–28, 36)]][[3 Nephi 11.28|]][[3 Nephi 11.36|]]. [[God, Eternal Nature of|TG God, Eternal Nature of]].  
+[^d]: [[2 Peter 2.9|2 Pet. 2:9]]. [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

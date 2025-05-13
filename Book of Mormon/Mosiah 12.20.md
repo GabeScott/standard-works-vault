@@ -5,4 +5,4 @@
 [Mosiah 12:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/12?lang=eng&id=p20#p20)
 
 
-[^a]: [[Mosiah 13.3|Mosiah 13:3.]]
+[^a]: [[Mosiah 13.3|Mosiah 13:3]].  

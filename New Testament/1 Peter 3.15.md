@@ -5,8 +5,8 @@
 [1 Peter 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.15?lang=eng#p15)
 
 
-[^a]: GR reverence as holy.
-[^b]: GR a defense.
-[^c]: TG [[Hope]].
-[^d]: TG [[Meek, Meekness]].
-[^e]: GR reverence, awe.
+[^a]: GR reverence as holy.  
+[^b]: GR a defense.  
+[^c]: [[Hope|TG Hope]].  
+[^d]: [[Meek, Meekness|TG Meek]].  
+[^e]: GR reverence, awe.  

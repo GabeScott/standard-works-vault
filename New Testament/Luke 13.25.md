@@ -5,4 +5,4 @@
 [Luke 13:25](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.25?lang=eng#p25)
 
 
-[^a]: [[Isaiah 55.6|Isa. 55:6.]]
+[^a]: [[Isaiah 55.6|Isa. 55:6]].  

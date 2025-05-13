@@ -5,4 +5,4 @@
 [Ezekiel 44:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 40.6|Ezek. 40:6]]; [[Ezekiel 42.15|42:15]]; [[Ezekiel 43.1|43:1 (1-2).]]
+[^a]: [[Ezekiel 40.6|Ezek. 40:6]]; [[Ezekiel 42.15|42:15]]; [[Ezekiel 43.1|43:1 (1–2)]][[Ezekiel 43.2|]].  

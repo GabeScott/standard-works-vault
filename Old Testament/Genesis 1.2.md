@@ -5,7 +5,7 @@
 [Genesis 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.2?lang=eng#p2)
 
 
-[^a]: [[Abraham 4.2|Abr. 4:2.]]
-[^b]: TG [[Darkness, Physical]].
-[^c]: TG [[God, Spirit of]].
-[^d]: [[Moses 2.2|Moses 2:2]]; [[Abraham 4.2|Abr. 4:2.]]
+[^a]: [[Abraham 4.2|Abr. 4:2]].  
+[^b]: [[Darkness, Physical|TG Darkness, Physical]].  
+[^c]: [[God, Spirit of|TG God, Spirit of]].  
+[^d]: [[Moses 2.2|Moses 2:2]]; [[Abraham 4.2|Abr. 4:2]].  

@@ -5,5 +5,5 @@
 [Jeremiah 49:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 36.43|Gen. 36:43.]]
-[^b]: Mal. 1:3.
+[^a]: [[Genesis 36.43|Gen. 36:43]].  
+[^b]: [[Malachi 1.3|Mal. 1:3]].  

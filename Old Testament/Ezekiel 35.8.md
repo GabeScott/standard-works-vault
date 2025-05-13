@@ -5,5 +5,5 @@
 [Ezekiel 35:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/35.8?lang=eng#p8)
 
 
-[^a]: [[Ether 14.21|Ether 14:21 (21-22).]]
-[^b]: HEB ravines.
+[^a]: [[Ether 14.21|Ether 14:21 (21–22)]][[Ether 14.22|]].  
+[^b]: HEB ravines.  

@@ -5,5 +5,5 @@
 [1 Thessalonians 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/1.4?lang=eng#p4)
 
 
-[^a]: GR beloved of God, your election.
-[^b]: TG [[Election, Elect]].
+[^a]: GR beloved of God, your election.  
+[^b]: [[Election, Elect|TG Election]].  

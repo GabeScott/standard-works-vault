@@ -5,4 +5,4 @@
 [Amos 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/1.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 49.2|Jer. 49:2]]; [[Ezekiel 21.20|Ezek. 21:20]]; [[Ezekiel 25.5|25:5 (4-5).]]
+[^a]: [[Jeremiah 49.2|Jer. 49:2]]; [[Ezekiel 21.20|Ezek. 21:20]]; [[Ezekiel 25.4|25:5 (4–5)]][[Ezekiel 25.5|]].  

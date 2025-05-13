@@ -5,5 +5,5 @@
 [Abraham 2:18](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/2.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 12.6|Gen. 12:6.]]
-[^b]: TG [[Self-Sacrifice]].
+[^a]: [[Genesis 12.6|Gen. 12:6]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  

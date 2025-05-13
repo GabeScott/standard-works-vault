@@ -5,5 +5,5 @@
 [Daniel 9:26](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.26?lang=eng#p26)
 
 
-[^a]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Crucifixion of]]; [[Jesus Christ, Messiah]]; [[Jesus Christ, Prophecies about]].
-[^b]: [[Luke 19.44|Luke 19:44 (43-44).]]
+[^a]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Jesus Christ, Crucifixion of|Jesus Christ, Crucifixion of]]; [[Jesus Christ, Messiah|Jesus Christ, Messiah]]; [[Jesus Christ, Prophecies about|Jesus Christ, Prophecies about]].  
+[^b]: [[Luke 19.43|Luke 19:44 (43–44)]][[Luke 19.44|]].  

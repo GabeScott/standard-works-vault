@@ -5,4 +5,4 @@
 [Numbers 21:28](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.28?lang=eng#p28)
 
 
-[^a]: [[Jeremiah 48.45|Jer. 48:45.]]
+[^a]: [[Jeremiah 48.45|Jer. 48:45]].  

@@ -5,4 +5,4 @@
 [Hosea 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/9.6?lang=eng#p6)
 
 
-[^a]: HEB tents.
+[^a]: HEB tents.  

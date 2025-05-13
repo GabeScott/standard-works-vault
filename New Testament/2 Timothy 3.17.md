@@ -5,5 +5,5 @@
 [2 Timothy 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.17?lang=eng#p17)
 
 
-[^a]: GR suited, ready, complete. TG [[Perfection, Perfect, Perfectly]].
-[^b]: TG [[Good Works]].
+[^a]: GR suited, ready, complete. [[Perfection, Perfect, Perfectly|TG Perfection]].  
+[^b]: [[Good Works|TG Good Works]].  

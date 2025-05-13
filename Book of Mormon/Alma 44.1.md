@@ -5,5 +5,5 @@
 [Alma 44:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 43.5|Alma 43:5.]]
-[^b]: [[Alma 43.45|Alma 43:45.]]
+[^a]: [[Alma 43.5|Alma 43:5]].  
+[^b]: [[Alma 43.45|Alma 43:45]].  

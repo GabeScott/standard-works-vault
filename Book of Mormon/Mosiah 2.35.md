@@ -5,4 +5,4 @@
 [Mosiah 2:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p35#p35)
 
 
-[^a]: [[Romans 7.12|Rom. 7:12]]; [[Revelation 15.3|Rev. 15:3.]]
+[^a]: [[Romans 7.12|Rom. 7:12]]; [[Revelation 15.3|Rev. 15:3]].  

@@ -5,5 +5,5 @@
 [Psalms 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/4.2?lang=eng#p2)
 
 
-[^a]: TG [[Shame]].
-[^b]: TG [[Vanity]].
+[^a]: [[Shame|TG Shame]].  
+[^b]: [[Vanity|TG Vanity]].  

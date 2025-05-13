@@ -5,4 +5,4 @@
 [Judges 5:24](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.24?lang=eng#p24)
 
 
-[^a]: TG [[Woman, Women]].
+[^a]: [[Woman, Women|TG Woman]].  

@@ -5,4 +5,4 @@
 [Jeremiah 29:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.9?lang=eng#p9)
 
 
-[^a]: TG [[False Prophets]].
+[^a]: [[False Prophets|TG False Prophets]].  

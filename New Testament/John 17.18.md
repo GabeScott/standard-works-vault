@@ -5,4 +5,4 @@
 [John 17:18](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.18?lang=eng#p18)
 
 
-[^a]: TG [[Jesus Christ, Authority of]].
+[^a]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  

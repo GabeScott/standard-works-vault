@@ -5,4 +5,4 @@
 [1 Chronicles 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/7.14?lang=eng#p14)
 
 
-[^a]: [[Numbers 26.29|Num. 26:29 (29-33)]]; [[Alma 10.3|Alma 10:3.]]
+[^a]: [[Numbers 26.29|Num. 26:29 (29–33)]][[Numbers 26.30|]][[Numbers 26.31|]][[Numbers 26.32|]][[Numbers 26.33|]]; [[Alma 10.3|Alma 10:3]].  

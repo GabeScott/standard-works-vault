@@ -5,4 +5,4 @@
 [Psalms 118:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 15.6|Ex. 15:6 (6-7).]]
+[^a]: [[Exodus 15.6|Ex. 15:6 (6–7)]][[Exodus 15.7|]].  

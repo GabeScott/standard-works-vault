@@ -5,5 +5,5 @@
 [1 Samuel 26:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/26.23?lang=eng#p23)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Benevolence]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Benevolence|TG Benevolence]].  

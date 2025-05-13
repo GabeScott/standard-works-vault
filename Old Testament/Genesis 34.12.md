@@ -5,4 +5,4 @@
 [Genesis 34:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/34.12?lang=eng#p12)
 
 
-[^a]: OR ever so high a dowry.
+[^a]: OR ever so high a dowry.  

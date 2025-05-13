@@ -5,4 +5,4 @@
 [Revelation 10:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/10.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 2.9|Ezek. 2:9 (9-10).]]
+[^a]: [[Ezekiel 2.9|Ezek. 2:9 (9–10)]][[Ezekiel 2.10|]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 28:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.2?lang=eng#p2)
 
 
-[^a]: TG [[Israel, Blessings of]]; Israel, [[Israel, Blessings of]]s of.
+[^a]: [[Blessing|TG Blessing]]; [[Israel, Blessings of|Israel, Blessings of]].  

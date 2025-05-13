@@ -5,4 +5,4 @@
 [John 16:30](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.30?lang=eng#p30)
 
 
-[^a]: TG [[God, Omniscience of]]; [[God, Perfection of]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]]; [[God, Perfection of|God, Perfection of]].  

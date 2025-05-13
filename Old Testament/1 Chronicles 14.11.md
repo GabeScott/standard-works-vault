@@ -5,4 +5,4 @@
 [1 Chronicles 14:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/14.11?lang=eng#p11)
 
 
-[^a]: [[2 Samuel 5.20|2 Sam. 5:20 (19-20)]]; [[Isaiah 28.21|Isa. 28:21.]]
+[^a]: [[2 Samuel 5.19|2 Sam. 5:20 (19–20)]][[2 Samuel 5.20|]]; [[Isaiah 28.21|Isa. 28:21]].  

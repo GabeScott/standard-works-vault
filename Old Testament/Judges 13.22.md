@@ -5,4 +5,4 @@
 [Judges 13:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/13.22?lang=eng#p22)
 
 
-[^a]: TG [[God, Privilege of Seeing]].
+[^a]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]].  

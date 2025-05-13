@@ -5,4 +5,4 @@
 [Deuteronomy 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.9?lang=eng#p9)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

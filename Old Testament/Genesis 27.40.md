@@ -5,6 +5,6 @@
 [Genesis 27:40](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.40?lang=eng#p40)
 
 
-[^a]: [[Genesis 25.23|Gen. 25:23.]]
-[^b]: [[2 Kings 8.20|2 Kgs. 8:20 (20-22).]]
-[^c]: TG [[Bondage, Physical]].
+[^a]: [[Genesis 25.23|Gen. 25:23]].  
+[^b]: [[2 Kings 8.20|2 Kgs. 8:20 (20–22)]][[2 Kings 8.21|]][[2 Kings 8.22|]].  
+[^c]: [[Bondage, Physical|TG Bondage, Physical]].  

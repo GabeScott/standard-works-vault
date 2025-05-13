@@ -5,8 +5,8 @@
 [Numbers 25:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/25.13?lang=eng#p13)
 
 
-[^a]: TG [[Birthright]].
-[^b]: TG [[Covenants]]; [[New and Everlasting Covenant]]; [[Priesthood, Oath and Covenant]].
-[^c]: TG [[Priesthood, History of]]; [[Priesthood, History of]], Aaronic.
-[^d]: TG [[Zeal, Zealous]].
-[^e]: [[Exodus 32.30|Ex. 32:30.]]
+[^a]: [[Birthright|TG Birthright]].  
+[^b]: [[Covenants|TG Covenants]]; [[New and Everlasting Covenant|New and Everlasting Covenant]]; [[Priesthood, Oath and Covenant|Priesthood, Oath and Covenant]].  
+[^c]: [[Priesthood|TG Priesthood]]; [[Priesthood, Aaronic|Priesthood, Aaronic]].  
+[^d]: [[Zeal, Zealous|TG Zeal]].  
+[^e]: [[Exodus 32.30|Ex. 32:30]].  

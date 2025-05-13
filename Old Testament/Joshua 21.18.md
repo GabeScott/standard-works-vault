@@ -5,4 +5,4 @@
 [Joshua 21:18](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.18?lang=eng#p18)
 
 
-[^a]: [[1 Kings 2.26|1 Kgs. 2:26.]]
+[^a]: [[1 Kings 2.26|1 Kgs. 2:26]].  

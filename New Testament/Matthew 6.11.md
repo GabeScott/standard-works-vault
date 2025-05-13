@@ -5,4 +5,4 @@
 [Matthew 6:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.11?lang=eng#p11)
 
 
-[^a]: TG [[Bread]].
+[^a]: [[Bread|TG Bread]].  

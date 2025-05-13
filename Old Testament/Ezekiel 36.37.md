@@ -5,4 +5,4 @@
 [Ezekiel 36:37](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.37?lang=eng#p37)
 
 
-[^a]: [[Psalms 102.17|Ps. 102:17]]; [[Jeremiah 29.13|Jer. 29:13]]; [[Ezekiel 14.3|Ezek. 14:3]]; [[3 Nephi 13.8|3 Ne. 13:8.]]
+[^a]: [[Psalms 102.17|Ps. 102:17]]; [[Jeremiah 29.13|Jer. 29:13]]; [[Ezekiel 14.3|Ezek. 14:3]]; [[3 Nephi 13.8|3 Ne. 13:8]].  

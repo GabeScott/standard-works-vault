@@ -5,5 +5,5 @@
 [Judges 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7.4?lang=eng#p4)
 
 
-[^a]: [[1 Samuel 14.6|1 Sam. 14:6.]]
-[^b]: OR test. Alma 27:15; [[D&C 98.12|D&C 98:12.]]
+[^a]: [[1 Samuel 14.6|1 Sam. 14:6]].  
+[^b]: OR test. [[Alma 27.15|Alma 27:15]]; [[D&C 98.12|D&C 98:12]].  

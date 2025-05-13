@@ -5,5 +5,5 @@
 [Hebrews 4:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.2?lang=eng#p2)
 
 
-[^a]: TG [[Gospel]].
-[^b]: TG [[Faith]].
+[^a]: [[Gospel|TG Gospel]].  
+[^b]: [[Faith|TG Faith]].  

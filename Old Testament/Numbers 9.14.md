@@ -5,5 +5,5 @@
 [Numbers 9:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/9.14?lang=eng#p14)
 
 
-[^a]: TG [[Passover]].
-[^b]: TG [[Stranger]].
+[^a]: [[Passover|TG Passover]].  
+[^b]: [[Stranger|TG Stranger]].  

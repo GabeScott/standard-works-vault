@@ -5,4 +5,4 @@
 [Numbers 25:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/25.14?lang=eng#p14)
 
 
-[^a]: HEB the head of a father’s house, i.e., a patriarchal clan (also v. 15).
+[^a]: HEB the head of a father’s house, i.e., a patriarchal clan (also [[Numbers 25.15|v. 15]]).  

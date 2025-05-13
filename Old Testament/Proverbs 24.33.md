@@ -5,4 +5,4 @@
 [Proverbs 24:33](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.33?lang=eng#p33)
 
 
-[^a]: TG [[Sleep, Slept]].
+[^a]: [[Sleep, Slept|TG Sleep]].  

@@ -5,5 +5,5 @@
 [Psalms 119:133](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.133?lang=eng#p133)
 
 
-[^a]: [[Psalms 17.5|Ps. 17:5.]]
-[^b]: [[Psalms 19.13|Ps. 19:13.]]
+[^a]: [[Psalms 17.5|Ps. 17:5]].  
+[^b]: [[Psalms 19.13|Ps. 19:13]].  

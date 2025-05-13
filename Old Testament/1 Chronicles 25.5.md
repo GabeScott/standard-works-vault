@@ -5,4 +5,4 @@
 [1 Chronicles 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/25.5?lang=eng#p5)
 
 
-[^a]: TG [[Seer]].
+[^a]: [[Seer|TG Seer]].  

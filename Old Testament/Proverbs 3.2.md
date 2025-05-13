@@ -5,5 +5,5 @@
 [Proverbs 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.2?lang=eng#p2)
 
 
-[^a]: [[D&C 5.33|D&C 5:33.]]
-[^b]: TG [[Peace of God]].
+[^a]: [[D&C 5.33|D&C 5:33]].  
+[^b]: [[Peace of God|TG Peace of God]].  

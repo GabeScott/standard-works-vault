@@ -5,4 +5,4 @@
 [3 Nephi 9:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p1#p1)
 
 
-[^a]: [[1 Nephi 19.11|1 Ne. 19:11.]]
+[^a]: [[1 Nephi 19.11|1 Ne. 19:11]].  

@@ -5,4 +5,4 @@
 [Luke 18:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.18?lang=eng#p18)
 
 
-[^a]: [[Luke 10.25|Luke 10:25.]]
+[^a]: [[Luke 10.25|Luke 10:25]].  

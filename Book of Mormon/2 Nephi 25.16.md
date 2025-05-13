@@ -5,7 +5,7 @@
 [2 Nephi 25:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p16#p16)
 
 
-[^a]: [[Ezekiel 34.12|Ezek. 34:12]]; [[Mormon 5.14|Morm. 5:14.]]
-[^b]: [[2 Nephi 10.7|2 Ne. 10:7 (5-9)]]; [[2 Nephi 30.7|30:7 (7-8).]]
-[^c]: [[Job 17.9|Job 17:9]]; [[D&C 88.86|D&C 88:86.]]
-[^d]: TG [[False Christs]].
+[^a]: [[Ezekiel 34.12|Ezek. 34:12]]; [[Mormon 5.14|Morm. 5:14]].  
+[^b]: [[2 Nephi 10.5|2 Ne. 10:7 (5–9)]][[2 Nephi 10.6|]][[2 Nephi 10.7|]][[2 Nephi 10.8|]][[2 Nephi 10.9|]]; [[2 Nephi 30.7|30:7 (7–8)]][[2 Nephi 30.8|]].  
+[^c]: [[Job 17.9|Job 17:9]]; [[D&C 88.86|D&C 88:86]].  
+[^d]: [[False Christs|TG False Christs]].  

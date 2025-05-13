@@ -5,5 +5,5 @@
 [Exodus 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 105.25|Ps. 105:25 (23-25).]]
-[^b]: OR breaks out, “happens.”
+[^a]: [[Psalms 105.23|Ps. 105:25 (23–25)]][[Psalms 105.24|]][[Psalms 105.25|]].  
+[^b]: OR breaks out, “happens.”  

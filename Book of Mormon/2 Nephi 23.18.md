@@ -5,4 +5,4 @@
 [2 Nephi 23:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p18#p18)
 
 
-[^a]: Lam. 2:2 (2, 17, 21).
+[^a]: [[Lamentations 2.2|Lam. 2:2 (2, 17, 21)]][[Lamentations 2.17|]][[Lamentations 2.21|]].  

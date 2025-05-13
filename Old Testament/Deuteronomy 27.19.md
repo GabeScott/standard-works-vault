@@ -5,5 +5,5 @@
 [Deuteronomy 27:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.19?lang=eng#p19)
 
 
-[^a]: [[Deuteronomy 24.17|Deut. 24:17.]]
-[^b]: OR justice due to.
+[^a]: [[Deuteronomy 24.17|Deut. 24:17]].  
+[^b]: OR justice due to.  

@@ -5,4 +5,4 @@
 [Acts 23:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.15?lang=eng#p15)
 
 
-[^a]: OR before he gets here.
+[^a]: OR before he gets here.  

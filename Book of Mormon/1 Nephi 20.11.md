@@ -5,5 +5,5 @@
 [1 Nephi 20:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p11#p11)
 
 
-[^a]: [[Jeremiah 44.26|Jer. 44:26.]]
-[^b]: [[Isaiah 42.8|Isa. 42:8]]; [[Moses 4.1|Moses 4:1 (1-4).]]
+[^a]: [[Jeremiah 44.26|Jer. 44:26]].  
+[^b]: [[Isaiah 42.8|Isa. 42:8]]; [[Moses 4.1|Moses 4:1 (1–4)]][[Moses 4.2|]][[Moses 4.3|]][[Moses 4.4|]].  

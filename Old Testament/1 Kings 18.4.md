@@ -5,5 +5,5 @@
 [1 Kings 18:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.4?lang=eng#p4)
 
 
-[^a]: [[1 Kings 16.31|1 Kgs. 16:31.]]
-[^b]: [[2 Kings 6.32|2 Kgs. 6:32]]; [[2 Kings 9.7|9:7.]]
+[^a]: [[1 Kings 16.31|1 Kgs. 16:31]].  
+[^b]: [[2 Kings 6.32|2 Kgs. 6:32]]; [[2 Kings 9.7|9:7]].  

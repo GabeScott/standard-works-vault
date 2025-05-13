@@ -5,4 +5,4 @@
 [Mosiah 29:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p34#p34)
 
 
-[^a]: TG [[Accountability]].
+[^a]: [[Accountability|TG Accountability]].  

@@ -5,5 +5,5 @@
 [4 Nephi 1:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p39#p39)
 
 
-[^a]: [[Mosiah 10.17|Mosiah 10:17.]]
-[^b]: TG [[Hate]]; [[Malice]].
+[^a]: [[Mosiah 10.17|Mosiah 10:17]].  
+[^b]: [[Hate|TG Hate]]; [[Malice|Malice]].  

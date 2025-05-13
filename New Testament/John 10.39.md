@@ -5,4 +5,4 @@
 [John 10:39](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.39?lang=eng#p39)
 
 
-[^a]: [[John 7.30|John 7:30.]]
+[^a]: [[John 7.30|John 7:30]].  

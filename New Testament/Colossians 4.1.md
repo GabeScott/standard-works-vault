@@ -5,6 +5,6 @@
 [Colossians 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/col/4.1?lang=eng#p1)
 
 
-[^a]: Mal. 3:5; [[Ephesians 6.9|Eph. 6:9.]]
-[^b]: [[Matthew 23.8|Matt. 23:8.]]
-[^c]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Malachi 3.5|Mal. 3:5]]; [[Ephesians 6.9|Eph. 6:9]].  
+[^b]: [[Matthew 23.8|Matt. 23:8]].  
+[^c]: [[Heaven|TG Heaven]].  

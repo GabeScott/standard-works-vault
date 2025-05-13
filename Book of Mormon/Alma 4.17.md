@@ -5,5 +5,5 @@
 [Alma 4:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 27.20|Alma 27:20.]]
-[^b]: [[Alma 30.29|Alma 30:29]]; [[Alma 50.37|50:37.]]
+[^a]: [[Alma 27.20|Alma 27:20]].  
+[^b]: [[Alma 30.29|Alma 30:29]]; [[Alma 50.37|50:37]].  

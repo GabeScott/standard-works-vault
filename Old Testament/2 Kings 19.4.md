@@ -5,5 +5,5 @@
 [2 Kings 19:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.4?lang=eng#p4)
 
 
-[^a]: TG [[Prayer, Pray]].
-[^b]: TG [[Israel, Remnant of]].
+[^a]: [[Prayer, Pray|TG Prayer]].  
+[^b]: [[Israel, Remnant of|TG Israel, Remnant of]].  

@@ -5,4 +5,4 @@
 [2 Kings 10:33](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.33?lang=eng#p33)
 
 
-[^a]: [[Deuteronomy 2.36|Deut. 2:36.]]
+[^a]: [[Deuteronomy 2.36|Deut. 2:36]].  

@@ -5,4 +5,4 @@
 [2 Timothy 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.5?lang=eng#p5)
 
 
-[^a]: [[Acts 16.1|Acts 16:1.]]
+[^a]: [[Acts 16.1|Acts 16:1]].  

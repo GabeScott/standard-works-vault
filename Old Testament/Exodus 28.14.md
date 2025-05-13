@@ -5,4 +5,4 @@
 [Exodus 28:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.14?lang=eng#p14)
 
 
-[^a]: OR braided (also vv. 24-25).
+[^a]: OR braided (also [[Exodus 28.24|vv. 24–25]][[Exodus 28.25|]]).  

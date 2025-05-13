@@ -5,6 +5,6 @@
 [2 Kings 25:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.1?lang=eng#p1)
 
 
-[^a]: [[Jeremiah 39.1|Jer. 39:1]]; [[Jeremiah 52.4|52:4]]; [[Ezekiel 24.1|Ezek. 24:1.]]
-[^b]: [[Jeremiah 21.2|Jer. 21:2.]]
-[^c]: [[Ezekiel 4.2|Ezek. 4:2 (2-3).]]
+[^a]: [[Jeremiah 39.1|Jer. 39:1]]; [[Jeremiah 52.4|52:4]]; [[Ezekiel 24.1|Ezek. 24:1]].  
+[^b]: [[Jeremiah 21.2|Jer. 21:2]].  
+[^c]: [[Ezekiel 4.2|Ezek. 4:2 (2–3)]][[Ezekiel 4.3|]].  

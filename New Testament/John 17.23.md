@@ -5,5 +5,5 @@
 [John 17:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.23?lang=eng#p23)
 
 
-[^a]: TG [[Perfection, Perfect, Perfectly]].
-[^b]: TG [[God, Love of]].
+[^a]: [[Perfection, Perfect, Perfectly|TG Perfection]].  
+[^b]: [[God, Love of|TG God, Love of]].  

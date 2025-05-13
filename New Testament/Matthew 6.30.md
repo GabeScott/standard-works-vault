@@ -5,4 +5,4 @@
 [Matthew 6:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.30?lang=eng#p30)
 
 
-[^b]: TG [[Faith]].
+[^b]: [[Faith|TG Faith]].  

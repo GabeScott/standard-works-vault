@@ -5,4 +5,4 @@
 [Leviticus 26:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.9?lang=eng#p9)
 
 
-[^a]: HEB turn unto you.
+[^a]: HEB turn unto you.  

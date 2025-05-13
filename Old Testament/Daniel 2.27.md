@@ -5,4 +5,4 @@
 [Daniel 2:27](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.27?lang=eng#p27)
 
 
-[^a]: TG [[Sorcery]]; [[Superstitions]].
+[^a]: [[Sorcery|TG Sorcery]]; [[Superstitions|Superstitions]].  

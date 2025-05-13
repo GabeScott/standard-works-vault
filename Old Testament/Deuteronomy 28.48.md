@@ -5,4 +5,4 @@
 [Deuteronomy 28:48](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.48?lang=eng#p48)
 
 
-[^a]: TG [[Bondage, Physical]].
+[^a]: [[Bondage, Physical|TG Bondage, Physical]].  

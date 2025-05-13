@@ -5,4 +5,4 @@
 [Moses 7:67](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.67?lang=eng#p67)
 
 
-[^a]: TG [[Joy]].
+[^a]: [[Joy|TG Joy]].  

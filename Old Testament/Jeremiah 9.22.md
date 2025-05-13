@@ -5,4 +5,4 @@
 [Jeremiah 9:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.22?lang=eng#p22)
 
 
-[^a]: [[Jeremiah 7.33|Jer. 7:33.]]
+[^a]: [[Jeremiah 7.33|Jer. 7:33]].  

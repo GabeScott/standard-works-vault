@@ -5,4 +5,4 @@
 [Matthew 2:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.17?lang=eng#p17)
 
 
-[^a]: IE Jeremiah.
+[^a]: IE Jeremiah.  

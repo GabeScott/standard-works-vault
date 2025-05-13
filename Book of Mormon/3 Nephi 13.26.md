@@ -5,4 +5,4 @@
 [3 Nephi 13:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p26#p26)
 
 
-[^a]: [[D&C 117.6|D&C 117:6.]]
+[^a]: [[D&C 117.6|D&C 117:6]].  

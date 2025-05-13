@@ -5,5 +5,5 @@
 [Luke 12:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.4?lang=eng#p4)
 
 
-[^a]: [[John 15.15|John 15:15 (13-15).]]
-[^b]: [[Matthew 10.28|Matt. 10:28]]. TG [[Peer Influence]].
+[^a]: [[John 15.13|John 15:15 (13–15)]][[John 15.14|]][[John 15.15|]].  
+[^b]: [[Matthew 10.28|Matt. 10:28]]. [[Peer Influence|TG Peer Influence]].  

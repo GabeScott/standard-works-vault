@@ -5,4 +5,4 @@
 [Genesis 23:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.19?lang=eng#p19)
 
 
-[^a]: [[Genesis 23.2|Gen. 23:2.]]
+[^a]: [[Genesis 23.2|Gen. 23:2]].  

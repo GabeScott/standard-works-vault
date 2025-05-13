@@ -5,4 +5,4 @@
 [Ezra 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/5.13?lang=eng#p13)
 
 
-[^a]: [[Ezra 6.14|Ezra 6:14.]]
+[^a]: [[Ezra 6.14|Ezra 6:14]].  

@@ -5,6 +5,6 @@
 [D&C 7:3](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/7.3?lang=eng#p3)
 
 
-[^a]: [[John 21.22|John 21:22 (20-25)]]. TG [[Translated Beings]].
-[^b]: TG [[Telestial Glory]]; Jesus Christ, [[Telestial Glory]] of; [[Jesus Christ, Second Coming]].
-[^c]: [[Revelation 10.11|Rev. 10:11.]]
+[^a]: [[John 21.20|John 21:22 (20–25)]][[John 21.21|]][[John 21.22|]][[John 21.23|]][[John 21.24|]][[John 21.25|]]. [[Translated Beings|TG Translated Beings]].  
+[^b]: [[Glory|TG Glory]]; [[Jesus Christ, Glory of|Jesus Christ, Glory of]]; [[Jesus Christ, Second Coming|Jesus Christ, Second Coming]].  
+[^c]: [[Revelation 10.11|Rev. 10:11]].  

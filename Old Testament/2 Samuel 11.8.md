@@ -5,4 +5,4 @@
 [2 Samuel 11:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/11.8?lang=eng#p8)
 
 
-[^a]: IE a present of a portion of food. Gen. 43:34.
+[^a]: IE a present of a portion of food. [[Genesis 43.34|Gen. 43:34]].  

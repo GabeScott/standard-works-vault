@@ -5,5 +5,5 @@
 [1 Nephi 8:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p11#p11)
 
 
-[^a]: [[1 Nephi 15.36|1 Ne. 15:36]]; [[Alma 5.34|Alma 5:34.]]
-[^b]: [[1 Nephi 11.8|1 Ne. 11:8.]]
+[^a]: [[1 Nephi 15.36|1 Ne. 15:36]]; [[Alma 5.34|Alma 5:34]].  
+[^b]: [[1 Nephi 11.8|1 Ne. 11:8]].  

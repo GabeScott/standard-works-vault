@@ -5,4 +5,4 @@
 [Acts 4:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.2?lang=eng#p2)
 
 
-[^a]: [[Acts 23.8|Acts 23:8.]]
+[^a]: [[Acts 23.8|Acts 23:8]].  

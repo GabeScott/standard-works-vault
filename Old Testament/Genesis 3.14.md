@@ -5,5 +5,5 @@
 [Genesis 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.14?lang=eng#p14)
 
 
-[^a]: TG [[Devil, Church of]].
-[^b]: [[Moses 4.20|Moses 4:20 (20-21)]]. TG [[Curse]].
+[^a]: [[Devil|TG Devil]].  
+[^b]: [[Moses 4.20|Moses 4:20 (20–21)]][[Moses 4.21|]]. [[Curse|TG Curse]].  

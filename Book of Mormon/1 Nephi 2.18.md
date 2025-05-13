@@ -5,4 +5,4 @@
 [1 Nephi 2:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/2?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 31.24|Alma 31:24]]; [[3 Nephi 7.16|3 Ne. 7:16.]]
+[^a]: [[Alma 31.24|Alma 31:24]]; [[3 Nephi 7.16|3 Ne. 7:16]].  

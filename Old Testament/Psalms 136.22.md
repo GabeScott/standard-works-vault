@@ -5,4 +5,4 @@
 [Psalms 136:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.22?lang=eng#p22)
 
 
-[^a]: [[Psalms 135.12|Ps. 135:12.]]
+[^a]: [[Psalms 135.12|Ps. 135:12]].  

@@ -5,6 +5,6 @@
 [Mosiah 4:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p20#p20)
 
 
-[^a]: [[Romans 2.4|Rom. 2:4 (1-4).]]
-[^b]: TG [[God, Spirit of]].
-[^c]: TG [[Joy]].
+[^a]: [[Romans 2.1|Rom. 2:4 (1–4)]][[Romans 2.2|]][[Romans 2.3|]][[Romans 2.4|]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]].  
+[^c]: [[Joy|TG Joy]].  

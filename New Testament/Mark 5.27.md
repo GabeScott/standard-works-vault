@@ -5,4 +5,4 @@
 [Mark 5:27](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.27?lang=eng#p27)
 
 
-[^a]: [[Matthew 14.36|Matt. 14:36.]]
+[^a]: [[Matthew 14.36|Matt. 14:36]].  

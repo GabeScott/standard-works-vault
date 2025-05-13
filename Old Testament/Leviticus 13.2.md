@@ -5,5 +5,5 @@
 [Leviticus 13:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.2?lang=eng#p2)
 
 
-[^a]: HEB a swelling.
-[^b]: TG [[Leprosy, Leper, Leprous]].
+[^a]: HEB a swelling.  
+[^b]: [[Leprosy, Leper, Leprous|TG Leprosy]].  

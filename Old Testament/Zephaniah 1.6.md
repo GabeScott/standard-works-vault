@@ -5,4 +5,4 @@
 [Zephaniah 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.6?lang=eng#p6)
 
 
-[^a]: [[Jeremiah 11.10|Jer. 11:10 (9-10).]]
+[^a]: [[Jeremiah 11.9|Jer. 11:10 (9–10)]][[Jeremiah 11.10|]].  

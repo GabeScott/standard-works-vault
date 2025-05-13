@@ -5,6 +5,6 @@
 [Psalms 104:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.29?lang=eng#p29)
 
 
-[^a]: [[Psalms 30.7|Ps. 30:7.]]
-[^b]: TG [[Breath of Life]].
-[^c]: [[Moses 4.25|Moses 4:25.]]
+[^a]: [[Psalms 30.7|Ps. 30:7]].  
+[^b]: [[Breath of Life|TG Breath of Life]].  
+[^c]: [[Moses 4.25|Moses 4:25]].  

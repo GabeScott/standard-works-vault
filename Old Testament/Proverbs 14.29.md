@@ -5,7 +5,7 @@
 [Proverbs 14:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.29?lang=eng#p29)
 
 
-[^a]: TG [[Self-Mastery]].
-[^b]: [[Proverbs 15.18|Prov. 15:18]]; [[D&C 60.14|D&C 60:14]]. TG [[Patience, Patient, Patiently]].
-[^c]: TG [[Understanding]].
-[^d]: IE quick-tempered. TG [[Haste, Hasten, Hasty]]; [[Rashness]].
+[^a]: [[Self-Mastery|TG Self-Mastery]].  
+[^b]: [[Proverbs 15.18|Prov. 15:18]]; [[D&C 60.14|D&C 60:14]]. [[Patience, Patient, Patiently|TG Patience]].  
+[^c]: [[Understanding|TG Understanding]].  
+[^d]: IE quick-tempered. [[Haste, Hasten, Hasty|TG Haste]]; [[Rashness|Rashness]].  

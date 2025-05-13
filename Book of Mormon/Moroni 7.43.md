@@ -5,4 +5,4 @@
 [Moroni 7:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p43#p43)
 
 
-[^a]: TG [[Humility, Humble]].
+[^a]: [[Humility, Humble|TG Humility]].  

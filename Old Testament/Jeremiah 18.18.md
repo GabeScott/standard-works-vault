@@ -5,4 +5,4 @@
 [Jeremiah 18:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/18.18?lang=eng#p18)
 
 
-[^a]: TG [[Prophets, Rejection of]].
+[^a]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

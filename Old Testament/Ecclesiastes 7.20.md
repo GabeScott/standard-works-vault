@@ -5,5 +5,5 @@
 [Ecclesiastes 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.20?lang=eng#p20)
 
 
-[^a]: [[D&C 33.4|D&C 33:4.]]
-[^b]: TG [[Sin]].
+[^a]: [[D&C 33.4|D&C 33:4]].  
+[^b]: [[Sin|TG Sin]].  

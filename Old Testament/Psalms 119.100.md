@@ -5,4 +5,4 @@
 [Psalms 119:100](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.100?lang=eng#p100)
 
 
-[^a]: HEB aged, elders.
+[^a]: HEB aged, elders.  

@@ -5,6 +5,6 @@
 [Leviticus 19:19](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.19?lang=eng#p19)
 
 
-[^a]: Note that these laws are in harmony with the other admonitions to keep things pure and in proper use. TG [[Separation, Separate]].
-[^b]: [[Deuteronomy 22.9|Deut. 22:9.]]
-[^c]: [[Deuteronomy 22.11|Deut. 22:11.]]
+[^a]: Note that these laws are in harmony with the other admonitions to keep things pure and in proper use. [[Separation, Separate|TG Separation]].  
+[^b]: [[Deuteronomy 22.9|Deut. 22:9]].  
+[^c]: [[Deuteronomy 22.11|Deut. 22:11]].  

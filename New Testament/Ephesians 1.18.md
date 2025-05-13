@@ -5,7 +5,7 @@
 [Ephesians 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.18?lang=eng#p18)
 
 
-[^a]: TG [[Understanding]].
-[^b]: [[D&C 6.15|D&C 6:15]]; [[D&C 11.13|11:13]]. TG [[Education]].
-[^c]: TG [[Treasure]].
-[^d]: TG [[Inheritance]].
+[^a]: [[Understanding|TG Understanding]].  
+[^b]: [[D&C 6.15|D&C 6:15]]; [[D&C 11.13|11:13]]. [[Education|TG Education]].  
+[^c]: [[Treasure|TG Treasure]].  
+[^d]: [[Inheritance|TG Inheritance]].  

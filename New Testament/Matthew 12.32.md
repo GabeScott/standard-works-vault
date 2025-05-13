@@ -5,4 +5,4 @@
 [Matthew 12:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.32?lang=eng#p32)
 
 
-[^a]: TG [[Death, Spiritual, Second]]; [[Forgive, Forgiveness]].
+[^a]: [[Death, Spiritual, Second|TG Death, Spiritual, Second]]; [[Forgive, Forgiveness|Forgive]].  

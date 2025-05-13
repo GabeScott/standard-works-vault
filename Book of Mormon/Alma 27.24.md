@@ -5,4 +5,4 @@
 [Alma 27:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p24#p24)
 
 
-[^a]: [[Alma 43.13|Alma 43:13.]]
+[^a]: [[Alma 43.13|Alma 43:13]].  

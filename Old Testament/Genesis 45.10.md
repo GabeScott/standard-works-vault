@@ -5,4 +5,4 @@
 [Genesis 45:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/45.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 46.28|Gen. 46:28 (28-34)]]; [[Genesis 47.1|47:1 (1, 11)]]; [[Genesis 50.8|50:8.]]
+[^a]: [[Genesis 46.28|Gen. 46:28 (28–34)]][[Genesis 46.29|]][[Genesis 46.30|]][[Genesis 46.31|]][[Genesis 46.32|]][[Genesis 46.33|]][[Genesis 46.34|]]; [[Genesis 47.1|47:1 (1, 11)]][[Genesis 47.11|]]; [[Genesis 50.8|50:8]].  

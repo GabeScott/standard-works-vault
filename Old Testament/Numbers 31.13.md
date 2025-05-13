@@ -5,4 +5,4 @@
 [Numbers 31:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.13?lang=eng#p13)
 
 
-[^a]: HEB leaders, presidents.
+[^a]: HEB leaders, presidents.  

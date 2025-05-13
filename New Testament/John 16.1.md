@@ -5,4 +5,4 @@
 [John 16:1](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.1?lang=eng#p1)
 
 
-[^a]: TG [[Offense, Offend, Offender]].
+[^a]: [[Offense, Offend, Offender|TG Offense]].  

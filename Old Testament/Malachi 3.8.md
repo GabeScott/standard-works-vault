@@ -5,6 +5,6 @@
 [Malachi 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.8?lang=eng#p8)
 
 
-[^a]: TG [[Ingratitude]].
-[^b]: [[1 Chronicles 29.14|1 Chr. 29:14]]. TG [[Stealing, Stolen]].
-[^c]: TG [[Tithing]].
+[^a]: [[Ingratitude|TG Ingratitude]].  
+[^b]: [[1 Chronicles 29.14|1 Chr. 29:14]]. [[Stealing, Stolen|TG Stealing]].  
+[^c]: [[Tithing|TG Tithing]].  

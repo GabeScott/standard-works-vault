@@ -5,6 +5,6 @@
 [Matthew 17:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.9?lang=eng#p9)
 
 
-[^a]: TG [[Vision]].
-[^b]: [[Mark 9.9|Mark 9:9 (9-13).]]
-[^c]: TG [[Death]].
+[^a]: [[Vision|TG Vision]].  
+[^b]: [[Mark 9.9|Mark 9:9 (9–13)]][[Mark 9.10|]][[Mark 9.11|]][[Mark 9.12|]][[Mark 9.13|]].  
+[^c]: [[Death|TG Death]].  

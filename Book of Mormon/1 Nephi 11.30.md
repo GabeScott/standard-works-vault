@@ -5,4 +5,4 @@
 [1 Nephi 11:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p30#p30)
 
 
-[^a]: TG [[Angels]].
+[^a]: [[Angels|TG Angels]].  

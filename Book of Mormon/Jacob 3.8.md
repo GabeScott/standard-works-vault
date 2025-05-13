@@ -5,4 +5,4 @@
 [Jacob 3:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p8#p8)
 
 
-[^a]: [[3 Nephi 2.15|3 Ne. 2:15.]]
+[^a]: [[3 Nephi 2.15|3 Ne. 2:15]].  

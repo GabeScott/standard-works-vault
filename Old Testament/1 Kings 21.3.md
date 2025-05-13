@@ -5,4 +5,4 @@
 [1 Kings 21:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/21.3?lang=eng#p3)
 
 
-[^a]: TG [[Inheritance]].
+[^a]: [[Inheritance|TG Inheritance]].  

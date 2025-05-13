@@ -5,4 +5,4 @@
 [Helaman 1:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 50.40|Alma 50:40.]]
+[^a]: [[Alma 50.40|Alma 50:40]].  

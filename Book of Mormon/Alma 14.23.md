@@ -5,4 +5,4 @@
 [Alma 14:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/14?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 8.6|Alma 8:6]]; [[Alma 15.1|15:1 (1, 15-16).]]
+[^a]: [[Alma 8.6|Alma 8:6]]; [[Alma 15.1|15:1 (1, 15–16)]][[Alma 15.15|]][[Alma 15.16|]].  

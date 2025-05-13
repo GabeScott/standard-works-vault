@@ -5,5 +5,5 @@
 [Revelation 12:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.9?lang=eng#p9)
 
 
-[^a]: [[2 Nephi 9.9|2 Ne. 9:9 (8-9).]]
-[^b]: TG [[Devil, Church of]].
+[^a]: [[2 Nephi 9.8|2 Ne. 9:9 (8–9)]][[2 Nephi 9.9|]].  
+[^b]: [[Devil|TG Devil]].  

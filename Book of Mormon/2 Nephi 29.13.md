@@ -5,5 +5,5 @@
 [2 Nephi 29:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p13#p13)
 
 
-[^a]: [[Mormon 5.14|Morm. 5:14 (13-14).]]
-[^b]: TG [[Israel, Ten Lost Tribes of]].
+[^a]: [[Mormon 5.13|Morm. 5:14 (13–14)]][[Mormon 5.14|]].  
+[^b]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  

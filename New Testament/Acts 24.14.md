@@ -5,4 +5,4 @@
 [Acts 24:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.14?lang=eng#p14)
 
 
-[^a]: [[Acts 28.23|Acts 28:23.]]
+[^a]: [[Acts 28.23|Acts 28:23]].  

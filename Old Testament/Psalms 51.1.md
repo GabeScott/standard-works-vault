@@ -5,7 +5,7 @@
 [Psalms 51:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.1?lang=eng#p1)
 
 
-[^a]: [[Psalms 25.7|Ps. 25:7.]]
-[^b]: TG [[Kindness]].
-[^c]: [[Acts 3.19|Acts 3:19.]]
-[^d]: TG [[Sin]].
+[^a]: [[Psalms 25.7|Ps. 25:7]].  
+[^b]: [[Kindness|TG Kindness]].  
+[^c]: [[Acts 3.19|Acts 3:19]].  
+[^d]: [[Sin|TG Sin]].  

@@ -5,6 +5,6 @@
 [Ephesians 6:9](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.9?lang=eng#p9)
 
 
-[^a]: Mal. 3:5; Col. 4:1.
-[^b]: TG [[Leadership]].
-[^c]: [[Moroni 8.12|Moro. 8:12]]; [[D&C 38.16|D&C 38:16.]]
+[^a]: [[Malachi 3.5|Mal. 3:5]]; [[Colossians 4.1|Col. 4:1]].  
+[^b]: [[Leadership|TG Leadership]].  
+[^c]: [[Moroni 8.12|Moro. 8:12]]; [[D&C 38.16|D&C 38:16]].  

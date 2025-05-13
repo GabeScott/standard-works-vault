@@ -5,4 +5,4 @@
 [Jeremiah 44:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.27?lang=eng#p27)
 
 
-[^a]: [[Jeremiah 31.28|Jer. 31:28.]]
+[^a]: [[Jeremiah 31.28|Jer. 31:28]].  

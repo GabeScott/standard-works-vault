@@ -5,4 +5,4 @@
 [1 Kings 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.7?lang=eng#p7)
 
 
-[^a]: [[Alma 1.26|Alma 1:26]]. TG [[Kings, Earthly]]; [[Service]].
+[^a]: [[Alma 1.26|Alma 1:26]]. [[Kings, Earthly|TG Kings, Earthly]]; [[Service|Service]].  

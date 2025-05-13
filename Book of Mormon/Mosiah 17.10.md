@@ -5,6 +5,6 @@
 [Mosiah 17:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/17?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Persecution, Persecute]].
-[^b]: TG [[Testimony]].
-[^c]: [[Jeremiah 26.15|Jer. 26:15 (14-15)]]; Lam. 4:13; [[Alma 14.11|Alma 14:11]]; [[Alma 60.13|60:13.]]
+[^a]: [[Persecution, Persecute|TG Persecution]].  
+[^b]: [[Testimony|TG Testimony]].  
+[^c]: [[Jeremiah 26.14|Jer. 26:15 (14–15)]][[Jeremiah 26.15|]]; [[Lamentations 4.13|Lam. 4:13]]; [[Alma 14.11|Alma 14:11]]; [[Alma 60.13|60:13]].  

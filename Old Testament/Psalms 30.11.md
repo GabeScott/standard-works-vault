@@ -5,5 +5,5 @@
 [Psalms 30:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/30.11?lang=eng#p11)
 
 
-[^a]: [[Jeremiah 31.13|Jer. 31:13.]]
-[^b]: [[Isaiah 61.3|Isa. 61:3.]]
+[^a]: [[Jeremiah 31.13|Jer. 31:13]].  
+[^b]: [[Isaiah 61.3|Isa. 61:3]].  

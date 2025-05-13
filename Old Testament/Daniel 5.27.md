@@ -5,4 +5,4 @@
 [Daniel 5:27](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.27?lang=eng#p27)
 
 
-[^b]: [[Job 31.6|Job 31:6.]]
+[^b]: [[Job 31.6|Job 31:6]].  

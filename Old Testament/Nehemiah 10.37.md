@@ -5,4 +5,4 @@
 [Nehemiah 10:37](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.37?lang=eng#p37)
 
 
-[^a]: [[Leviticus 23.17|Lev. 23:17.]]
+[^a]: [[Leviticus 23.17|Lev. 23:17]].  

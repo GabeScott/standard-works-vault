@@ -5,4 +5,4 @@
 [Genesis 43:33](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.33?lang=eng#p33)
 
 
-[^a]: TG [[Birthright]].
+[^a]: [[Birthright|TG Birthright]].  

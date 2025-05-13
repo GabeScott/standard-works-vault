@@ -5,6 +5,6 @@
 [1 John 4:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.2?lang=eng#p2)
 
 
-[^a]: TG [[Discernment, Spiritual]].
-[^b]: TG [[God, Spirit of]].
-[^c]: TG [[Flesh and Blood]].
+[^a]: [[Discernment, Spiritual|TG Discernment, Spiritual]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]].  
+[^c]: [[Flesh and Blood|TG Flesh and Blood]].  

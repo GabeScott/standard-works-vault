@@ -5,5 +5,5 @@
 [3 Nephi 7:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[God, Manifestations of]].
-[^b]: TG [[God, Spirit of]].
+[^a]: [[God, Manifestations of|TG God, Manifestations of]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]].  

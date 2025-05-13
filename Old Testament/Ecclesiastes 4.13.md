@@ -5,5 +5,5 @@
 [Ecclesiastes 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/4.13?lang=eng#p13)
 
 
-[^a]: [[3 Nephi 12.3|3 Ne. 12:3.]]
-[^b]: TG [[Teachable]]; [[Warn, Warnings]].
+[^a]: [[3 Nephi 12.3|3 Ne. 12:3]].  
+[^b]: [[Teachable|TG Teachable]]; [[Warn, Warnings|Warn]].  

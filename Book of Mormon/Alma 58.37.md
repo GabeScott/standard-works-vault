@@ -5,4 +5,4 @@
 [Alma 58:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/58?lang=eng&id=p37#p37)
 
 
-[^a]: [[2 Kings 17.39|2 Kgs. 17:39.]]
+[^a]: [[2 Kings 17.39|2 Kgs. 17:39]].  

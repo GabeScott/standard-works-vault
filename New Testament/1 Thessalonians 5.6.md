@@ -5,6 +5,6 @@
 [1 Thessalonians 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.6?lang=eng#p6)
 
 
-[^a]: TG [[Sleep, Slept]].
-[^b]: TG [[Watch, Watchfulness]].
-[^c]: GR sober, vigilant, circumspect. TG [[Abstain, Abstinence]].
+[^a]: [[Sleep, Slept|TG Sleep]].  
+[^b]: [[Watch, Watchfulness|TG Watch]].  
+[^c]: GR sober, vigilant, circumspect. [[Abstain, Abstinence|TG Abstain]].  

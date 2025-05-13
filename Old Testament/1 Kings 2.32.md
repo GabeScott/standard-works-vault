@@ -5,4 +5,4 @@
 [1 Kings 2:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.32?lang=eng#p32)
 
 
-[^a]: [[2 Samuel 3.27|2 Sam. 3:27.]]
+[^a]: [[2 Samuel 3.27|2 Sam. 3:27]].  

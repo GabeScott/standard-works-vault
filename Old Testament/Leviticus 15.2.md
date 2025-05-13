@@ -5,4 +5,4 @@
 [Leviticus 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/15.2?lang=eng#p2)
 
 
-[^a]: [[Numbers 5.2|Num. 5:2 (2-4).]]
+[^a]: [[Numbers 5.2|Num. 5:2 (2–4)]][[Numbers 5.3|]][[Numbers 5.4|]].  

@@ -5,4 +5,4 @@
 [Acts 27:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.2?lang=eng#p2)
 
 
-[^a]: [[Acts 19.29|Acts 19:29]]; [[Acts 20.4|20:4]]; Col. 4:10.
+[^a]: [[Acts 19.29|Acts 19:29]]; [[Acts 20.4|20:4]]; [[Colossians 4.10|Col. 4:10]].  

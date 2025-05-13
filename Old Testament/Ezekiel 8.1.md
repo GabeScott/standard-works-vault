@@ -5,5 +5,5 @@
 [Ezekiel 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/8.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 14.1|Ezek. 14:1]]. TG [[Elder, Melchizedek Priesthood]].
-[^b]: [[Ezekiel 1.3|Ezek. 1:3.]]
+[^a]: [[Ezekiel 14.1|Ezek. 14:1]]. [[Elder|TG Elder]].  
+[^b]: [[Ezekiel 1.3|Ezek. 1:3]].  

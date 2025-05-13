@@ -5,4 +5,4 @@
 [Ezekiel 12:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.12?lang=eng#p12)
 
 
-[^a]: IE the baggage of exile.
+[^a]: IE the baggage of exile.  

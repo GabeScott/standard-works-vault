@@ -5,4 +5,4 @@
 [Luke 12:6](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.6?lang=eng#p6)
 
 
-[^a]: TG [[God, Omniscience of]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  

@@ -5,5 +5,5 @@
 [Ezekiel 37:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.9?lang=eng#p9)
 
 
-[^a]: HEB spirit, breath, or wind.
-[^b]: Dan. 11:4; [[Revelation 7.1|Rev. 7:1.]]
+[^a]: HEB spirit, breath, or wind.  
+[^b]: [[Daniel 11.4|Dan. 11:4]]; [[Revelation 7.1|Rev. 7:1]].  

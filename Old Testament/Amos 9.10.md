@@ -5,4 +5,4 @@
 [Amos 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.10?lang=eng#p10)
 
 
-[^a]: HEB confront.
+[^a]: HEB confront.  

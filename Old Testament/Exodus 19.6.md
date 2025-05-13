@@ -5,7 +5,7 @@
 [Exodus 19:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.6?lang=eng#p6)
 
 
-[^a]: TG [[Election, Elect]].
-[^b]: TG [[Israel, Mission of]]; [[Priesthood, History of]]; [[Priesthood, History of]], History of.
-[^c]: [[Exodus 22.31|Ex. 22:31]]; [[1 Peter 2.9|1 Pet. 2:9 (5-9)]]. TG [[Holiness]].
-[^d]: TG [[Separation, Separate]].
+[^a]: [[Election, Elect|TG Election]].  
+[^b]: [[Israel, Mission of|TG Israel, Mission of]]; [[Priesthood|Priesthood]]; [[Priesthood, History of|Priesthood, History of]].  
+[^c]: [[Exodus 22.31|Ex. 22:31]]; [[1 Peter 2.5|1 Pet. 2:9 (5–9)]][[1 Peter 2.6|]][[1 Peter 2.7|]][[1 Peter 2.8|]][[1 Peter 2.9|]]. [[Holiness|TG Holiness]].  
+[^d]: [[Separation, Separate|TG Separation]].  

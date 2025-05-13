@@ -5,4 +5,4 @@
 [1 Samuel 29:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/29.2?lang=eng#p2)
 
 
-[^a]: IE at the rear.
+[^a]: IE at the rear.  

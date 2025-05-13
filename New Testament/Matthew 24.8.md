@@ -5,4 +5,4 @@
 [Matthew 24:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.8?lang=eng#p8)
 
 
-[^a]: TG [[Sorrow]].
+[^a]: [[Sorrow|TG Sorrow]].  

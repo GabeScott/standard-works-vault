@@ -5,4 +5,4 @@
 [2 Kings 15:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/15.10?lang=eng#p10)
 
 
-[^a]: [[Amos 7.9|Amos 7:9 (7-9).]]
+[^a]: [[Amos 7.7|Amos 7:9 (7–9)]][[Amos 7.8|]][[Amos 7.9|]].  

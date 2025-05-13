@@ -5,5 +5,5 @@
 [Ezekiel 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.11?lang=eng#p11)
 
 
-[^a]: OR type (of things to come). TG [[Signs]].
-[^b]: [[Ezekiel 24.24|Ezek. 24:24.]]
+[^a]: OR type (of things to come). [[Signs|TG Signs]].  
+[^b]: [[Ezekiel 24.24|Ezek. 24:24]].  

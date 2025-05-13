@@ -5,5 +5,5 @@
 [John 5:39](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.39?lang=eng#p39)
 
 
-[^a]: TG [[Education]]; [[Learn, Learning]]; [[Scriptures, Study of]]; [[Study]].
-[^b]: TG [[Scriptures, Value of]]; [[Testimony]].
+[^a]: [[Education|TG Education]]; [[Learn, Learning|Learn]]; [[Scriptures, Study of|Scriptures, Study of]]; [[Study|Study]].  
+[^b]: [[Scriptures, Value of|TG Scriptures, Value of]]; [[Testimony|Testimony]].  

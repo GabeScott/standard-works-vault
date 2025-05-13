@@ -5,7 +5,7 @@
 [2 Corinthians 12:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.9?lang=eng#p9)
 
 
-[^a]: TG [[Grace]].
-[^b]: TG [[Strength]].
-[^c]: [[2 Corinthians 13.9|2 Cor. 13:9]]; [[Ether 12.27|Ether 12:27 (26-28).]]
-[^d]: [[D&C 39.12|D&C 39:12.]]
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[Strength|TG Strength]].  
+[^c]: [[2 Corinthians 13.9|2 Cor. 13:9]]; [[Ether 12.26|Ether 12:27 (26–28)]][[Ether 12.27|]][[Ether 12.28|]].  
+[^d]: [[D&C 39.12|D&C 39:12]].  

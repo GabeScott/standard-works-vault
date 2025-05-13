@@ -5,4 +5,4 @@
 [Hosea 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 25.26|Gen. 25:26.]]
+[^a]: [[Genesis 25.26|Gen. 25:26]].  

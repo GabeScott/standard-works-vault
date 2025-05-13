@@ -5,4 +5,4 @@
 [1 John 2:24](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.24?lang=eng#p24)
 
 
-[^a]: 2 Jn. 1:6.
+[^a]: [[2 John 1.6|2 Jn. 1:6]].  

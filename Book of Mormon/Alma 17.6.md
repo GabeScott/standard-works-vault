@@ -5,6 +5,6 @@
 [Alma 17:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p6#p6)
 
 
-[^a]: [[Mosiah 28.9|Mosiah 28:9 (1, 5-9)]]; [[Alma 26.1|Alma 26:1.]]
-[^b]: [[Mosiah 29.44|Mosiah 29:44 (41-44).]]
-[^c]: [[Mosiah 29.3|Mosiah 29:3.]]
+[^a]: [[Mosiah 28.1|Mosiah 28:9 (1, 5–9)]][[Mosiah 28.5|]][[Mosiah 28.6|]][[Mosiah 28.7|]][[Mosiah 28.8|]][[Mosiah 28.9|]]; [[Alma 26.1|Alma 26:1]].  
+[^b]: [[Mosiah 29.41|Mosiah 29:44 (41–44)]][[Mosiah 29.42|]][[Mosiah 29.43|]][[Mosiah 29.44|]].  
+[^c]: [[Mosiah 29.3|Mosiah 29:3]].  

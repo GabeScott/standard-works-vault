@@ -5,6 +5,6 @@
 [Isaiah 43:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.24?lang=eng#p24)
 
 
-[^a]: IE spices for the anointing oil. See Ex. 30:23.
-[^b]: OR burdened.
-[^c]: [[Isaiah 1.14|Isa. 1:14.]]
+[^a]: IE spices for the anointing oil. See [[Exodus 30.23|Ex. 30:23]].  
+[^b]: OR burdened.  
+[^c]: [[Isaiah 1.14|Isa. 1:14]].  

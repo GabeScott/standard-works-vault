@@ -5,5 +5,5 @@
 [Joshua 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/16.10?lang=eng#p10)
 
 
-[^a]: [[Judges 1.29|Judg. 1:29 (28-30).]]
-[^b]: HEB as task servants.
+[^a]: [[Judges 1.28|Judg. 1:29 (28–30)]][[Judges 1.29|]][[Judges 1.30|]].  
+[^b]: HEB as task servants.  

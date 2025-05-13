@@ -5,6 +5,6 @@
 [Daniel 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.6?lang=eng#p6)
 
 
-[^a]: [[Alma 18.12|Alma 18:12.]]
-[^b]: [[Alma 42.29|Alma 42:29.]]
-[^c]: OR his hip joints.
+[^a]: [[Alma 18.12|Alma 18:12]].  
+[^b]: [[Alma 42.29|Alma 42:29]].  
+[^c]: OR his hip joints.  

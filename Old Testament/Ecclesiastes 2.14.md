@@ -5,5 +5,5 @@
 [Ecclesiastes 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.14?lang=eng#p14)
 
 
-[^a]: [[Proverbs 17.24|Prov. 17:24.]]
-[^b]: [[Ecclesiastes 9.2|Eccl. 9:2.]]
+[^a]: [[Proverbs 17.24|Prov. 17:24]].  
+[^b]: [[Ecclesiastes 9.2|Eccl. 9:2]].  

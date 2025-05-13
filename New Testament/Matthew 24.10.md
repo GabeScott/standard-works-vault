@@ -5,4 +5,4 @@
 [Matthew 24:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.10?lang=eng#p10)
 
 
-[^a]: [[Isaiah 8.14|Isa. 8:14 (14-15)]]; [[Matthew 11.6|Matt. 11:6.]]
+[^a]: [[Isaiah 8.14|Isa. 8:14 (14–15)]][[Isaiah 8.15|]]; [[Matthew 11.6|Matt. 11:6]].  

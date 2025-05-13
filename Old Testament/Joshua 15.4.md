@@ -5,4 +5,4 @@
 [Joshua 15:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.4?lang=eng#p4)
 
 
-[^a]: HEB border (also vv. 12, 21).
+[^a]: HEB border (also [[Joshua 15.12|vv. 12, 21]][[Joshua 15.21|]]).  

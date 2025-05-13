@@ -5,5 +5,5 @@
 [2 Kings 23:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.25?lang=eng#p25)
 
 
-[^a]: [[Jeremiah 22.15|Jer. 22:15.]]
-[^b]: [[Deuteronomy 6.5|Deut. 6:5]]; [[2 Kings 18.5|2 Kgs. 18:5.]]
+[^a]: [[Jeremiah 22.15|Jer. 22:15]].  
+[^b]: [[Deuteronomy 6.5|Deut. 6:5]]; [[2 Kings 18.5|2 Kgs. 18:5]].  

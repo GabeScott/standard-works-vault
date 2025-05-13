@@ -5,4 +5,4 @@
 [Luke 14:24](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.24?lang=eng#p24)
 
 
-[^a]: [[Matthew 21.43|Matt. 21:43]]; [[Acts 13.46|Acts 13:46.]]
+[^a]: [[Matthew 21.43|Matt. 21:43]]; [[Acts 13.46|Acts 13:46]].  

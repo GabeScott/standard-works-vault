@@ -5,5 +5,5 @@
 [Proverbs 12:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.5?lang=eng#p5)
 
 
-[^a]: TG [[Counselor]].
-[^b]: TG [[Deceit, Deceive]].
+[^a]: [[Counselor|TG Counselor]].  
+[^b]: [[Deceit, Deceive|TG Deceit]].  

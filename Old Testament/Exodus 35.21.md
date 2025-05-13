@@ -5,8 +5,8 @@
 [Exodus 35:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.21?lang=eng#p21)
 
 
-[^a]: [[Exodus 36.2|Ex. 36:2.]]
-[^b]: TG [[Initiative]].
-[^c]: TG [[Generosity]].
-[^d]: OR for use in.
-[^e]: HEB tent of meeting.
+[^a]: [[Exodus 36.2|Ex. 36:2]].  
+[^b]: [[Initiative|TG Initiative]].  
+[^c]: [[Generosity|TG Generosity]].  
+[^d]: OR for use in.  
+[^e]: HEB tent of meeting.  

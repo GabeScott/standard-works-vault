@@ -5,4 +5,4 @@
 [Luke 9:45](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.45?lang=eng#p45)
 
 
-[^a]: [[John 12.16|John 12:16.]]
+[^a]: [[John 12.16|John 12:16]].  

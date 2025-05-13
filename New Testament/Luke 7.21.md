@@ -5,5 +5,5 @@
 [Luke 7:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.21?lang=eng#p21)
 
 
-[^a]: TG [[Health]].
-[^b]: TG [[Sight]].
+[^a]: [[Heal, Healing|TG Heal]].  
+[^b]: [[Sight|TG Sight]].  

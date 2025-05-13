@@ -5,8 +5,8 @@
 [Romans 6:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.23?lang=eng#p23)
 
 
-[^a]: TG [[Wages]].
-[^b]: TG [[Sin]].
-[^c]: TG [[Death]]; [[Death]], Spiritual, First.
-[^d]: TG [[God, Gifts of]].
-[^e]: TG [[Eternal Life]].
+[^a]: [[Wages|TG Wages]].  
+[^b]: [[Sin|TG Sin]].  
+[^c]: [[Death|TG Death]]; [[Death, Spiritual, First|Death, Spiritual, First]].  
+[^d]: [[God, Gifts of|TG God, Gifts of]].  
+[^e]: [[Eternal Life|TG Eternal Life]].  

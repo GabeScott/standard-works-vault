@@ -5,5 +5,5 @@
 [1 Kings 8:36](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.36?lang=eng#p36)
 
 
-[^a]: [[Psalms 27.11|Ps. 27:11]]; [[Psalms 86.11|86:11]]; [[2 Nephi 25.28|2 Ne. 25:28]]; [[2 Nephi 33.10|33:10.]]
-[^b]: [[1 Samuel 12.23|1 Sam. 12:23 (16-23).]]
+[^a]: [[Psalms 27.11|Ps. 27:11]]; [[Psalms 86.11|86:11]]; [[2 Nephi 25.28|2 Ne. 25:28]]; [[2 Nephi 33.10|33:10]].  
+[^b]: [[1 Samuel 12.16|1 Sam. 12:23 (16–23)]][[1 Samuel 12.17|]][[1 Samuel 12.18|]][[1 Samuel 12.19|]][[1 Samuel 12.20|]][[1 Samuel 12.21|]][[1 Samuel 12.22|]][[1 Samuel 12.23|]].  

@@ -5,5 +5,5 @@
 [Jeremiah 49:25](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.25?lang=eng#p25)
 
 
-[^a]: [[Jeremiah 33.9|Jer. 33:9.]]
-[^b]: HEB forsaken.
+[^a]: [[Jeremiah 33.9|Jer. 33:9]].  
+[^b]: HEB forsaken.  

@@ -5,4 +5,4 @@
 [1 Samuel 6:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.11?lang=eng#p11)
 
 
-[^a]: [[1 Samuel 5.6|1 Sam. 5:6.]]
+[^a]: [[1 Samuel 5.6|1 Sam. 5:6]].  

@@ -5,4 +5,4 @@
 [3 Nephi 7:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Unity]].
+[^a]: [[Unity|TG Unity]].  

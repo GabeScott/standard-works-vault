@@ -5,4 +5,4 @@
 [Exodus 16:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.21?lang=eng#p21)
 
 
-[^a]: OR became.
+[^a]: OR became.  

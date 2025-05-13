@@ -5,4 +5,4 @@
 [Deuteronomy 27:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.26?lang=eng#p26)
 
 
-[^a]: TG [[Curse]].
+[^a]: [[Curse|TG Curse]].  

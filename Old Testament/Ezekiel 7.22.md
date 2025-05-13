@@ -5,4 +5,4 @@
 [Ezekiel 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.22?lang=eng#p22)
 
 
-[^a]: TG [[Pollution, Pollute]].
+[^a]: [[Pollution, Pollute|TG Pollution]].  

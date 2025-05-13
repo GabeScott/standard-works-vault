@@ -5,5 +5,5 @@
 [Romans 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.4?lang=eng#p4)
 
 
-[^a]: GR wage, hire.
-[^b]: GR considered a favor but as his due.
+[^a]: GR wage, hire.  
+[^b]: GR considered a favor but as his due.  

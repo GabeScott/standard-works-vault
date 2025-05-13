@@ -5,5 +5,5 @@
 [Leviticus 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.2?lang=eng#p2)
 
 
-[^a]: IE in error or inadvertently.
-[^b]: TG [[Accountability]]; [[Ignorance, Ignorant]].
+[^a]: IE in error or inadvertently.  
+[^b]: [[Accountability|TG Accountability]]; [[Ignorance, Ignorant|Ignorance]].  

@@ -5,5 +5,5 @@
 [Daniel 2:35](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.35?lang=eng#p35)
 
 
-[^a]: [[Revelation 20.11|Rev. 20:11.]]
-[^b]: TG [[Kingdom of God, on Earth]]; [[Mission of Latter-day Saints]].
+[^a]: [[Revelation 20.11|Rev. 20:11]].  
+[^b]: [[Kingdom of God, on Earth|TG Kingdom of God, on Earth]]; [[Mission of Latter-day Saints|Mission of Latter-day Saints]].  

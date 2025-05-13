@@ -5,4 +5,4 @@
 [Helaman 8:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p4#p4)
 
 
-[^a]: [[1 Nephi 16.2|1 Ne. 16:2 (2-3).]]
+[^a]: [[1 Nephi 16.2|1 Ne. 16:2 (2–3)]][[1 Nephi 16.3|]].  

@@ -5,7 +5,7 @@
 [Exodus 28:43](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.43?lang=eng#p43)
 
 
-[^a]: [[Ezekiel 44.17|Ezek. 44:17.]]
-[^b]: HEB tent of meeting.
-[^c]: OR do not incur guilt.
-[^d]: [[Exodus 27.21|Ex. 27:21.]]
+[^a]: [[Ezekiel 44.17|Ezek. 44:17]].  
+[^b]: HEB tent of meeting.  
+[^c]: OR do not incur guilt.  
+[^d]: [[Exodus 27.21|Ex. 27:21]].  

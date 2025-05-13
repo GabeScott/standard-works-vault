@@ -5,5 +5,5 @@
 [Judges 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.19?lang=eng#p19)
 
 
-[^a]: [[Matthew 23.32|Matt. 23:32 (30-32).]]
-[^b]: TG [[Stubbornness, Stubborn]].
+[^a]: [[Matthew 23.30|Matt. 23:32 (30–32)]][[Matthew 23.31|]][[Matthew 23.32|]].  
+[^b]: [[Stubbornness, Stubborn|TG Stubbornness]].  

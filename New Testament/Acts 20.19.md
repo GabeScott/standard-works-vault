@@ -5,7 +5,7 @@
 [Acts 20:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.19?lang=eng#p19)
 
 
-[^a]: [[D&C 4.2|D&C 4:2 (2, 6).]]
-[^b]: TG [[Humility, Humble]].
-[^c]: [[2 Nephi 33.3|2 Ne. 33:3.]]
-[^d]: TG [[Testament]].
+[^a]: [[D&C 4.2|D&C 4:2 (2, 6)]][[D&C 4.6|]].  
+[^b]: [[Humility, Humble|TG Humility]].  
+[^c]: [[2 Nephi 33.3|2 Ne. 33:3]].  
+[^d]: [[Test, Try, Prove|TG Test]].  

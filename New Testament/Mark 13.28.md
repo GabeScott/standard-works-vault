@@ -5,4 +5,4 @@
 [Mark 13:28](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.28?lang=eng#p28)
 
 
-[^a]: [[D&C 45.37|D&C 45:37.]]
+[^a]: [[D&C 45.37|D&C 45:37]].  

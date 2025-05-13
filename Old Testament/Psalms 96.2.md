@@ -5,4 +5,4 @@
 [Psalms 96:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/96.2?lang=eng#p2)
 
 
-[^a]: TG [[Salvation for the Dead]].
+[^a]: [[Salvation|TG Salvation]].  

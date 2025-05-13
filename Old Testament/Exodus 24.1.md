@@ -5,5 +5,5 @@
 [Exodus 24:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.1?lang=eng#p1)
 
 
-[^a]: [[Exodus 6.23|Ex. 6:23]]; [[Exodus 28.1|28:1.]]
-[^b]: TG [[Seventy]].
+[^a]: [[Exodus 6.23|Ex. 6:23]]; [[Exodus 28.1|28:1]].  
+[^b]: [[Seventy|TG Seventy]].  

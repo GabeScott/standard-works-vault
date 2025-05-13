@@ -5,4 +5,4 @@
 [3 Nephi 18:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 34.23|Alma 34:23]]; [[D&C 93.49|D&C 93:49.]]
+[^a]: [[Alma 34.23|Alma 34:23]]; [[D&C 93.49|D&C 93:49]].  

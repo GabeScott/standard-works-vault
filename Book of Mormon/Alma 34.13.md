@@ -5,6 +5,6 @@
 [Alma 34:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p13#p13)
 
 
-[^a]: [[3 Nephi 9.19|3 Ne. 9:19.]]
-[^b]: TG [[Blood, Symbolism of]].
-[^c]: [[3 Nephi 1.24|3 Ne. 1:24]]; [[3 Nephi 15.5|15:5.]]
+[^a]: [[3 Nephi 9.19|3 Ne. 9:19]].  
+[^b]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  
+[^c]: [[3 Nephi 1.24|3 Ne. 1:24]]; [[3 Nephi 15.5|15:5]].  

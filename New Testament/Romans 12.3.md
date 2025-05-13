@@ -5,6 +5,6 @@
 [Romans 12:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.3?lang=eng#p3)
 
 
-[^a]: TG [[Humility, Humble]].
-[^b]: [[D&C 18.21|D&C 18:21]]; [[D&C 43.35|43:35.]]
-[^c]: [[1 Corinthians 7.17|1 Cor. 7:17.]]
+[^a]: [[Humility, Humble|TG Humility]].  
+[^b]: [[D&C 18.21|D&C 18:21]]; [[D&C 43.35|43:35]].  
+[^c]: [[1 Corinthians 7.17|1 Cor. 7:17]].  

@@ -5,4 +5,4 @@
 [Joshua 17:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/17.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 48.19|Gen. 48:19.]]
+[^a]: [[Genesis 48.19|Gen. 48:19]].  

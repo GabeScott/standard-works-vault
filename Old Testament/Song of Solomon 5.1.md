@@ -5,5 +5,5 @@
 [Song of Solomon 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/song/5.1?lang=eng#p1)
 
 
-[^a]: Song 4:9.
-[^b]: Song 4:8.
+[^a]: [[Song of Solomon 4.9|Song 4:9]].  
+[^b]: [[Song of Solomon 4.8|Song 4:8]].  

@@ -5,4 +5,4 @@
 [Hosea 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Shame]].
+[^a]: [[Shame|TG Shame]].  

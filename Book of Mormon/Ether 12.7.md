@@ -5,4 +5,4 @@
 [Ether 12:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p7#p7)
 
 
-[^a]: [[Acts 10.41|Acts 10:41.]]
+[^a]: [[Acts 10.41|Acts 10:41]].  

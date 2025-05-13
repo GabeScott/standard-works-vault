@@ -5,7 +5,7 @@
 [Acts 15:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.20?lang=eng#p20)
 
 
-[^a]: [[Acts 21.25|Acts 21:25]]. TG [[Abstain, Abstinence]].
-[^b]: TG [[Pollution, Pollute]].
-[^c]: TG [[Fornication]]; [[Sexual Immorality]].
-[^d]: TG [[Blood, Eating of]].
+[^a]: [[Acts 21.25|Acts 21:25]]. [[Abstain, Abstinence|TG Abstain]].  
+[^b]: [[Pollution, Pollute|TG Pollution]].  
+[^c]: [[Fornication|TG Fornication]]; [[Sexual Immorality|Sexual Immorality]].  
+[^d]: [[Blood, Eating of|TG Blood, Eating of]].  

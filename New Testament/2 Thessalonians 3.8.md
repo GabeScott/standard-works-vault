@@ -5,5 +5,5 @@
 [2 Thessalonians 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.8?lang=eng#p8)
 
 
-[^a]: GR undeservedly, gratuitously.
-[^b]: TG [[Work, Value of]].
+[^a]: GR undeservedly, gratuitously.  
+[^b]: [[Work, Value of|TG Work, Value of]].  

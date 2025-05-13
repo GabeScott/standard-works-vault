@@ -5,4 +5,4 @@
 [Acts 11:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/11.22?lang=eng#p22)
 
 
-[^a]: [[Acts 4.36|Acts 4:36.]]
+[^a]: [[Acts 4.36|Acts 4:36]].  

@@ -5,4 +5,4 @@
 [Mosiah 28:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/28?lang=eng&id=p19#p19)
 
 
-[^a]: [[Ether 1.1|Ether 1:1.]]
+[^a]: [[Ether 1.1|Ether 1:1]].  

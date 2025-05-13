@@ -5,5 +5,5 @@
 [Leviticus 10:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.15?lang=eng#p15)
 
 
-[^a]: HEB The shoulder for a contribution and the breast for a present.
-[^b]: HEB for a perpetual law.
+[^a]: HEB The shoulder for a contribution and the breast for a present.  
+[^b]: HEB for a perpetual law.  

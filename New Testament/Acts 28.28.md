@@ -5,4 +5,4 @@
 [Acts 28:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.28?lang=eng#p28)
 
 
-[^a]: [[Acts 13.46|Acts 13:46.]]
+[^a]: [[Acts 13.46|Acts 13:46]].  

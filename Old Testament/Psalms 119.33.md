@@ -5,4 +5,4 @@
 [Psalms 119:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.33?lang=eng#p33)
 
 
-[^a]: [[Exodus 33.13|Ex. 33:13.]]
+[^a]: [[Exodus 33.13|Ex. 33:13]].  

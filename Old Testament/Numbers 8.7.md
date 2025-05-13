@@ -5,5 +5,5 @@
 [Numbers 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/8.7?lang=eng#p7)
 
 
-[^a]: [[Nehemiah 12.30|Neh. 12:30.]]
-[^b]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Nehemiah 12.30|Neh. 12:30]].  
+[^b]: [[Purification, Purify, Purifying|TG Purification]].  

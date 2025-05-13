@@ -5,4 +5,4 @@
 [Hebrews 7:4](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.4?lang=eng#p4)
 
 
-[^a]: TG [[Family, Patriarchal]]; [[Family, Patriarchal]].
+[^a]: [[Family, Patriarchal|TG Family, Patriarchal]]; [[Patriarch|Patriarch]].  

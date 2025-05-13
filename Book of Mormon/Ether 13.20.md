@@ -5,5 +5,5 @@
 [Ether 13:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p20#p20)
 
 
-[^a]: [[Ether 15.1|Ether 15:1.]]
-[^b]: [[Omni 1.21|Omni 1:21]]; [[Ether 12.1|Ether 12:1 (1-2).]]
+[^a]: [[Ether 15.1|Ether 15:1]].  
+[^b]: [[Omni 1.21|Omni 1:21]]; [[Ether 12.1|Ether 12:1 (1–2)]][[Ether 12.2|]].  

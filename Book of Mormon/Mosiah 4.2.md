@@ -5,9 +5,9 @@
 [Mosiah 4:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Poor in Spirit]].
-[^b]: [[Nehemiah 9.1|Neh. 9:1 (1-3)]]. TG [[Carnal Mind]].
-[^c]: [[Genesis 18.27|Gen. 18:27.]]
-[^d]: [[Mosiah 3.18|Mosiah 3:18]]; [[Helaman 5.9|Hel. 5:9.]]
-[^e]: TG [[Purification, Purify, Purifying]].
-[^f]: TG [[Jesus Christ, Creator]].
+[^a]: [[Poor in Spirit|TG Poor in Spirit]].  
+[^b]: [[Nehemiah 9.1|Neh. 9:1 (1–3)]][[Nehemiah 9.2|]][[Nehemiah 9.3|]]. [[Carnal Mind|TG Carnal Mind]].  
+[^c]: [[Genesis 18.27|Gen. 18:27]].  
+[^d]: [[Mosiah 3.18|Mosiah 3:18]]; [[Helaman 5.9|Hel. 5:9]].  
+[^e]: [[Purification, Purify, Purifying|TG Purification]].  
+[^f]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  

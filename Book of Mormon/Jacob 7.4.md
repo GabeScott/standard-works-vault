@@ -5,6 +5,6 @@
 [Jacob 7:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p4#p4)
 
 
-[^a]: TG [[Learn, Learning]].
-[^b]: TG [[Flatter, Flattery]].
-[^c]: TG [[False Priesthoods]].
+[^a]: [[Learn, Learning|TG Learn]].  
+[^b]: [[Flatter, Flattery|TG Flatter]].  
+[^c]: [[False Priesthoods|TG False Priesthoods]].  

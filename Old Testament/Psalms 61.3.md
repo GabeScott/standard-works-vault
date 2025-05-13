@@ -5,4 +5,4 @@
 [Psalms 61:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/61.3?lang=eng#p3)
 
 
-[^a]: [[Proverbs 18.10|Prov. 18:10.]]
+[^a]: [[Proverbs 18.10|Prov. 18:10]].  

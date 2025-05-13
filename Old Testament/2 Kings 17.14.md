@@ -5,6 +5,6 @@
 [2 Kings 17:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.14?lang=eng#p14)
 
 
-[^a]: TG [[Prophets, Rejection of]].
-[^b]: [[Deuteronomy 9.13|Deut. 9:13]]. TG [[Doubt, Doubtful]].
-[^c]: TG [[Faith]]; [[Unbelief, Unbelievers]].
+[^a]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  
+[^b]: [[Deuteronomy 9.13|Deut. 9:13]]. [[Doubt, Doubtful|TG Doubt]].  
+[^c]: [[Faith|TG Faith]]; [[Unbelief, Unbelievers|Unbelief]].  

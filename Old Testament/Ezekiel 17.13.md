@@ -5,6 +5,6 @@
 [Ezekiel 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 19.14|Ezek. 19:14.]]
-[^b]: [[2 Chronicles 36.13|2 Chr. 36:13.]]
-[^c]: [[2 Kings 24.15|2 Kgs. 24:15.]]
+[^a]: [[Ezekiel 19.14|Ezek. 19:14]].  
+[^b]: [[2 Chronicles 36.13|2 Chr. 36:13]].  
+[^c]: [[2 Kings 24.15|2 Kgs. 24:15]].  

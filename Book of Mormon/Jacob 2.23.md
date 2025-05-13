@@ -5,4 +5,4 @@
 [Jacob 2:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Whore, Whoredom]].
+[^a]: [[Whore, Whoredom|TG Whore]].  

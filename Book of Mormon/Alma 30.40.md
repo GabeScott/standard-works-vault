@@ -5,4 +5,4 @@
 [Alma 30:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p40#p40)
 
 
-[^a]: [[Psalms 14.1|Ps. 14:1.]]
+[^a]: [[Psalms 14.1|Ps. 14:1]].  

@@ -5,4 +5,4 @@
 [Hosea 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/1.9?lang=eng#p9)
 
 
-[^a]: IE Not my people.
+[^a]: IE Not my people.  

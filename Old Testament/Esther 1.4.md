@@ -5,4 +5,4 @@
 [Esther 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.4?lang=eng#p4)
 
 
-[^a]: [[Mosiah 11.8|Mosiah 11:8]]; [[Alma 4.6|Alma 4:6]]; [[Ether 10.7|Ether 10:7 (5-7).]]
+[^a]: [[Mosiah 11.8|Mosiah 11:8]]; [[Alma 4.6|Alma 4:6]]; [[Ether 10.5|Ether 10:7 (5–7)]][[Ether 10.6|]][[Ether 10.7|]].  

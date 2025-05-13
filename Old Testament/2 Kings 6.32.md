@@ -5,4 +5,4 @@
 [2 Kings 6:32](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/6.32?lang=eng#p32)
 
 
-[^a]: [[1 Kings 18.4|1 Kgs. 18:4.]]
+[^a]: [[1 Kings 18.4|1 Kgs. 18:4]].  

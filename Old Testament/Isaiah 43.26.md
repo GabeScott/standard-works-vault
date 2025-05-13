@@ -5,4 +5,4 @@
 [Isaiah 43:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.26?lang=eng#p26)
 
 
-[^a]: IE Confess.
+[^a]: IE Confess.  

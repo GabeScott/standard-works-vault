@@ -5,4 +5,4 @@
 [2 Chronicles 7:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.17?lang=eng#p17)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

@@ -5,4 +5,4 @@
 [Genesis 29:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.8?lang=eng#p8)
 
 
-[^a]: Samaritan and Septuagint: the shepherds.
+[^a]: Samaritan and Septuagint: the shepherds.  

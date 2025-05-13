@@ -5,4 +5,4 @@
 [2 Kings 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.5?lang=eng#p5)
 
 
-[^a]: [[1 Kings 6.36|1 Kgs. 6:36]]; [[1 Kings 7.12|7:12.]]
+[^a]: [[1 Kings 6.36|1 Kgs. 6:36]]; [[1 Kings 7.12|7:12]].  

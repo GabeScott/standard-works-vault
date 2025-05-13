@@ -5,5 +5,5 @@
 [Isaiah 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/31.3?lang=eng#p3)
 
 
-[^a]: OR gods.
-[^b]: IE Both Egypt and they who trusted in Egypt shall fall.
+[^a]: OR gods.  
+[^b]: IE Both Egypt and they who trusted in Egypt shall fall.  

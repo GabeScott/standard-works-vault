@@ -5,5 +5,5 @@
 [Mormon 8:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p23#p23)
 
 
-[^a]: [[Isaiah 29.4|Isa. 29:4]]; [[3 Nephi 20.11|3 Ne. 20:11]]; [[3 Nephi 23.1|23:1 (1-3).]]
-[^b]: [[2 Nephi 3.20|2 Ne. 3:20]]; [[2 Nephi 26.16|26:16.]]
+[^a]: [[Isaiah 29.4|Isa. 29:4]]; [[3 Nephi 20.11|3 Ne. 20:11]]; [[3 Nephi 23.1|23:1 (1–3)]][[3 Nephi 23.2|]][[3 Nephi 23.3|]].  
+[^b]: [[2 Nephi 3.20|2 Ne. 3:20]]; [[2 Nephi 26.16|26:16]].  

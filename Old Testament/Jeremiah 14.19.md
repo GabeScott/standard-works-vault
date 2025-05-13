@@ -5,4 +5,4 @@
 [Jeremiah 14:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.19?lang=eng#p19)
 
 
-[^a]: [[Jeremiah 8.15|Jer. 8:15.]]
+[^a]: [[Jeremiah 8.15|Jer. 8:15]].  

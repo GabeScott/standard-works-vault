@@ -5,4 +5,4 @@
 [Ezekiel 28:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.3?lang=eng#p3)
 
 
-[^a]: [[Ezekiel 14.14|Ezek. 14:14]]; Dan. 9:22 (22-23).
+[^a]: [[Ezekiel 14.14|Ezek. 14:14]]; [[Daniel 9.22|Dan. 9:22 (22–23)]][[Daniel 9.23|]].  

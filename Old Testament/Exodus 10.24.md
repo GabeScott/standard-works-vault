@@ -5,4 +5,4 @@
 [Exodus 10:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.24?lang=eng#p24)
 
 
-[^a]: OR remain behind.
+[^a]: OR remain behind.  

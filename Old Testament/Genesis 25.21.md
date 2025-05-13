@@ -5,6 +5,6 @@
 [Genesis 25:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.21?lang=eng#p21)
 
 
-[^a]: TG [[Marriage, Husbands]]; [[Marriage, Wives]].
-[^b]: TG [[Barren, Barrenness]].
-[^c]: [[1 Chronicles 5.20|1 Chr. 5:20]]; [[2 Chronicles 33.13|2 Chr. 33:13]]; [[Ezra 8.23|Ezra 8:23.]]
+[^a]: [[Marriage, Husbands|TG Marriage, Husbands]]; [[Marriage, Wives|Marriage, Wives]].  
+[^b]: [[Barren, Barrenness|TG Barren]].  
+[^c]: [[1 Chronicles 5.20|1 Chr. 5:20]]; [[2 Chronicles 33.13|2 Chr. 33:13]]; [[Ezra 8.23|Ezra 8:23]].  

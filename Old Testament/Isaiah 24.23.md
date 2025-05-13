@@ -5,6 +5,6 @@
 [Isaiah 24:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.23?lang=eng#p23)
 
 
-[^a]: [[D&C 133.49|D&C 133:49.]]
-[^b]: TG [[Zion, Sion]].
-[^c]: OR His elders in glory.
+[^a]: [[D&C 133.49|D&C 133:49]].  
+[^b]: [[Zion, Sion|TG Zion]].  
+[^c]: OR His elders in glory.  

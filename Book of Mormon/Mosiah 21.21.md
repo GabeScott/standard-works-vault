@@ -5,4 +5,4 @@
 [Mosiah 21:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p21#p21)
 
 
-[^a]: [[Mosiah 7.7|Mosiah 7:7 (7-11).]]
+[^a]: [[Mosiah 7.7|Mosiah 7:7 (7–11)]][[Mosiah 7.8|]][[Mosiah 7.9|]][[Mosiah 7.10|]][[Mosiah 7.11|]].  

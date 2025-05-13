@@ -5,4 +5,4 @@
 [Acts 7:48](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.48?lang=eng#p48)
 
 
-[^a]: [[Acts 17.24|Acts 17:24.]]
+[^a]: [[Acts 17.24|Acts 17:24]].  

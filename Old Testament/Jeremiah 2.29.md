@@ -5,4 +5,4 @@
 [Jeremiah 2:29](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.29?lang=eng#p29)
 
 
-[^a]: HEB quarrel, contend.
+[^a]: HEB quarrel, contend.  

@@ -5,4 +5,4 @@
 [1 Samuel 6:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.18?lang=eng#p18)
 
 
-[^a]: OR fortified.
+[^a]: OR fortified.  

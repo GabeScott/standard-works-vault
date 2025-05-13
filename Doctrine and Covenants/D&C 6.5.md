@@ -5,4 +5,4 @@
 [D&C 6:5](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.5?lang=eng#p5)
 
 
-[^a]: [[Matthew 7.7|Matt. 7:7.]]
+[^a]: [[Matthew 7.7|Matt. 7:7]].  

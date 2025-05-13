@@ -5,4 +5,4 @@
 [Ezekiel 27:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.30?lang=eng#p30)
 
 
-[^a]: [[Revelation 18.19|Rev. 18:19.]]
+[^a]: [[Revelation 18.19|Rev. 18:19]].  

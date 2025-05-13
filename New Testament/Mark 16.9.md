@@ -5,6 +5,6 @@
 [Mark 16:9](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.9?lang=eng#p9)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
-[^b]: TG [[Jesus Christ, Appearances, Postmortal]].
-[^c]: [[Luke 8.2|Luke 8:2.]]
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  
+[^b]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  
+[^c]: [[Luke 8.2|Luke 8:2]].  

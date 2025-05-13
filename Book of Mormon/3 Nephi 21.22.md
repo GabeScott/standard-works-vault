@@ -5,7 +5,7 @@
 [3 Nephi 21:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p22#p22)
 
 
-[^a]: TG [[Hardheartedness, Harden, Hardness]].
-[^b]: [[1 Nephi 14.12|1 Ne. 14:12 (12, 14)]]. TG [[Dispensations]]; [[Millennium, Preparing a People for]].
-[^c]: [[2 Nephi 10.18|2 Ne. 10:18 (18-19)]]; [[3 Nephi 16.13|3 Ne. 16:13]]; [[3 Nephi 30.2|30:2.]]
-[^d]: TG [[Lands of Inheritance]].
+[^a]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  
+[^b]: [[1 Nephi 14.12|1 Ne. 14:12 (12, 14)]][[1 Nephi 14.14|]]. [[Dispensations|TG Dispensations]]; [[Millennium, Preparing a People for|Millennium, Preparing a People for]].  
+[^c]: [[2 Nephi 10.18|2 Ne. 10:18 (18–19)]][[2 Nephi 10.19|]]; [[3 Nephi 16.13|3 Ne. 16:13]]; [[3 Nephi 30.2|30:2]].  
+[^d]: [[Lands of Inheritance|TG Lands of Inheritance]].  

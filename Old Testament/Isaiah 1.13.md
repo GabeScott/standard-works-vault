@@ -5,10 +5,10 @@
 [Isaiah 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.13?lang=eng#p13)
 
 
-[^a]: TG [[Hypocrisy, Hypocrite]].
-[^b]: [[1 Chronicles 23.31|1 Chr. 23:31 (28-32).]]
-[^c]: Lam. 2:6.
-[^d]: [[Matthew 15.9|Matt. 15:9.]]
-[^e]: HEB endure. Ps. 101:5.
-[^f]: [[Isaiah 29.13|Isa. 29:13.]]
-[^g]: TG [[Solemn Assembly]].
+[^a]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  
+[^b]: [[1 Chronicles 23.28|1 Chr. 23:31 (28–32)]][[1 Chronicles 23.29|]][[1 Chronicles 23.30|]][[1 Chronicles 23.31|]][[1 Chronicles 23.32|]].  
+[^c]: [[Lamentations 2.6|Lam. 2:6]].  
+[^d]: [[Matthew 15.9|Matt. 15:9]].  
+[^e]: HEB endure. [[Psalms 101.5|Ps. 101:5]].  
+[^f]: [[Isaiah 29.13|Isa. 29:13]].  
+[^g]: [[Solemn Assembly|TG Solemn Assembly]].  

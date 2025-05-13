@@ -5,5 +5,5 @@
 [Psalms 74:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 17.6|Ex. 17:6.]]
-[^b]: [[Joshua 3.17|Josh. 3:17 (14-17)]]; [[Psalms 66.6|Ps. 66:6.]]
+[^a]: [[Exodus 17.6|Ex. 17:6]].  
+[^b]: [[Joshua 3.14|Josh. 3:17 (14–17)]][[Joshua 3.15|]][[Joshua 3.16|]][[Joshua 3.17|]]; [[Psalms 66.6|Ps. 66:6]].  

@@ -5,5 +5,5 @@
 [Jeremiah 37:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/37.15?lang=eng#p15)
 
 
-[^a]: [[2 Nephi 27.5|2 Ne. 27:5.]]
-[^b]: TG [[Prophets, Rejection of]].
+[^a]: [[2 Nephi 27.5|2 Ne. 27:5]].  
+[^b]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

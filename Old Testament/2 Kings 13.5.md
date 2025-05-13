@@ -5,4 +5,4 @@
 [2 Kings 13:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/13.5?lang=eng#p5)
 
 
-[^a]: OR deliverer.
+[^a]: OR deliverer.  

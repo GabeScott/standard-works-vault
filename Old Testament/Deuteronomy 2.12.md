@@ -5,5 +5,5 @@
 [Deuteronomy 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 14.6|Gen. 14:6.]]
-[^b]: HEB dispossessed.
+[^a]: [[Genesis 14.6|Gen. 14:6]].  
+[^b]: HEB dispossessed.  

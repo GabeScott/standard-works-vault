@@ -5,4 +5,4 @@
 [1 Kings 20:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.27?lang=eng#p27)
 
 
-[^a]: HEB were supplied with food.
+[^a]: HEB were supplied with food.  

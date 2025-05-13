@@ -5,4 +5,4 @@
 [2 Chronicles 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/18.7?lang=eng#p7)
 
 
-[^a]: [[Helaman 13.26|Hel. 13:26 (26-28).]]
+[^a]: [[Helaman 13.26|Hel. 13:26 (26–28)]][[Helaman 13.27|]][[Helaman 13.28|]].  

@@ -5,4 +5,4 @@
 [Mark 5:40](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.40?lang=eng#p40)
 
 
-[^a]: OR ridiculed Him.
+[^a]: OR ridiculed Him.  

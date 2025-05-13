@@ -5,4 +5,4 @@
 [Judges 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 68.7|Ps. 68:7.]]
+[^a]: [[Psalms 68.7|Ps. 68:7]].  

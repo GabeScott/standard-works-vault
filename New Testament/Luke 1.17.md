@@ -5,7 +5,7 @@
 [Luke 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.17?lang=eng#p17)
 
 
-[^a]: This is the Greek form of the Hebrew name, Elijah. Matt. 11:14; [[D&C 27.7|D&C 27:7 (6-8).]]
-[^b]: TG [[Salvation for the Dead]].
-[^c]: TG [[Disobedience, Disobey]].
-[^d]: [[Luke 1.76|Luke 1:76.]]
+[^a]: This is the Greek form of the Hebrew name, Elijah. [[Matthew 11.14|Matt. 11:14]]; [[D&C 27.6|D&C 27:7 (6–8)]][[D&C 27.7|]][[D&C 27.8|]].  
+[^b]: [[Salvation for the Dead|TG Salvation for the Dead]].  
+[^c]: [[Disobedience, Disobey|TG Disobedience]].  
+[^d]: [[Luke 1.76|Luke 1:76]].  

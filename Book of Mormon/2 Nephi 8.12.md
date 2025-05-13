@@ -5,6 +5,6 @@
 [2 Nephi 8:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p12#p12)
 
 
-[^a]: [[D&C 133.47|D&C 133:47]]; [[D&C 136.22|136:22.]]
-[^b]: [[Jeremiah 1.8|Jer. 1:8 (7-8).]]
-[^c]: [[Isaiah 40.6|Isa. 40:6 (6-8)]]; [[1 Peter 1.24|1 Pet. 1:24 (24-25).]]
+[^a]: [[D&C 133.47|D&C 133:47]]; [[D&C 136.22|136:22]].  
+[^b]: [[Jeremiah 1.7|Jer. 1:8 (7–8)]][[Jeremiah 1.8|]].  
+[^c]: [[Isaiah 40.6|Isa. 40:6 (6–8)]][[Isaiah 40.7|]][[Isaiah 40.8|]]; [[1 Peter 1.24|1 Pet. 1:24 (24–25)]][[1 Peter 1.25|]].  

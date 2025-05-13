@@ -5,8 +5,8 @@
 [1 Timothy 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.10?lang=eng#p10)
 
 
-[^a]: TG [[Labor]].
-[^b]: TG [[Reproach]].
-[^c]: TG [[Trust in God]].
-[^d]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Savior]].
-[^e]: TG [[Faith]].
+[^a]: [[Labor|TG Labor]].  
+[^b]: [[Reproach|TG Reproach]].  
+[^c]: [[Trust in God|TG Trust in God]].  
+[^d]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Jesus Christ, Savior|Jesus Christ, Savior]].  
+[^e]: [[Faith|TG Faith]].  

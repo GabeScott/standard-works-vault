@@ -5,4 +5,4 @@
 [3 Nephi 30:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/30?lang=eng&id=p1#p1)
 
 
-[^a]: [[3 Nephi 5.13|3 Ne. 5:13 (12-13).]]
+[^a]: [[3 Nephi 5.12|3 Ne. 5:13 (12–13)]][[3 Nephi 5.13|]].  

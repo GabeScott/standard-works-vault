@@ -5,5 +5,5 @@
 [Genesis 1:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.27?lang=eng#p27)
 
 
-[^a]: TG [[God, Body of, Corporeal Nature]].
-[^b]: TG [[Woman, Women]].
+[^a]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  
+[^b]: [[Woman, Women|TG Woman]].  

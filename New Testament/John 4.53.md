@@ -5,4 +5,4 @@
 [John 4:53](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.53?lang=eng#p53)
 
 
-[^a]: GR he himself.
+[^a]: GR he himself.  

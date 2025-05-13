@@ -5,4 +5,4 @@
 [2 Chronicles 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/14.3?lang=eng#p3)
 
 
-[^a]: IE idolatrous wooden objects associated with fertility worship.
+[^a]: IE idolatrous wooden objects associated with fertility worship.  

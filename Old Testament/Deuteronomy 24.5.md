@@ -5,5 +5,5 @@
 [Deuteronomy 24:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.5?lang=eng#p5)
 
 
-[^a]: [[Deuteronomy 20.7|Deut. 20:7.]]
-[^b]: HEB be happy with. TG [[Family, Love within]]; [[Marriage, Husbands]].
+[^a]: [[Deuteronomy 20.7|Deut. 20:7]].  
+[^b]: HEB be happy with. [[Family, Love within|TG Family, Love within]]; [[Marriage, Husbands|Marriage, Husbands]].  

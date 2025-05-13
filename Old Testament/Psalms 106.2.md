@@ -5,4 +5,4 @@
 [Psalms 106:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.2?lang=eng#p2)
 
 
-[^a]: [[Jacob 4.8|Jacob 4:8.]]
+[^a]: [[Jacob 4.8|Jacob 4:8]].  

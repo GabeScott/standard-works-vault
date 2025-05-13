@@ -5,4 +5,4 @@
 [Romans 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.2?lang=eng#p2)
 
 
-[^a]: [[Acts 7.38|Acts 7:38]]; [[2 Nephi 29.4|2 Ne. 29:4 (4-6).]]
+[^a]: [[Acts 7.38|Acts 7:38]]; [[2 Nephi 29.4|2 Ne. 29:4 (4–6)]][[2 Nephi 29.5|]][[2 Nephi 29.6|]].  

@@ -5,4 +5,4 @@
 [Numbers 36:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/36.3?lang=eng#p3)
 
 
-[^a]: HEB added (also v. 4).
+[^a]: HEB added (also [[Numbers 36.4|v. 4]]).  

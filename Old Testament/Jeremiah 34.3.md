@@ -5,4 +5,4 @@
 [Jeremiah 34:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.3?lang=eng#p3)
 
 
-[^a]: TG [[Israel, Bondage of, in Other Lands]].
+[^a]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  

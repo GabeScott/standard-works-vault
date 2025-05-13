@@ -5,4 +5,4 @@
 [2 Kings 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/16.4?lang=eng#p4)
 
 
-[^a]: [[1 Kings 14.23|1 Kgs. 14:23 (22-23)]]; [[Isaiah 57.5|Isa. 57:5.]]
+[^a]: [[1 Kings 14.22|1 Kgs. 14:23 (22–23)]][[1 Kings 14.23|]]; [[Isaiah 57.5|Isa. 57:5]].  

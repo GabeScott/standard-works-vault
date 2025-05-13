@@ -5,4 +5,4 @@
 [Jeremiah 22:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.21?lang=eng#p21)
 
 
-[^a]: TG [[Disobedience, Disobey]].
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  

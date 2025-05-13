@@ -5,7 +5,7 @@
 [Isaiah 60:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.13?lang=eng#p13)
 
 
-[^a]: [[Isaiah 35.2|Isa. 35:2.]]
-[^b]: HEB cypress. Isa. 41:19.
-[^c]: TG [[Beauty]].
-[^d]: [[Ezekiel 43.7|Ezek. 43:7]]; [[Matthew 5.35|Matt. 5:35.]]
+[^a]: [[Isaiah 35.2|Isa. 35:2]].  
+[^b]: HEB cypress. [[Isaiah 41.19|Isa. 41:19]].  
+[^c]: [[Beauty|TG Beauty]].  
+[^d]: [[Ezekiel 43.7|Ezek. 43:7]]; [[Matthew 5.35|Matt. 5:35]].  

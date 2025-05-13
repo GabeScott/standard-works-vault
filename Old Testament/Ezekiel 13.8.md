@@ -5,5 +5,5 @@
 [Ezekiel 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.8?lang=eng#p8)
 
 
-[^a]: OR folly.
-[^b]: TG [[Honesty]].
+[^a]: OR folly.  
+[^b]: [[Honesty|TG Honesty]].  

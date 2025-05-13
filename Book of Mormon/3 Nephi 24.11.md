@@ -5,4 +5,4 @@
 [3 Nephi 24:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/24?lang=eng&id=p11#p11)
 
 
-[^a]: [[D&C 86.3|D&C 86:3.]]
+[^a]: [[D&C 86.3|D&C 86:3]].  

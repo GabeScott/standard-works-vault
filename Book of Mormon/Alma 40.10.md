@@ -5,5 +5,5 @@
 [Alma 40:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[God, Foreknowledge of]].
-[^b]: [[Acts 17.26|Acts 17:26.]]
+[^a]: [[God, Foreknowledge of|TG God, Foreknowledge of]].  
+[^b]: [[Acts 17.26|Acts 17:26]].  

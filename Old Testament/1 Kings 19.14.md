@@ -5,5 +5,5 @@
 [1 Kings 19:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/19.14?lang=eng#p14)
 
 
-[^a]: OR zealous.
-[^b]: [[Romans 11.3|Rom. 11:3 (3-4).]]
+[^a]: OR zealous.  
+[^b]: [[Romans 11.3|Rom. 11:3 (3–4)]][[Romans 11.4|]].  

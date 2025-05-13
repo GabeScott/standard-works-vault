@@ -5,4 +5,4 @@
 [1 Nephi 16:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p13#p13)
 
 
-[^a]: HEB twisting, intertwining.
+[^a]: HEB twisting, intertwining.  

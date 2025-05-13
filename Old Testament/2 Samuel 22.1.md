@@ -5,4 +5,4 @@
 [2 Samuel 22:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.1?lang=eng#p1)
 
 
-[^a]: [[1 Chronicles 16.7|1 Chr. 16:7]]. TG [[Singing, Sing, Sang, Sung]].
+[^a]: [[1 Chronicles 16.7|1 Chr. 16:7]]. [[Singing, Sing, Sang, Sung|TG Singing]].  

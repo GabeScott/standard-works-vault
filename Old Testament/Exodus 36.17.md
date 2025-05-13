@@ -5,4 +5,4 @@
 [Exodus 36:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.17?lang=eng#p17)
 
 
-[^a]: OR the other connecting curtain.
+[^a]: OR the other connecting curtain.  

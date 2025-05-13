@@ -5,4 +5,4 @@
 [Mosiah 7:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p17#p17)
 
 
-[^a]: [[2 Nephi 5.16|2 Ne. 5:16.]]
+[^a]: [[2 Nephi 5.16|2 Ne. 5:16]].  

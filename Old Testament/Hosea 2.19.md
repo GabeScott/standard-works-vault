@@ -5,4 +5,4 @@
 [Hosea 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.19?lang=eng#p19)
 
 
-[^a]: TG [[Abrahamic Covenant]].
+[^a]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  

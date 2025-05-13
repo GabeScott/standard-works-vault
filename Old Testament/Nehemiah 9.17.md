@@ -5,8 +5,8 @@
 [Nehemiah 9:17](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.17?lang=eng#p17)
 
 
-[^a]: [[Numbers 14.4|Num. 14:4.]]
-[^b]: TG [[Forgive, Forgiveness]].
-[^c]: [[1 Chronicles 16.41|1 Chr. 16:41.]]
-[^d]: TG [[Anger]].
-[^e]: TG [[Kindness]].
+[^a]: [[Numbers 14.4|Num. 14:4]].  
+[^b]: [[Forgive, Forgiveness|TG Forgive]].  
+[^c]: [[1 Chronicles 16.41|1 Chr. 16:41]].  
+[^d]: [[Anger|TG Anger]].  
+[^e]: [[Kindness|TG Kindness]].  

@@ -5,5 +5,5 @@
 [Zechariah 11:12](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/11.12?lang=eng#p12)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
-[^b]: [[Luke 22.5|Luke 22:5 (3-6).]]
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  
+[^b]: [[Luke 22.3|Luke 22:5 (3–6)]][[Luke 22.4|]][[Luke 22.5|]][[Luke 22.6|]].  

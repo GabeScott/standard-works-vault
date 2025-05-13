@@ -5,5 +5,5 @@
 [Revelation 7:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.9?lang=eng#p9)
 
 
-[^a]: [[Revelation 5.9|Rev. 5:9.]]
-[^b]: [[Ezekiel 41.18|Ezek. 41:18 (18-19).]]
+[^a]: [[Revelation 5.9|Rev. 5:9]].  
+[^b]: [[Ezekiel 41.18|Ezek. 41:18 (18–19)]][[Ezekiel 41.19|]].  

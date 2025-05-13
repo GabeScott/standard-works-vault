@@ -5,5 +5,5 @@
 [Ezekiel 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.6?lang=eng#p6)
 
 
-[^a]: OR land.
-[^b]: [[Ezekiel 24.24|Ezek. 24:24]]. TG [[Signs]].
+[^a]: OR land.  
+[^b]: [[Ezekiel 24.24|Ezek. 24:24]]. [[Signs|TG Signs]].  

@@ -5,4 +5,4 @@
 [Matthew 11:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.24?lang=eng#p24)
 
 
-[^a]: [[Ezekiel 16.48|Ezek. 16:48.]]
+[^a]: [[Ezekiel 16.48|Ezek. 16:48]].  

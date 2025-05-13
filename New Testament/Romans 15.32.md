@@ -5,4 +5,4 @@
 [Romans 15:32](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.32?lang=eng#p32)
 
 
-[^a]: [[2 Corinthians 7.13|2 Cor. 7:13.]]
+[^a]: [[2 Corinthians 7.13|2 Cor. 7:13]].  

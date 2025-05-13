@@ -5,4 +5,4 @@
 [Deuteronomy 27:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.7?lang=eng#p7)
 
 
-[^a]: TG [[Self-Sacrifice]].
+[^a]: [[Sacrifice|TG Sacrifice]].  

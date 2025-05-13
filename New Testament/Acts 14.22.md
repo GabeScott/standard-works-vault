@@ -5,4 +5,4 @@
 [Acts 14:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.22?lang=eng#p22)
 
 
-[^a]: TG [[Adversity]]; [[Testament]]; [[Tribulation]].
+[^a]: [[Adversity|TG Adversity]]; [[Test, Try, Prove|Test]]; [[Tribulation|Tribulation]].  

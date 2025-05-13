@@ -5,4 +5,4 @@
 [Alma 2:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[Unrighteous Dominion]].
+[^a]: [[Unrighteous Dominion|TG Unrighteous Dominion]].  

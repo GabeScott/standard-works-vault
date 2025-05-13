@@ -5,4 +5,4 @@
 [Exodus 31:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.16?lang=eng#p16)
 
 
-[^a]: TG [[Covenants]].
+[^a]: [[Covenants|TG Covenants]].  

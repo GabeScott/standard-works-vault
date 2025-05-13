@@ -5,4 +5,4 @@
 [Romans 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.6?lang=eng#p6)
 
 
-[^a]: TG [[Strength]].
+[^a]: [[Strength|TG Strength]].  

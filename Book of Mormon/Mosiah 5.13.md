@@ -5,4 +5,4 @@
 [Mosiah 5:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/5?lang=eng&id=p13#p13)
 
 
-[^a]: [[Jeremiah 4.22|Jer. 4:22]]; [[Mosiah 26.25|Mosiah 26:25 (24-27).]]
+[^a]: [[Jeremiah 4.22|Jer. 4:22]]; [[Mosiah 26.24|Mosiah 26:25 (24–27)]][[Mosiah 26.25|]][[Mosiah 26.26|]][[Mosiah 26.27|]].  

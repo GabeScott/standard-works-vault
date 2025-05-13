@@ -5,4 +5,4 @@
 [Jacob 5:53](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p53#p53)
 
 
-[^a]: [[Exodus 19.6|Ex. 19:6]]; [[Isaiah 49.6|Isa. 49:6.]]
+[^a]: [[Exodus 19.6|Ex. 19:6]]; [[Isaiah 49.6|Isa. 49:6]].  

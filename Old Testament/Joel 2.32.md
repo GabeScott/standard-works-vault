@@ -5,12 +5,12 @@
 [Joel 2:32](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.32?lang=eng#p32)
 
 
-[^a]: [[D&C 93.1|D&C 93:1]]; [[D&C 100.17|100:17]]. TG [[Prayer, Pray]].
-[^b]: HEB Jehovah.
-[^c]: TG [[Jesus Christ, Savior]]; [[Salvation for the Dead]].
-[^d]: [[D&C 76.66|D&C 76:66.]]
-[^e]: TG [[Zion, Sion]].
-[^f]: TG [[Jerusalem]].
-[^g]: Obad. 1:17 (15-17).
-[^h]: TG [[Israel, Remnant of]].
-[^i]: TG [[Israel, Gathering of]].
+[^a]: [[D&C 93.1|D&C 93:1]]; [[D&C 100.17|100:17]]. [[Prayer, Pray|TG Prayer]].  
+[^b]: HEB Jehovah.  
+[^c]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]]; [[Salvation|Salvation]].  
+[^d]: [[D&C 76.66|D&C 76:66]].  
+[^e]: [[Zion, Sion|TG Zion]].  
+[^f]: [[Jerusalem|TG Jerusalem]].  
+[^g]: [[Obadiah 1.15|Obad. 1:17 (15–17)]][[Obadiah 1.16|]][[Obadiah 1.17|]].  
+[^h]: [[Israel, Remnant of|TG Israel, Remnant of]].  
+[^i]: [[Israel, Gathering of|TG Israel, Gathering of]].  

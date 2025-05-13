@@ -5,4 +5,4 @@
 [Numbers 3:43](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.43?lang=eng#p43)
 
 
-[^a]: HEB seventy-three.
+[^a]: HEB seventy-three.  

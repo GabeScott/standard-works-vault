@@ -5,6 +5,6 @@
 [Hebrews 12:14](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.14?lang=eng#p14)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: 1 Thes. 4:3.
-[^c]: TG [[God, Privilege of Seeing]].
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: [[1 Thessalonians 4.3|1 Thes. 4:3]].  
+[^c]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]].  

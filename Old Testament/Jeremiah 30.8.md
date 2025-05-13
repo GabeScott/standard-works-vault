@@ -5,5 +5,5 @@
 [Jeremiah 30:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.8?lang=eng#p8)
 
 
-[^a]: TG [[Bondage, Physical]]; [[Bondage, Spiritual]].
-[^b]: OR enslave, or exploit him.
+[^a]: [[Bondage, Physical|TG Bondage, Physical]]; [[Bondage, Spiritual|Bondage, Spiritual]].  
+[^b]: OR enslave, or exploit him.  

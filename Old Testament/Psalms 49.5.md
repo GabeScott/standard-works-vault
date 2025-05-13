@@ -5,4 +5,4 @@
 [Psalms 49:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/49.5?lang=eng#p5)
 
 
-[^a]: IE persecutors.
+[^a]: IE persecutors.  

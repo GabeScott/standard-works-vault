@@ -5,7 +5,7 @@
 [1 Nephi 22:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p26#p26)
 
 
-[^a]: TG [[Millennium, Preparing a People for]]; [[God, the Standard of Righteousness]].
-[^b]: [[Revelation 20.2|Rev. 20:2]]; [[Alma 48.17|Alma 48:17 (16-17)]]; [[D&C 43.31|D&C 43:31]]; [[D&C 45.55|45:55]]; [[D&C 88.110|88:110]]; [[D&C 101.28|101:28]]. TG [[Devil, Church of]].
-[^c]: [[Jacob 5.76|Jacob 5:76.]]
-[^d]: TG [[Jesus Christ, Millennial Reign]].
+[^a]: [[Millennium|TG Millennium]]; [[Righteousness|Righteousness]].  
+[^b]: [[Revelation 20.2|Rev. 20:2]]; [[Alma 48.16|Alma 48:17 (16–17)]][[Alma 48.17|]]; [[D&C 43.31|D&C 43:31]]; [[D&C 45.55|45:55]]; [[D&C 88.110|88:110]]; [[D&C 101.28|101:28]]. [[Devil|TG Devil]].  
+[^c]: [[Jacob 5.76|Jacob 5:76]].  
+[^d]: [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]].  

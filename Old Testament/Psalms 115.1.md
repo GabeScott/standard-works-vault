@@ -5,4 +5,4 @@
 [Psalms 115:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/115.1?lang=eng#p1)
 
 
-[^a]: [[Isaiah 48.11|Isa. 48:11.]]
+[^a]: [[Isaiah 48.11|Isa. 48:11]].  

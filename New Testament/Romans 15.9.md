@@ -5,6 +5,6 @@
 [Romans 15:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.9?lang=eng#p9)
 
 
-[^a]: TG [[God, Mercy of]].
-[^b]: GR profess openly, praise.
-[^c]: [[Psalms 18.49|Ps. 18:49.]]
+[^a]: [[God, Mercy of|TG God, Mercy of]].  
+[^b]: GR profess openly, praise.  
+[^c]: [[Psalms 18.49|Ps. 18:49]].  

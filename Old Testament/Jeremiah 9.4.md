@@ -5,6 +5,6 @@
 [Jeremiah 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.4?lang=eng#p4)
 
 
-[^a]: [[Micah 7.5|Micah 7:5 (5-6)]]; [[2 Nephi 28.31|2 Ne. 28:31]]; [[D&C 1.19|D&C 1:19.]]
-[^b]: OR consistently deceive.
-[^c]: TG [[Slander]].
+[^a]: [[Micah 7.5|Micah 7:5 (5–6)]][[Micah 7.6|]]; [[2 Nephi 28.31|2 Ne. 28:31]]; [[D&C 1.19|D&C 1:19]].  
+[^b]: OR consistently deceive.  
+[^c]: [[Slander|TG Slander]].  

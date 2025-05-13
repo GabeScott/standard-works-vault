@@ -5,6 +5,6 @@
 [Alma 18:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 17.15|Alma 17:15]]; [[Alma 60.32|60:32.]]
-[^b]: [[Alma 19.25|Alma 19:25 (25-27)]]. TG [[God, Knowledge about]].
-[^c]: [[Alma 30.17|Alma 30:17.]]
+[^a]: [[Alma 17.15|Alma 17:15]]; [[Alma 60.32|60:32]].  
+[^b]: [[Alma 19.25|Alma 19:25 (25–27)]][[Alma 19.26|]][[Alma 19.27|]]. [[God, Knowledge about|TG God, Knowledge about]].  
+[^c]: [[Alma 30.17|Alma 30:17]].  

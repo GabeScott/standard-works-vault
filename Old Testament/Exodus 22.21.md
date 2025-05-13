@@ -5,6 +5,6 @@
 [Exodus 22:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.21?lang=eng#p21)
 
 
-[^a]: TG [[Stranger]].
-[^b]: TG [[Love]]; [[Oppression, Oppress]].
-[^c]: [[Deuteronomy 23.7|Deut. 23:7.]]
+[^a]: [[Stranger|TG Stranger]].  
+[^b]: [[Love|TG Love]]; [[Oppression, Oppress|Oppression]].  
+[^c]: [[Deuteronomy 23.7|Deut. 23:7]].  

@@ -5,4 +5,4 @@
 [Proverbs 19:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.21?lang=eng#p21)
 
 
-[^a]: [[Isaiah 46.10|Isa. 46:10.]]
+[^a]: [[Isaiah 46.10|Isa. 46:10]].  

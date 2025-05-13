@@ -5,4 +5,4 @@
 [Psalms 69:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.30?lang=eng#p30)
 
 
-[^a]: [[Alma 34.38|Alma 34:38]]; [[D&C 46.7|D&C 46:7.]]
+[^a]: [[Alma 34.38|Alma 34:38]]; [[D&C 46.7|D&C 46:7]].  

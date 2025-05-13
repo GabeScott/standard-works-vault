@@ -5,4 +5,4 @@
 [Acts 7:50](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.50?lang=eng#p50)
 
 
-[^a]: TG [[Jesus Christ, Creator]].
+[^a]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  

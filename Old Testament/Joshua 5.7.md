@@ -5,4 +5,4 @@
 [Joshua 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.7?lang=eng#p7)
 
 
-[^a]: IE in the place of their fathers.
+[^a]: IE in the place of their fathers.  

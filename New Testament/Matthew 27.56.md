@@ -5,4 +5,4 @@
 [Matthew 27:56](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.56?lang=eng#p56)
 
 
-[^a]: GR Joseph.
+[^a]: GR Joseph.  

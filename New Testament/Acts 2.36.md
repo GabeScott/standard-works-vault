@@ -5,5 +5,5 @@
 [Acts 2:36](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.36?lang=eng#p36)
 
 
-[^a]: TG [[Jesus Christ, Crucifixion of]].
-[^b]: TG [[Jesus Christ, Lord]]; [[Jesus Christ, Power of]].
+[^a]: [[Jesus Christ, Crucifixion of|TG Jesus Christ, Crucifixion of]].  
+[^b]: [[Jesus Christ, Lord|TG Jesus Christ, Lord]]; [[Jesus Christ, Power of|Jesus Christ, Power of]].  

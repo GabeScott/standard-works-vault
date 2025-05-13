@@ -5,4 +5,4 @@
 [Matthew 18:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.1?lang=eng#p1)
 
 
-[^a]: [[Luke 9.46|Luke 9:46.]]
+[^a]: [[Luke 9.46|Luke 9:46]].  

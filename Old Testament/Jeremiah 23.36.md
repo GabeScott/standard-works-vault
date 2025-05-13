@@ -5,4 +5,4 @@
 [Jeremiah 23:36](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.36?lang=eng#p36)
 
 
-[^a]: [[D&C 50.1|D&C 50:1.]]
+[^a]: [[D&C 50.1|D&C 50:1]].  

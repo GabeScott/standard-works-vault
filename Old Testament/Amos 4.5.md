@@ -5,6 +5,6 @@
 [Amos 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/4.5?lang=eng#p5)
 
 
-[^a]: TG [[Thanksgiving]].
-[^b]: TG [[Leaven]].
-[^c]: [[Leviticus 22.18|Lev. 22:18 (18-21).]]
+[^a]: [[Thanksgiving|TG Thanksgiving]].  
+[^b]: [[Leaven|TG Leaven]].  
+[^c]: [[Leviticus 22.18|Lev. 22:18 (18–21)]][[Leviticus 22.19|]][[Leviticus 22.20|]][[Leviticus 22.21|]].  

@@ -5,4 +5,4 @@
 [Genesis 30:39](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.39?lang=eng#p39)
 
 
-[^a]: TG [[Superstitions]].
+[^a]: [[Superstitions|TG Superstitions]].  

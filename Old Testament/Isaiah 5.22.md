@@ -5,5 +5,5 @@
 [Isaiah 5:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.22?lang=eng#p22)
 
 
-[^a]: TG [[Drunkenness]].
-[^b]: TG [[Word of Wisdom]].
+[^a]: [[Drunkenness|TG Drunkenness]].  
+[^b]: [[Word of Wisdom|TG Word of Wisdom]].  

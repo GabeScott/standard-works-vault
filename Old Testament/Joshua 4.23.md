@@ -5,4 +5,4 @@
 [Joshua 4:23](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.23?lang=eng#p23)
 
 
-[^a]: [[Exodus 14.21|Ex. 14:21.]]
+[^a]: [[Exodus 14.21|Ex. 14:21]].  

@@ -5,6 +5,6 @@
 [Numbers 33:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 47.11|Gen. 47:11.]]
-[^b]: OR triumphantly.
-[^c]: [[Exodus 14.8|Ex. 14:8 (8-9).]]
+[^a]: [[Genesis 47.11|Gen. 47:11]].  
+[^b]: OR triumphantly.  
+[^c]: [[Exodus 14.8|Ex. 14:8 (8–9)]][[Exodus 14.9|]].  

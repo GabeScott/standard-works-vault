@@ -5,8 +5,8 @@
 [Isaiah 33:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.15?lang=eng#p15)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: OR profit by extortion.
-[^c]: TG [[Bribe, Bribery]].
-[^d]: HEB bloods; i.e., violence.
-[^e]: IE from being a participant in evils.
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: OR profit by extortion.  
+[^c]: [[Bribe, Bribery|TG Bribe]].  
+[^d]: HEB bloods; i.e., violence.  
+[^e]: IE from being a participant in evils.  

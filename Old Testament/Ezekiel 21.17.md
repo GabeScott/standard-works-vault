@@ -5,4 +5,4 @@
 [Ezekiel 21:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.17?lang=eng#p17)
 
 
-[^a]: [[Ezekiel 5.13|Ezek. 5:13]]; [[3 Nephi 21.21|3 Ne. 21:21.]]
+[^a]: [[Ezekiel 5.13|Ezek. 5:13]]; [[3 Nephi 21.21|3 Ne. 21:21]].  

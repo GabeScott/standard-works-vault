@@ -5,4 +5,4 @@
 [Genesis 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.12?lang=eng#p12)
 
 
-[^a]: OR lapis lazuli, or cornelian (identity uncertain).
+[^a]: OR lapis lazuli, or cornelian (identity uncertain).  

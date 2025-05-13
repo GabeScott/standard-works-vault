@@ -5,4 +5,4 @@
 [Acts 14:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.5?lang=eng#p5)
 
 
-[^a]: [[2 Corinthians 11.26|2 Cor. 11:26.]]
+[^a]: [[2 Corinthians 11.26|2 Cor. 11:26]].  

@@ -5,4 +5,4 @@
 [Ruth 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/3.9?lang=eng#p9)
 
 
-[^a]: [[Ruth 2.20|Ruth 2:20.]]
+[^a]: [[Ruth 2.20|Ruth 2:20]].  

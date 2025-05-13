@@ -5,5 +5,5 @@
 [1 Chronicles 13:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/13.5?lang=eng#p5)
 
 
-[^a]: [[2 Samuel 6.1|2 Sam. 6:1.]]
-[^b]: [[Isaiah 23.3|Isa. 23:3.]]
+[^a]: [[2 Samuel 6.1|2 Sam. 6:1]].  
+[^b]: [[Isaiah 23.3|Isa. 23:3]].  

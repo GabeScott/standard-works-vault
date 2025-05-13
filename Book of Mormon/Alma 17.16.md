@@ -5,4 +5,4 @@
 [Alma 17:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p16#p16)
 
 
-[^a]: [[Mosiah 28.2|Mosiah 28:2 (1-3).]]
+[^a]: [[Mosiah 28.1|Mosiah 28:2 (1–3)]][[Mosiah 28.2|]][[Mosiah 28.3|]].  

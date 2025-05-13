@@ -5,4 +5,4 @@
 [Leviticus 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.3?lang=eng#p3)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Church|TG Church]].  

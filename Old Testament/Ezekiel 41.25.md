@@ -5,4 +5,4 @@
 [Ezekiel 41:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.25?lang=eng#p25)
 
 
-[^a]: [[1 Kings 7.6|1 Kgs. 7:6.]]
+[^a]: [[1 Kings 7.6|1 Kgs. 7:6]].  

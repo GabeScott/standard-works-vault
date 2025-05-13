@@ -5,4 +5,4 @@
 [Luke 15:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.8?lang=eng#p8)
 
 
-[^a]: GR drachma (a silver coin equal to the Roman denarius—a workman’s daily wage).
+[^a]: GR drachma (a silver coin equal to the Roman denarius—a workman’s daily wage).  

@@ -5,4 +5,4 @@
 [Proverbs 12:28](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.28?lang=eng#p28)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Righteousness|TG Righteousness]].  

@@ -5,5 +5,5 @@
 [Ecclesiastes 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/11.10?lang=eng#p10)
 
 
-[^a]: TG [[Carnal Mind]].
-[^b]: TG [[Vanity]].
+[^a]: [[Carnal Mind|TG Carnal Mind]].  
+[^b]: [[Vanity|TG Vanity]].  

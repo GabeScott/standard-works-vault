@@ -5,6 +5,6 @@
 [Romans 3:28](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.28?lang=eng#p28)
 
 
-[^a]: TG [[Justification, Justify]].
-[^b]: TG [[Faith]].
-[^c]: GR apart from, without intervention of.
+[^a]: [[Justification, Justify|TG Justification]].  
+[^b]: [[Faith|TG Faith]].  
+[^c]: GR apart from, without intervention of.  

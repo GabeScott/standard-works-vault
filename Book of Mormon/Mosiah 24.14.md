@@ -5,6 +5,6 @@
 [Mosiah 24:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p14#p14)
 
 
-[^a]: [[Isaiah 46.4|Isa. 46:4 (3-4).]]
-[^b]: TG [[Witness, Witnesses]].
-[^c]: TG [[Adversity]]; [[Affliction]].
+[^a]: [[Isaiah 46.3|Isa. 46:4 (3–4)]][[Isaiah 46.4|]].  
+[^b]: [[Witness, Witnesses|TG Witness]].  
+[^c]: [[Adversity|TG Adversity]]; [[Affliction|Affliction]].  

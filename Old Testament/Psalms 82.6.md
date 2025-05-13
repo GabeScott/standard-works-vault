@@ -5,4 +5,4 @@
 [Psalms 82:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/82.6?lang=eng#p6)
 
 
-[^a]: TG [[Man, a Spirit Child of Heavenly Father]]; [[Man, Potential to Become like Heavenly Father]]; [[Sons and Daughters of God]]; [[Spirit Creation]].
+[^a]: [[Man, a Spirit Child of Heavenly Father|TG Man, a Spirit Child of Heavenly Father]]; [[Man, Potential to Become like Heavenly Father|Man, Potential to Become like Heavenly Father]]; [[Sons and Daughters of God|Sons and Daughters of God]]; [[Spirit Creation|Spirit Creation]].  

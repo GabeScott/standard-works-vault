@@ -5,4 +5,4 @@
 [Jeremiah 44:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.7?lang=eng#p7)
 
 
-[^a]: [[Numbers 16.38|Num. 16:38.]]
+[^a]: [[Numbers 16.38|Num. 16:38]].  

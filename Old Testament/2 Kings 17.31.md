@@ -5,4 +5,4 @@
 [2 Kings 17:31](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.31?lang=eng#p31)
 
 
-[^a]: [[Mormon 4.21|Morm. 4:21.]]
+[^a]: [[Mormon 4.21|Morm. 4:21]].  

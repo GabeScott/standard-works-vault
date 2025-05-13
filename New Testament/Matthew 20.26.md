@@ -5,5 +5,5 @@
 [Matthew 20:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.26?lang=eng#p26)
 
 
-[^a]: TG [[Leadership]].
-[^b]: TG [[Priesthood, Magnifying Callings within]].
+[^a]: [[Leadership|TG Leadership]].  
+[^b]: [[Priesthood, Magnifying Callings within|TG Priesthood, Magnifying Callings within]].  

@@ -5,5 +5,5 @@
 [Exodus 38:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/38.24?lang=eng#p24)
 
 
-[^a]: HEB used.
-[^b]: [[Exodus 35.22|Ex. 35:22.]]
+[^a]: HEB used.  
+[^b]: [[Exodus 35.22|Ex. 35:22]].  

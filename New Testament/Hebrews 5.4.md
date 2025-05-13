@@ -5,6 +5,6 @@
 [Hebrews 5:4](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.4?lang=eng#p4)
 
 
-[^a]: TG [[Leadership]].
-[^b]: TG [[Called of God]]; [[Priesthood, Authority]]; [[Priesthood, Qualifying for]].
-[^c]: [[Exodus 28.1|Ex. 28:1]]. TG [[Priesthood, Aaronic]].
+[^a]: [[Leadership|TG Leadership]].  
+[^b]: [[Called of God|TG Called of God]]; [[Priesthood, Authority|Priesthood, Authority]]; [[Priesthood, Qualifying for|Priesthood, Qualifying for]].  
+[^c]: [[Exodus 28.1|Ex. 28:1]]. [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  

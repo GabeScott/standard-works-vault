@@ -5,8 +5,8 @@
 [Ether 10:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Skill]].
-[^b]: [[Helaman 6.9|Hel. 6:9 (9-11)]]; [[Ether 9.17|Ether 9:17.]]
-[^c]: [[2 Nephi 5.15|2 Ne. 5:15]]; [[Moses 5.46|Moses 5:46.]]
-[^d]: [[Genesis 4.22|Gen. 4:22]]; [[Mosiah 8.10|Mosiah 8:10.]]
-[^e]: TG [[Art]].
+[^a]: [[Skill|TG Skill]].  
+[^b]: [[Helaman 6.9|Hel. 6:9 (9–11)]][[Helaman 6.10|]][[Helaman 6.11|]]; [[Ether 9.17|Ether 9:17]].  
+[^c]: [[2 Nephi 5.15|2 Ne. 5:15]]; [[Moses 5.46|Moses 5:46]].  
+[^d]: [[Genesis 4.22|Gen. 4:22]]; [[Mosiah 8.10|Mosiah 8:10]].  
+[^e]: [[Art|TG Art]].  

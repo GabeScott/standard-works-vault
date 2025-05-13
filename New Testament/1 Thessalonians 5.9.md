@@ -5,5 +5,5 @@
 [1 Thessalonians 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.9?lang=eng#p9)
 
 
-[^a]: 1 Thes. 1:10; [[1 Peter 2.8|1 Pet. 2:8 (6-8).]]
-[^b]: TG [[Salvation for the Dead]].
+[^a]: [[1 Thessalonians 1.10|1 Thes. 1:10]]; [[1 Peter 2.6|1 Pet. 2:8 (6–8)]][[1 Peter 2.7|]][[1 Peter 2.8|]].  
+[^b]: [[Salvation|TG Salvation]].  

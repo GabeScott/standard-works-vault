@@ -5,5 +5,5 @@
 [Revelation 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.2?lang=eng#p2)
 
 
-[^a]: TG [[God, Omniscience of]].
-[^b]: [[D&C 64.39|D&C 64:39 (38-39)]]. TG [[Apostasy of the Early Christian Church]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^b]: [[D&C 64.38|D&C 64:39 (38–39)]][[D&C 64.39|]]. [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

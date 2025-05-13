@@ -5,4 +5,4 @@
 [Exodus 31:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.13?lang=eng#p13)
 
 
-[^a]: TG [[Sabbath]].
+[^a]: [[Sabbath|TG Sabbath]].  

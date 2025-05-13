@@ -5,5 +5,5 @@
 [Isaiah 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.15?lang=eng#p15)
 
 
-[^a]: [[1 Samuel 8.18|1 Sam. 8:18]]; [[D&C 101.7|D&C 101:7 (7-8)]]. TG [[God, Access to]].
-[^b]: HEB bloods; i.e., bloodshed. Isa. 59:2 (2-3).
+[^a]: [[1 Samuel 8.18|1 Sam. 8:18]]; [[D&C 101.7|D&C 101:7 (7–8)]][[D&C 101.8|]]. [[God, Access to|TG God, Access to]].  
+[^b]: HEB bloods; i.e., bloodshed. [[Isaiah 59.2|Isa. 59:2 (2–3)]][[Isaiah 59.3|]].  

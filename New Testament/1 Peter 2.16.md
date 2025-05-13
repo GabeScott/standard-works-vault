@@ -5,6 +5,6 @@
 [1 Peter 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.16?lang=eng#p16)
 
 
-[^a]: TG [[Liberty]].
-[^b]: TG [[Malice]].
-[^c]: TG [[Servant]].
+[^a]: [[Liberty|TG Liberty]].  
+[^b]: [[Malice|TG Malice]].  
+[^c]: [[Servant|TG Servant]].  

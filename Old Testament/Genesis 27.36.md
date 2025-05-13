@@ -5,5 +5,5 @@
 [Genesis 27:36](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.36?lang=eng#p36)
 
 
-[^a]: IE A supplanter. Gen. 25:26.
-[^b]: TG [[Birthright]].
+[^a]: IE A supplanter. [[Genesis 25.26|Gen. 25:26]].  
+[^b]: [[Birthright|TG Birthright]].  

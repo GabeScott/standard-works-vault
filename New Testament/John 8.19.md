@@ -5,4 +5,4 @@
 [John 8:19](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.19?lang=eng#p19)
 
 
-[^a]: [[John 14.7|John 14:7.]]
+[^a]: [[John 14.7|John 14:7]].  

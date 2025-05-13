@@ -5,4 +5,4 @@
 [Ezekiel 12:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.23?lang=eng#p23)
 
 
-[^a]: IE fulfillment.
+[^a]: IE fulfillment.  

@@ -5,7 +5,7 @@
 [1 Nephi 12:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/12?lang=eng&id=p4#p4)
 
 
-[^a]: [[1 Nephi 19.12|1 Ne. 19:12]]; [[Helaman 14.28|Hel. 14:28 (20-28)]]; [[3 Nephi 10.11|3 Ne. 10:11.]]
-[^b]: [[1 Nephi 19.10|1 Ne. 19:10]]; [[2 Nephi 26.3|2 Ne. 26:3.]]
-[^c]: [[Genesis 7.11|Gen. 7:11.]]
-[^d]: [[3 Nephi 8.14|3 Ne. 8:14.]]
+[^a]: [[1 Nephi 19.12|1 Ne. 19:12]]; [[Helaman 14.20|Hel. 14:28 (20–28)]][[Helaman 14.21|]][[Helaman 14.22|]][[Helaman 14.23|]][[Helaman 14.24|]][[Helaman 14.25|]][[Helaman 14.26|]][[Helaman 14.27|]][[Helaman 14.28|]]; [[3 Nephi 10.11|3 Ne. 10:11]].  
+[^b]: [[1 Nephi 19.10|1 Ne. 19:10]]; [[2 Nephi 26.3|2 Ne. 26:3]].  
+[^c]: [[Genesis 7.11|Gen. 7:11]].  
+[^d]: [[3 Nephi 8.14|3 Ne. 8:14]].  

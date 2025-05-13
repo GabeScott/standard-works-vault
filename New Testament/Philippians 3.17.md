@@ -5,5 +5,5 @@
 [Philippians 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.17?lang=eng#p17)
 
 
-[^a]: [[Matthew 16.24|Matt. 16:24 (24-26)]]; [[Ephesians 5.1|Eph. 5:1]]; 1 Thes. 1:6.
-[^b]: TG [[Example, Ensample]].
+[^a]: [[Matthew 16.24|Matt. 16:24 (24–26)]][[Matthew 16.25|]][[Matthew 16.26|]]; [[Ephesians 5.1|Eph. 5:1]]; [[1 Thessalonians 1.6|1 Thes. 1:6]].  
+[^b]: [[Example, Ensample|TG Example]].  

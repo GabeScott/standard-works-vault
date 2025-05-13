@@ -5,4 +5,4 @@
 [Jeremiah 13:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.11?lang=eng#p11)
 
 
-[^a]: [[1 Nephi 1.20|1 Ne. 1:20.]]
+[^a]: [[1 Nephi 1.20|1 Ne. 1:20]].  

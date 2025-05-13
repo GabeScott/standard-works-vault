@@ -5,5 +5,5 @@
 [Alma 1:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p26#p26)
 
 
-[^a]: [[Mosiah 18.24|Mosiah 18:24 (24, 26)]]; [[Mosiah 27.5|27:5 (3-5).]]
-[^b]: [[Mosiah 4.27|Mosiah 4:27]]; [[D&C 10.4|D&C 10:4.]]
+[^a]: [[Mosiah 18.24|Mosiah 18:24 (24, 26)]][[Mosiah 18.26|]]; [[Mosiah 27.3|27:5 (3–5)]][[Mosiah 27.4|]][[Mosiah 27.5|]].  
+[^b]: [[Mosiah 4.27|Mosiah 4:27]]; [[D&C 10.4|D&C 10:4]].  

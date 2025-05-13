@@ -5,4 +5,4 @@
 [Ether 10:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p3#p3)
 
 
-[^a]: [[Mosiah 10.6|Mosiah 10:6.]]
+[^a]: [[Mosiah 10.6|Mosiah 10:6]].  

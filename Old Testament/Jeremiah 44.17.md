@@ -5,6 +5,6 @@
 [Jeremiah 44:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.17?lang=eng#p17)
 
 
-[^a]: [[D&C 1.16|D&C 1:16.]]
-[^b]: IE the fertility goddess, such as the Babylonian Ishtar.
-[^c]: [[Hosea 2.5|Hosea 2:5.]]
+[^a]: [[D&C 1.16|D&C 1:16]].  
+[^b]: IE the fertility goddess, such as the Babylonian Ishtar.  
+[^c]: [[Hosea 2.5|Hosea 2:5]].  

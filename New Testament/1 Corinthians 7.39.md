@@ -5,5 +5,5 @@
 [1 Corinthians 7:39](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.39?lang=eng#p39)
 
 
-[^a]: TG [[Marriage, Wives]].
-[^b]: TG [[Marriage, Temporal]].
+[^a]: [[Marriage, Wives|TG Marriage, Wives]].  
+[^b]: [[Marriage, Temporal|TG Marriage, Temporal]].  

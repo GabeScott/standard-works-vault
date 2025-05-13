@@ -5,5 +5,5 @@
 [Alma 43:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 56.27|Alma 56:27.]]
-[^b]: [[Alma 25.4|Alma 25:4.]]
+[^a]: [[Alma 56.27|Alma 56:27]].  
+[^b]: [[Alma 25.4|Alma 25:4]].  

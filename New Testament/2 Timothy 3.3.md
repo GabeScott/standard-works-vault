@@ -5,8 +5,8 @@
 [2 Timothy 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.3?lang=eng#p3)
 
 
-[^a]: [[Romans 1.26|Rom. 1:26 (26-28).]]
-[^b]: TG [[Sexual Immorality]].
-[^c]: TG [[Honesty]].
-[^d]: GR slanderers.
-[^e]: GR without self-control.
+[^a]: [[Romans 1.26|Rom. 1:26 (26–28)]][[Romans 1.27|]][[Romans 1.28|]].  
+[^b]: [[Sexual Immorality|TG Sexual Immorality]].  
+[^c]: [[Honesty|TG Honesty]].  
+[^d]: GR slanderers.  
+[^e]: GR without self-control.  

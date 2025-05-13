@@ -5,4 +5,4 @@
 [1 Kings 18:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.25?lang=eng#p25)
 
 
-[^a]: TG [[Idolatry, Idol]].
+[^a]: [[Idolatry, Idol|TG Idolatry]].  

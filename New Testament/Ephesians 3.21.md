@@ -5,4 +5,4 @@
 [Ephesians 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.21?lang=eng#p21)
 
 
-[^a]: [[D&C 76.112|D&C 76:112.]]
+[^a]: [[D&C 76.112|D&C 76:112]].  

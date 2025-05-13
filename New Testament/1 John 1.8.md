@@ -5,6 +5,6 @@
 [1 John 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/1.8?lang=eng#p8)
 
 
-[^a]: [[Proverbs 30.20|Prov. 30:20.]]
-[^b]: TG [[Sin]].
-[^c]: TG [[Lying, Liar, Lie]].
+[^a]: [[Proverbs 30.20|Prov. 30:20]].  
+[^b]: [[Sin|TG Sin]].  
+[^c]: [[Lying, Liar, Lie|TG Lying]].  

@@ -5,5 +5,5 @@
 [Matthew 4:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.21?lang=eng#p21)
 
 
-[^a]: [[John 21.2|John 21:2.]]
-[^b]: TG [[Called of God]].
+[^a]: [[John 21.2|John 21:2]].  
+[^b]: [[Called of God|TG Called of God]].  

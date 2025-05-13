@@ -5,4 +5,4 @@
 [Judges 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7.8?lang=eng#p8)
 
 
-[^a]: [[Joshua 1.11|Josh. 1:11.]]
+[^a]: [[Joshua 1.11|Josh. 1:11]].  

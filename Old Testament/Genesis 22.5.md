@@ -5,4 +5,4 @@
 [Genesis 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.5?lang=eng#p5)
 
 
-[^a]: TG [[Assembly for Worship]].
+[^a]: [[Worship|TG Worship]].  

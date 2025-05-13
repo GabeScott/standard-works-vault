@@ -5,4 +5,4 @@
 [2 Nephi 5:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Marriage, Interfaith]].
+[^a]: [[Marriage, Interfaith|TG Marriage, Interfaith]].  

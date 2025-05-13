@@ -5,5 +5,5 @@
 [3 Nephi 21:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p27#p27)
 
 
-[^a]: [[3 Nephi 16.5|3 Ne. 16:5 (4-5).]]
-[^b]: TG [[Israel, Restoration of]].
+[^a]: [[3 Nephi 16.4|3 Ne. 16:5 (4–5)]][[3 Nephi 16.5|]].  
+[^b]: [[Israel, Restoration of|TG Israel, Restoration of]].  

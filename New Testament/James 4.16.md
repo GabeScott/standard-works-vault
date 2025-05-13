@@ -5,4 +5,4 @@
 [James 4:16](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.16?lang=eng#p16)
 
 
-[^a]: TG [[Boast, Boasting]].
+[^a]: [[Boast, Boasting|TG Boast]].  

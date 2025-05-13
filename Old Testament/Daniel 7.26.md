@@ -5,4 +5,4 @@
 [Daniel 7:26](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.26?lang=eng#p26)
 
 
-[^a]: TG [[Judgment, the Last]].
+[^a]: [[Judgment, the Last|TG Judgment, the Last]].  

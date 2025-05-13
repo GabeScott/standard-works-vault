@@ -5,4 +5,4 @@
 [Matthew 26:69](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.69?lang=eng#p69)
 
 
-[^a]: GR servant-girl.
+[^a]: GR servant-girl.  

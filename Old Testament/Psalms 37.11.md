@@ -5,6 +5,6 @@
 [Psalms 37:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.11?lang=eng#p11)
 
 
-[^a]: TG [[Meek, Meekness]].
-[^b]: TG [[Earth, Destiny of]].
-[^c]: TG [[Joy]].
+[^a]: [[Meek, Meekness|TG Meek]].  
+[^b]: [[Earth, Destiny of|TG Earth, Destiny of]].  
+[^c]: [[Joy|TG Joy]].  

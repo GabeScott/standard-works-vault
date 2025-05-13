@@ -5,5 +5,5 @@
 [Exodus 33:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.18?lang=eng#p18)
 
 
-[^a]: TG [[God, Privilege of Seeing]].
-[^b]: TG [[Jesus Christ, Glory of]].
+[^a]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]].  
+[^b]: [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  

@@ -5,6 +5,6 @@
 [Leviticus 26:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.16?lang=eng#p16)
 
 
-[^a]: [[Mosiah 7.29|Mosiah 7:29]]; [[Helaman 12.3|Hel. 12:3 (2-4)]]; [[D&C 43.25|D&C 43:25.]]
-[^b]: [[Deuteronomy 28.22|Deut. 28:22.]]
-[^c]: IE fever.
+[^a]: [[Mosiah 7.29|Mosiah 7:29]]; [[Helaman 12.2|Hel. 12:3 (2–4)]][[Helaman 12.3|]][[Helaman 12.4|]]; [[D&C 43.25|D&C 43:25]].  
+[^b]: [[Deuteronomy 28.22|Deut. 28:22]].  
+[^c]: IE fever.  

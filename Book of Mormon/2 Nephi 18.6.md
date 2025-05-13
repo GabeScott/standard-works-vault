@@ -5,5 +5,5 @@
 [2 Nephi 18:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p6#p6)
 
 
-[^a]: [[Nehemiah 3.15|Neh. 3:15]]; [[John 9.7|John 9:7.]]
-[^b]: [[Isaiah 7.1|Isa. 7:1 (1-6).]]
+[^a]: [[Nehemiah 3.15|Neh. 3:15]]; [[John 9.7|John 9:7]].  
+[^b]: [[Isaiah 7.1|Isa. 7:1 (1–6)]][[Isaiah 7.2|]][[Isaiah 7.3|]][[Isaiah 7.4|]][[Isaiah 7.5|]][[Isaiah 7.6|]].  

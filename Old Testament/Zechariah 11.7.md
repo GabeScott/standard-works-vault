@@ -5,4 +5,4 @@
 [Zechariah 11:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/11.7?lang=eng#p7)
 
 
-[^a]: [[Zechariah 11.14|Zech. 11:14.]]
+[^a]: [[Zechariah 11.14|Zech. 11:14]].  

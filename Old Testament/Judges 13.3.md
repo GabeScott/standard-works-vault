@@ -5,5 +5,5 @@
 [Judges 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/13.3?lang=eng#p3)
 
 
-[^a]: [[Moroni 7.29|Moro. 7:29 (29-32).]]
-[^b]: TG [[Barren, Barrenness]].
+[^a]: [[Moroni 7.29|Moro. 7:29 (29–32)]][[Moroni 7.30|]][[Moroni 7.31|]][[Moroni 7.32|]].  
+[^b]: [[Barren, Barrenness|TG Barren]].  

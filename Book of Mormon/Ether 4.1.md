@@ -5,6 +5,6 @@
 [Ether 4:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/4?lang=eng&id=p1#p1)
 
 
-[^a]: [[Ether 3.1|Ether 3:1.]]
-[^b]: [[Ether 12.24|Ether 12:24]]. TG [[Record Keeping]]; [[Scriptures, Writing of]].
-[^c]: [[Ether 3.21|Ether 3:21.]]
+[^a]: [[Ether 3.1|Ether 3:1]].  
+[^b]: [[Ether 12.24|Ether 12:24]]. [[Record Keeping|TG Record Keeping]]; [[Scriptures, Writing of|Scriptures, Writing of]].  
+[^c]: [[Ether 3.21|Ether 3:21]].  

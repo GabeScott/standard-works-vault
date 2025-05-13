@@ -5,4 +5,4 @@
 [2 Chronicles 27:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/27.6?lang=eng#p6)
 
 
-[^a]: HEB ordered; i.e., maintained a steady course.
+[^a]: HEB ordered; i.e., maintained a steady course.  

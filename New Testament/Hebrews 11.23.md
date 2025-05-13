@@ -5,5 +5,5 @@
 [Hebrews 11:23](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.23?lang=eng#p23)
 
 
-[^a]: [[Exodus 2.2|Ex. 2:2.]]
-[^b]: GR handsome.
+[^a]: [[Exodus 2.2|Ex. 2:2]].  
+[^b]: GR handsome.  

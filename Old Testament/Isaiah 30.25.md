@@ -5,4 +5,4 @@
 [Isaiah 30:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.25?lang=eng#p25)
 
 
-[^a]: IE day of destruction of all enemies.
+[^a]: IE day of destruction of all enemies.  

@@ -5,4 +5,4 @@
 [2 Nephi 13:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/13?lang=eng&id=p6#p6)
 
 
-[^a]: [[Isaiah 3.6|Isa. 3:6.]]
+[^a]: [[Isaiah 3.6|Isa. 3:6]].  

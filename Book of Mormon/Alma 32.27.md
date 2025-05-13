@@ -5,4 +5,4 @@
 [Alma 32:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p27#p27)
 
 
-[^a]: TG [[Motivations]]; [[Teachable]].
+[^a]: [[Motivations|TG Motivations]]; [[Teachable|Teachable]].  

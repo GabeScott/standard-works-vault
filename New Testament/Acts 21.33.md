@@ -5,4 +5,4 @@
 [Acts 21:33](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.33?lang=eng#p33)
 
 
-[^a]: [[Acts 24.7|Acts 24:7.]]
+[^a]: [[Acts 24.7|Acts 24:7]].  

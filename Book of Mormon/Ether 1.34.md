@@ -5,5 +5,5 @@
 [Ether 1:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/1?lang=eng&id=p34#p34)
 
 
-[^a]: [[Ether 2.13|Ether 2:13]]; [[Ether 6.1|6:1.]]
-[^b]: TG [[Communication]].
+[^a]: [[Ether 2.13|Ether 2:13]]; [[Ether 6.1|6:1]].  
+[^b]: [[Communication|TG Communication]].  

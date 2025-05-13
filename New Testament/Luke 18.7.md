@@ -5,5 +5,5 @@
 [Luke 18:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.7?lang=eng#p7)
 
 
-[^a]: [[Numbers 31.2|Num. 31:2]]; [[Alma 1.13|Alma 1:13]]; [[D&C 121.5|D&C 121:5.]]
-[^b]: JST Luke 18:7 … men?
+[^a]: [[Numbers 31.2|Num. 31:2]]; [[Alma 1.13|Alma 1:13]]; [[D&C 121.5|D&C 121:5]].  
+[^b]: JST Luke 18:7 … men?  

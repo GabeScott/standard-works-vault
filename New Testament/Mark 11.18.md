@@ -5,4 +5,4 @@
 [Mark 11:18](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/11.18?lang=eng#p18)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  

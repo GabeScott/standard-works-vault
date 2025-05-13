@@ -5,4 +5,4 @@
 [Ezekiel 17:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.16?lang=eng#p16)
 
 
-[^a]: TG [[Israel, Bondage of, in Other Lands]].
+[^a]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  

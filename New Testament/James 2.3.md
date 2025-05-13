@@ -5,4 +5,4 @@
 [James 2:3](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.3?lang=eng#p3)
 
 
-[^a]: GR splendid.
+[^a]: GR splendid.  

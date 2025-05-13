@@ -5,4 +5,4 @@
 [3 Nephi 5:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p15#p15)
 
 
-[^a]: [[Mormon 7.9|Morm. 7:9]]; [[Mormon 8.12|8:12.]]
+[^a]: [[Mormon 7.9|Morm. 7:9]]; [[Mormon 8.12|8:12]].  

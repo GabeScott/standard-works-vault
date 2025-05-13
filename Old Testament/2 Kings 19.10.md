@@ -5,4 +5,4 @@
 [2 Kings 19:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.10?lang=eng#p10)
 
 
-[^a]: [[Enos 1.6|Enos 1:6]]; [[Ether 3.12|Ether 3:12.]]
+[^a]: [[Enos 1.6|Enos 1:6]]; [[Ether 3.12|Ether 3:12]].  

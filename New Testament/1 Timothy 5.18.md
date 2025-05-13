@@ -5,6 +5,6 @@
 [1 Timothy 5:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.18?lang=eng#p18)
 
 
-[^a]: [[Deuteronomy 25.4|Deut. 25:4.]]
-[^b]: TG [[Labor]].
-[^c]: GR wage. TG [[Wages]].
+[^a]: [[Deuteronomy 25.4|Deut. 25:4]].  
+[^b]: [[Labor|TG Labor]].  
+[^c]: GR wage. [[Wages|TG Wages]].  

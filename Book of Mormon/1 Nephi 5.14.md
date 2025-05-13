@@ -5,10 +5,10 @@
 [1 Nephi 5:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p14#p14)
 
 
-[^a]: [[Mosiah 2.34|Mosiah 2:34.]]
-[^b]: 1 Ne. 3:3, 12; [[Jarom 1.1|Jarom 1:1]]. TG [[Book of Remembrance]].
-[^c]: TG [[Israel, Origins of]].
-[^d]: [[2 Nephi 3.4|2 Ne. 3:4]]; [[Alma 10.3|Alma 10:3]]. TG [[Israel, Joseph, People of]].
-[^e]: [[Genesis 25.26|Gen. 25:26]]; [[2 Nephi 20.21|2 Ne. 20:21]]; [[Alma 7.25|Alma 7:25]]; [[D&C 27.10|D&C 27:10.]]
-[^f]: [[Genesis 37.36|Gen. 37:36 (29-36).]]
-[^g]: TG [[Protection, Divine]].
+[^a]: [[Mosiah 2.34|Mosiah 2:34]].  
+[^b]: [[1 Nephi 3.3|1 Ne. 3:3, 12]][[1 Nephi 3.12|]]; [[Jarom 1.1|Jarom 1:1]]. [[Book of Remembrance|TG Book of Remembrance]].  
+[^c]: [[Israel, Origins of|TG Israel, Origins of]].  
+[^d]: [[2 Nephi 3.4|2 Ne. 3:4]]; [[Alma 10.3|Alma 10:3]]. [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  
+[^e]: [[Genesis 25.26|Gen. 25:26]]; [[2 Nephi 20.21|2 Ne. 20:21]]; [[Alma 7.25|Alma 7:25]]; [[D&C 27.10|D&C 27:10]].  
+[^f]: [[Genesis 37.29|Gen. 37:36 (29–36)]][[Genesis 37.30|]][[Genesis 37.31|]][[Genesis 37.32|]][[Genesis 37.33|]][[Genesis 37.34|]][[Genesis 37.35|]][[Genesis 37.36|]].  
+[^g]: [[Protection, Divine|TG Protection, Divine]].  

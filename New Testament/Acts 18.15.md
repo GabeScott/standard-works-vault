@@ -5,4 +5,4 @@
 [Acts 18:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.15?lang=eng#p15)
 
 
-[^a]: [[Acts 23.29|Acts 23:29.]]
+[^a]: [[Acts 23.29|Acts 23:29]].  

@@ -5,4 +5,4 @@
 [Matthew 12:42](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.42?lang=eng#p42)
 
 
-[^a]: [[1 Kings 10.1|1 Kgs. 10:1 (1-10).]]
+[^a]: [[1 Kings 10.1|1 Kgs. 10:1 (1–10)]][[1 Kings 10.2|]][[1 Kings 10.3|]][[1 Kings 10.4|]][[1 Kings 10.5|]][[1 Kings 10.6|]][[1 Kings 10.7|]][[1 Kings 10.8|]][[1 Kings 10.9|]][[1 Kings 10.10|]].  

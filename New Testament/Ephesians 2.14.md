@@ -5,5 +5,5 @@
 [Ephesians 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.14?lang=eng#p14)
 
 
-[^a]: TG [[Peace of God]]; [[Peace of God]] of God.
-[^b]: TG [[Veil]].
+[^a]: [[Peace|TG Peace]]; [[Peace of God|Peace of God]].  
+[^b]: [[Veil|TG Veil]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 29:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.6?lang=eng#p6)
 
 
-[^a]: [[Mosiah 26.30|Mosiah 26:30.]]
+[^a]: [[Mosiah 26.30|Mosiah 26:30]].  

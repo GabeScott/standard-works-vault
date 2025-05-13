@@ -5,5 +5,5 @@
 [Ecclesiastes 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/8.11?lang=eng#p11)
 
 
-[^a]: [[D&C 98.2|D&C 98:2.]]
-[^b]: [[Exodus 8.15|Ex. 8:15 (13-15).]]
+[^a]: [[D&C 98.2|D&C 98:2]].  
+[^b]: [[Exodus 8.13|Ex. 8:15 (13–15)]][[Exodus 8.14|]][[Exodus 8.15|]].  

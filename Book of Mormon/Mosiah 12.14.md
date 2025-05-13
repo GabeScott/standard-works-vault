@@ -5,5 +5,5 @@
 [Mosiah 12:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/12?lang=eng&id=p14#p14)
 
 
-[^a]: [[Jeremiah 2.35|Jer. 2:35]]; [[Alma 21.6|Alma 21:6.]]
-[^b]: [[Helaman 13.26|Hel. 13:26 (24-28).]]
+[^a]: [[Jeremiah 2.35|Jer. 2:35]]; [[Alma 21.6|Alma 21:6]].  
+[^b]: [[Helaman 13.24|Hel. 13:26 (24–28)]][[Helaman 13.25|]][[Helaman 13.26|]][[Helaman 13.27|]][[Helaman 13.28|]].  

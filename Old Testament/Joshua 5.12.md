@@ -5,4 +5,4 @@
 [Joshua 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 16.35|Ex. 16:35]]; [[Mosiah 7.19|Mosiah 7:19.]]
+[^a]: [[Exodus 16.35|Ex. 16:35]]; [[Mosiah 7.19|Mosiah 7:19]].  

@@ -5,6 +5,6 @@
 [1 Thessalonians 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/4.6?lang=eng#p6)
 
 
-[^a]: GR take advantage of, wrong.
-[^b]: GR the matter.
-[^c]: 2 Thes. 1:8.
+[^a]: GR take advantage of, wrong.  
+[^b]: GR the matter.  
+[^c]: [[2 Thessalonians 1.8|2 Thes. 1:8]].  

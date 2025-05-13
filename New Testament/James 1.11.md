@@ -5,5 +5,5 @@
 [James 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.11?lang=eng#p11)
 
 
-[^a]: GR beauty of its appearance.
-[^b]: [[1 Timothy 6.17|1 Tim. 6:17 (17-19).]]
+[^a]: GR beauty of its appearance.  
+[^b]: [[1 Timothy 6.17|1 Tim. 6:17 (17–19)]][[1 Timothy 6.18|]][[1 Timothy 6.19|]].  

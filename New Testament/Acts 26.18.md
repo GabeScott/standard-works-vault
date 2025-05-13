@@ -5,5 +5,5 @@
 [Acts 26:18](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.18?lang=eng#p18)
 
 
-[^a]: TG [[Walking in Darkness]].
-[^b]: TG [[Light]].
+[^a]: [[Walking in Darkness|TG Walking in Darkness]].  
+[^b]: [[Light [noun]|TG Light [noun]]].  

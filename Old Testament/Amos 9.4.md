@@ -5,4 +5,4 @@
 [Amos 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 21.10|Jer. 21:10.]]
+[^a]: [[Jeremiah 21.10|Jer. 21:10]].  

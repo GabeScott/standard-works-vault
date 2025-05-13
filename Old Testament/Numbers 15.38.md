@@ -5,5 +5,5 @@
 [Numbers 15:38](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.38?lang=eng#p38)
 
 
-[^a]: [[Deuteronomy 22.12|Deut. 22:12.]]
-[^b]: [[Matthew 23.5|Matt. 23:5.]]
+[^a]: [[Deuteronomy 22.12|Deut. 22:12]].  
+[^b]: [[Matthew 23.5|Matt. 23:5]].  

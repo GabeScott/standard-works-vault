@@ -5,7 +5,7 @@
 [Joel 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.13?lang=eng#p13)
 
 
-[^a]: [[Alma 26.5|Alma 26:5]]; [[D&C 4.4|D&C 4:4.]]
-[^b]: [[D&C 6.3|D&C 6:3]]; [[D&C 101.64|101:64.]]
-[^c]: [[Revelation 14.19|Rev. 14:19]]; [[D&C 76.107|D&C 76:107.]]
-[^d]: OR vats.
+[^a]: [[Alma 26.5|Alma 26:5]]; [[D&C 4.4|D&C 4:4]].  
+[^b]: [[D&C 6.3|D&C 6:3]]; [[D&C 101.64|101:64]].  
+[^c]: [[Revelation 14.19|Rev. 14:19]]; [[D&C 76.107|D&C 76:107]].  
+[^d]: OR vats.  

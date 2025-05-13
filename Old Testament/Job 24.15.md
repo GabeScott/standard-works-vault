@@ -5,4 +5,4 @@
 [Job 24:15](https://www.churchofjesuschrist.org/study/scriptures/ot/job/24.15?lang=eng#p15)
 
 
-[^a]: [[Proverbs 7.9|Prov. 7:9 (9-10).]]
+[^a]: [[Proverbs 7.9|Prov. 7:9 (9–10)]][[Proverbs 7.10|]].  

@@ -5,4 +5,4 @@
 [Alma 5:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p19#p19)
 
 
-[^a]: 1 Jn. 3:2 (1-3).
+[^a]: [[1 John 3.1|1 Jn. 3:2 (1–3)]][[1 John 3.2|]][[1 John 3.3|]].  

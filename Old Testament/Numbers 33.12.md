@@ -5,4 +5,4 @@
 [Numbers 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 17.1|Ex. 17:1.]]
+[^a]: [[Exodus 17.1|Ex. 17:1]].  

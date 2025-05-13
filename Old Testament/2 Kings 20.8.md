@@ -5,4 +5,4 @@
 [2 Kings 20:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 15.8|Gen. 15:8 (7-9).]]
+[^a]: [[Genesis 15.7|Gen. 15:8 (7–9)]][[Genesis 15.8|]][[Genesis 15.9|]].  

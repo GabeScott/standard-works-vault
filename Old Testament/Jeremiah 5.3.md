@@ -5,4 +5,4 @@
 [Jeremiah 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.3?lang=eng#p3)
 
 
-[^a]: OR repent. Hag. 2:17.
+[^a]: OR repent. [[Haggai 2.17|Hag. 2:17]].  

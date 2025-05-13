@@ -5,4 +5,4 @@
 [Hosea 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.14?lang=eng#p14)
 
 
-[^a]: [[Ezekiel 20.35|Ezek. 20:35.]]
+[^a]: [[Ezekiel 20.35|Ezek. 20:35]].  

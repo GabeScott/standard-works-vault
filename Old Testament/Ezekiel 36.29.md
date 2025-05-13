@@ -5,4 +5,4 @@
 [Ezekiel 36:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.29?lang=eng#p29)
 
 
-[^a]: HEB summon the grain.
+[^a]: HEB summon the grain.  

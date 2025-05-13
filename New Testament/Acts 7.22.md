@@ -5,4 +5,4 @@
 [Acts 7:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.22?lang=eng#p22)
 
 
-[^a]: TG [[Education]].
+[^a]: [[Education|TG Education]].  

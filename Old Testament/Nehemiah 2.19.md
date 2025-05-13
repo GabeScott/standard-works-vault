@@ -5,5 +5,5 @@
 [Nehemiah 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/2.19?lang=eng#p19)
 
 
-[^a]: TG [[Laughter, Laugh]].
-[^b]: [[Psalms 123.4|Ps. 123:4]]; [[1 Nephi 8.33|1 Ne. 8:33]]; [[Alma 26.23|Alma 26:23.]]
+[^a]: [[Laughter, Laugh|TG Laughter]].  
+[^b]: [[Psalms 123.4|Ps. 123:4]]; [[1 Nephi 8.33|1 Ne. 8:33]]; [[Alma 26.23|Alma 26:23]].  

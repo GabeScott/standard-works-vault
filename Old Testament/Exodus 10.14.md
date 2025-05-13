@@ -5,5 +5,5 @@
 [Exodus 10:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 78.46|Ps. 78:46.]]
-[^b]: HEB within the whole border.
+[^a]: [[Psalms 78.46|Ps. 78:46]].  
+[^b]: HEB within the whole border.  

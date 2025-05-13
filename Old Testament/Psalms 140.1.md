@@ -5,4 +5,4 @@
 [Psalms 140:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/140.1?lang=eng#p1)
 
 
-[^a]: TG [[Deliver, Deliverance]].
+[^a]: [[Deliver, Deliverance|TG Deliver]].  

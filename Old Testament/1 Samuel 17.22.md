@@ -5,4 +5,4 @@
 [1 Samuel 17:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.22?lang=eng#p22)
 
 
-[^a]: OR baggage.
+[^a]: OR baggage.  

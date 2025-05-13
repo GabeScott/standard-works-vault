@@ -5,4 +5,4 @@
 [1 Samuel 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.8?lang=eng#p8)
 
 
-[^a]: [[Esther 3.1|Esth. 3:1.]]
+[^a]: [[Esther 3.1|Esth. 3:1]].  

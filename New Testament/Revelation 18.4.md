@@ -5,6 +5,6 @@
 [Revelation 18:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.4?lang=eng#p4)
 
 
-[^a]: [[Zechariah 2.7|Zech. 2:7.]]
-[^b]: [[Genesis 19.14|Gen. 19:14.]]
-[^c]: [[Isaiah 52.11|Isa. 52:11.]]
+[^a]: [[Zechariah 2.7|Zech. 2:7]].  
+[^b]: [[Genesis 19.14|Gen. 19:14]].  
+[^c]: [[Isaiah 52.11|Isa. 52:11]].  

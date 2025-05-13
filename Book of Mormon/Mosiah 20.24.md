@@ -5,4 +5,4 @@
 [Mosiah 20:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/20?lang=eng&id=p24#p24)
 
 
-[^a]: [[Mosiah 21.3|Mosiah 21:3.]]
+[^a]: [[Mosiah 21.3|Mosiah 21:3]].  

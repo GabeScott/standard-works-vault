@@ -5,4 +5,4 @@
 [Numbers 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.4?lang=eng#p4)
 
 
-[^a]: [[Leviticus 10.2|Lev. 10:2 (1-2).]]
+[^a]: [[Leviticus 10.1|Lev. 10:2 (1–2)]][[Leviticus 10.2|]].  

@@ -5,5 +5,5 @@
 [Jeremiah 24:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/24.10?lang=eng#p10)
 
 
-[^a]: [[D&C 43.25|D&C 43:25 (25-26).]]
-[^b]: [[Micah 6.16|Micah 6:16.]]
+[^a]: [[D&C 43.25|D&C 43:25 (25–26)]][[D&C 43.26|]].  
+[^b]: [[Micah 6.16|Micah 6:16]].  

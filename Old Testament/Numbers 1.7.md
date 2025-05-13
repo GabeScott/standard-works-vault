@@ -5,4 +5,4 @@
 [Numbers 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.7?lang=eng#p7)
 
 
-[^a]: [[Matthew 1.4|Matt. 1:4.]]
+[^a]: [[Matthew 1.4|Matt. 1:4]].  

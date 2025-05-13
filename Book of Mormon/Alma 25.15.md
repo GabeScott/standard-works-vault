@@ -5,7 +5,7 @@
 [Alma 25:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/25?lang=eng&id=p15#p15)
 
 
-[^a]: [[Jacob 4.5|Jacob 4:5]]; [[Jarom 1.11|Jarom 1:11.]]
-[^b]: [[Mosiah 16.14|Mosiah 16:14]]. TG [[Jesus Christ, Types of, in Anticipation]].
-[^c]: [[Joshua 1.8|Josh. 1:8]]; [[Mosiah 3.14|Mosiah 3:14 (14-15)]]; [[Mosiah 13.29|13:29 (29-32)]]; [[D&C 41.5|D&C 41:5 (4-5).]]
-[^d]: TG [[Ordinance]].
+[^a]: [[Jacob 4.5|Jacob 4:5]]; [[Jarom 1.11|Jarom 1:11]].  
+[^b]: [[Mosiah 16.14|Mosiah 16:14]]. [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]].  
+[^c]: [[Joshua 1.8|Josh. 1:8]]; [[Mosiah 3.14|Mosiah 3:14 (14–15)]][[Mosiah 3.15|]]; [[Mosiah 13.29|13:29 (29–32)]][[Mosiah 13.30|]][[Mosiah 13.31|]][[Mosiah 13.32|]]; [[D&C 41.4|D&C 41:5 (4–5)]][[D&C 41.5|]].  
+[^d]: [[Ordinance|TG Ordinance]].  

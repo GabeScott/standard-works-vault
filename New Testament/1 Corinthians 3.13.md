@@ -5,5 +5,5 @@
 [1 Corinthians 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.13?lang=eng#p13)
 
 
-[^a]: Mal. 3:2 (2-3).
-[^b]: GR test, put to proof. TG [[Testament]].
+[^a]: [[Malachi 3.2|Mal. 3:2 (2–3)]][[Malachi 3.3|]].  
+[^b]: GR test, put to proof. [[Test, Try, Prove|TG Test]].  

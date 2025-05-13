@@ -5,6 +5,6 @@
 [Genesis 9:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9.11?lang=eng#p11)
 
 
-[^a]: TG [[Flood, Noah’s]].
-[^b]: TG [[Earth, Cleansing of]].
-[^c]: JST Gen. 9:16-17 … earth. And I will establish my covenant with you, which I made unto Enoch, concerning the remnants of your posterity. Moses 7:51-52.
+[^a]: [[Flood|TG Flood]].  
+[^b]: [[Earth, Cleansing of|TG Earth, Cleansing of]].  
+[^c]: JST Gen. 9:16–17 … earth. And I will establish my covenant with you, which I made unto Enoch, concerning the remnants of your posterity. [[Moses 7.51|Moses 7:51–52]][[Moses 7.52|]].  

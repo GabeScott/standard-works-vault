@@ -5,4 +5,4 @@
 [2 Kings 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/3.3?lang=eng#p3)
 
 
-[^a]: [[1 Kings 14.7|1 Kgs. 14:7 (7-11)]]; [[1 Kings 16.26|16:26.]]
+[^a]: [[1 Kings 14.7|1 Kgs. 14:7 (7–11)]][[1 Kings 14.8|]][[1 Kings 14.9|]][[1 Kings 14.10|]][[1 Kings 14.11|]]; [[1 Kings 16.26|16:26]].  

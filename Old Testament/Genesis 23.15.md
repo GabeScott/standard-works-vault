@@ -5,4 +5,4 @@
 [Genesis 23:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 30.13|Ex. 30:13]]; [[Ezekiel 45.12|Ezek. 45:12.]]
+[^a]: [[Exodus 30.13|Ex. 30:13]]; [[Ezekiel 45.12|Ezek. 45:12]].  

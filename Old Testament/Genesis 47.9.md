@@ -5,6 +5,6 @@
 [Genesis 47:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.9?lang=eng#p9)
 
 
-[^a]: [[Psalms 119.54|Ps. 119:54.]]
-[^b]: IE unpleasant.
-[^c]: [[Genesis 25.7|Gen. 25:7]]; [[Genesis 35.28|35:28.]]
+[^a]: [[Psalms 119.54|Ps. 119:54]].  
+[^b]: IE unpleasant.  
+[^c]: [[Genesis 25.7|Gen. 25:7]]; [[Genesis 35.28|35:28]].  

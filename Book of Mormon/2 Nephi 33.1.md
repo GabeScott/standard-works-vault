@@ -5,5 +5,5 @@
 [2 Nephi 33:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p1#p1)
 
 
-[^a]: [[Ether 12.23|Ether 12:23 (23-27).]]
-[^b]: [[Romans 10.17|Rom. 10:17 (13-17)]]; [[D&C 100.8|D&C 100:8 (7-8)]]. TG [[Holy Ghost, Gifts of]].
+[^a]: [[Ether 12.23|Ether 12:23 (23–27)]][[Ether 12.24|]][[Ether 12.25|]][[Ether 12.26|]][[Ether 12.27|]].  
+[^b]: [[Romans 10.13|Rom. 10:17 (13–17)]][[Romans 10.14|]][[Romans 10.15|]][[Romans 10.16|]][[Romans 10.17|]]; [[D&C 100.7|D&C 100:8 (7–8)]][[D&C 100.8|]]. [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  

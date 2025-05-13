@@ -5,4 +5,4 @@
 [John 8:5](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.5?lang=eng#p5)
 
 
-[^a]: [[Leviticus 20.10|Lev. 20:10.]]
+[^a]: [[Leviticus 20.10|Lev. 20:10]].  

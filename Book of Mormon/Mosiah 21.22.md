@@ -5,4 +5,4 @@
 [Mosiah 21:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p22#p22)
 
 
-[^a]: [[Mosiah 7.6|Mosiah 7:6 (6-13).]]
+[^a]: [[Mosiah 7.6|Mosiah 7:6 (6–13)]][[Mosiah 7.7|]][[Mosiah 7.8|]][[Mosiah 7.9|]][[Mosiah 7.10|]][[Mosiah 7.11|]][[Mosiah 7.12|]][[Mosiah 7.13|]].  

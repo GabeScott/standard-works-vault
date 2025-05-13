@@ -5,4 +5,4 @@
 [Psalms 40:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/40.17?lang=eng#p17)
 
 
-[^a]: OR do not delay.
+[^a]: OR do not delay.  

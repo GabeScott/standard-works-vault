@@ -5,4 +5,4 @@
 [Deuteronomy 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/13.8?lang=eng#p8)
 
 
-[^a]: [[Matthew 10.28|Matt. 10:28.]]
+[^a]: [[Matthew 10.28|Matt. 10:28]].  

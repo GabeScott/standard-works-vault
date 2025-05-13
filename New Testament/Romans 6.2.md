@@ -5,5 +5,5 @@
 [Romans 6:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.2?lang=eng#p2)
 
 
-[^a]: GR May it not be!
-[^b]: [[Mosiah 2.41|Mosiah 2:41.]]
+[^a]: GR May it not be!  
+[^b]: [[Mosiah 2.41|Mosiah 2:41]].  

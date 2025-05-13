@@ -5,4 +5,4 @@
 [Daniel 2:46](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.46?lang=eng#p46)
 
 
-[^a]: [[Acts 14.15|Acts 14:15 (11-15)]]; [[1 Nephi 17.55|1 Ne. 17:55.]]
+[^a]: [[Acts 14.11|Acts 14:15 (11–15)]][[Acts 14.12|]][[Acts 14.13|]][[Acts 14.14|]][[Acts 14.15|]]; [[1 Nephi 17.55|1 Ne. 17:55]].  

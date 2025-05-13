@@ -5,4 +5,4 @@
 [Genesis 37:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.28?lang=eng#p28)
 
 
-[^a]: [[Genesis 39.1|Gen. 39:1.]]
+[^a]: [[Genesis 39.1|Gen. 39:1]].  

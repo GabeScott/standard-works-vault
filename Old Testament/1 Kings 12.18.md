@@ -5,4 +5,4 @@
 [1 Kings 12:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.18?lang=eng#p18)
 
 
-[^a]: [[1 Kings 4.6|1 Kgs. 4:6]]; [[1 Kings 5.14|5:14.]]
+[^a]: [[1 Kings 4.6|1 Kgs. 4:6]]; [[1 Kings 5.14|5:14]].  

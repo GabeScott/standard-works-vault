@@ -5,4 +5,4 @@
 [Numbers 30:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/30.3?lang=eng#p3)
 
 
-[^a]: TG [[Woman, Women]].
+[^a]: [[Woman, Women|TG Woman]].  

@@ -5,4 +5,4 @@
 [Psalms 130:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/130.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 40.1|Ps. 40:1.]]
+[^a]: [[Psalms 40.1|Ps. 40:1]].  

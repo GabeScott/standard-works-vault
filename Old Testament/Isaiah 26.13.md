@@ -5,4 +5,4 @@
 [Isaiah 26:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.13?lang=eng#p13)
 
 
-[^a]: [[2 Kings 18.4|2 Kgs. 18:4 (4-6).]]
+[^a]: [[2 Kings 18.4|2 Kgs. 18:4 (4–6)]][[2 Kings 18.5|]][[2 Kings 18.6|]].  

@@ -5,5 +5,5 @@
 [Helaman 3:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p9#p9)
 
 
-[^a]: [[Genesis 25.27|Gen. 25:27]]; [[Ether 2.13|Ether 2:13.]]
-[^b]: [[Alma 16.13|Alma 16:13.]]
+[^a]: [[Genesis 25.27|Gen. 25:27]]; [[Ether 2.13|Ether 2:13]].  
+[^b]: [[Alma 16.13|Alma 16:13]].  

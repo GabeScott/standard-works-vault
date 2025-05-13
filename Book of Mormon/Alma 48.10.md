@@ -5,5 +5,5 @@
 [Alma 48:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 44.5|Alma 44:5]]; [[Alma 46.12|46:12.]]
-[^b]: [[Alma 46.13|Alma 46:13.]]
+[^a]: [[Alma 44.5|Alma 44:5]]; [[Alma 46.12|46:12]].  
+[^b]: [[Alma 46.13|Alma 46:13]].  

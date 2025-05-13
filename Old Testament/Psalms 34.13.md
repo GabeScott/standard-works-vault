@@ -5,5 +5,5 @@
 [Psalms 34:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.13?lang=eng#p13)
 
 
-[^a]: TG [[Gossip]]; [[Profanity]].
-[^b]: TG [[Guile]]; [[Honesty]]; [[Sincere, Sincerity]].
+[^a]: [[Gossip|TG Gossip]]; [[Profanity|Profanity]].  
+[^b]: [[Guile|TG Guile]]; [[Honesty|Honesty]]; [[Sincere, Sincerity|Sincere]].  

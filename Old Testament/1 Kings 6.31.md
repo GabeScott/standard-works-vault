@@ -5,4 +5,4 @@
 [1 Kings 6:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.31?lang=eng#p31)
 
 
-[^a]: [[Ezekiel 41.23|Ezek. 41:23.]]
+[^a]: [[Ezekiel 41.23|Ezek. 41:23]].  

@@ -5,4 +5,4 @@
 [Psalms 46:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/46.1?lang=eng#p1)
 
 
-[^a]: TG [[Refuge]].
+[^a]: [[Refuge|TG Refuge]].  

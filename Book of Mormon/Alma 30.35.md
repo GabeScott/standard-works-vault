@@ -5,4 +5,4 @@
 [Alma 30:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p35#p35)
 
 
-[^a]: [[Matthew 7.16|Matt. 7:16.]]
+[^a]: [[Matthew 7.16|Matt. 7:16]].  

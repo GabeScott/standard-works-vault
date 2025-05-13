@@ -5,4 +5,4 @@
 [2 Chronicles 14:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/14.8?lang=eng#p8)
 
 
-[^a]: OR large shields.
+[^a]: OR large shields.  

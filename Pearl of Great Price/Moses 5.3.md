@@ -5,4 +5,4 @@
 [Moses 5:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 4.17|Gen. 4:17]]; [[Moses 5.28|Moses 5:28.]]
+[^a]: [[Genesis 4.17|Gen. 4:17]]; [[Moses 5.28|Moses 5:28]].  

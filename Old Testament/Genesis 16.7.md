@@ -5,4 +5,4 @@
 [Genesis 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 20.1|Gen. 20:1]]; [[Genesis 25.18|25:18]]; [[Exodus 15.22|Ex. 15:22.]]
+[^a]: [[Genesis 20.1|Gen. 20:1]]; [[Genesis 25.18|25:18]]; [[Exodus 15.22|Ex. 15:22]].  

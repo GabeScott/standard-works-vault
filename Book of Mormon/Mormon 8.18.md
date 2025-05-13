@@ -5,4 +5,4 @@
 [Mormon 8:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p18#p18)
 
 
-[^a]: JS—H 1:60 (60-61).
+[^a]: [[Joseph Smith History 1.60|JS—H 1:60 (60–61)]][[Joseph Smith History 1.61|]].  

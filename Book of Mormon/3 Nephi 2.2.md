@@ -5,6 +5,6 @@
 [3 Nephi 2:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/2?lang=eng&id=p2#p2)
 
 
-[^a]: [[Hebrews 3.12|Heb. 3:12.]]
-[^b]: TG [[Deceit, Deceive]].
-[^c]: [[1 Corinthians 1.23|1 Cor. 1:23 (23-25)]]; [[Alma 30.13|Alma 30:13 (12-18).]]
+[^a]: [[Hebrews 3.12|Heb. 3:12]].  
+[^b]: [[Deceit, Deceive|TG Deceit]].  
+[^c]: [[1 Corinthians 1.23|1 Cor. 1:23 (23–25)]][[1 Corinthians 1.24|]][[1 Corinthians 1.25|]]; [[Alma 30.12|Alma 30:13 (12–18)]][[Alma 30.13|]][[Alma 30.14|]][[Alma 30.15|]][[Alma 30.16|]][[Alma 30.17|]][[Alma 30.18|]].  

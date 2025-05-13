@@ -5,4 +5,4 @@
 [Exodus 30:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 27.21|Ex. 27:21.]]
+[^a]: [[Exodus 27.21|Ex. 27:21]].  

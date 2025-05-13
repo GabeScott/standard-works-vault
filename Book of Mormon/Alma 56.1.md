@@ -5,6 +5,6 @@
 [Alma 56:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 58.35|Alma 58:35.]]
-[^b]: [[Alma 59.1|Alma 59:1.]]
-[^c]: [[Alma 53.22|Alma 53:22 (8, 22).]]
+[^a]: [[Alma 58.35|Alma 58:35]].  
+[^b]: [[Alma 59.1|Alma 59:1]].  
+[^c]: [[Alma 53.8|Alma 53:22 (8, 22)]][[Alma 53.22|]].  

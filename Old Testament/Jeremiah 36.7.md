@@ -5,4 +5,4 @@
 [Jeremiah 36:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.7?lang=eng#p7)
 
 
-[^a]: [[2 Kings 23.3|2 Kgs. 23:3 (2-3).]]
+[^a]: [[2 Kings 23.2|2 Kgs. 23:3 (2–3)]][[2 Kings 23.3|]].  

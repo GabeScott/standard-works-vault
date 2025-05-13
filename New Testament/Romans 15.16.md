@@ -5,6 +5,6 @@
 [Romans 15:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.16?lang=eng#p16)
 
 
-[^a]: GR servant at one’s own expense.
-[^b]: GR sacrifice, offering.
-[^c]: TG [[Holy Ghost, Gifts of]].
+[^a]: GR servant at one’s own expense.  
+[^b]: GR sacrifice, offering.  
+[^c]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  

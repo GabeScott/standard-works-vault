@@ -5,5 +5,5 @@
 [Amos 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.15?lang=eng#p15)
 
 
-[^a]: [[Jeremiah 36.22|Jer. 36:22.]]
-[^b]: [[1 Kings 22.39|1 Kgs. 22:39.]]
+[^a]: [[Jeremiah 36.22|Jer. 36:22]].  
+[^b]: [[1 Kings 22.39|1 Kgs. 22:39]].  

@@ -5,5 +5,5 @@
 [Mark 9:13](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.13?lang=eng#p13)
 
 
-[^a]: GR willed, chose, intended.
-[^b]: JST Mark 9:11 … him; and he bore record of me, and they received him not. Verily this was Elias.
+[^a]: GR willed, chose, intended.  
+[^b]: JST Mark 9:11 … him; and he bore record of me, and they received him not. Verily this was Elias.  

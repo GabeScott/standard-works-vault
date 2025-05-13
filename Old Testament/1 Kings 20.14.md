@@ -5,5 +5,5 @@
 [1 Kings 20:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.14?lang=eng#p14)
 
 
-[^a]: [[Alma 56.46|Alma 56:46 (43-49).]]
-[^b]: [[Ecclesiastes 2.8|Eccl. 2:8.]]
+[^a]: [[Alma 56.43|Alma 56:46 (43–49)]][[Alma 56.44|]][[Alma 56.45|]][[Alma 56.46|]][[Alma 56.47|]][[Alma 56.48|]][[Alma 56.49|]].  
+[^b]: [[Ecclesiastes 2.8|Eccl. 2:8]].  

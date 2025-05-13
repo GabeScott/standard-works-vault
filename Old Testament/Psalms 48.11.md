@@ -5,4 +5,4 @@
 [Psalms 48:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/48.11?lang=eng#p11)
 
 
-[^a]: [[Psalms 97.8|Ps. 97:8.]]
+[^a]: [[Psalms 97.8|Ps. 97:8]].  

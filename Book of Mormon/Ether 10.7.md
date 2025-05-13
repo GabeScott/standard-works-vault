@@ -5,5 +5,5 @@
 [Ether 10:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p7#p7)
 
 
-[^a]: [[Esther 1.4|Esth. 1:4.]]
-[^b]: TG [[Art]].
+[^a]: [[Esther 1.4|Esth. 1:4]].  
+[^b]: [[Art|TG Art]].  

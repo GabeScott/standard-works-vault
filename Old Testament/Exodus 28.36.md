@@ -5,4 +5,4 @@
 [Exodus 28:36](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.36?lang=eng#p36)
 
 
-[^a]: [[Leviticus 8.9|Lev. 8:9.]]
+[^a]: [[Leviticus 8.9|Lev. 8:9]].  

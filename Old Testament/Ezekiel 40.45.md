@@ -5,4 +5,4 @@
 [Ezekiel 40:45](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.45?lang=eng#p45)
 
 
-[^a]: [[Ezekiel 44.14|Ezek. 44:14 (8, 14-16)]]; [[Ezekiel 48.11|48:11.]]
+[^a]: [[Ezekiel 44.8|Ezek. 44:14 (8, 14–16)]][[Ezekiel 44.14|]][[Ezekiel 44.15|]][[Ezekiel 44.16|]]; [[Ezekiel 48.11|48:11]].  

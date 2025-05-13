@@ -5,4 +5,4 @@
 [Helaman 7:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p23#p23)
 
 
-[^a]: [[Helaman 15.14|Hel. 15:14 (11-15).]]
+[^a]: [[Helaman 15.11|Hel. 15:14 (11–15)]][[Helaman 15.12|]][[Helaman 15.13|]][[Helaman 15.14|]][[Helaman 15.15|]].  

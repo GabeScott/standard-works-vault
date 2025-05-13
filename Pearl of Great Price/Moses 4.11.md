@@ -5,5 +5,5 @@
 [Moses 4:11](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.11?lang=eng#p11)
 
 
-[^a]: [[Genesis 3.5|Gen. 3:5 (3-6)]]; [[D&C 76.12|D&C 76:12 (12, 19)]]; [[Moses 5.10|Moses 5:10.]]
-[^b]: [[Alma 12.31|Alma 12:31]]. TG [[Knowledge]].
+[^a]: [[Genesis 3.3|Gen. 3:5 (3–6)]][[Genesis 3.4|]][[Genesis 3.5|]][[Genesis 3.6|]]; [[D&C 76.12|D&C 76:12 (12, 19)]][[D&C 76.19|]]; [[Moses 5.10|Moses 5:10]].  
+[^b]: [[Alma 12.31|Alma 12:31]]. [[Knowledge|TG Knowledge]].  

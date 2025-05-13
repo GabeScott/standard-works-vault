@@ -5,4 +5,4 @@
 [Genesis 14:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 12.5|Gen. 12:5.]]
+[^a]: [[Genesis 12.5|Gen. 12:5]].  

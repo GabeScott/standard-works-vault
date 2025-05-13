@@ -5,4 +5,4 @@
 [3 Nephi 2:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/2?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 34.35|Alma 34:35.]]
+[^a]: [[Alma 34.35|Alma 34:35]].  

@@ -5,4 +5,4 @@
 [Numbers 11:33](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.33?lang=eng#p33)
 
 
-[^a]: TG [[Plague]].
+[^a]: [[Plague|TG Plague]].  

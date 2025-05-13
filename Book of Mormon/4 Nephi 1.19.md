@@ -5,5 +5,5 @@
 [4 Nephi 1:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p19#p19)
 
 
-[^a]: 4 Ne. heading.
-[^b]: [[3 Nephi 26.7|3 Ne. 26:7.]]
+[^a]: [4 Ne. heading](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=title1-intro1#title1).  
+[^b]: [[3 Nephi 26.7|3 Ne. 26:7]].  

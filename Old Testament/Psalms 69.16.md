@@ -5,4 +5,4 @@
 [Psalms 69:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.16?lang=eng#p16)
 
 
-[^a]: TG [[God, Mercy of]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  

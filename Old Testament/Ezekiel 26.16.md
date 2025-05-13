@@ -5,4 +5,4 @@
 [Ezekiel 26:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 23.8|Isa. 23:8.]]
+[^a]: [[Isaiah 23.8|Isa. 23:8]].  

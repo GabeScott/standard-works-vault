@@ -5,4 +5,4 @@
 [Exodus 23:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.33?lang=eng#p33)
 
 
-[^a]: [[Judges 2.3|Judg. 2:3]]; [[Judges 8.27|8:27]]; [[Mosiah 7.29|Mosiah 7:29.]]
+[^a]: [[Judges 2.3|Judg. 2:3]]; [[Judges 8.27|8:27]]; [[Mosiah 7.29|Mosiah 7:29]].  

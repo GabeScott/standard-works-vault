@@ -5,5 +5,5 @@
 [Romans 8:24](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.24?lang=eng#p24)
 
 
-[^a]: TG [[Hope]].
-[^b]: [[2 Corinthians 4.18|2 Cor. 4:18.]]
+[^a]: [[Hope|TG Hope]].  
+[^b]: [[2 Corinthians 4.18|2 Cor. 4:18]].  

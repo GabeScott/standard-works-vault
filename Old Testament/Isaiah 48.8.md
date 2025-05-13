@@ -5,4 +5,4 @@
 [Isaiah 48:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.8?lang=eng#p8)
 
 
-[^a]: [[Psalms 58.3|Ps. 58:3.]]
+[^a]: [[Psalms 58.3|Ps. 58:3]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 29:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.22?lang=eng#p22)
 
 
-[^a]: [[Leviticus 8.24|Lev. 8:24 (14-15, 19, 24).]]
+[^a]: [[Leviticus 8.14|Lev. 8:24 (14–15, 19, 24)]][[Leviticus 8.15|]][[Leviticus 8.19|]][[Leviticus 8.24|]].  

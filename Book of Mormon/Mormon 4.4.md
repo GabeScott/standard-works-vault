@@ -5,4 +5,4 @@
 [Mormon 4:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/4?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mormon 3.10|Morm. 3:10 (10-11).]]
+[^a]: [[Mormon 3.10|Morm. 3:10 (10–11)]][[Mormon 3.11|]].  

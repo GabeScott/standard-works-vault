@@ -5,4 +5,4 @@
 [Jeremiah 42:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.14?lang=eng#p14)
 
 
-[^a]: HEB shofar or alarm.
+[^a]: HEB shofar or alarm.  

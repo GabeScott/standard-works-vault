@@ -5,4 +5,4 @@
 [Matthew 9:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.15?lang=eng#p15)
 
 
-[^a]: TG [[Fast, Fasting]].
+[^a]: [[Fast, Fasting|TG Fast, Fasting]].  

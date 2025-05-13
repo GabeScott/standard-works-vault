@@ -5,5 +5,5 @@
 [Proverbs 15:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.29?lang=eng#p29)
 
 
-[^a]: [[Psalms 10.1|Ps. 10:1.]]
-[^b]: [[Mosiah 11.24|Mosiah 11:24 (23-25)]]; [[Mosiah 21.15|21:15]]; [[D&C 101.7|D&C 101:7.]]
+[^a]: [[Psalms 10.1|Ps. 10:1]].  
+[^b]: [[Mosiah 11.23|Mosiah 11:24 (23–25)]][[Mosiah 11.24|]][[Mosiah 11.25|]]; [[Mosiah 21.15|21:15]]; [[D&C 101.7|D&C 101:7]].  

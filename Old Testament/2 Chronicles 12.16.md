@@ -5,4 +5,4 @@
 [2 Chronicles 12:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/12.16?lang=eng#p16)
 
 
-[^a]: OR Abijam (see 1 Kgs. 14:31).
+[^a]: OR Abijam (see [[1 Kings 14.31|1 Kgs. 14:31]]).  

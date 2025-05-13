@@ -5,4 +5,4 @@
 [Esther 7:7](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/7.7?lang=eng#p7)
 
 
-[^a]: [[Esther 1.5|Esth. 1:5.]]
+[^a]: [[Esther 1.5|Esth. 1:5]].  

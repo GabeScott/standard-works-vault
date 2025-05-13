@@ -5,4 +5,4 @@
 [Job 17:3](https://www.churchofjesuschrist.org/study/scriptures/ot/job/17.3?lang=eng#p3)
 
 
-[^a]: IE Lay down a pledge.
+[^a]: IE Lay down a pledge.  

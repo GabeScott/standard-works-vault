@@ -5,4 +5,4 @@
 [Micah 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/1.16?lang=eng#p16)
 
 
-[^a]: OR cut off thy hair.
+[^a]: OR cut off thy hair.  

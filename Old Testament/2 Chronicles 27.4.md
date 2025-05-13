@@ -5,4 +5,4 @@
 [2 Chronicles 27:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/27.4?lang=eng#p4)
 
 
-[^a]: OR forts.
+[^a]: OR forts.  

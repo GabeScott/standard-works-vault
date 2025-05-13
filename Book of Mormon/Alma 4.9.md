@@ -5,6 +5,6 @@
 [Alma 4:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[Contention]].
-[^b]: TG [[Envy, Envious]].
-[^c]: [[Alma 16.18|Alma 16:18]]. TG [[Strife]].
+[^a]: [[Contention|TG Contention]].  
+[^b]: [[Envy, Envious|TG Envy]].  
+[^c]: [[Alma 16.18|Alma 16:18]]. [[Strife|TG Strife]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 23:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.14?lang=eng#p14)
 
 
-[^a]: [[Leviticus 26.12|Lev. 26:12.]]
-[^b]: [[Psalms 46.5|Ps. 46:5]]; [[Isaiah 12.6|Isa. 12:6.]]
+[^a]: [[Leviticus 26.12|Lev. 26:12]].  
+[^b]: [[Psalms 46.5|Ps. 46:5]]; [[Isaiah 12.6|Isa. 12:6]].  

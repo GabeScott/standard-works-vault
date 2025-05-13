@@ -5,4 +5,4 @@
 [Isaiah 23:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/23.2?lang=eng#p2)
 
 
-[^a]: HEB silent, stunned.
+[^a]: HEB silent, stunned.  

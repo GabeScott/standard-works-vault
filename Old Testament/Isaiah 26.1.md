@@ -5,4 +5,4 @@
 [Isaiah 26:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.1?lang=eng#p1)
 
 
-[^a]: [[Isaiah 60.18|Isa. 60:18.]]
+[^a]: [[Isaiah 60.18|Isa. 60:18]].  

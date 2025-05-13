@@ -5,5 +5,5 @@
 [Helaman 13:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p13#p13)
 
 
-[^a]: [[2 Kings 1.10|2 Kgs. 1:10 (9-16)]]; [[3 Nephi 9.11|3 Ne. 9:11.]]
-[^b]: [[Genesis 18.23|Gen. 18:23]]; [[1 Nephi 22.16|1 Ne. 22:16]]; [[D&C 64.24|D&C 64:24.]]
+[^a]: [[2 Kings 1.9|2 Kgs. 1:10 (9–16)]][[2 Kings 1.10|]][[2 Kings 1.11|]][[2 Kings 1.12|]][[2 Kings 1.13|]][[2 Kings 1.14|]][[2 Kings 1.15|]][[2 Kings 1.16|]]; [[3 Nephi 9.11|3 Ne. 9:11]].  
+[^b]: [[Genesis 18.23|Gen. 18:23]]; [[1 Nephi 22.16|1 Ne. 22:16]]; [[D&C 64.24|D&C 64:24]].  

@@ -5,4 +5,4 @@
 [Judges 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/20.1?lang=eng#p1)
 
 
-[^a]: [[1 Samuel 7.5|1 Sam. 7:5.]]
+[^a]: [[1 Samuel 7.5|1 Sam. 7:5]].  

@@ -5,4 +5,4 @@
 [Proverbs 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.9?lang=eng#p9)
 
 
-[^a]: OR do not reveal.
+[^a]: OR do not reveal.  

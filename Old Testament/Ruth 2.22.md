@@ -5,4 +5,4 @@
 [Ruth 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.22?lang=eng#p22)
 
 
-[^a]: OR find.
+[^a]: OR find.  

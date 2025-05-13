@@ -5,6 +5,6 @@
 [Proverbs 12:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.22?lang=eng#p22)
 
 
-[^a]: TG [[Lying, Liar, Lie]].
-[^b]: TG [[Honesty]].
-[^c]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Lying, Liar, Lie|TG Lying]].  
+[^b]: [[Honesty|TG Honesty]].  
+[^c]: [[God, the Standard of Righteousness|TG God, the Standard of Righteousness]].  

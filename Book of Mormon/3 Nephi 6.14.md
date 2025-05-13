@@ -5,5 +5,5 @@
 [3 Nephi 6:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p14#p14)
 
 
-[^a]: [[Alma 23.6|Alma 23:6]]; [[Alma 27.27|27:27]]; [[Helaman 15.8|Hel. 15:8 (5-16).]]
-[^b]: TG [[Dedication, Dedicate]]; [[Diligence, Diligent, Diligently]].
+[^a]: [[Alma 23.6|Alma 23:6]]; [[Alma 27.27|27:27]]; [[Helaman 15.5|Hel. 15:8 (5–16)]][[Helaman 15.6|]][[Helaman 15.7|]][[Helaman 15.8|]][[Helaman 15.9|]][[Helaman 15.10|]][[Helaman 15.11|]][[Helaman 15.12|]][[Helaman 15.13|]][[Helaman 15.14|]][[Helaman 15.15|]][[Helaman 15.16|]].  
+[^b]: [[Dedication, Dedicate|TG Dedication]]; [[Diligence, Diligent, Diligently|Diligence]].  

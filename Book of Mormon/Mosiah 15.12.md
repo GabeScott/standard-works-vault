@@ -5,4 +5,4 @@
 [Mosiah 15:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 14.12|Mosiah 14:12]]; [[Alma 7.13|Alma 7:13]]; [[Alma 11.40|11:40 (40-41).]]
+[^a]: [[Mosiah 14.12|Mosiah 14:12]]; [[Alma 7.13|Alma 7:13]]; [[Alma 11.40|11:40 (40–41)]][[Alma 11.41|]].  

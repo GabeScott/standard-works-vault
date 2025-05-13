@@ -5,5 +5,5 @@
 [Matthew 26:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.18?lang=eng#p18)
 
 
-[^a]: GR to a certain man.
-[^b]: [[John 7.6|John 7:6.]]
+[^a]: GR to a certain man.  
+[^b]: [[John 7.6|John 7:6]].  

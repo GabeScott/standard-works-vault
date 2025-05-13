@@ -5,5 +5,5 @@
 [Moses 5:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.6?lang=eng#p6)
 
 
-[^a]: TG [[Angels]].
-[^b]: TG [[Ordinance]]; [[Self-Sacrifice]].
+[^a]: [[Angels|TG Angels]].  
+[^b]: [[Ordinance|TG Ordinance]]; [[Sacrifice|Sacrifice]].  

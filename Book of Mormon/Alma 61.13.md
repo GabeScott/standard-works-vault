@@ -5,4 +5,4 @@
 [Alma 61:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/61?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Trust in God]].
+[^a]: [[Trust in God|TG Trust in God]].  

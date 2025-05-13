@@ -5,5 +5,5 @@
 [Psalms 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Israel, Blessings of]].
-[^b]: TG [[Trust in God]].
+[^a]: [[Blessing|TG Blessing]].  
+[^b]: [[Trust in God|TG Trust in God]].  

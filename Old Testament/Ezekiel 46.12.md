@@ -5,6 +5,6 @@
 [Ezekiel 46:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.12?lang=eng#p12)
 
 
-[^a]: [[D&C 58.26|D&C 58:26 (26-29).]]
-[^b]: TG [[Self-Sacrifice]].
-[^c]: [[Leviticus 7.16|Lev. 7:16]]; [[Leviticus 22.23|22:23.]]
+[^a]: [[D&C 58.26|D&C 58:26 (26–29)]][[D&C 58.27|]][[D&C 58.28|]][[D&C 58.29|]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  
+[^c]: [[Leviticus 7.16|Lev. 7:16]]; [[Leviticus 22.23|22:23]].  

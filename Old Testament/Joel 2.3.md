@@ -5,5 +5,5 @@
 [Joel 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.3?lang=eng#p3)
 
 
-[^a]: [[D&C 29.21|D&C 29:21.]]
-[^b]: TG [[Eden]].
+[^a]: [[D&C 29.21|D&C 29:21]].  
+[^b]: [[Eden|TG Eden]].  

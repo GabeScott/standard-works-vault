@@ -5,4 +5,4 @@
 [Mark 7:11](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.11?lang=eng#p11)
 
 
-[^a]: [[Matthew 15.5|Matt. 15:5.]]
+[^a]: [[Matthew 15.5|Matt. 15:5]].  

@@ -5,6 +5,6 @@
 [1 Kings 4:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.29?lang=eng#p29)
 
 
-[^a]: TG [[Guidance, Divine]].
-[^b]: [[1 Kings 3.12|1 Kgs. 3:12]]. TG [[God, Wisdom of]].
-[^c]: TG [[Understanding]].
+[^a]: [[Guidance, Divine|TG Guidance, Divine]].  
+[^b]: [[1 Kings 3.12|1 Kgs. 3:12]]. [[God, Wisdom of|TG God, Wisdom of]].  
+[^c]: [[Understanding|TG Understanding]].  

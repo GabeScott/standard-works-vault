@@ -5,5 +5,5 @@
 [Isaiah 49:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.21?lang=eng#p21)
 
 
-[^a]: IE Zion.
-[^b]: [[3 Nephi 22.1|3 Ne. 22:1.]]
+[^a]: IE Zion.  
+[^b]: [[3 Nephi 22.1|3 Ne. 22:1]].  

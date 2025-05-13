@@ -5,4 +5,4 @@
 [2 Kings 6:30](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/6.30?lang=eng#p30)
 
 
-[^a]: [[1 Kings 21.27|1 Kgs. 21:27.]]
+[^a]: [[1 Kings 21.27|1 Kgs. 21:27]].  

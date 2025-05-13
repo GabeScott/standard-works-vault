@@ -5,4 +5,4 @@
 [Genesis 27:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 48.10|Gen. 48:10.]]
+[^a]: [[Genesis 48.10|Gen. 48:10]].  

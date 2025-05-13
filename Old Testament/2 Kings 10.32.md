@@ -5,4 +5,4 @@
 [2 Kings 10:32](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.32?lang=eng#p32)
 
 
-[^a]: [[2 Kings 8.12|2 Kgs. 8:12]]; [[2 Kings 13.3|13:3]]; [[Amos 1.4|Amos 1:4 (3-4).]]
+[^a]: [[2 Kings 8.12|2 Kgs. 8:12]]; [[2 Kings 13.3|13:3]]; [[Amos 1.3|Amos 1:4 (3–4)]][[Amos 1.4|]].  

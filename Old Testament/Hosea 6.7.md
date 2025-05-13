@@ -5,5 +5,5 @@
 [Hosea 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/6.7?lang=eng#p7)
 
 
-[^a]: OR Adam.
-[^b]: [[Hosea 8.1|Hosea 8:1.]]
+[^a]: OR Adam.  
+[^b]: [[Hosea 8.1|Hosea 8:1]].  

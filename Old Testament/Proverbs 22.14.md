@@ -5,4 +5,4 @@
 [Proverbs 22:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.14?lang=eng#p14)
 
 
-[^a]: TG [[Fornication]].
+[^a]: [[Fornication|TG Fornication]].  

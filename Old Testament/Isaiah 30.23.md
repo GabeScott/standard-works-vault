@@ -5,4 +5,4 @@
 [Isaiah 30:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.23?lang=eng#p23)
 
 
-[^a]: IE for thy seed.
+[^a]: IE for thy seed.  

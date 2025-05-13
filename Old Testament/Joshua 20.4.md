@@ -5,5 +5,5 @@
 [Joshua 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/20.4?lang=eng#p4)
 
 
-[^a]: [[Ruth 4.1|Ruth 4:1]]; [[Mosiah 7.10|Mosiah 7:10.]]
-[^b]: [[Ruth 4.2|Ruth 4:2 (1-2)]]; [[1 Nephi 4.22|1 Ne. 4:22 (22, 27)]]; [[Alma 4.16|Alma 4:16 (7, 16)]]; [[Moroni 6.7|Moro. 6:7.]]
+[^a]: [[Ruth 4.1|Ruth 4:1]]; [[Mosiah 7.10|Mosiah 7:10]].  
+[^b]: [[Ruth 4.1|Ruth 4:2 (1–2)]][[Ruth 4.2|]]; [[1 Nephi 4.22|1 Ne. 4:22 (22, 27)]][[1 Nephi 4.27|]]; [[Alma 4.7|Alma 4:16 (7, 16)]][[Alma 4.16|]]; [[Moroni 6.7|Moro. 6:7]].  

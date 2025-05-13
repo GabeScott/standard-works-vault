@@ -5,4 +5,4 @@
 [1 Kings 20:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.15?lang=eng#p15)
 
 
-[^a]: OR mustered.
+[^a]: OR mustered.  

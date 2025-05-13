@@ -5,5 +5,5 @@
 [Alma 36:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p26#p26)
 
 
-[^a]: [[Proverbs 10.11|Prov. 10:11]]; [[Jacob 2.8|Jacob 2:8]]; [[Alma 31.5|Alma 31:5]]; [[D&C 108.7|D&C 108:7.]]
-[^b]: [[1 Peter 2.3|1 Pet. 2:3 (1-3).]]
+[^a]: [[Proverbs 10.11|Prov. 10:11]]; [[Jacob 2.8|Jacob 2:8]]; [[Alma 31.5|Alma 31:5]]; [[D&C 108.7|D&C 108:7]].  
+[^b]: [[1 Peter 2.1|1 Pet. 2:3 (1–3)]][[1 Peter 2.2|]][[1 Peter 2.3|]].  

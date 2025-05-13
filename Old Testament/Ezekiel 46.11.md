@@ -5,4 +5,4 @@
 [Ezekiel 46:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.11?lang=eng#p11)
 
 
-[^a]: TG [[Solemn Assembly]].
+[^a]: [[Solemn Assembly|TG Solemn Assembly]].  

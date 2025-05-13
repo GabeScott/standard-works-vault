@@ -5,5 +5,5 @@
 [Isaiah 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.7?lang=eng#p7)
 
 
-[^a]: [[Jeremiah 1.9|Jer. 1:9.]]
-[^b]: TG [[Forgive, Forgiveness]].
+[^a]: [[Jeremiah 1.9|Jer. 1:9]].  
+[^b]: [[Forgive, Forgiveness|TG Forgive]].  

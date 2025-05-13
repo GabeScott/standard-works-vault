@@ -5,4 +5,4 @@
 [1 Thessalonians 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.12?lang=eng#p12)
 
 
-[^a]: TG [[Leadership]].
+[^a]: [[Leadership|TG Leadership]].  

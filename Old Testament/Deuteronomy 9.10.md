@@ -5,6 +5,6 @@
 [Deuteronomy 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.10?lang=eng#p10)
 
 
-[^a]: [[2 Corinthians 3.3|2 Cor. 3:3]]. TG [[Scriptures, Writing of]].
-[^b]: TG [[God, Manifestations of]].
-[^c]: [[Deuteronomy 4.10|Deut. 4:10.]]
+[^a]: [[2 Corinthians 3.3|2 Cor. 3:3]]. [[Scriptures, Writing of|TG Scriptures, Writing of]].  
+[^b]: [[God, Manifestations of|TG God, Manifestations of]].  
+[^c]: [[Deuteronomy 4.10|Deut. 4:10]].  

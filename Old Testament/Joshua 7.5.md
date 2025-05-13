@@ -5,5 +5,5 @@
 [Joshua 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/7.5?lang=eng#p5)
 
 
-[^a]: HEB the quarries.
-[^b]: HEB descent, or pass.
+[^a]: HEB the quarries.  
+[^b]: HEB descent, or pass.  

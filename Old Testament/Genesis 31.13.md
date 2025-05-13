@@ -5,6 +5,6 @@
 [Genesis 31:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 28.21|Gen. 28:21 (16-22).]]
-[^b]: [[Genesis 28.18|Gen. 28:18.]]
-[^c]: TG [[Vow]].
+[^a]: [[Genesis 28.16|Gen. 28:21 (16–22)]][[Genesis 28.17|]][[Genesis 28.18|]][[Genesis 28.19|]][[Genesis 28.20|]][[Genesis 28.21|]][[Genesis 28.22|]].  
+[^b]: [[Genesis 28.18|Gen. 28:18]].  
+[^c]: [[Vow|TG Vow]].  

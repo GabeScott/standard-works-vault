@@ -5,5 +5,5 @@
 [Titus 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.4?lang=eng#p4)
 
 
-[^a]: TG [[Marriage, Wives]].
-[^b]: TG [[Family, Love within]].
+[^a]: [[Marriage, Wives|TG Marriage, Wives]].  
+[^b]: [[Family, Love within|TG Family, Love within]].  

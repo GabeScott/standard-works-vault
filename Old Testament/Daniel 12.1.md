@@ -5,7 +5,7 @@
 [Daniel 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.1?lang=eng#p1)
 
 
-[^a]: TG [[Adam]]; [[Last Days]].
-[^b]: OR who has charge over.
-[^c]: Dan. 9:27 (24-27); [[Revelation 16.18|Rev. 16:18]]; JS—M 1:18 (18-19, 32-36).
-[^d]: TG [[Book of Life]]; [[Record Keeping]].
+[^a]: [[Adam|TG Adam]]; [[Last Days|Last Days]].  
+[^b]: OR who has charge over.  
+[^c]: [[Daniel 9.24|Dan. 9:27 (24–27)]][[Daniel 9.25|]][[Daniel 9.26|]][[Daniel 9.27|]]; [[Revelation 16.18|Rev. 16:18]]; [[Joseph Smith Matthew 1.18|JS—M 1:18 (18–19, 32–36)]][[Joseph Smith Matthew 1.19|]][[Joseph Smith Matthew 1.32|]][[Joseph Smith Matthew 1.33|]][[Joseph Smith Matthew 1.34|]][[Joseph Smith Matthew 1.35|]][[Joseph Smith Matthew 1.36|]].  
+[^d]: [[Book of Life|TG Book of Life]]; [[Record Keeping|Record Keeping]].  

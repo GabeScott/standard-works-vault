@@ -5,4 +5,4 @@
 [Jeremiah 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.10?lang=eng#p10)
 
 
-[^a]: OR over to.
+[^a]: OR over to.  

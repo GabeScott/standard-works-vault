@@ -5,5 +5,5 @@
 [Deuteronomy 32:37](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.37?lang=eng#p37)
 
 
-[^a]: TG [[Idolatry, Idol]].
-[^b]: [[Judges 10.14|Judg. 10:14.]]
+[^a]: [[Idolatry, Idol|TG Idolatry]].  
+[^b]: [[Judges 10.14|Judg. 10:14]].  

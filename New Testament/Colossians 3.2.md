@@ -5,7 +5,7 @@
 [Colossians 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.2?lang=eng#p2)
 
 
-[^a]: GR mind.
-[^b]: [[Matthew 6.33|Matt. 6:33.]]
-[^c]: [[Proverbs 15.24|Prov. 15:24.]]
-[^d]: TG [[Worldliness]].
+[^a]: GR mind.  
+[^b]: [[Matthew 6.33|Matt. 6:33]].  
+[^c]: [[Proverbs 15.24|Prov. 15:24]].  
+[^d]: [[Worldliness|TG Worldliness]].  

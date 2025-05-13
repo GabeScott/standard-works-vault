@@ -5,5 +5,5 @@
 [Jeremiah 30:23](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.23?lang=eng#p23)
 
 
-[^a]: [[D&C 63.6|D&C 63:6.]]
-[^b]: TG [[Pain]].
+[^a]: [[D&C 63.6|D&C 63:6]].  
+[^b]: [[Pain|TG Pain]].  

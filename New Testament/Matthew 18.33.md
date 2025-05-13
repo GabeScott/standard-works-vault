@@ -5,6 +5,6 @@
 [Matthew 18:33](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.33?lang=eng#p33)
 
 
-[^a]: TG [[Ingratitude]].
-[^b]: TG [[Compassion]]; [[Mercy, Merciful]].
-[^c]: GR compassion.
+[^a]: [[Ingratitude|TG Ingratitude]].  
+[^b]: [[Compassion|TG Compassion]]; [[Mercy, Merciful|Mercy]].  
+[^c]: GR compassion.  

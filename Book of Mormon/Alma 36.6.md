@@ -5,4 +5,4 @@
 [Alma 36:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p6#p6)
 
 
-[^a]: [[Mosiah 27.10|Mosiah 27:10]]; [[Mosiah 28.4|28:4 (3-4).]]
+[^a]: [[Mosiah 27.10|Mosiah 27:10]]; [[Mosiah 28.3|28:4 (3–4)]][[Mosiah 28.4|]].  

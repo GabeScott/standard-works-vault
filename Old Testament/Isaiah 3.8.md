@@ -5,5 +5,5 @@
 [Isaiah 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.8?lang=eng#p8)
 
 
-[^a]: [[Micah 3.12|Micah 3:12.]]
-[^b]: Lam. 1:3 (1-3).
+[^a]: [[Micah 3.12|Micah 3:12]].  
+[^b]: [[Lamentations 1.1|Lam. 1:3 (1–3)]][[Lamentations 1.2|]][[Lamentations 1.3|]].  

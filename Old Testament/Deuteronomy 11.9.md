@@ -5,5 +5,5 @@
 [Deuteronomy 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.9?lang=eng#p9)
 
 
-[^a]: [[Exodus 20.12|Ex. 20:12]]; [[Deuteronomy 11.17|Deut. 11:17 (16-17, 21)]]; [[Alma 9.16|Alma 9:16]]; [[Helaman 15.11|Hel. 15:11 (10-11)]]; [[D&C 5.33|D&C 5:33.]]
-[^b]: [[Genesis 50.24|Gen. 50:24]]; [[D&C 27.10|D&C 27:10]]; [[D&C 98.32|98:32.]]
+[^a]: [[Exodus 20.12|Ex. 20:12]]; [[Deuteronomy 11.16|Deut. 11:17 (16–17, 21)]][[Deuteronomy 11.17|]][[Deuteronomy 11.21|]]; [[Alma 9.16|Alma 9:16]]; [[Helaman 15.10|Hel. 15:11 (10–11)]][[Helaman 15.11|]]; [[D&C 5.33|D&C 5:33]].  
+[^b]: [[Genesis 50.24|Gen. 50:24]]; [[D&C 27.10|D&C 27:10]]; [[D&C 98.32|98:32]].  

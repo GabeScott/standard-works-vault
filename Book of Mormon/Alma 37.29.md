@@ -5,5 +5,5 @@
 [Alma 37:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p29#p29)
 
 
-[^a]: [[Helaman 6.25|Hel. 6:25.]]
-[^b]: [[Deuteronomy 32.19|Deut. 32:19]]; [[Alma 13.12|Alma 13:12]]. TG [[Hate]].
+[^a]: [[Helaman 6.25|Hel. 6:25]].  
+[^b]: [[Deuteronomy 32.19|Deut. 32:19]]; [[Alma 13.12|Alma 13:12]]. [[Hate|TG Hate]].  

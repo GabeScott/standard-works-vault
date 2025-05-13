@@ -5,4 +5,4 @@
 [2 Chronicles 34:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/34.8?lang=eng#p8)
 
 
-[^a]: [[Jeremiah 26.24|Jer. 26:24.]]
+[^a]: [[Jeremiah 26.24|Jer. 26:24]].  

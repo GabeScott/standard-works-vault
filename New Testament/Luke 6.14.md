@@ -5,4 +5,4 @@
 [Luke 6:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.14?lang=eng#p14)
 
 
-[^a]: [[John 1.42|John 1:42.]]
+[^a]: [[John 1.42|John 1:42]].  

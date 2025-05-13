@@ -5,7 +5,7 @@
 [Jeremiah 31:28](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.28?lang=eng#p28)
 
 
-[^a]: [[Jeremiah 44.27|Jer. 44:27.]]
-[^b]: [[Jeremiah 45.4|Jer. 45:4.]]
-[^c]: Dan. 9:14.
-[^d]: TG [[Watch, Watchfulness]].
+[^a]: [[Jeremiah 44.27|Jer. 44:27]].  
+[^b]: [[Jeremiah 45.4|Jer. 45:4]].  
+[^c]: [[Daniel 9.14|Dan. 9:14]].  
+[^d]: [[Watch, Watchfulness|TG Watch]].  

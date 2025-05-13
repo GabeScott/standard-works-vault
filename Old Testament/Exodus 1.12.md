@@ -5,5 +5,5 @@
 [Exodus 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 5.5|Ex. 5:5.]]
-[^b]: OR apprehensive of.
+[^a]: [[Exodus 5.5|Ex. 5:5]].  
+[^b]: OR apprehensive of.  

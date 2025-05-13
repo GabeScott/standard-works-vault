@@ -5,5 +5,5 @@
 [Genesis 29:33](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.33?lang=eng#p33)
 
 
-[^a]: [[Deuteronomy 21.15|Deut. 21:15.]]
-[^b]: IE Hearing. Gen. 49:5.
+[^a]: [[Deuteronomy 21.15|Deut. 21:15]].  
+[^b]: IE Hearing. [[Genesis 49.5|Gen. 49:5]].  

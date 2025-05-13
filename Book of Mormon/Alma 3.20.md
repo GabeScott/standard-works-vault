@@ -5,4 +5,4 @@
 [Alma 3:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 2.24|Alma 2:24.]]
+[^a]: [[Alma 2.24|Alma 2:24]].  

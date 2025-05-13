@@ -5,4 +5,4 @@
 [1 Chronicles 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/22.5?lang=eng#p5)
 
 
-[^a]: [[1 Kings 3.7|1 Kgs. 3:7]]; [[1 Chronicles 29.1|1 Chr. 29:1.]]
+[^a]: [[1 Kings 3.7|1 Kgs. 3:7]]; [[1 Chronicles 29.1|1 Chr. 29:1]].  

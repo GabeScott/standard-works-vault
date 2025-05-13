@@ -5,4 +5,4 @@
 [Numbers 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/num/9.6?lang=eng#p6)
 
 
-[^a]: [[Numbers 5.2|Num. 5:2 (1-4).]]
+[^a]: [[Numbers 5.1|Num. 5:2 (1–4)]][[Numbers 5.2|]][[Numbers 5.3|]][[Numbers 5.4|]].  

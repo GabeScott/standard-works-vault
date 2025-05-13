@@ -5,5 +5,5 @@
 [Luke 14:34](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.34?lang=eng#p34)
 
 
-[^a]: JST Luke 14:35-37 (Appendix).
-[^b]: TG [[Salt]].
+[^a]: [[JST Luke 14.35|JST Luke 14:35–37 (Appendix)]][[JST Luke 14.36|]][[JST Luke 14.37|]].  
+[^b]: [[Salt|TG Salt]].  

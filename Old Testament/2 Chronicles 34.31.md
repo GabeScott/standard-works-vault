@@ -5,5 +5,5 @@
 [2 Chronicles 34:31](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/34.31?lang=eng#p31)
 
 
-[^a]: TG [[Covenants]].
-[^b]: TG [[Walking with God]].
+[^a]: [[Covenants|TG Covenants]].  
+[^b]: [[Walking with God|TG Walking with God]].  

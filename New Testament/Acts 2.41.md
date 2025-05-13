@@ -5,6 +5,6 @@
 [Acts 2:41](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.41?lang=eng#p41)
 
 
-[^a]: TG [[Teachable]].
-[^b]: TG [[Baptism, Qualifications for]].
-[^c]: [[Acts 4.4|Acts 4:4.]]
+[^a]: [[Teachable|TG Teachable]].  
+[^b]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  
+[^c]: [[Acts 4.4|Acts 4:4]].  

@@ -5,5 +5,5 @@
 [Jeremiah 7:23](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.23?lang=eng#p23)
 
 
-[^a]: TG [[Obedience, Obedient, Obey]].
-[^b]: [[D&C 1.38|D&C 1:38.]]
+[^a]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^b]: [[D&C 1.38|D&C 1:38]].  

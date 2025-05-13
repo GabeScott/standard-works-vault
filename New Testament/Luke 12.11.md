@@ -5,6 +5,6 @@
 [Luke 12:11](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.11?lang=eng#p11)
 
 
-[^a]: GR authorities.
-[^b]: GR don’t worry; don’t be anxious about.
-[^c]: [[D&C 84.85|D&C 84:85.]]
+[^a]: GR authorities.  
+[^b]: GR don’t worry; don’t be anxious about.  
+[^c]: [[D&C 84.85|D&C 84:85]].  

@@ -5,5 +5,5 @@
 [Jeremiah 12:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/12.10?lang=eng#p10)
 
 
-[^a]: TG [[False Prophets]].
-[^b]: [[Jacob 6.2|Jacob 6:2.]]
+[^a]: [[False Prophets|TG False Prophets]].  
+[^b]: [[Jacob 6.2|Jacob 6:2]].  

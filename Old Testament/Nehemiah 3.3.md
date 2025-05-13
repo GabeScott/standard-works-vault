@@ -5,4 +5,4 @@
 [Nehemiah 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/3.3?lang=eng#p3)
 
 
-[^a]: Probably a northwestern gate, with access to the merchants’ quarter; perhaps where Damascus gate now is. Neh. 12:39.
+[^a]: Probably a northwestern gate, with access to the merchants’ quarter; perhaps where Damascus gate now is. [[Nehemiah 12.39|Neh. 12:39]].  

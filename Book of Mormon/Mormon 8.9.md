@@ -5,4 +5,4 @@
 [Mormon 8:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p9#p9)
 
 
-[^a]: 4 Ne. 1:46; [[Mormon 2.8|Morm. 2:8 (8, 28)]]; [[Ether 8.20|Ether 8:20.]]
+[^a]: [[4 Nephi 1.46|4 Ne. 1:46]]; [[Mormon 2.8|Morm. 2:8 (8, 28)]][[Mormon 2.28|]]; [[Ether 8.20|Ether 8:20]].  

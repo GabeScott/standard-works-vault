@@ -5,4 +5,4 @@
 [Alma 62:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p10#p10)
 
 
-[^a]: [[1 Kings 2.46|1 Kgs. 2:46.]]
+[^a]: [[1 Kings 2.46|1 Kgs. 2:46]].  

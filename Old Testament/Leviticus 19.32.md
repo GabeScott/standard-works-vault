@@ -5,6 +5,6 @@
 [Leviticus 19:32](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.32?lang=eng#p32)
 
 
-[^a]: HEB rise before the face of old age.
-[^b]: [[Proverbs 20.29|Prov. 20:29.]]
-[^c]: TG [[Courtesy]]; [[Family, Children, Duties of]]; [[Respecter]].
+[^a]: HEB rise before the face of old age.  
+[^b]: [[Proverbs 20.29|Prov. 20:29]].  
+[^c]: [[Courtesy|TG Courtesy]]; [[Family, Children, Duties of|Family, Children, Duties of]]; [[Respect|Respect]].  

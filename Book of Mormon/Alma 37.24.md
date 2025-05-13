@@ -5,4 +5,4 @@
 [Alma 37:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[Urim and Thummim]].
+[^a]: [[Urim and Thummim|TG Urim and Thummim]].  

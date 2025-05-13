@@ -5,4 +5,4 @@
 [John 6:68](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.68?lang=eng#p68)
 
 
-[^a]: [[John 17.8|John 17:8]]; [[Acts 5.20|Acts 5:20]]; [[Moses 6.59|Moses 6:59.]]
+[^a]: [[John 17.8|John 17:8]]; [[Acts 5.20|Acts 5:20]]; [[Moses 6.59|Moses 6:59]].  

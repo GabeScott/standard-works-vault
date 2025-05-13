@@ -5,4 +5,4 @@
 [Luke 1:25](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.25?lang=eng#p25)
 
 
-[^a]: TG [[Barren, Barrenness]]; [[Reproach]].
+[^a]: [[Barren, Barrenness|TG Barren]]; [[Reproach|Reproach]].  

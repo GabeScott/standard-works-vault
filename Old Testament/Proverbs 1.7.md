@@ -5,7 +5,7 @@
 [Proverbs 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.7?lang=eng#p7)
 
 
-[^a]: OR reverence of the Lord. TG [[Reverence]].
-[^b]: TG [[Discernment, Spiritual]]; [[Knowledge]].
-[^c]: TG [[Wisdom]].
-[^d]: TG [[Problem-Solving]].
+[^a]: OR reverence of the Lord. [[Reverence|TG Reverence]].  
+[^b]: [[Discernment, Spiritual|TG Discernment, Spiritual]]; [[Knowledge|Knowledge]].  
+[^c]: [[Wisdom|TG Wisdom]].  
+[^d]: [[Problem-Solving|TG Problem-Solving]].  

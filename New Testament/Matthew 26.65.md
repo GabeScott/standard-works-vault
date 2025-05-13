@@ -5,4 +5,4 @@
 [Matthew 26:65](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.65?lang=eng#p65)
 
 
-[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^a]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  

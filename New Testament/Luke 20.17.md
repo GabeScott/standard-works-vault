@@ -5,4 +5,4 @@
 [Luke 20:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.17?lang=eng#p17)
 
 
-[^a]: TG [[Rock]].
+[^a]: [[Rock|TG Rock]].  

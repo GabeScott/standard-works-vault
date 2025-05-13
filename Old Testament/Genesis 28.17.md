@@ -5,4 +5,4 @@
 [Genesis 28:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.17?lang=eng#p17)
 
 
-[^a]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Heaven|TG Heaven]].  

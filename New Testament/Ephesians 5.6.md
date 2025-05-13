@@ -5,6 +5,6 @@
 [Ephesians 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.6?lang=eng#p6)
 
 
-[^a]: TG [[Deceit, Deceive]].
-[^b]: TG [[God, Indignation of]].
-[^c]: TG [[Disobedience, Disobey]].
+[^a]: [[Deceit, Deceive|TG Deceit]].  
+[^b]: [[God, Indignation of|TG God, Indignation of]].  
+[^c]: [[Disobedience, Disobey|TG Disobedience]].  

@@ -5,5 +5,5 @@
 [Isaiah 49:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.10?lang=eng#p10)
 
 
-[^a]: [[Revelation 7.16|Rev. 7:16 (13-17).]]
-[^b]: [[Psalms 121.6|Ps. 121:6.]]
+[^a]: [[Revelation 7.13|Rev. 7:16 (13–17)]][[Revelation 7.14|]][[Revelation 7.15|]][[Revelation 7.16|]][[Revelation 7.17|]].  
+[^b]: [[Psalms 121.6|Ps. 121:6]].  

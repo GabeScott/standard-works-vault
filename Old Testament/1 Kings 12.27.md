@@ -5,4 +5,4 @@
 [1 Kings 12:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.27?lang=eng#p27)
 
 
-[^a]: [[Deuteronomy 12.5|Deut. 12:5 (5-7).]]
+[^a]: [[Deuteronomy 12.5|Deut. 12:5 (5–7)]][[Deuteronomy 12.6|]][[Deuteronomy 12.7|]].  

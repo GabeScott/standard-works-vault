@@ -5,5 +5,5 @@
 [1 Samuel 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.10?lang=eng#p10)
 
 
-[^a]: TG [[Jesus Christ, Judge]]; [[Judgment, the Last]].
-[^b]: In the Septuagint Greek version, the noun is christos.
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]]; [[Judgment, the Last|Judgment, the Last]].  
+[^b]: In the Septuagint Greek version, the noun is christos.  

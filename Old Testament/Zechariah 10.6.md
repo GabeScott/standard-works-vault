@@ -5,4 +5,4 @@
 [Zechariah 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/10.6?lang=eng#p6)
 
 
-[^a]: OR answer.
+[^a]: OR answer.  

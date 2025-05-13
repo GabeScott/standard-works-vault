@@ -5,4 +5,4 @@
 [Isaiah 43:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.14?lang=eng#p14)
 
 
-[^a]: TG [[Jesus Christ, Jehovah]]; [[Redemption]].
+[^a]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]]; [[Redemption|Redemption]].  

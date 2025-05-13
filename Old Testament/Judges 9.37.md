@@ -5,4 +5,4 @@
 [Judges 9:37](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.37?lang=eng#p37)
 
 
-[^a]: HEB the oak of the diviners.
+[^a]: HEB the oak of the diviners.  

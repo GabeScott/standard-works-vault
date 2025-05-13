@@ -5,4 +5,4 @@
 [2 Samuel 6:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.6?lang=eng#p6)
 
 
-[^a]: [[D&C 85.8|D&C 85:8.]]
+[^a]: [[D&C 85.8|D&C 85:8]].  

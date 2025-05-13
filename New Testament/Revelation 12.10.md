@@ -5,7 +5,7 @@
 [Revelation 12:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.10?lang=eng#p10)
 
 
-[^a]: TG [[God, Manifestations of]].
-[^b]: TG [[Strength]].
-[^c]: TG [[Jesus Christ, Authority of]].
-[^d]: [[Isaiah 29.20|Isa. 29:20]]; [[D&C 88.124|D&C 88:124.]]
+[^a]: [[God, Manifestations of|TG God, Manifestations of]].  
+[^b]: [[Strength|TG Strength]].  
+[^c]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^d]: [[Isaiah 29.20|Isa. 29:20]]; [[D&C 88.124|D&C 88:124]].  

@@ -5,5 +5,5 @@
 [Luke 19:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.13?lang=eng#p13)
 
 
-[^a]: TG [[Talents]].
-[^b]: GR Do business.
+[^a]: [[Talents|TG Talents]].  
+[^b]: GR Do business.  

@@ -5,4 +5,4 @@
 [Exodus 40:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.5?lang=eng#p5)
 
 
-[^a]: HEB set up the screen for.
+[^a]: HEB set up the screen for.  

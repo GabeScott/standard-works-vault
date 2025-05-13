@@ -5,5 +5,5 @@
 [Ezekiel 46:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 41.21|Ezek. 41:21.]]
-[^b]: [[Ezekiel 40.38|Ezek. 40:38.]]
+[^a]: [[Ezekiel 41.21|Ezek. 41:21]].  
+[^b]: [[Ezekiel 40.38|Ezek. 40:38]].  

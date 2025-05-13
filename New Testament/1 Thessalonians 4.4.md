@@ -5,5 +5,5 @@
 [1 Thessalonians 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/4.4?lang=eng#p4)
 
 
-[^a]: TG [[Body, Sanctity of]].
-[^b]: TG [[Sanctification, Sanctify]].
+[^a]: [[Body, Sanctity of|TG Body, Sanctity of]].  
+[^b]: [[Sanctification, Sanctify|TG Sanctification]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 23:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/23.3?lang=eng#p3)
 
 
-[^a]: [[2 Samuel 7.12|2 Sam. 7:12.]]
+[^a]: [[2 Samuel 7.12|2 Sam. 7:12]].  

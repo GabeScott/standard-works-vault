@@ -5,5 +5,5 @@
 [Mosiah 20:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/20?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 43.45|Alma 43:45.]]
-[^b]: [[Alma 46.12|Alma 46:12.]]
+[^a]: [[Alma 43.45|Alma 43:45]].  
+[^b]: [[Alma 46.12|Alma 46:12]].  

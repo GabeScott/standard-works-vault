@@ -5,4 +5,4 @@
 [1 Corinthians 15:37](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.37?lang=eng#p37)
 
 
-[^a]: IE whether it be.
+[^a]: IE whether it be.  

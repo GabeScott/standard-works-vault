@@ -5,4 +5,4 @@
 [2 Kings 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/11.10?lang=eng#p10)
 
 
-[^a]: [[2 Samuel 8.7|2 Sam. 8:7.]]
+[^a]: [[2 Samuel 8.7|2 Sam. 8:7]].  

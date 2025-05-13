@@ -5,4 +5,4 @@
 [Psalms 72:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/72.4?lang=eng#p4)
 
 
-[^a]: [[D&C 101.24|D&C 101:24 (23-24).]]
+[^a]: [[D&C 101.23|D&C 101:24 (23–24)]][[D&C 101.24|]].  

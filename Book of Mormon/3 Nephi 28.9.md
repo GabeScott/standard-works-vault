@@ -5,5 +5,5 @@
 [3 Nephi 28:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p9#p9)
 
 
-[^a]: 4 Ne. 1:44; [[Mormon 8.10|Morm. 8:10.]]
-[^b]: Philip. 1:24 (23-24); [[3 Nephi 28.27|3 Ne. 28:27]]; [[D&C 7.5|D&C 7:5 (1-8).]]
+[^a]: [[4 Nephi 1.44|4 Ne. 1:44]]; [[Mormon 8.10|Morm. 8:10]].  
+[^b]: [[Philippians 1.23|Philip. 1:24 (23–24)]][[Philippians 1.24|]]; [[3 Nephi 28.27|3 Ne. 28:27]]; [[D&C 7.1|D&C 7:5 (1–8)]][[D&C 7.2|]][[D&C 7.3|]][[D&C 7.4|]][[D&C 7.5|]][[D&C 7.6|]][[D&C 7.7|]][[D&C 7.8|]].  

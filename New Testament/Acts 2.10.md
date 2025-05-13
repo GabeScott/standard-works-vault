@@ -5,4 +5,4 @@
 [Acts 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.10?lang=eng#p10)
 
 
-[^a]: [[Acts 13.43|Acts 13:43.]]
+[^a]: [[Acts 13.43|Acts 13:43]].  

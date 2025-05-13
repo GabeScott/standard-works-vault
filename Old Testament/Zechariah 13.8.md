@@ -5,4 +5,4 @@
 [Zechariah 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/13.8?lang=eng#p8)
 
 
-[^a]: JS—M 1:44 (42-46).
+[^a]: [[Joseph Smith Matthew 1.42|JS—M 1:44 (42–46)]][[Joseph Smith Matthew 1.43|]][[Joseph Smith Matthew 1.44|]][[Joseph Smith Matthew 1.45|]][[Joseph Smith Matthew 1.46|]].  

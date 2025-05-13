@@ -5,5 +5,5 @@
 [Jeremiah 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.9?lang=eng#p9)
 
 
-[^a]: TG [[Murder, Murderer]].
-[^b]: TG [[Walking in Darkness]].
+[^a]: [[Murder, Murderer|TG Murder]].  
+[^b]: [[Walking in Darkness|TG Walking in Darkness]].  

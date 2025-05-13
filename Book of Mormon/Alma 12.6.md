@@ -5,5 +5,5 @@
 [Alma 12:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p6#p6)
 
 
-[^a]: [[Proverbs 29.6|Prov. 29:6 (3-8).]]
-[^b]: [[Alma 5.9|Alma 5:9 (7-10).]]
+[^a]: [[Proverbs 29.3|Prov. 29:6 (3–8)]][[Proverbs 29.4|]][[Proverbs 29.5|]][[Proverbs 29.6|]][[Proverbs 29.7|]][[Proverbs 29.8|]].  
+[^b]: [[Alma 5.7|Alma 5:9 (7–10)]][[Alma 5.8|]][[Alma 5.9|]][[Alma 5.10|]].  

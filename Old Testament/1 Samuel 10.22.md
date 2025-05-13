@@ -5,4 +5,4 @@
 [1 Samuel 10:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.22?lang=eng#p22)
 
 
-[^a]: TG [[Prayer, Pray]].
+[^a]: [[Prayer, Pray|TG Prayer]].  

@@ -5,4 +5,4 @@
 [Alma 2:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p28#p28)
 
 
-[^a]: [[Deuteronomy 31.6|Deut. 31:6.]]
+[^a]: [[Deuteronomy 31.6|Deut. 31:6]].  

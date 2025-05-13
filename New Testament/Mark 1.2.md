@@ -5,4 +5,4 @@
 [Mark 1:2](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.2?lang=eng#p2)
 
 
-[^a]: Mal. 3:1; [[Matthew 11.10|Matt. 11:10.]]
+[^a]: [[Malachi 3.1|Mal. 3:1]]; [[Matthew 11.10|Matt. 11:10]].  

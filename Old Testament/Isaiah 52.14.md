@@ -5,5 +5,5 @@
 [Isaiah 52:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.14?lang=eng#p14)
 
 
-[^a]: OR astonished.
-[^b]: OR appearance.
+[^a]: OR astonished.  
+[^b]: OR appearance.  

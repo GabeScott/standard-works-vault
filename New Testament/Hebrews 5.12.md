@@ -5,4 +5,4 @@
 [Hebrews 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.12?lang=eng#p12)
 
 
-[^a]: [[1 Corinthians 3.2|1 Cor. 3:2 (2-3)]]; [[D&C 19.22|D&C 19:22 (21-22)]]; [[D&C 50.40|50:40.]]
+[^a]: [[1 Corinthians 3.2|1 Cor. 3:2 (2–3)]][[1 Corinthians 3.3|]]; [[D&C 19.21|D&C 19:22 (21–22)]][[D&C 19.22|]]; [[D&C 50.40|50:40]].  

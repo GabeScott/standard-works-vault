@@ -5,5 +5,5 @@
 [1 Corinthians 7:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.7?lang=eng#p7)
 
 
-[^a]: GR own.
-[^b]: TG [[God, Gifts of]]; [[Holy Ghost, Gifts of]].
+[^a]: GR own.  
+[^b]: [[God, Gifts of|TG God, Gifts of]]; [[Holy Ghost, Gifts of|Holy Ghost, Gifts of]].  

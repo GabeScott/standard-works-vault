@@ -5,4 +5,4 @@
 [1 Samuel 16:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/16.12?lang=eng#p12)
 
 
-[^a]: TG [[Beauty]].
+[^a]: [[Beauty|TG Beauty]].  

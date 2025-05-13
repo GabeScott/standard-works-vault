@@ -5,6 +5,6 @@
 [Isaiah 30:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.18?lang=eng#p18)
 
 
-[^a]: IE The Lord will wait until the day of restoration to bless Israel with His presence.
-[^b]: HEB Justice. TG [[Judgment]].
-[^c]: [[D&C 98.2|D&C 98:2.]]
+[^a]: IE The Lord will wait until the day of restoration to bless Israel with His presence.  
+[^b]: HEB Justice. [[Judgment|TG Judgment]].  
+[^c]: [[D&C 98.2|D&C 98:2]].  

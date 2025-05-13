@@ -5,4 +5,4 @@
 [Numbers 32:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/32.19?lang=eng#p19)
 
 
-[^a]: OR the other side of the Jordan and beyond.
+[^a]: OR the other side of the Jordan and beyond.  

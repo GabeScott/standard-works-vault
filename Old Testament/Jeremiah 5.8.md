@@ -5,4 +5,4 @@
 [Jeremiah 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.8?lang=eng#p8)
 
 
-[^a]: HEB lusty stallions.
+[^a]: HEB lusty stallions.  

@@ -5,6 +5,6 @@
 [3 Nephi 15:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/15?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Church Organization]].
-[^b]: TG [[Example, Ensample]]; [[Leadership]].
-[^c]: TG [[Israel, Joseph, People of]].
+[^a]: [[Church Organization|TG Church Organization]].  
+[^b]: [[Example, Ensample|TG Example]]; [[Leadership|Leadership]].  
+[^c]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  

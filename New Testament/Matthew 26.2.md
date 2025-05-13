@@ -5,6 +5,6 @@
 [Matthew 26:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.2?lang=eng#p2)
 
 
-[^a]: TG [[Passover]].
-[^b]: TG [[Jesus Christ, Betrayal of]].
-[^c]: TG [[Martyrdom]].
+[^a]: [[Passover|TG Passover]].  
+[^b]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  
+[^c]: [[Martyrdom|TG Martyrdom]].  

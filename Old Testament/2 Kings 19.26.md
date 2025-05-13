@@ -5,4 +5,4 @@
 [2 Kings 19:26](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.26?lang=eng#p26)
 
 
-[^a]: [[Psalms 129.6|Ps. 129:6.]]
+[^a]: [[Psalms 129.6|Ps. 129:6]].  

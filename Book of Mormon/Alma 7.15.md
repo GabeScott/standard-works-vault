@@ -5,4 +5,4 @@
 [Alma 7:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p15#p15)
 
 
-[^a]: [[2 Nephi 4.18|2 Ne. 4:18.]]
+[^a]: [[2 Nephi 4.18|2 Ne. 4:18]].  

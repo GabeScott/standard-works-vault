@@ -5,4 +5,4 @@
 [1 Samuel 7:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/7.1?lang=eng#p1)
 
 
-[^a]: TG [[Ark of the Covenant]].
+[^a]: [[Ark of the Covenant|TG Ark of the Covenant]].  

@@ -5,4 +5,4 @@
 [Psalms 128:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/128.3?lang=eng#p3)
 
 
-[^a]: TG [[Marriage, Husbands]].
+[^a]: [[Marriage, Husbands|TG Marriage, Husbands]].  

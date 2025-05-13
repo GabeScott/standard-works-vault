@@ -5,6 +5,6 @@
 [Proverbs 22:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.7?lang=eng#p7)
 
 
-[^a]: [[D&C 19.35|D&C 19:35.]]
-[^b]: TG [[Borrow, Borrowing]]; [[Debt]].
-[^c]: TG [[Servant]].
+[^a]: [[D&C 19.35|D&C 19:35]].  
+[^b]: [[Borrow, Borrowing|TG Borrow]]; [[Debt|Debt]].  
+[^c]: [[Servant|TG Servant]].  

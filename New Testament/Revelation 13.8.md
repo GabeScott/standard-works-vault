@@ -5,6 +5,6 @@
 [Revelation 13:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/13.8?lang=eng#p8)
 
 
-[^a]: TG [[Book of Life]].
-[^b]: TG [[Jesus Christ, Lamb of God]].
-[^c]: TG [[Foreordination]].
+[^a]: [[Book of Life|TG Book of Life]].  
+[^b]: [[Jesus Christ, Lamb of God|TG Jesus Christ, Lamb of God]].  
+[^c]: [[Foreordination|TG Foreordination]].  

@@ -5,7 +5,7 @@
 [3 Nephi 27:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p32#p32)
 
 
-[^a]: [[Genesis 6.6|Gen. 6:6]]; [[3 Nephi 17.14|3 Ne. 17:14.]]
-[^b]: [[1 Nephi 12.11|1 Ne. 12:11 (11-12)]]; [[2 Nephi 26.9|2 Ne. 26:9 (9-10)]]; [[Alma 45.12|Alma 45:12 (10, 12)]]; [[Helaman 13.6|Hel. 13:6 (5-19).]]
-[^c]: [[John 17.12|John 17:12]]; [[3 Nephi 29.7|3 Ne. 29:7.]]
-[^d]: [[Matthew 6.19|Matt. 6:19]]; [[3 Nephi 13.19|3 Ne. 13:19 (19-21).]]
+[^a]: [[Genesis 6.6|Gen. 6:6]]; [[3 Nephi 17.14|3 Ne. 17:14]].  
+[^b]: [[1 Nephi 12.11|1 Ne. 12:11 (11–12)]][[1 Nephi 12.12|]]; [[2 Nephi 26.9|2 Ne. 26:9 (9–10)]][[2 Nephi 26.10|]]; [[Alma 45.10|Alma 45:12 (10, 12)]][[Alma 45.12|]]; [[Helaman 13.5|Hel. 13:6 (5–19)]][[Helaman 13.6|]][[Helaman 13.7|]][[Helaman 13.8|]][[Helaman 13.9|]][[Helaman 13.10|]][[Helaman 13.11|]][[Helaman 13.12|]][[Helaman 13.13|]][[Helaman 13.14|]][[Helaman 13.15|]][[Helaman 13.16|]][[Helaman 13.17|]][[Helaman 13.18|]][[Helaman 13.19|]].  
+[^c]: [[John 17.12|John 17:12]]; [[3 Nephi 29.7|3 Ne. 29:7]].  
+[^d]: [[Matthew 6.19|Matt. 6:19]]; [[3 Nephi 13.19|3 Ne. 13:19 (19–21)]][[3 Nephi 13.20|]][[3 Nephi 13.21|]].  

@@ -5,4 +5,4 @@
 [2 Corinthians 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.9?lang=eng#p9)
 
 
-[^a]: [[Moroni 9.6|Moro. 9:6.]]
+[^a]: [[Moroni 9.6|Moro. 9:6]].  

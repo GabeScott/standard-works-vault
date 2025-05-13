@@ -5,4 +5,4 @@
 [Joshua 15:19](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.19?lang=eng#p19)
 
 
-[^a]: OR lower. Judg. 1:15.
+[^a]: OR lower. [[Judges 1.15|Judg. 1:15]].  

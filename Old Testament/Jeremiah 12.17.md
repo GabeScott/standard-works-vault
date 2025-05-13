@@ -5,5 +5,5 @@
 [Jeremiah 12:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/12.17?lang=eng#p17)
 
 
-[^a]: TG [[Disobedience, Disobey]].
-[^b]: [[Isaiah 60.12|Isa. 60:12.]]
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  
+[^b]: [[Isaiah 60.12|Isa. 60:12]].  

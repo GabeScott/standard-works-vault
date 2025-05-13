@@ -5,4 +5,4 @@
 [Ezekiel 23:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.25?lang=eng#p25)
 
 
-[^a]: [[2 Nephi 6.8|2 Ne. 6:8.]]
+[^a]: [[2 Nephi 6.8|2 Ne. 6:8]].  

@@ -5,6 +5,6 @@
 [Alma 4:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p7#p7)
 
 
-[^a]: [[Mosiah 6.3|Mosiah 6:3]]. TG [[Teacher]].
-[^b]: TG [[Church Organization]].
-[^c]: [[Alma 4.16|Alma 4:16]]. TG [[Elder, Melchizedek Priesthood]].
+[^a]: [[Mosiah 6.3|Mosiah 6:3]]. [[Teacher|TG Teacher]].  
+[^b]: [[Church Organization|TG Church Organization]].  
+[^c]: [[Alma 4.16|Alma 4:16]]. [[Elder|TG Elder]].  

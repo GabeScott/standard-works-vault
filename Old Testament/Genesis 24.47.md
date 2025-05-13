@@ -5,4 +5,4 @@
 [Genesis 24:47](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.47?lang=eng#p47)
 
 
-[^a]: HEB ring on her nose.
+[^a]: HEB ring on her nose.  

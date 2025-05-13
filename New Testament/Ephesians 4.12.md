@@ -5,5 +5,5 @@
 [Ephesians 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.12?lang=eng#p12)
 
 
-[^a]: TG [[Priesthood, Magnifying Callings within]].
-[^b]: TG [[Edification, Edify]].
+[^a]: [[Priesthood, Magnifying Callings within|TG Priesthood, Magnifying Callings within]].  
+[^b]: [[Edification, Edify|TG Edification]].  

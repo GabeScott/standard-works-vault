@@ -5,6 +5,6 @@
 [Mosiah 29:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p26#p26)
 
 
-[^a]: [[1 Samuel 8.7|1 Sam. 8:7]]; [[Alma 29.4|Alma 29:4]]; [[D&C 26.2|D&C 26:2]]. TG [[Common Consent]].
-[^b]: TG [[Disobedience, Disobey]].
-[^c]: TG [[Governments]].
+[^a]: [[1 Samuel 8.7|1 Sam. 8:7]]; [[Alma 29.4|Alma 29:4]]; [[D&C 26.2|D&C 26:2]]. [[Common Consent|TG Common Consent]].  
+[^b]: [[Disobedience, Disobey|TG Disobedience]].  
+[^c]: [[Governments|TG Governments]].  

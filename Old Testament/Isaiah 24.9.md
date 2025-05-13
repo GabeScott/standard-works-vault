@@ -5,4 +5,4 @@
 [Isaiah 24:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.9?lang=eng#p9)
 
 
-[^a]: TG [[Word of Wisdom]].
+[^a]: [[Word of Wisdom|TG Word of Wisdom]].  

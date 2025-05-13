@@ -5,4 +5,4 @@
 [1 Nephi 15:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Apostasy of Individuals]].
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  

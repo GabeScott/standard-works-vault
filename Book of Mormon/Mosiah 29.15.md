@@ -5,4 +5,4 @@
 [Mosiah 29:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 1.32|Alma 1:32.]]
+[^a]: [[Alma 1.32|Alma 1:32]].  

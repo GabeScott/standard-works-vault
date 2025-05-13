@@ -5,4 +5,4 @@
 [Helaman 9:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/9?lang=eng&id=p14#p14)
 
 
-[^a]: [[Genesis 39.20|Gen. 39:20.]]
+[^a]: [[Genesis 39.20|Gen. 39:20]].  

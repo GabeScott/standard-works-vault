@@ -5,4 +5,4 @@
 [Ezekiel 16:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.8?lang=eng#p8)
 
 
-[^a]: TG [[Love]].
+[^a]: [[Love|TG Love]].  

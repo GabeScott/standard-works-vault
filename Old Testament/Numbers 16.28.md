@@ -5,4 +5,4 @@
 [Numbers 16:28](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.28?lang=eng#p28)
 
 
-[^a]: TG [[Mind, Minded]].
+[^a]: [[Mind, Minded|TG Mind]].  

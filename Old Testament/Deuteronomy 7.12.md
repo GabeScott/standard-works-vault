@@ -5,6 +5,6 @@
 [Deuteronomy 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.12?lang=eng#p12)
 
 
-[^a]: TG [[Obedience, Obedient, Obey]].
-[^b]: [[2 Samuel 22.23|2 Sam. 22:23.]]
-[^c]: [[Jeremiah 11.5|Jer. 11:5.]]
+[^a]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^b]: [[2 Samuel 22.23|2 Sam. 22:23]].  
+[^c]: [[Jeremiah 11.5|Jer. 11:5]].  

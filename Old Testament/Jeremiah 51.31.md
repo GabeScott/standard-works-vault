@@ -5,7 +5,7 @@
 [Jeremiah 51:31](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.31?lang=eng#p31)
 
 
-[^a]: HEB runner.
-[^b]: HEB tell or inform.
-[^c]: Dan. 5:30.
-[^d]: OR captured completely.
+[^a]: HEB runner.  
+[^b]: HEB tell or inform.  
+[^c]: [[Daniel 5.30|Dan. 5:30]].  
+[^d]: OR captured completely.  

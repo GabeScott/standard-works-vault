@@ -5,4 +5,4 @@
 [1 Corinthians 16:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.19?lang=eng#p19)
 
 
-[^a]: [[Acts 18.2|Acts 18:2.]]
+[^a]: [[Acts 18.2|Acts 18:2]].  

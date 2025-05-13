@@ -5,4 +5,4 @@
 [Mosiah 7:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 14.19|Alma 14:19.]]
+[^a]: [[Alma 14.19|Alma 14:19]].  

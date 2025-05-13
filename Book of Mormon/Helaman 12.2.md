@@ -5,9 +5,9 @@
 [Helaman 12:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 46.8|Alma 46:8]]; [[Helaman 4.26|Hel. 4:26]]; [[Helaman 6.32|6:32.]]
-[^b]: [[Psalms 62.10|Ps. 62:10.]]
-[^c]: TG [[Treasure]].
-[^d]: TG [[Apostasy of Individuals]].
-[^e]: [[Deuteronomy 8.11|Deut. 8:11 (10-20).]]
-[^f]: [[Alma 5.53|Alma 5:53]]; [[3 Nephi 28.35|3 Ne. 28:35]]. TG [[Sacrilege]].
+[^a]: [[Alma 46.8|Alma 46:8]]; [[Helaman 4.26|Hel. 4:26]]; [[Helaman 6.32|6:32]].  
+[^b]: [[Psalms 62.10|Ps. 62:10]].  
+[^c]: [[Treasure|TG Treasure]].  
+[^d]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  
+[^e]: [[Deuteronomy 8.10|Deut. 8:11 (10–20)]][[Deuteronomy 8.11|]][[Deuteronomy 8.12|]][[Deuteronomy 8.13|]][[Deuteronomy 8.14|]][[Deuteronomy 8.15|]][[Deuteronomy 8.16|]][[Deuteronomy 8.17|]][[Deuteronomy 8.18|]][[Deuteronomy 8.19|]][[Deuteronomy 8.20|]].  
+[^f]: [[Alma 5.53|Alma 5:53]]; [[3 Nephi 28.35|3 Ne. 28:35]]. [[Sacrilege|TG Sacrilege]].  

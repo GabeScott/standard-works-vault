@@ -5,5 +5,5 @@
 [Deuteronomy 25:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.2?lang=eng#p2)
 
 
-[^a]: [[Luke 12.48|Luke 12:48.]]
-[^b]: IE of stripes (see next verse).
+[^a]: [[Luke 12.48|Luke 12:48]].  
+[^b]: IE of stripes (see [[Deuteronomy 25.3|next verse]]).  

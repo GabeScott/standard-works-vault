@@ -5,4 +5,4 @@
 [Jeremiah 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.9?lang=eng#p9)
 
 
-[^a]: [[Jeremiah 23.5|Jer. 23:5 (5-6)]]; [[Ezekiel 34.24|Ezek. 34:24 (23-24)]]; [[Ezekiel 37.24|37:24 (24-25).]]
+[^a]: [[Jeremiah 23.5|Jer. 23:5 (5–6)]][[Jeremiah 23.6|]]; [[Ezekiel 34.23|Ezek. 34:24 (23–24)]][[Ezekiel 34.24|]]; [[Ezekiel 37.24|37:24 (24–25)]][[Ezekiel 37.25|]].  

@@ -5,5 +5,5 @@
 [D&C 9:1](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/9.1?lang=eng#p1)
 
 
-[^a]: [[D&C 8.11|D&C 8:11 (1, 11).]]
-[^b]: JS—H 1:67.
+[^a]: [[D&C 8.1|D&C 8:11 (1, 11)]][[D&C 8.11|]].  
+[^b]: [[Joseph Smith History 1.67|JS—H 1:67]].  

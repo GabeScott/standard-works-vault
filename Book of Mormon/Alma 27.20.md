@@ -5,5 +5,5 @@
 [Alma 27:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 15.18|Alma 15:18.]]
-[^b]: [[Alma 4.17|Alma 4:17 (16-18).]]
+[^a]: [[Alma 15.18|Alma 15:18]].  
+[^b]: [[Alma 4.16|Alma 4:17 (16–18)]][[Alma 4.17|]][[Alma 4.18|]].  

@@ -5,4 +5,4 @@
 [John 6:19](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.19?lang=eng#p19)
 
 
-[^a]: [[D&C 67.3|D&C 67:3.]]
+[^a]: [[D&C 67.3|D&C 67:3]].  

@@ -5,4 +5,4 @@
 [2 Samuel 7:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.25?lang=eng#p25)
 
 
-[^a]: [[Psalms 119.38|Ps. 119:38.]]
+[^a]: [[Psalms 119.38|Ps. 119:38]].  

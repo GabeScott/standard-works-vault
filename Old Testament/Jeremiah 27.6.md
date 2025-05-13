@@ -5,5 +5,5 @@
 [Jeremiah 27:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.6?lang=eng#p6)
 
 
-[^a]: [[D&C 134.1|D&C 134:1.]]
-[^b]: [[Jeremiah 28.14|Jer. 28:14.]]
+[^a]: [[D&C 134.1|D&C 134:1]].  
+[^b]: [[Jeremiah 28.14|Jer. 28:14]].  

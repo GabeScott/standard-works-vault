@@ -5,4 +5,4 @@
 [Proverbs 11:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.17?lang=eng#p17)
 
 
-[^a]: TG [[Cruelty, Cruel]].
+[^a]: [[Cruelty, Cruel|TG Cruelty]].  

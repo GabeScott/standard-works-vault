@@ -5,4 +5,4 @@
 [Nehemiah 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/2.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 137.4|Ps. 137:4.]]
+[^a]: [[Psalms 137.4|Ps. 137:4]].  

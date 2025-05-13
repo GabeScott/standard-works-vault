@@ -5,4 +5,4 @@
 [Ezekiel 16:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.12?lang=eng#p12)
 
 
-[^a]: HEB nose.
+[^a]: HEB nose.  

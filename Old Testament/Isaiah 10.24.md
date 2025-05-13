@@ -5,5 +5,5 @@
 [Isaiah 10:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.24?lang=eng#p24)
 
 
-[^a]: [[Isaiah 30.31|Isa. 30:31.]]
-[^b]: IE as the Egyptians did in earlier times.
+[^a]: [[Isaiah 30.31|Isa. 30:31]].  
+[^b]: IE as the Egyptians did in earlier times.  

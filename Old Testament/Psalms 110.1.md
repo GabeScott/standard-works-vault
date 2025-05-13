@@ -5,7 +5,7 @@
 [Psalms 110:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/110.1?lang=eng#p1)
 
 
-[^b]: [[Acts 2.34|Acts 2:34.]]
-[^c]: [[Hebrews 1.13|Heb. 1:13.]]
-[^d]: TG [[Celestial Glory]].
-[^e]: TG [[Enemies, Enemy]].
+[^b]: [[Acts 2.34|Acts 2:34]].  
+[^c]: [[Hebrews 1.13|Heb. 1:13]].  
+[^d]: [[Celestial Glory|TG Celestial Glory]].  
+[^e]: [[Enemies, Enemy|TG Enemies]].  

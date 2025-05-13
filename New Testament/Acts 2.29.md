@@ -5,5 +5,5 @@
 [Acts 2:29](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.29?lang=eng#p29)
 
 
-[^a]: TG [[Family, Patriarchal]].
-[^b]: [[1 Kings 2.10|1 Kgs. 2:10.]]
+[^a]: [[Patriarch|TG Patriarch]].  
+[^b]: [[1 Kings 2.10|1 Kgs. 2:10]].  

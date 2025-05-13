@@ -5,4 +5,4 @@
 [1 Nephi 2:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/2?lang=eng&id=p4#p4)
 
 
-[^a]: [[1 Nephi 10.4|1 Ne. 10:4]]; [[1 Nephi 19.8|19:8.]]
+[^a]: [[1 Nephi 10.4|1 Ne. 10:4]]; [[1 Nephi 19.8|19:8]].  

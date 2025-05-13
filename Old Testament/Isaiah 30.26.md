@@ -5,4 +5,4 @@
 [Isaiah 30:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.26?lang=eng#p26)
 
 
-[^a]: IE heals their affliction (after long exile).
+[^a]: IE heals their affliction (after long exile).  

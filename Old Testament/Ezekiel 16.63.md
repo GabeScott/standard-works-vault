@@ -5,4 +5,4 @@
 [Ezekiel 16:63](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.63?lang=eng#p63)
 
 
-[^a]: [[Romans 3.19|Rom. 3:19.]]
+[^a]: [[Romans 3.19|Rom. 3:19]].  

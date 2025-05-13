@@ -5,4 +5,4 @@
 [Job 13:5](https://www.churchofjesuschrist.org/study/scriptures/ot/job/13.5?lang=eng#p5)
 
 
-[^a]: [[Proverbs 17.28|Prov. 17:28.]]
+[^a]: [[Proverbs 17.28|Prov. 17:28]].  

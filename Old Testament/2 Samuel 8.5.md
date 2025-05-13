@@ -5,4 +5,4 @@
 [2 Samuel 8:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/8.5?lang=eng#p5)
 
 
-[^a]: HEB Aram; i.e., Arameans. They were later called “Syrians” by Greek peoples.
+[^a]: HEB Aram; i.e., Arameans. They were later called “Syrians” by Greek peoples.  

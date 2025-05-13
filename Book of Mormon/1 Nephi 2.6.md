@@ -5,5 +5,5 @@
 [1 Nephi 2:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/2?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Nephi 9.1|1 Ne. 9:1.]]
-[^b]: [[Joel 1.20|Joel 1:20.]]
+[^a]: [[1 Nephi 9.1|1 Ne. 9:1]].  
+[^b]: [[Joel 1.20|Joel 1:20]].  

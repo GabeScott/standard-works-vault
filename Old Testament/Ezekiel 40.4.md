@@ -5,5 +5,5 @@
 [Ezekiel 40:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.4?lang=eng#p4)
 
 
-[^a]: [[D&C 8.2|D&C 8:2 (2-3).]]
-[^b]: [[Ezekiel 43.10|Ezek. 43:10.]]
+[^a]: [[D&C 8.2|D&C 8:2 (2–3)]][[D&C 8.3|]].  
+[^b]: [[Ezekiel 43.10|Ezek. 43:10]].  

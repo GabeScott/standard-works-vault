@@ -5,5 +5,5 @@
 [2 Nephi 31:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p17#p17)
 
 
-[^a]: [[Mosiah 18.10|Mosiah 18:10]]. TG [[Holy Ghost, Baptism of]].
-[^b]: TG [[Holy Ghost, Mission of]]; [[Remission of Sins]].
+[^a]: [[Mosiah 18.10|Mosiah 18:10]]. [[Baptism|TG Baptism]].  
+[^b]: [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]]; [[Remission of Sins|Remission of Sins]].  

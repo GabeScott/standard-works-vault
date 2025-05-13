@@ -5,4 +5,4 @@
 [Matthew 24:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.23?lang=eng#p23)
 
 
-[^a]: [[D&C 49.22|D&C 49:22.]]
+[^a]: [[D&C 49.22|D&C 49:22]].  

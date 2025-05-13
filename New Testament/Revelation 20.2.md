@@ -5,6 +5,6 @@
 [Revelation 20:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/20.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 27.1|Isa. 27:1.]]
-[^b]: TG [[Devil, Church of]].
-[^c]: [[D&C 84.100|D&C 84:100.]]
+[^a]: [[Isaiah 27.1|Isa. 27:1]].  
+[^b]: [[Devil|TG Devil]].  
+[^c]: [[D&C 84.100|D&C 84:100]].  

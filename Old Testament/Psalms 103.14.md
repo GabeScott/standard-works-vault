@@ -5,4 +5,4 @@
 [Psalms 103:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/103.14?lang=eng#p14)
 
 
-[^a]: TG [[Mortality]].
+[^a]: [[Mortality|TG Mortality]].  

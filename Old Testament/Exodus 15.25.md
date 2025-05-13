@@ -5,5 +5,5 @@
 [Exodus 15:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.25?lang=eng#p25)
 
 
-[^a]: [[2 Kings 2.21|2 Kgs. 2:21.]]
-[^b]: [[Deuteronomy 8.2|Deut. 8:2]]; [[D&C 98.14|D&C 98:14 (12-14)]]; [[D&C 124.55|124:55]]; [[D&C 132.51|132:51]]; [[Abraham 3.25|Abr. 3:25.]]
+[^a]: [[2 Kings 2.21|2 Kgs. 2:21]].  
+[^b]: [[Deuteronomy 8.2|Deut. 8:2]]; [[D&C 98.12|D&C 98:14 (12–14)]][[D&C 98.13|]][[D&C 98.14|]]; [[D&C 124.55|124:55]]; [[D&C 132.51|132:51]]; [[Abraham 3.25|Abr. 3:25]].  

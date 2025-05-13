@@ -5,5 +5,5 @@
 [Matthew 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.17?lang=eng#p17)
 
 
-[^a]: [[D&C 10.52|D&C 10:52 (52, 54).]]
-[^b]: TG [[Law of Moses]].
+[^a]: [[D&C 10.52|D&C 10:52 (52, 54)]][[D&C 10.54|]].  
+[^b]: [[Law of Moses|TG Law of Moses]].  

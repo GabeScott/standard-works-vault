@@ -5,5 +5,5 @@
 [2 Chronicles 36:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.21?lang=eng#p21)
 
 
-[^a]: TG [[Sabbatical Year]].
-[^b]: [[Jeremiah 25.12|Jer. 25:12]]; Dan. 9:2.
+[^a]: [[Sabbatical Year|TG Sabbatical Year]].  
+[^b]: [[Jeremiah 25.12|Jer. 25:12]]; [[Daniel 9.2|Dan. 9:2]].  

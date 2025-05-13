@@ -5,4 +5,4 @@
 [Acts 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.11?lang=eng#p11)
 
 
-[^a]: TG [[Cornerstone]]; [[Rock]].
+[^a]: [[Cornerstone|TG Cornerstone]]; [[Rock|Rock]].  

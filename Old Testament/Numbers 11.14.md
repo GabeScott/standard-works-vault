@@ -5,4 +5,4 @@
 [Numbers 11:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.14?lang=eng#p14)
 
 
-[^a]: [[Exodus 18.18|Ex. 18:18.]]
+[^a]: [[Exodus 18.18|Ex. 18:18]].  

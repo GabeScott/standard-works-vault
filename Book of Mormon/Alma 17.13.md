@@ -5,5 +5,5 @@
 [Alma 17:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 21.1|Alma 21:1.]]
-[^b]: [[Matthew 9.37|Matt. 9:37.]]
+[^a]: [[Alma 21.1|Alma 21:1]].  
+[^b]: [[Matthew 9.37|Matt. 9:37]].  

@@ -5,6 +5,6 @@
 [Matthew 20:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.28?lang=eng#p28)
 
 
-[^a]: [[Moses 6.57|Moses 6:57.]]
-[^b]: TG [[God, Gifts of]].
-[^c]: [[D&C 138.2|D&C 138:2 (2-4)]]. TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]]; [[Redemption]].
+[^a]: [[Moses 6.57|Moses 6:57]].  
+[^b]: [[God, Gifts of|TG God, Gifts of]].  
+[^c]: [[D&C 138.2|D&C 138:2 (2–4)]][[D&C 138.3|]][[D&C 138.4|]]. [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer|Jesus Christ, Redeemer]]; [[Redemption|Redemption]].  

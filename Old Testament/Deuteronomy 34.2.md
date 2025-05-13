@@ -5,4 +5,4 @@
 [Deuteronomy 34:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.2?lang=eng#p2)
 
 
-[^a]: IE the Mediterranean.
+[^a]: IE the Mediterranean.  

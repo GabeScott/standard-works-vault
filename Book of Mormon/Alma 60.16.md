@@ -5,6 +5,6 @@
 [Alma 60:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p16#p16)
 
 
-[^a]: [[Alma 51.19|Alma 51:19 (5-7, 13-27).]]
-[^b]: [[Alma 62.9|Alma 62:9.]]
-[^c]: [[Alma 38.1|Alma 38:1.]]
+[^a]: [[Alma 51.5|Alma 51:19 (5–7, 13–27)]][[Alma 51.6|]][[Alma 51.7|]][[Alma 51.13|]][[Alma 51.14|]][[Alma 51.15|]][[Alma 51.16|]][[Alma 51.17|]][[Alma 51.18|]][[Alma 51.19|]][[Alma 51.20|]][[Alma 51.21|]][[Alma 51.22|]][[Alma 51.23|]][[Alma 51.24|]][[Alma 51.25|]][[Alma 51.26|]][[Alma 51.27|]].  
+[^b]: [[Alma 62.9|Alma 62:9]].  
+[^c]: [[Alma 38.1|Alma 38:1]].  

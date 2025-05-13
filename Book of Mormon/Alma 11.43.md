@@ -5,8 +5,8 @@
 [Alma 11:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p43#p43)
 
 
-[^a]: [[2 Nephi 9.13|2 Ne. 9:13]]; [[Alma 40.23|Alma 40:23.]]
-[^b]: TG [[Perfection, Perfect, Perfectly]].
-[^c]: [[D&C 130.18|D&C 130:18.]]
-[^d]: [[2 Nephi 9.14|2 Ne. 9:14]]; [[Mosiah 3.25|Mosiah 3:25]]; [[Alma 5.18|Alma 5:18.]]
-[^e]: [[Matthew 12.36|Matt. 12:36 (36-37)]]. TG [[Guiltless]].
+[^a]: [[2 Nephi 9.13|2 Ne. 9:13]]; [[Alma 40.23|Alma 40:23]].  
+[^b]: [[Perfection, Perfect, Perfectly|TG Perfection]].  
+[^c]: [[D&C 130.18|D&C 130:18]].  
+[^d]: [[2 Nephi 9.14|2 Ne. 9:14]]; [[Mosiah 3.25|Mosiah 3:25]]; [[Alma 5.18|Alma 5:18]].  
+[^e]: [[Matthew 12.36|Matt. 12:36 (36–37)]][[Matthew 12.37|]]. [[Guilt, Guilty|TG Guilt]].  

@@ -5,4 +5,4 @@
 [John 6:64](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.64?lang=eng#p64)
 
 
-[^a]: [[John 13.11|John 13:11.]]
+[^a]: [[John 13.11|John 13:11]].  

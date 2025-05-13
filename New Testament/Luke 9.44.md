@@ -5,4 +5,4 @@
 [Luke 9:44](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.44?lang=eng#p44)
 
 
-[^a]: [[1 Nephi 11.32|1 Ne. 11:32]]; [[3 Nephi 27.14|3 Ne. 27:14.]]
+[^a]: [[1 Nephi 11.32|1 Ne. 11:32]]; [[3 Nephi 27.14|3 Ne. 27:14]].  

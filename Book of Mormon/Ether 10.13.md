@@ -5,4 +5,4 @@
 [Ether 10:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p13#p13)
 
 
-[^a]: [[1 Nephi 17.35|1 Ne. 17:35 (34-35).]]
+[^a]: [[1 Nephi 17.34|1 Ne. 17:35 (34–35)]][[1 Nephi 17.35|]].  

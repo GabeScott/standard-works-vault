@@ -5,4 +5,4 @@
 [Alma 39:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Family, Children, Responsibilities toward]].
+[^a]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  

@@ -5,4 +5,4 @@
 [Judges 11:20](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.20?lang=eng#p20)
 
 
-[^a]: HEB border(s).
+[^a]: HEB border(s).  

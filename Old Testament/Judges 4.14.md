@@ -5,4 +5,4 @@
 [Judges 4:14](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.14?lang=eng#p14)
 
 
-[^a]: [[Deuteronomy 9.3|Deut. 9:3]]; [[Ether 1.42|Ether 1:42 (42-43)]]; [[D&C 84.88|D&C 84:88 (87-88).]]
+[^a]: [[Deuteronomy 9.3|Deut. 9:3]]; [[Ether 1.42|Ether 1:42 (42–43)]][[Ether 1.43|]]; [[D&C 84.87|D&C 84:88 (87–88)]][[D&C 84.88|]].  

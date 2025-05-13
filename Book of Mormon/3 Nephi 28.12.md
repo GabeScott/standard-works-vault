@@ -5,4 +5,4 @@
 [3 Nephi 28:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p12#p12)
 
 
-[^a]: 4 Ne. 1:14 (14, 37); [[Words of Mormon 1.13|Morm. 1:13.]]
+[^a]: [[4 Nephi 1.14|4 Ne. 1:14 (14, 37)]][[4 Nephi 1.37|]]; [[Mormon 1.13|Morm. 1:13]].  

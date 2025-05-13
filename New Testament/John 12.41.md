@@ -5,5 +5,5 @@
 [John 12:41](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.41?lang=eng#p41)
 
 
-[^a]: TG [[Jesus Christ, Appearances, Antemortal]].
-[^b]: TG [[Telestial Glory]].
+[^a]: [[Jesus Christ, Appearances, Antemortal|TG Jesus Christ, Appearances, Antemortal]].  
+[^b]: [[Glory|TG Glory]].  

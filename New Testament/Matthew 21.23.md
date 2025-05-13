@@ -5,4 +5,4 @@
 [Matthew 21:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.23?lang=eng#p23)
 
 
-[^a]: TG [[Authority]].
+[^a]: [[Authority|TG Authority]].  

@@ -5,5 +5,5 @@
 [Genesis 13:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/13.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 19.24|Gen. 19:24 (24-25)]]; [[Deuteronomy 32.32|Deut. 32:32]]; [[Isaiah 3.9|Isa. 3:9 (9-11).]]
-[^b]: [[Genesis 14.2|Gen. 14:2 (2, 8)]]; [[Genesis 19.22|19:22 (20-25).]]
+[^a]: [[Genesis 19.24|Gen. 19:24 (24–25)]][[Genesis 19.25|]]; [[Deuteronomy 32.32|Deut. 32:32]]; [[Isaiah 3.9|Isa. 3:9 (9–11)]][[Isaiah 3.10|]][[Isaiah 3.11|]].  
+[^b]: [[Genesis 14.2|Gen. 14:2 (2, 8)]][[Genesis 14.8|]]; [[Genesis 19.20|19:22 (20–25)]][[Genesis 19.21|]][[Genesis 19.22|]][[Genesis 19.23|]][[Genesis 19.24|]][[Genesis 19.25|]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 33:25](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.25?lang=eng#p25)
 
 
-[^a]: OR bars (locks).
+[^a]: OR bars (locks).  

@@ -5,5 +5,5 @@
 [Mark 12:38](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.38?lang=eng#p38)
 
 
-[^a]: TG [[Pride]].
-[^b]: [[John 12.43|John 12:43 (42-43).]]
+[^a]: [[Pride|TG Pride]].  
+[^b]: [[John 12.42|John 12:43 (42–43)]][[John 12.43|]].  

@@ -5,4 +5,4 @@
 [Daniel 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.13?lang=eng#p13)
 
 
-[^a]: Dan. 1:6.
+[^a]: [[Daniel 1.6|Dan. 1:6]].  

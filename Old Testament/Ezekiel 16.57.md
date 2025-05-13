@@ -5,4 +5,4 @@
 [Ezekiel 16:57](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.57?lang=eng#p57)
 
 
-[^a]: HEB Aram.
+[^a]: HEB Aram.  

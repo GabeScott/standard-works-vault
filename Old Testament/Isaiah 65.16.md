@@ -5,5 +5,5 @@
 [Isaiah 65:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.16?lang=eng#p16)
 
 
-[^a]: IE invokes blessings in his own behalf.
-[^b]: IE make covenants through the power of God.
+[^a]: IE invokes blessings in his own behalf.  
+[^b]: IE make covenants through the power of God.  

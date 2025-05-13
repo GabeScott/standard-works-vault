@@ -5,4 +5,4 @@
 [Genesis 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 11.2|Gen. 11:2.]]
+[^a]: [[Genesis 11.2|Gen. 11:2]].  

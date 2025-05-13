@@ -5,5 +5,5 @@
 [Isaiah 38:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.21?lang=eng#p21)
 
 
-[^a]: HEB smear it on.
-[^b]: [[Job 2.7|Job 2:7.]]
+[^a]: HEB smear it on.  
+[^b]: [[Job 2.7|Job 2:7]].  

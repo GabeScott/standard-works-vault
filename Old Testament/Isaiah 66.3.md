@@ -5,4 +5,4 @@
 [Isaiah 66:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.3?lang=eng#p3)
 
 
-[^a]: IE The same person both sacrifices and yet sins; James 3:9-12.
+[^a]: IE The same person both sacrifices and yet sins; [[James 3.9|James 3:9–12]][[James 3.10|]][[James 3.11|]][[James 3.12|]].  

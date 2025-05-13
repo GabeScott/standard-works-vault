@@ -5,4 +5,4 @@
 [Alma 4:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p11#p11)
 
 
-[^a]: [[2 Samuel 12.14|2 Sam. 12:14]]; [[Alma 39.11|Alma 39:11]]. TG [[Example, Ensample]].
+[^a]: [[2 Samuel 12.14|2 Sam. 12:14]]; [[Alma 39.11|Alma 39:11]]. [[Example, Ensample|TG Example]].  

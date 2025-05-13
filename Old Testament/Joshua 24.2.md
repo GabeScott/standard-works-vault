@@ -5,4 +5,4 @@
 [Joshua 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.2?lang=eng#p2)
 
 
-[^a]: [[Abraham 2.5|Abr. 2:5 (1-5)]]. TG [[Idolatry, Idol]].
+[^a]: [[Abraham 2.1|Abr. 2:5 (1–5)]][[Abraham 2.2|]][[Abraham 2.3|]][[Abraham 2.4|]][[Abraham 2.5|]]. [[Idolatry, Idol|TG Idolatry]].  

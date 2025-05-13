@@ -5,4 +5,4 @@
 [Mark 4:28](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.28?lang=eng#p28)
 
 
-[^a]: TG [[Nature, Earth]].
+[^a]: [[Nature, Earth|TG Nature, Earth]].  

@@ -5,4 +5,4 @@
 [Isaiah 38:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.5?lang=eng#p5)
 
 
-[^a]: [[D&C 42.48|D&C 42:48]]. TG [[Benevolence]].
+[^a]: [[D&C 42.48|D&C 42:48]]. [[Benevolence|TG Benevolence]].  

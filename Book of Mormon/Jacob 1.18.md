@@ -5,5 +5,5 @@
 [Jacob 1:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/1?lang=eng&id=p18#p18)
 
 
-[^a]: [[2 Nephi 5.26|2 Ne. 5:26]]. TG [[Delegation of Responsibility]]; [[Setting Apart]].
-[^b]: TG [[Teacher]].
+[^a]: [[2 Nephi 5.26|2 Ne. 5:26]]. [[Delegation of Responsibility|TG Delegation of Responsibility]]; [[Setting Apart|Setting Apart]].  
+[^b]: [[Teacher|TG Teacher]].  

@@ -5,4 +5,4 @@
 [Joshua 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.9?lang=eng#p9)
 
 
-[^a]: [[2 Chronicles 31.15|2 Chr. 31:15.]]
+[^a]: [[2 Chronicles 31.15|2 Chr. 31:15]].  

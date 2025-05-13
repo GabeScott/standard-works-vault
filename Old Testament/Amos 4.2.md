@@ -5,4 +5,4 @@
 [Amos 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/4.2?lang=eng#p2)
 
 
-[^a]: [[Psalms 89.35|Ps. 89:35.]]
+[^a]: [[Psalms 89.35|Ps. 89:35]].  

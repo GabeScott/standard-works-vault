@@ -5,4 +5,4 @@
 [Judges 11:18](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.18?lang=eng#p18)
 
 
-[^a]: HEB went around. Josh. 6:3.
+[^a]: HEB went around. [[Joshua 6.3|Josh. 6:3]].  

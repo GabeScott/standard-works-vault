@@ -5,5 +5,5 @@
 [Psalms 89:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.14?lang=eng#p14)
 
 
-[^a]: TG [[God, Justice of]]; [[God, Justice of]].
-[^b]: TG [[Judgment]].
+[^a]: [[God, Justice of|TG God, Justice of]]; [[Justice|Justice]].  
+[^b]: [[Judgment|TG Judgment]].  

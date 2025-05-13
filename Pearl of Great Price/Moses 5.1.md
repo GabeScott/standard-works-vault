@@ -5,6 +5,6 @@
 [Moses 5:1](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.1?lang=eng#p1)
 
 
-[^a]: [[Moses 2.26|Moses 2:26.]]
-[^b]: [[Moses 4.25|Moses 4:25.]]
-[^c]: TG [[Labor]].
+[^a]: [[Moses 2.26|Moses 2:26]].  
+[^b]: [[Moses 4.25|Moses 4:25]].  
+[^c]: [[Labor|TG Labor]].  

@@ -5,5 +5,5 @@
 [Numbers 32:33](https://www.churchofjesuschrist.org/study/scriptures/ot/num/32.33?lang=eng#p33)
 
 
-[^a]: [[Joshua 12.6|Josh. 12:6]]; [[Joshua 22.4|22:4.]]
-[^b]: HEB with their borders.
+[^a]: [[Joshua 12.6|Josh. 12:6]]; [[Joshua 22.4|22:4]].  
+[^b]: HEB with their borders.  

@@ -5,5 +5,5 @@
 [1 Corinthians 15:55](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.55?lang=eng#p55)
 
 
-[^a]: [[Mosiah 16.8|Mosiah 16:8 (7-8).]]
-[^b]: GR Hades, hell.
+[^a]: [[Mosiah 16.7|Mosiah 16:8 (7–8)]][[Mosiah 16.8|]].  
+[^b]: GR Hades, hell.  

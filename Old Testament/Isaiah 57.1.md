@@ -5,4 +5,4 @@
 [Isaiah 57:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.1?lang=eng#p1)
 
 
-[^a]: [[D&C 59.2|D&C 59:2 (1-2).]]
+[^a]: [[D&C 59.1|D&C 59:2 (1–2)]][[D&C 59.2|]].  

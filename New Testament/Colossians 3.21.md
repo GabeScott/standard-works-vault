@@ -5,5 +5,5 @@
 [Colossians 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.21?lang=eng#p21)
 
 
-[^a]: TG [[Family, Children, Responsibilities toward]].
-[^b]: TG [[Provoking, Provoke]].
+[^a]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  
+[^b]: [[Provoking, Provoke|TG Provoking]].  

@@ -5,4 +5,4 @@
 [John 7:35](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.35?lang=eng#p35)
 
 
-[^a]: GR Greeks.
+[^a]: GR Greeks.  

@@ -5,4 +5,4 @@
 [2 Samuel 17:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/17.17?lang=eng#p17)
 
 
-[^a]: [[1 Kings 1.42|1 Kgs. 1:42.]]
+[^a]: [[1 Kings 1.42|1 Kgs. 1:42]].  

@@ -5,4 +5,4 @@
 [Zechariah 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/12.3?lang=eng#p3)
 
 
-[^a]: [[Micah 4.11|Micah 4:11]]; [[2 Nephi 23.4|2 Ne. 23:4.]]
+[^a]: [[Micah 4.11|Micah 4:11]]; [[2 Nephi 23.4|2 Ne. 23:4]].  

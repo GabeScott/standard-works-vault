@@ -5,4 +5,4 @@
 [Mark 7:8](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.8?lang=eng#p8)
 
 
-[^a]: TG [[Traditions of Men]].
+[^a]: [[Traditions of Men|TG Traditions of Men]].  

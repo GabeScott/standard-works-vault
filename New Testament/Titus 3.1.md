@@ -5,5 +5,5 @@
 [Titus 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/3.1?lang=eng#p1)
 
 
-[^a]: TG [[Citizenship]].
-[^b]: TG [[Governments]].
+[^a]: [[Citizenship|TG Citizenship]].  
+[^b]: [[Governments|TG Governments]].  

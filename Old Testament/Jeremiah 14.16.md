@@ -5,4 +5,4 @@
 [Jeremiah 14:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.16?lang=eng#p16)
 
 
-[^a]: [[Psalms 79.3|Ps. 79:3.]]
+[^a]: [[Psalms 79.3|Ps. 79:3]].  

@@ -5,9 +5,9 @@
 [Revelation 20:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/20.12?lang=eng#p12)
 
 
-[^a]: [[Alma 11.44|Alma 11:44 (43-44)]]. TG [[Death]].
-[^b]: TG [[Jesus Christ, Resurrection]].
-[^c]: Dan. 7:10.
-[^d]: TG [[Book of Life]].
-[^e]: [[D&C 137.9|D&C 137:9]]. TG [[Accountability]]; [[Judgment, the Last]].
-[^f]: TG [[Good Works]].
+[^a]: [[Alma 11.43|Alma 11:44 (43–44)]][[Alma 11.44|]]. [[Death|TG Death]].  
+[^b]: [[Resurrection|TG Resurrection]].  
+[^c]: [[Daniel 7.10|Dan. 7:10]].  
+[^d]: [[Book of Life|TG Book of Life]].  
+[^e]: [[D&C 137.9|D&C 137:9]]. [[Accountability|TG Accountability]]; [[Judgment, the Last|Judgment, the Last]].  
+[^f]: [[Good Works|TG Good Works]].  

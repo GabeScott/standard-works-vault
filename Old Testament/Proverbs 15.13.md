@@ -5,7 +5,7 @@
 [Proverbs 15:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.13?lang=eng#p13)
 
 
-[^a]: TG [[Happiness, Happy]].
-[^b]: [[Proverbs 17.22|Prov. 17:22.]]
-[^c]: TG [[Cheerful, Cheerfulness]].
-[^d]: TG [[Sorrow]].
+[^a]: [[Happiness, Happy|TG Happiness]].  
+[^b]: [[Proverbs 17.22|Prov. 17:22]].  
+[^c]: [[Cheerful, Cheerfulness|TG Cheerful]].  
+[^d]: [[Sorrow|TG Sorrow]].  

@@ -5,4 +5,4 @@
 [Psalms 32:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/32.6?lang=eng#p6)
 
 
-[^a]: TG [[Mysteries of Godliness]].
+[^a]: [[Godliness, Godly|TG Godliness]].  

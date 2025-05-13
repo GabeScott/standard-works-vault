@@ -5,5 +5,5 @@
 [Isaiah 40:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.11?lang=eng#p11)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]]; [[Sheep]].
-[^b]: TG [[Jesus Christ, Good Shepherd]]; [[Jesus Christ, Millennial Reign]]; [[Shepherd]].
+[^a]: [[Church|TG Church]]; [[Sheep|Sheep]].  
+[^b]: [[Jesus Christ, Good Shepherd|TG Jesus Christ, Good Shepherd]]; [[Jesus Christ, Millennial Reign|Jesus Christ, Millennial Reign]]; [[Shepherd|Shepherd]].  

@@ -5,12 +5,12 @@
 [Articles of Faith 1:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/a-of-f/1.13?lang=eng#p13)
 
 
-[^a]: Philip. 4:8.
-[^b]: TG [[Honesty]]; [[Integrity]].
-[^c]: TG [[Chastity, Chaste]].
-[^d]: TG [[Benevolence]].
-[^e]: TG [[Good Works]].
-[^f]: TG [[Hope]].
-[^g]: TG [[Perseverance]]; [[Steadfastness, Steadfast]].
-[^h]: TG [[Modesty]]; [[Virtue, Virtuous]].
-[^i]: TG [[Beauty]].
+[^a]: [[Philippians 4.8|Philip. 4:8]].  
+[^b]: [[Honesty|TG Honesty]]; [[Integrity|Integrity]].  
+[^c]: [[Chastity, Chaste|TG Chastity]].  
+[^d]: [[Benevolence|TG Benevolence]].  
+[^e]: [[Good Works|TG Good Works]].  
+[^f]: [[Hope|TG Hope]].  
+[^g]: [[Perseverance|TG Perseverance]]; [[Steadfastness, Steadfast|Steadfastness]].  
+[^h]: [[Modesty|TG Modesty]]; [[Virtue, Virtuous|Virtue]].  
+[^i]: [[Beauty|TG Beauty]].  

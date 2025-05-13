@@ -5,4 +5,4 @@
 [Alma 10:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p11#p11)
 
 
-[^a]: [[1 Samuel 2.20|1 Sam. 2:20]]; [[Alma 8.22|Alma 8:22.]]
+[^a]: [[1 Samuel 2.20|1 Sam. 2:20]]; [[Alma 8.22|Alma 8:22]].  

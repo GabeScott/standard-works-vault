@@ -5,5 +5,5 @@
 [Words of Mormon 1:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/w-of-m/1?lang=eng&id=p18#p18)
 
 
-[^a]: [[Omni 1.25|Omni 1:25]]; [[Mosiah 29.13|Mosiah 29:13.]]
-[^b]: [[1 Nephi 15.25|1 Ne. 15:25.]]
+[^a]: [[Omni 1.25|Omni 1:25]]; [[Mosiah 29.13|Mosiah 29:13]].  
+[^b]: [[1 Nephi 15.25|1 Ne. 15:25]].  

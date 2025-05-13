@@ -5,5 +5,5 @@
 [Proverbs 6:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.24?lang=eng#p24)
 
 
-[^a]: TG [[Adulterer, Adultery]].
-[^b]: TG [[Woman, Women]].
+[^a]: [[Adulterer, Adultery|TG Adulterer]].  
+[^b]: [[Woman, Women|TG Woman]].  

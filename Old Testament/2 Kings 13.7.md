@@ -5,4 +5,4 @@
 [2 Kings 13:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/13.7?lang=eng#p7)
 
 
-[^a]: [[Amos 1.3|Amos 1:3.]]
+[^a]: [[Amos 1.3|Amos 1:3]].  

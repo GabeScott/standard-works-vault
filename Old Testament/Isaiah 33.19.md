@@ -5,5 +5,5 @@
 [Isaiah 33:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.19?lang=eng#p19)
 
 
-[^a]: IE any more foreign invaders.
-[^b]: [[Deuteronomy 28.49|Deut. 28:49]]; [[Jeremiah 5.15|Jer. 5:15.]]
+[^a]: IE any more foreign invaders.  
+[^b]: [[Deuteronomy 28.49|Deut. 28:49]]; [[Jeremiah 5.15|Jer. 5:15]].  

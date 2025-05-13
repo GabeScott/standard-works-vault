@@ -5,4 +5,4 @@
 [John 13:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.17?lang=eng#p17)
 
 
-[^a]: TG [[Happiness, Happy]].
+[^a]: [[Happiness, Happy|TG Happiness]].  

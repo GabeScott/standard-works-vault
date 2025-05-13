@@ -5,6 +5,6 @@
 [Isaiah 40:28](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.28?lang=eng#p28)
 
 
-[^a]: [[Genesis 21.33|Gen. 21:33.]]
-[^b]: TG [[Jesus Christ, Creator]].
-[^c]: OR fathoming. Rom. 11:33.
+[^a]: [[Genesis 21.33|Gen. 21:33]].  
+[^b]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  
+[^c]: OR fathoming. [[Romans 11.33|Rom. 11:33]].  

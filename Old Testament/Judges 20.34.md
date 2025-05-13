@@ -5,4 +5,4 @@
 [Judges 20:34](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/20.34?lang=eng#p34)
 
 
-[^a]: OR heavy, hard.
+[^a]: OR heavy, hard.  

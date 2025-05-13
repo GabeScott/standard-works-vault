@@ -5,5 +5,5 @@
 [Deuteronomy 4:42](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.42?lang=eng#p42)
 
 
-[^a]: HEB unintentionally.
-[^b]: TG [[Refuge]].
+[^a]: HEB unintentionally.  
+[^b]: [[Refuge|TG Refuge]].  

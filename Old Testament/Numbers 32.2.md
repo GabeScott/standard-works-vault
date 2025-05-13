@@ -5,5 +5,5 @@
 [Numbers 32:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/32.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 33.21|Deut. 33:21.]]
-[^b]: [[Deuteronomy 3.12|Deut. 3:12.]]
+[^a]: [[Deuteronomy 33.21|Deut. 33:21]].  
+[^b]: [[Deuteronomy 3.12|Deut. 3:12]].  

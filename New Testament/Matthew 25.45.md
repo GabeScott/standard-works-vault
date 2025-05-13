@@ -5,4 +5,4 @@
 [Matthew 25:45](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.45?lang=eng#p45)
 
 
-[^a]: [[Proverbs 14.31|Prov. 14:31.]]
+[^a]: [[Proverbs 14.31|Prov. 14:31]].  

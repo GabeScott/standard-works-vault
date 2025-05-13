@@ -5,5 +5,5 @@
 [Jeremiah 50:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.3?lang=eng#p3)
 
 
-[^a]: [[Jeremiah 51.48|Jer. 51:48.]]
-[^b]: [[Isaiah 13.20|Isa. 13:20.]]
+[^a]: [[Jeremiah 51.48|Jer. 51:48]].  
+[^b]: [[Isaiah 13.20|Isa. 13:20]].  

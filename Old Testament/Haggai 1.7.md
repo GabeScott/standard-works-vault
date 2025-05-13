@@ -5,5 +5,5 @@
 [Haggai 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/1.7?lang=eng#p7)
 
 
-[^a]: TG [[Meditation, Meditate]].
-[^b]: 2 Pet. 2:15.
+[^a]: [[Meditation, Meditate|TG Meditation]].  
+[^b]: [[2 Peter 2.15|2 Pet. 2:15]].  

@@ -5,5 +5,5 @@
 [Genesis 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.13?lang=eng#p13)
 
 
-[^a]: HEB encircles.
-[^b]: HEB Cush. Moses 3:13.
+[^a]: HEB encircles.  
+[^b]: HEB Cush. [[Moses 3.13|Moses 3:13]].  

@@ -5,4 +5,4 @@
 [3 Nephi 13:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Nature, Earth]].
+[^a]: [[Nature, Earth|TG Nature, Earth]].  

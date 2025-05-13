@@ -5,5 +5,5 @@
 [2 Corinthians 12:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.7?lang=eng#p7)
 
 
-[^a]: [[D&C 3.4|D&C 3:4.]]
-[^b]: TG [[Pain]].
+[^a]: [[D&C 3.4|D&C 3:4]].  
+[^b]: [[Pain|TG Pain]].  

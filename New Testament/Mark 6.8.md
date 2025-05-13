@@ -5,4 +5,4 @@
 [Mark 6:8](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.8?lang=eng#p8)
 
 
-[^a]: [[Matthew 10.10|Matt. 10:10 (9-11).]]
+[^a]: [[Matthew 10.9|Matt. 10:10 (9–11)]][[Matthew 10.10|]][[Matthew 10.11|]].  

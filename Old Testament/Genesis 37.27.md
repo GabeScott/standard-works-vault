@@ -5,4 +5,4 @@
 [Genesis 37:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.27?lang=eng#p27)
 
 
-[^a]: HEB hearkened.
+[^a]: HEB hearkened.  

@@ -5,4 +5,4 @@
 [Ezekiel 36:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.6?lang=eng#p6)
 
 
-[^a]: [[Ezekiel 32.24|Ezek. 32:24]]; [[Ezekiel 34.29|34:29.]]
+[^a]: [[Ezekiel 32.24|Ezek. 32:24]]; [[Ezekiel 34.29|34:29]].  

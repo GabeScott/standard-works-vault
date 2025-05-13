@@ -5,4 +5,4 @@
 [Luke 5:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.18?lang=eng#p18)
 
 
-[^a]: GR paralyzed.
+[^a]: GR paralyzed.  

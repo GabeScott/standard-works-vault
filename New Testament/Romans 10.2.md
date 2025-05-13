@@ -5,4 +5,4 @@
 [Romans 10:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.2?lang=eng#p2)
 
 
-[^a]: TG [[Zeal, Zealous]].
+[^a]: [[Zeal, Zealous|TG Zeal]].  

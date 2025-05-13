@@ -5,4 +5,4 @@
 [Joshua 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/2.1?lang=eng#p1)
 
 
-[^a]: [[Hebrews 11.31|Heb. 11:31]]; [[James 2.25|James 2:25.]]
+[^a]: [[Hebrews 11.31|Heb. 11:31]]; [[James 2.25|James 2:25]].  

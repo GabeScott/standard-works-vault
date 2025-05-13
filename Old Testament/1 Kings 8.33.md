@@ -5,5 +5,5 @@
 [1 Kings 8:33](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.33?lang=eng#p33)
 
 
-[^a]: [[Leviticus 26.17|Lev. 26:17.]]
-[^b]: [[D&C 103.8|D&C 103:8.]]
+[^a]: [[Leviticus 26.17|Lev. 26:17]].  
+[^b]: [[D&C 103.8|D&C 103:8]].  

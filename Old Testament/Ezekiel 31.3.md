@@ -5,5 +5,5 @@
 [Ezekiel 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/31.3?lang=eng#p3)
 
 
-[^a]: [[Isaiah 10.5|Isa. 10:5.]]
-[^b]: [[Isaiah 2.13|Isa. 2:13.]]
+[^a]: [[Isaiah 10.5|Isa. 10:5]].  
+[^b]: [[Isaiah 2.13|Isa. 2:13]].  

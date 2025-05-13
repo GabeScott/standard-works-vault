@@ -5,4 +5,4 @@
 [Nahum 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/2.10?lang=eng#p10)
 
 
-[^a]: Hebrew idiom meaning “gloom.” Jer. 8:21; [[Joel 2.6|Joel 2:6.]]
+[^a]: Hebrew idiom meaning “gloom.” [[Jeremiah 8.21|Jer. 8:21]]; [[Joel 2.6|Joel 2:6]].  

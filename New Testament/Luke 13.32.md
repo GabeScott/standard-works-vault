@@ -5,4 +5,4 @@
 [Luke 13:32](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.32?lang=eng#p32)
 
 
-[^a]: TG [[Perfection, Perfect, Perfectly]].
+[^a]: [[Perfection, Perfect, Perfectly|TG Perfection]].  

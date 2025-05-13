@@ -5,6 +5,6 @@
 [Hebrews 6:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.1?lang=eng#p1)
 
 
-[^a]: GR having left behind the beginning of the doctrine. JST Heb. 6:1 … not leaving …
-[^b]: TG [[Perfection, Perfect, Perfectly]].
-[^c]: TG [[Repent, Repentance]].
+[^a]: GR having left behind the beginning of the doctrine. [[JST Hebrews 6.1|JST Heb. 6:1]] … not leaving …  
+[^b]: [[Perfection, Perfect, Perfectly|TG Perfection]].  
+[^c]: [[Repent, Repentance|TG Repent]].  

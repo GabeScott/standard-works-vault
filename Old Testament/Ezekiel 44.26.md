@@ -5,4 +5,4 @@
 [Ezekiel 44:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.26?lang=eng#p26)
 
 
-[^a]: [[Numbers 19.11|Num. 19:11 (11-12).]]
+[^a]: [[Numbers 19.11|Num. 19:11 (11–12)]][[Numbers 19.12|]].  

@@ -5,5 +5,5 @@
 [Romans 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.10?lang=eng#p10)
 
 
-[^a]: TG [[Jesus Christ, Redeemer]]; [[Reconciliation, Reconcile]].
-[^b]: TG [[Jesus Christ, Death of]].
+[^a]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]]; [[Reconciliation, Reconcile|Reconciliation]].  
+[^b]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

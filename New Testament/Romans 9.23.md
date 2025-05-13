@@ -5,5 +5,5 @@
 [Romans 9:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.23?lang=eng#p23)
 
 
-[^a]: TG [[Treasure]].
-[^b]: TG [[Celestial Glory]]; [[God, Glory of]].
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[Celestial Glory|TG Celestial Glory]]; [[God, Glory of|God, Glory of]].  

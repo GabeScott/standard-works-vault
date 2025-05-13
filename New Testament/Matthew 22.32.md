@@ -5,4 +5,4 @@
 [Matthew 22:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.32?lang=eng#p32)
 
 
-[^a]: [[Genesis 32.9|Gen. 32:9]]; [[1 Nephi 19.10|1 Ne. 19:10]]; [[D&C 136.21|D&C 136:21.]]
+[^a]: [[Genesis 32.9|Gen. 32:9]]; [[1 Nephi 19.10|1 Ne. 19:10]]; [[D&C 136.21|D&C 136:21]].  

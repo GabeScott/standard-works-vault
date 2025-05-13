@@ -5,6 +5,6 @@
 [1 Peter 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.18?lang=eng#p18)
 
 
-[^a]: [[1 Corinthians 6.20|1 Cor. 6:20]]. TG [[Jesus Christ, Redeemer]].
-[^b]: GR erroneous, fruitless conduct.
-[^c]: TG [[Traditions of Men]].
+[^a]: [[1 Corinthians 6.20|1 Cor. 6:20]]. [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]].  
+[^b]: GR erroneous, fruitless conduct.  
+[^c]: [[Traditions of Men|TG Traditions of Men]].  

@@ -5,4 +5,4 @@
 [John 12:33](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.33?lang=eng#p33)
 
 
-[^a]: TG [[Jesus Christ, Death of]].
+[^a]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

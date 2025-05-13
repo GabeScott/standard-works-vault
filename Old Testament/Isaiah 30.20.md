@@ -5,6 +5,6 @@
 [Isaiah 30:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.20?lang=eng#p20)
 
 
-[^a]: TG [[Adversity]].
-[^b]: HEB thy teacher; i.e., the Lord.
-[^c]: TG [[Teacher]].
+[^a]: [[Adversity|TG Adversity]].  
+[^b]: HEB thy teacher; i.e., the Lord.  
+[^c]: [[Teacher|TG Teacher]].  

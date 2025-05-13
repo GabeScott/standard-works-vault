@@ -5,5 +5,5 @@
 [Judges 16:5](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16.5?lang=eng#p5)
 
 
-[^a]: [[Judges 14.15|Judg. 14:15.]]
-[^b]: [[Judges 16.18|Judg. 16:18.]]
+[^a]: [[Judges 14.15|Judg. 14:15]].  
+[^b]: [[Judges 16.18|Judg. 16:18]].  

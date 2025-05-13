@@ -5,4 +5,4 @@
 [3 Nephi 7:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p14#p14)
 
 
-[^a]: [[3 Nephi 6.23|3 Ne. 6:23 (23-25).]]
+[^a]: [[3 Nephi 6.23|3 Ne. 6:23 (23–25)]][[3 Nephi 6.24|]][[3 Nephi 6.25|]].  

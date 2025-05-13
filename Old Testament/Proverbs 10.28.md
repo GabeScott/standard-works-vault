@@ -5,4 +5,4 @@
 [Proverbs 10:28](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.28?lang=eng#p28)
 
 
-[^a]: TG [[Hope]].
+[^a]: [[Hope|TG Hope]].  

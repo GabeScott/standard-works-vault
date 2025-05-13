@@ -5,4 +5,4 @@
 [2 Kings 11:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/11.6?lang=eng#p6)
 
 
-[^a]: [[2 Chronicles 23.5|2 Chr. 23:5.]]
+[^a]: [[2 Chronicles 23.5|2 Chr. 23:5]].  

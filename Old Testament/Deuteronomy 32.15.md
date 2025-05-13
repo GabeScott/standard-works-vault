@@ -5,7 +5,7 @@
 [Deuteronomy 32:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.15?lang=eng#p15)
 
 
-[^a]: [[Deuteronomy 33.26|Deut. 33:26.]]
-[^b]: [[Jeremiah 5.7|Jer. 5:7 (7, 28).]]
-[^c]: TG [[Ingratitude]].
-[^d]: TG [[Cornerstone]]; [[Rock]].
+[^a]: [[Deuteronomy 33.26|Deut. 33:26]].  
+[^b]: [[Jeremiah 5.7|Jer. 5:7 (7, 28)]][[Jeremiah 5.28|]].  
+[^c]: [[Ingratitude|TG Ingratitude]].  
+[^d]: [[Cornerstone|TG Cornerstone]]; [[Rock|Rock]].  

@@ -5,5 +5,5 @@
 [1 Corinthians 12:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.9?lang=eng#p9)
 
 
-[^a]: TG [[Faith]].
-[^b]: TG [[Health]].
+[^a]: [[Faith|TG Faith]].  
+[^b]: [[Heal, Healing|TG Heal]].  

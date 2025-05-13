@@ -5,4 +5,4 @@
 [Jeremiah 41:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/41.16?lang=eng#p16)
 
 
-[^a]: OR courtiers or officials.
+[^a]: OR courtiers or officials.  

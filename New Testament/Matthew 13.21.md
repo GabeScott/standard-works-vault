@@ -5,6 +5,6 @@
 [Matthew 13:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.21?lang=eng#p21)
 
 
-[^a]: TG [[Testament]]; [[Tribulation]].
-[^b]: [[D&C 40.2|D&C 40:2 (1-3)]]. TG [[Persecution, Persecute]].
-[^c]: GR he stumbles, falls away. TG [[Apostasy of Individuals]]; [[Offense, Offend, Offender]].
+[^a]: [[Test, Try, Prove|TG Test]]; [[Tribulation|Tribulation]].  
+[^b]: [[D&C 40.1|D&C 40:2 (1–3)]][[D&C 40.2|]][[D&C 40.3|]]. [[Persecution, Persecute|TG Persecution]].  
+[^c]: GR he stumbles, falls away. [[Apostasy of Individuals|TG Apostasy of Individuals]]; [[Offense, Offend, Offender|Offense]].  

@@ -5,4 +5,4 @@
 [Luke 5:27](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.27?lang=eng#p27)
 
 
-[^a]: [[Matthew 9.9|Matt. 9:9 (9-13).]]
+[^a]: [[Matthew 9.9|Matt. 9:9 (9–13)]][[Matthew 9.10|]][[Matthew 9.11|]][[Matthew 9.12|]][[Matthew 9.13|]].  

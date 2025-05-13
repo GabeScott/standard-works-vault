@@ -5,4 +5,4 @@
 [2 Timothy 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.18?lang=eng#p18)
 
 
-[^a]: GR save, rescue.
+[^a]: GR save, rescue.  

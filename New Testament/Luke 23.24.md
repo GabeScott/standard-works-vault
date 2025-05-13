@@ -5,4 +5,4 @@
 [Luke 23:24](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.24?lang=eng#p24)
 
 
-[^a]: GR demanded.
+[^a]: GR demanded.  

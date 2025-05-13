@@ -5,4 +5,4 @@
 [Exodus 10:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.19?lang=eng#p19)
 
 
-[^a]: OR Reed Sea.
+[^a]: OR Reed Sea.  

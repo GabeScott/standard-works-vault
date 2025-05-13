@@ -5,4 +5,4 @@
 [Psalms 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.3?lang=eng#p3)
 
 
-[^a]: TG [[Boast, Boasting]].
+[^a]: [[Boast, Boasting|TG Boast]].  

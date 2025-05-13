@@ -5,5 +5,5 @@
 [Deuteronomy 26:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.16?lang=eng#p16)
 
 
-[^a]: HEB ordinances (also v. 17).
-[^b]: TG [[Commitment]].
+[^a]: HEB ordinances (also [[Deuteronomy 26.17|v. 17]]).  
+[^b]: [[Commitment|TG Commitment]].  

@@ -5,4 +5,4 @@
 [Proverbs 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.5?lang=eng#p5)
 
 
-[^a]: OR perverse.
+[^a]: OR perverse.  

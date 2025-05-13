@@ -5,4 +5,4 @@
 [2 Chronicles 15:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/15.7?lang=eng#p7)
 
 
-[^a]: TG [[Good Works]].
+[^a]: [[Good Works|TG Good Works]].  

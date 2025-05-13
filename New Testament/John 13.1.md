@@ -5,5 +5,5 @@
 [John 13:1](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 16.1|Deut. 16:1.]]
-[^b]: TG [[God, Love of]].
+[^a]: [[Deuteronomy 16.1|Deut. 16:1]].  
+[^b]: [[God, Love of|TG God, Love of]].  

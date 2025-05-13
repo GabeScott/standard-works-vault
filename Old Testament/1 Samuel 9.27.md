@@ -5,4 +5,4 @@
 [1 Samuel 9:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.27?lang=eng#p27)
 
 
-[^a]: [[D&C 5.34|D&C 5:34.]]
+[^a]: [[D&C 5.34|D&C 5:34]].  

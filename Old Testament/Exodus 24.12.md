@@ -5,6 +5,6 @@
 [Exodus 24:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 31.18|Ex. 31:18]]; [[Exodus 32.15|32:15 (15-19)]]; [[Exodus 34.1|34:1]]; [[2 Corinthians 3.3|2 Cor. 3:3.]]
-[^b]: OR instruction.
-[^c]: TG [[Scriptures, Writing of]].
+[^a]: [[Exodus 31.18|Ex. 31:18]]; [[Exodus 32.15|32:15 (15–19)]][[Exodus 32.16|]][[Exodus 32.17|]][[Exodus 32.18|]][[Exodus 32.19|]]; [[Exodus 34.1|34:1]]; [[2 Corinthians 3.3|2 Cor. 3:3]].  
+[^b]: OR instruction.  
+[^c]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  

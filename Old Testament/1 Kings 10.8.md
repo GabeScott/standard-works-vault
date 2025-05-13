@@ -5,4 +5,4 @@
 [1 Kings 10:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.8?lang=eng#p8)
 
 
-[^a]: Dan. 1:5.
+[^a]: [[Daniel 1.5|Dan. 1:5]].  

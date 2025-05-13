@@ -5,4 +5,4 @@
 [Exodus 26:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/26.14?lang=eng#p14)
 
 
-[^a]: [[Exodus 25.5|Ex. 25:5.]]
+[^a]: [[Exodus 25.5|Ex. 25:5]].  

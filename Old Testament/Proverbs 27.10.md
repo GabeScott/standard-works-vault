@@ -5,5 +5,5 @@
 [Proverbs 27:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.10?lang=eng#p10)
 
 
-[^a]: [[2 Samuel 9.1|2 Sam. 9:1.]]
-[^b]: [[Proverbs 18.24|Prov. 18:24]]. TG [[Neighbor]].
+[^a]: [[2 Samuel 9.1|2 Sam. 9:1]].  
+[^b]: [[Proverbs 18.24|Prov. 18:24]]. [[Neighbor|TG Neighbor]].  

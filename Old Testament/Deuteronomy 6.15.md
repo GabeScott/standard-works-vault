@@ -5,5 +5,5 @@
 [Deuteronomy 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 20.5|Ex. 20:5]]; [[Mosiah 11.22|Mosiah 11:22.]]
-[^b]: TG [[God, Indignation of]].
+[^a]: [[Exodus 20.5|Ex. 20:5]]; [[Mosiah 11.22|Mosiah 11:22]].  
+[^b]: [[God, Indignation of|TG God, Indignation of]].  

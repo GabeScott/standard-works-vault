@@ -5,4 +5,4 @@
 [Alma 31:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p24#p24)
 
 
-[^a]: [[Genesis 6.6|Gen. 6:6]]; [[1 Nephi 2.18|1 Ne. 2:18.]]
+[^a]: [[Genesis 6.6|Gen. 6:6]]; [[1 Nephi 2.18|1 Ne. 2:18]].  

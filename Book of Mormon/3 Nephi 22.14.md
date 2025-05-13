@@ -5,4 +5,4 @@
 [3 Nephi 22:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/22?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Righteousness|TG Righteousness]].  

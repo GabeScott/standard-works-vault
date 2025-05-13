@@ -5,4 +5,4 @@
 [Leviticus 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/12.6?lang=eng#p6)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

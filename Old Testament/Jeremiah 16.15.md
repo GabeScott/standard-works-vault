@@ -5,8 +5,8 @@
 [Jeremiah 16:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.15?lang=eng#p15)
 
 
-[^a]: TG [[Israel, Gathering of]].
-[^b]: TG [[Israel, Ten Lost Tribes of]].
-[^c]: [[Jeremiah 3.18|Jer. 3:18.]]
-[^d]: [[Jeremiah 24.6|Jer. 24:6]]; [[Jeremiah 32.37|32:37.]]
-[^e]: TG [[Israel, Land of]].
+[^a]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^b]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  
+[^c]: [[Jeremiah 3.18|Jer. 3:18]].  
+[^d]: [[Jeremiah 24.6|Jer. 24:6]]; [[Jeremiah 32.37|32:37]].  
+[^e]: [[Israel, Land of|TG Israel, Land of]].  

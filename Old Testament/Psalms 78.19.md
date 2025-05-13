@@ -5,4 +5,4 @@
 [Psalms 78:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.19?lang=eng#p19)
 
 
-[^a]: [[Exodus 16.3|Ex. 16:3 (3-5).]]
+[^a]: [[Exodus 16.3|Ex. 16:3 (3–5)]][[Exodus 16.4|]][[Exodus 16.5|]].  

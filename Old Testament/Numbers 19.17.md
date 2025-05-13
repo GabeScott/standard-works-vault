@@ -5,4 +5,4 @@
 [Numbers 19:17](https://www.churchofjesuschrist.org/study/scriptures/ot/num/19.17?lang=eng#p17)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

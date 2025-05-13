@@ -5,5 +5,5 @@
 [2 Corinthians 7:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/7.15?lang=eng#p15)
 
 
-[^a]: GR heart, tender affections, compassion.
-[^b]: [[2 Corinthians 2.9|2 Cor. 2:9]]; [[2 Corinthians 10.6|10:6]]. TG [[Obedience, Obedient, Obey]].
+[^a]: GR heart, tender affections, compassion.  
+[^b]: [[2 Corinthians 2.9|2 Cor. 2:9]]; [[2 Corinthians 10.6|10:6]]. [[Obedience, Obedient, Obey|TG Obedience]].  

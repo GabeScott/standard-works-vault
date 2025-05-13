@@ -5,5 +5,5 @@
 [Mark 5:34](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.34?lang=eng#p34)
 
 
-[^a]: [[Helaman 15.9|Hel. 15:9 (9-10)]]; [[D&C 46.19|D&C 46:19.]]
-[^b]: TG [[Peace of God]].
+[^a]: [[Helaman 15.9|Hel. 15:9 (9–10)]][[Helaman 15.10|]]; [[D&C 46.19|D&C 46:19]].  
+[^b]: [[Peace of God|TG Peace of God]].  

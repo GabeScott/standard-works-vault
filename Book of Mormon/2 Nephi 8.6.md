@@ -5,6 +5,6 @@
 [2 Nephi 8:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p6#p6)
 
 
-[^a]: 2 Pet. 3:10.
-[^b]: [[Isaiah 13.13|Isa. 13:13.]]
-[^c]: [[Psalms 102.26|Ps. 102:26 (25-28).]]
+[^a]: [[2 Peter 3.10|2 Pet. 3:10]].  
+[^b]: [[Isaiah 13.13|Isa. 13:13]].  
+[^c]: [[Psalms 102.25|Ps. 102:26 (25–28)]][[Psalms 102.26|]][[Psalms 102.27|]][[Psalms 102.28|]].  

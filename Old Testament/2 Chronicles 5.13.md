@@ -5,4 +5,4 @@
 [2 Chronicles 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/5.13?lang=eng#p13)
 
 
-[^a]: [[1 Chronicles 16.41|1 Chr. 16:41]]; [[Ezra 3.11|Ezra 3:11]]; [[D&C 97.13|D&C 97:13]]; [[D&C 136.28|136:28.]]
+[^a]: [[1 Chronicles 16.41|1 Chr. 16:41]]; [[Ezra 3.11|Ezra 3:11]]; [[D&C 97.13|D&C 97:13]]; [[D&C 136.28|136:28]].  

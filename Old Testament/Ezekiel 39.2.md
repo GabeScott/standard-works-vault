@@ -5,4 +5,4 @@
 [Ezekiel 39:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 38.15|Ezek. 38:15.]]
+[^a]: [[Ezekiel 38.15|Ezek. 38:15]].  

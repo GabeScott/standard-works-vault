@@ -5,5 +5,5 @@
 [Exodus 32:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.34?lang=eng#p34)
 
 
-[^a]: [[Exodus 33.12|Ex. 33:12.]]
-[^b]: [[Numbers 20.16|Num. 20:16.]]
+[^a]: [[Exodus 33.12|Ex. 33:12]].  
+[^b]: [[Numbers 20.16|Num. 20:16]].  

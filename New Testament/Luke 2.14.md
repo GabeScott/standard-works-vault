@@ -5,5 +5,5 @@
 [Luke 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.14?lang=eng#p14)
 
 
-[^a]: [[Luke 19.38|Luke 19:38.]]
-[^b]: TG [[Peace of God]].
+[^a]: [[Luke 19.38|Luke 19:38]].  
+[^b]: [[Peace|TG Peace]].  

@@ -5,4 +5,4 @@
 [James 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.4?lang=eng#p4)
 
 
-[^a]: GR helmsman, pilot.
+[^a]: GR helmsman, pilot.  

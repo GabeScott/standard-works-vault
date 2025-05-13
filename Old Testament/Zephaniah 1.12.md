@@ -5,6 +5,6 @@
 [Zephaniah 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.12?lang=eng#p12)
 
 
-[^a]: OR complacent, indifferent.
-[^b]: [[Jeremiah 48.11|Jer. 48:11.]]
-[^c]: Mal. 3:14.
+[^a]: OR complacent, indifferent.  
+[^b]: [[Jeremiah 48.11|Jer. 48:11]].  
+[^c]: [[Malachi 3.14|Mal. 3:14]].  

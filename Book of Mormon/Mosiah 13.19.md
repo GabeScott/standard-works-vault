@@ -5,4 +5,4 @@
 [Mosiah 13:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p19#p19)
 
 
-[^a]: [[Genesis 1.31|Gen. 1:31]]; [[Exodus 20.11|Ex. 20:11.]]
+[^a]: [[Genesis 1.31|Gen. 1:31]]; [[Exodus 20.11|Ex. 20:11]].  

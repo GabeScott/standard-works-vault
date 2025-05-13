@@ -5,9 +5,9 @@
 [Mosiah 15:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p26#p26)
 
 
-[^a]: [[Deuteronomy 5.29|Deut. 5:29]]; [[Jacob 6.9|Jacob 6:9]]; [[Jacob 7.19|7:19.]]
-[^b]: [[Joshua 22.16|Josh. 22:16]]; [[Job 24.13|Job 24:13]]; [[Psalms 5.10|Ps. 5:10]]; [[1 Nephi 2.23|1 Ne. 2:23 (21-24).]]
-[^c]: [[Ezekiel 18.26|Ezek. 18:26]]; [[1 Nephi 15.33|1 Ne. 15:33 (32-33)]]; [[Moroni 10.26|Moro. 10:26.]]
-[^d]: [[Alma 40.19|Alma 40:19.]]
-[^e]: [[D&C 76.85|D&C 76:85.]]
-[^f]: TG [[Telestial Glory]].
+[^a]: [[Deuteronomy 5.29|Deut. 5:29]]; [[Jacob 6.9|Jacob 6:9]]; [[Jacob 7.19|7:19]].  
+[^b]: [[Joshua 22.16|Josh. 22:16]]; [[Job 24.13|Job 24:13]]; [[Psalms 5.10|Ps. 5:10]]; [[1 Nephi 2.21|1 Ne. 2:23 (21–24)]][[1 Nephi 2.22|]][[1 Nephi 2.23|]][[1 Nephi 2.24|]].  
+[^c]: [[Ezekiel 18.26|Ezek. 18:26]]; [[1 Nephi 15.32|1 Ne. 15:33 (32–33)]][[1 Nephi 15.33|]]; [[Moroni 10.26|Moro. 10:26]].  
+[^d]: [[Alma 40.19|Alma 40:19]].  
+[^e]: [[D&C 76.85|D&C 76:85]].  
+[^f]: [[Telestial Glory|TG Telestial Glory]].  

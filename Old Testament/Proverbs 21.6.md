@@ -5,5 +5,5 @@
 [Proverbs 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.6?lang=eng#p6)
 
 
-[^a]: TG [[Treasure]].
-[^b]: TG [[Vanity]].
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[Vanity|TG Vanity]].  

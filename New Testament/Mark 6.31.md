@@ -5,5 +5,5 @@
 [Mark 6:31](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.31?lang=eng#p31)
 
 
-[^a]: JST Mark 6:32 … solitary …
-[^b]: [[Mark 3.20|Mark 3:20.]]
+[^a]: JST Mark 6:32 … solitary …  
+[^b]: [[Mark 3.20|Mark 3:20]].  

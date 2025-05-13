@@ -5,4 +5,4 @@
 [1 Samuel 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.13?lang=eng#p13)
 
 
-[^a]: OR boiling.
+[^a]: OR boiling.  

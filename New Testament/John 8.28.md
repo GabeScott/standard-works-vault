@@ -5,7 +5,7 @@
 [John 8:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.28?lang=eng#p28)
 
 
-[^a]: [[John 5.19|John 5:19.]]
-[^b]: [[John 7.16|John 7:16 (16-18)]]. TG [[Authority]].
-[^c]: TG [[Delegation of Responsibility]].
-[^d]: [[Deuteronomy 18.18|Deut. 18:18.]]
+[^a]: [[John 5.19|John 5:19]].  
+[^b]: [[John 7.16|John 7:16 (16–18)]][[John 7.17|]][[John 7.18|]]. [[Authority|TG Authority]].  
+[^c]: [[Delegation of Responsibility|TG Delegation of Responsibility]].  
+[^d]: [[Deuteronomy 18.18|Deut. 18:18]].  

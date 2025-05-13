@@ -5,6 +5,6 @@
 [Alma 9:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 8.16|Alma 8:16]]; [[Alma 10.27|10:27 (19, 23, 27).]]
-[^b]: [[Jeremiah 18.10|Jer. 18:10 (6-10).]]
-[^c]: [[Alma 8.29|Alma 8:29.]]
+[^a]: [[Alma 8.16|Alma 8:16]]; [[Alma 10.19|10:27 (19, 23, 27)]][[Alma 10.23|]][[Alma 10.27|]].  
+[^b]: [[Jeremiah 18.6|Jer. 18:10 (6–10)]][[Jeremiah 18.7|]][[Jeremiah 18.8|]][[Jeremiah 18.9|]][[Jeremiah 18.10|]].  
+[^c]: [[Alma 8.29|Alma 8:29]].  

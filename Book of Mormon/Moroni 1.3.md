@@ -5,4 +5,4 @@
 [Moroni 1:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/1?lang=eng&id=p3#p3)
 
 
-[^a]: [[Matthew 10.33|Matt. 10:33 (32-33)]]; [[3 Nephi 29.5|3 Ne. 29:5.]]
+[^a]: [[Matthew 10.32|Matt. 10:33 (32–33)]][[Matthew 10.33|]]; [[3 Nephi 29.5|3 Ne. 29:5]].  

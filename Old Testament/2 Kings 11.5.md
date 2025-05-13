@@ -5,4 +5,4 @@
 [2 Kings 11:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/11.5?lang=eng#p5)
 
 
-[^a]: [[1 Chronicles 9.25|1 Chr. 9:25.]]
+[^a]: [[1 Chronicles 9.25|1 Chr. 9:25]].  

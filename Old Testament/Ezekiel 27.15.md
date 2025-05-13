@@ -5,4 +5,4 @@
 [Ezekiel 27:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.15?lang=eng#p15)
 
 
-[^a]: [[Ezekiel 39.6|Ezek. 39:6.]]
+[^a]: [[Ezekiel 39.6|Ezek. 39:6]].  

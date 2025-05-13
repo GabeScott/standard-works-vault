@@ -5,7 +5,7 @@
 [Isaiah 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/4.1?lang=eng#p1)
 
 
-[^a]: IE because of scarcity of men due to wars. See Isa. 3:25.
-[^b]: [[Isaiah 3.25|Isa. 3:25 (24-25).]]
-[^c]: TG [[Marriage, Marry]].
-[^d]: IE the stigma of being unmarried and childless. TG [[Reproach]].
+[^a]: IE because of scarcity of men due to wars. See [[Isaiah 3.25|Isa. 3:25]].  
+[^b]: [[Isaiah 3.24|Isa. 3:25 (24–25)]][[Isaiah 3.25|]].  
+[^c]: [[Marriage, Marry|TG Marriage, Marry]].  
+[^d]: IE the stigma of being unmarried and childless. [[Reproach|TG Reproach]].  

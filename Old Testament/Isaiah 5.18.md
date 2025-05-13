@@ -5,6 +5,6 @@
 [Isaiah 5:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.18?lang=eng#p18)
 
 
-[^a]: HEB entice, or pull.
-[^b]: TG [[Vanity]].
-[^c]: IE they are tied to their sins like beasts to their burdens.
+[^a]: HEB entice, or pull.  
+[^b]: [[Vanity|TG Vanity]].  
+[^c]: IE they are tied to their sins like beasts to their burdens.  

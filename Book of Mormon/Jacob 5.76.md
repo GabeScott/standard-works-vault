@@ -5,4 +5,4 @@
 [Jacob 5:76](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p76#p76)
 
 
-[^a]: [[1 Nephi 22.26|1 Ne. 22:26.]]
+[^a]: [[1 Nephi 22.26|1 Ne. 22:26]].  

@@ -5,4 +5,4 @@
 [Hosea 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.11?lang=eng#p11)
 
 
-[^a]: TG [[Whore, Whoredom]].
+[^a]: [[Whore, Whoredom|TG Whore]].  

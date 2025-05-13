@@ -5,5 +5,5 @@
 [Daniel 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.3?lang=eng#p3)
 
 
-[^a]: Dan. 10:12.
-[^b]: TG [[Apparel]].
+[^a]: [[Daniel 10.12|Dan. 10:12]].  
+[^b]: [[Apparel|TG Apparel]].  

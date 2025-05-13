@@ -5,4 +5,4 @@
 [Jonah 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/2.5?lang=eng#p5)
 
 
-[^a]: IE to the point of death.
+[^a]: IE to the point of death.  

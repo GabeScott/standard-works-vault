@@ -5,4 +5,4 @@
 [Proverbs 30:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.25?lang=eng#p25)
 
 
-[^a]: [[Proverbs 6.6|Prov. 6:6.]]
+[^a]: [[Proverbs 6.6|Prov. 6:6]].  

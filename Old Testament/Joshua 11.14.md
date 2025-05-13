@@ -5,5 +5,5 @@
 [Joshua 11:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/11.14?lang=eng#p14)
 
 
-[^a]: [[Deuteronomy 20.16|Deut. 20:16.]]
-[^b]: OR booty, plunder.
+[^a]: [[Deuteronomy 20.16|Deut. 20:16]].  
+[^b]: OR booty, plunder.  

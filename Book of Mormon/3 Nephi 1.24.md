@@ -5,4 +5,4 @@
 [3 Nephi 1:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p24#p24)
 
 
-[^a]: [[Alma 34.13|Alma 34:13.]]
+[^a]: [[Alma 34.13|Alma 34:13]].  

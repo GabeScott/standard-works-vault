@@ -5,4 +5,4 @@
 [1 Samuel 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.3?lang=eng#p3)
 
 
-[^a]: [[Leviticus 5.16|Lev. 5:16 (15-16).]]
+[^a]: [[Leviticus 5.15|Lev. 5:16 (15–16)]][[Leviticus 5.16|]].  

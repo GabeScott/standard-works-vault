@@ -5,5 +5,5 @@
 [D&C 9:12](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/9.12?lang=eng#p12)
 
 
-[^a]: [[D&C 1.29|D&C 1:29.]]
-[^b]: [[D&C 18.8|D&C 18:8.]]
+[^a]: [[D&C 1.29|D&C 1:29]].  
+[^b]: [[D&C 18.8|D&C 18:8]].  

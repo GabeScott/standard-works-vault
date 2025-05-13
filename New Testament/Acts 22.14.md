@@ -5,4 +5,4 @@
 [Acts 22:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.14?lang=eng#p14)
 
 
-[^a]: TG [[God, Will of]].
+[^a]: [[God, Will of|TG God, Will of]].  

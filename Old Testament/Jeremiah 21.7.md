@@ -5,6 +5,6 @@
 [Jeremiah 21:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/21.7?lang=eng#p7)
 
 
-[^a]: [[1 Nephi 1.4|1 Ne. 1:4 (4, 13).]]
-[^b]: TG [[Israel, Bondage of, in Other Lands]].
-[^c]: [[Deuteronomy 28.50|Deut. 28:50.]]
+[^a]: [[1 Nephi 1.4|1 Ne. 1:4 (4, 13)]][[1 Nephi 1.13|]].  
+[^b]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  
+[^c]: [[Deuteronomy 28.50|Deut. 28:50]].  

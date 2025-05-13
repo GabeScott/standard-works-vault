@@ -5,4 +5,4 @@
 [1 Chronicles 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/9.3?lang=eng#p3)
 
 
-[^a]: [[Alma 10.3|Alma 10:3.]]
+[^a]: [[Alma 10.3|Alma 10:3]].  

@@ -5,5 +5,5 @@
 [Mosiah 7:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p10#p10)
 
 
-[^a]: [[Mosiah 21.23|Mosiah 21:23 (23-24).]]
-[^b]: [[Joshua 20.4|Josh. 20:4.]]
+[^a]: [[Mosiah 21.23|Mosiah 21:23 (23–24)]][[Mosiah 21.24|]].  
+[^b]: [[Joshua 20.4|Josh. 20:4]].  

@@ -5,4 +5,4 @@
 [Ezekiel 36:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.38?lang=eng#p38)
 
 
-[^a]: HEB flock for sacrifices.
+[^a]: HEB flock for sacrifices.  

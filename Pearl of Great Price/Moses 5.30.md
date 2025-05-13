@@ -5,4 +5,4 @@
 [Moses 5:30](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.30?lang=eng#p30)
 
 
-[^a]: [[Moses 5.23|Moses 5:23.]]
+[^a]: [[Moses 5.23|Moses 5:23]].  

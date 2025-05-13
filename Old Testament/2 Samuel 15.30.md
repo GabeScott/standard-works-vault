@@ -5,4 +5,4 @@
 [2 Samuel 15:30](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/15.30?lang=eng#p30)
 
 
-[^a]: [[Esther 6.12|Esth. 6:12.]]
+[^a]: [[Esther 6.12|Esth. 6:12]].  

@@ -5,4 +5,4 @@
 [Ezekiel 25:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/25.15?lang=eng#p15)
 
 
-[^a]: [[Isaiah 14.31|Isa. 14:31 (29-32)]]; [[Jeremiah 47.1|Jer. 47:1]]; [[Amos 1.8|Amos 1:8.]]
+[^a]: [[Isaiah 14.29|Isa. 14:31 (29–32)]][[Isaiah 14.30|]][[Isaiah 14.31|]][[Isaiah 14.32|]]; [[Jeremiah 47.1|Jer. 47:1]]; [[Amos 1.8|Amos 1:8]].  

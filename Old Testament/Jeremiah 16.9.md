@@ -5,4 +5,4 @@
 [Jeremiah 16:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.9?lang=eng#p9)
 
 
-[^a]: [[Jeremiah 7.34|Jer. 7:34]]; [[Jeremiah 25.10|25:10.]]
+[^a]: [[Jeremiah 7.34|Jer. 7:34]]; [[Jeremiah 25.10|25:10]].  

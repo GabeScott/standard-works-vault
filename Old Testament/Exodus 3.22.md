@@ -5,5 +5,5 @@
 [Exodus 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.22?lang=eng#p22)
 
 
-[^a]: HEB ask.
-[^b]: HEB despoil, make empty. Ex. 12:36 (35-36); [[2 Nephi 20.6|2 Ne. 20:6.]]
+[^a]: HEB ask.  
+[^b]: HEB despoil, make empty. [[Exodus 12.35|Ex. 12:36 (35–36)]][[Exodus 12.36|]]; [[2 Nephi 20.6|2 Ne. 20:6]].  

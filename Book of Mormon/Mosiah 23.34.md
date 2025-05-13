@@ -5,4 +5,4 @@
 [Mosiah 23:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p34#p34)
 
 
-[^a]: TG [[Compassion]].
+[^a]: [[Compassion|TG Compassion]].  

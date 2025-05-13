@@ -5,4 +5,4 @@
 [Hebrews 11:12](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.12?lang=eng#p12)
 
 
-[^a]: TG [[Seed of Abraham]].
+[^a]: [[Seed of Abraham|TG Seed of Abraham]].  

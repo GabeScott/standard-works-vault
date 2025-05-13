@@ -5,4 +5,4 @@
 [Isaiah 37:30](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/37.30?lang=eng#p30)
 
 
-[^a]: IE Hezekiah, king of Judah.
+[^a]: IE Hezekiah, king of Judah.  

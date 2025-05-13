@@ -5,5 +5,5 @@
 [Amos 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.6?lang=eng#p6)
 
 
-[^a]: [[Moses 1.33|Moses 1:33.]]
-[^b]: [[Amos 5.8|Amos 5:8]]; [[Moses 2.7|Moses 2:7 (6-7)]]; [[Abraham 4.9|Abr. 4:9 (9-10).]]
+[^a]: [[Moses 1.33|Moses 1:33]].  
+[^b]: [[Amos 5.8|Amos 5:8]]; [[Moses 2.6|Moses 2:7 (6–7)]][[Moses 2.7|]]; [[Abraham 4.9|Abr. 4:9 (9–10)]][[Abraham 4.10|]].  

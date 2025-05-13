@@ -5,4 +5,4 @@
 [Exodus 40:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.8?lang=eng#p8)
 
 
-[^a]: OR screen or curtain.
+[^a]: OR screen or curtain.  

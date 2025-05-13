@@ -5,6 +5,6 @@
 [Malachi 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.7?lang=eng#p7)
 
 
-[^a]: [[Acts 7.51|Acts 7:51.]]
-[^b]: TG [[Ordinance]].
-[^c]: TG [[Repent, Repentance]].
+[^a]: [[Acts 7.51|Acts 7:51]].  
+[^b]: [[Ordinance|TG Ordinance]].  
+[^c]: [[Repent, Repentance|TG Repent]].  

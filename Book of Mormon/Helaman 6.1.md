@@ -5,4 +5,4 @@
 [Helaman 6:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p1#p1)
 
 
-[^a]: [[Helaman 13.1|Hel. 13:1.]]
+[^a]: [[Helaman 13.1|Hel. 13:1]].  

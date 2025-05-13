@@ -5,4 +5,4 @@
 [Isaiah 19:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.22?lang=eng#p22)
 
 
-[^a]: TG [[Conversion, Convert]].
+[^a]: [[Conversion, Convert|TG Conversion]].  

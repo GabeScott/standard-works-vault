@@ -5,5 +5,5 @@
 [1 Chronicles 22:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/22.2?lang=eng#p2)
 
 
-[^a]: [[1 Kings 9.21|1 Kgs. 9:21.]]
-[^b]: TG [[Israel, Land of]].
+[^a]: [[1 Kings 9.21|1 Kgs. 9:21]].  
+[^b]: [[Israel, Land of|TG Israel, Land of]].  

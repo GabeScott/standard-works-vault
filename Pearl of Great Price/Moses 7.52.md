@@ -5,4 +5,4 @@
 [Moses 7:52](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.52?lang=eng#p52)
 
 
-[^a]: [[Moses 8.2|Moses 8:2.]]
+[^a]: [[Moses 8.2|Moses 8:2]].  

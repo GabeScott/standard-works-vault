@@ -5,6 +5,6 @@
 [Deuteronomy 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.12?lang=eng#p12)
 
 
-[^a]: [[Deuteronomy 2.36|Deut. 2:36.]]
-[^b]: OR the hill country of.
-[^c]: [[Numbers 32.2|Num. 32:2 (2-6)]]; [[Joshua 12.6|Josh. 12:6 (4-6).]]
+[^a]: [[Deuteronomy 2.36|Deut. 2:36]].  
+[^b]: OR the hill country of.  
+[^c]: [[Numbers 32.2|Num. 32:2 (2–6)]][[Numbers 32.3|]][[Numbers 32.4|]][[Numbers 32.5|]][[Numbers 32.6|]]; [[Joshua 12.4|Josh. 12:6 (4–6)]][[Joshua 12.5|]][[Joshua 12.6|]].  

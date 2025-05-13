@@ -5,4 +5,4 @@
 [2 Chronicles 15:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/15.12?lang=eng#p12)
 
 
-[^a]: [[Mosiah 5.5|Mosiah 5:5 (2, 5).]]
+[^a]: [[Mosiah 5.2|Mosiah 5:5 (2, 5)]][[Mosiah 5.5|]].  

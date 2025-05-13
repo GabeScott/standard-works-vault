@@ -5,4 +5,4 @@
 [Ezekiel 21:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.23?lang=eng#p23)
 
 
-[^a]: [[Ezekiel 17.20|Ezek. 17:20 (20, 24).]]
+[^a]: [[Ezekiel 17.20|Ezek. 17:20 (20, 24)]][[Ezekiel 17.24|]].  

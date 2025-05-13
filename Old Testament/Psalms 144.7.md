@@ -5,4 +5,4 @@
 [Psalms 144:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/144.7?lang=eng#p7)
 
 
-[^a]: HEB alien.
+[^a]: HEB alien.  

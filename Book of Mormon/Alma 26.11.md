@@ -5,6 +5,6 @@
 [Alma 26:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p11#p11)
 
 
-[^a]: [[2 Corinthians 7.14|2 Cor. 7:14 (13-16).]]
-[^b]: 1 Thes. 3:9; [[D&C 18.16|D&C 18:16 (14-16).]]
-[^c]: TG [[Joy]].
+[^a]: [[2 Corinthians 7.13|2 Cor. 7:14 (13–16)]][[2 Corinthians 7.14|]][[2 Corinthians 7.15|]][[2 Corinthians 7.16|]].  
+[^b]: [[1 Thessalonians 3.9|1 Thes. 3:9]]; [[D&C 18.14|D&C 18:16 (14–16)]][[D&C 18.15|]][[D&C 18.16|]].  
+[^c]: [[Joy|TG Joy]].  

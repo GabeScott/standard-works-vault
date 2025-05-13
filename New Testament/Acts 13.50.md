@@ -5,6 +5,6 @@
 [Acts 13:50](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.50?lang=eng#p50)
 
 
-[^a]: [[Alma 27.2|Alma 27:2 (2, 12).]]
-[^b]: [[Acts 17.4|Acts 17:4 (4, 12).]]
-[^c]: TG [[Persecution, Persecute]].
+[^a]: [[Alma 27.2|Alma 27:2 (2, 12)]][[Alma 27.12|]].  
+[^b]: [[Acts 17.4|Acts 17:4 (4, 12)]][[Acts 17.12|]].  
+[^c]: [[Persecution, Persecute|TG Persecution]].  

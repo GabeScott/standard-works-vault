@@ -5,4 +5,4 @@
 [D&C 5:25](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.25?lang=eng#p25)
 
 
-[^a]: [[Ether 5.3|Ether 5:3.]]
+[^a]: [[Ether 5.3|Ether 5:3]].  

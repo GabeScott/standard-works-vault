@@ -5,4 +5,4 @@
 [Matthew 8:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.28?lang=eng#p28)
 
 
-[^a]: TG [[Spirits, Evil or Unclean]].
+[^a]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

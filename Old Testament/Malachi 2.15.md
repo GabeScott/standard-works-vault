@@ -5,7 +5,7 @@
 [Malachi 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.15?lang=eng#p15)
 
 
-[^a]: TG [[Unity]].
-[^b]: TG [[Mysteries of Godliness]].
-[^c]: [[Jacob 2.30|Jacob 2:30.]]
-[^d]: TG [[Marriage, Husbands]].
+[^a]: [[Unity|TG Unity]].  
+[^b]: [[Godliness, Godly|TG Godliness]].  
+[^c]: [[Jacob 2.30|Jacob 2:30]].  
+[^d]: [[Marriage, Husbands|TG Marriage, Husbands]].  

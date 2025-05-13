@@ -5,7 +5,7 @@
 [1 Timothy 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.1?lang=eng#p1)
 
 
-[^a]: TG [[Last Days]].
-[^b]: TG [[Holy Ghost, Loss of]].
-[^c]: GR deceitful. TG [[Apostasy of the Early Christian Church]]; [[Spirits, Evil or Unclean]].
-[^d]: TG [[False Doctrine]].
+[^a]: [[Last Days|TG Last Days]].  
+[^b]: [[Holy Ghost, Loss of|TG Holy Ghost, Loss of]].  
+[^c]: GR deceitful. [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]]; [[Spirits, Evil or Unclean|Spirits, Evil or Unclean]].  
+[^d]: [[False Doctrine|TG False Doctrine]].  

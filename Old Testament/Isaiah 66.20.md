@@ -5,4 +5,4 @@
 [Isaiah 66:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.20?lang=eng#p20)
 
 
-[^a]: [[Isaiah 60.7|Isa. 60:7.]]
+[^a]: [[Isaiah 60.7|Isa. 60:7]].  

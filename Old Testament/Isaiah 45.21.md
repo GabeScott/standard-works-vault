@@ -5,5 +5,5 @@
 [Isaiah 45:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.21?lang=eng#p21)
 
 
-[^a]: TG [[God, Justice of]]; [[God, Justice of]].
-[^b]: TG [[Jesus Christ, Jehovah]]; [[Remission of Sins]].
+[^a]: [[God, Justice of|TG God, Justice of]]; [[Justice|Justice]].  
+[^b]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]]; [[Remission of Sins|Remission of Sins]].  

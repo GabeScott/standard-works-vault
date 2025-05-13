@@ -5,4 +5,4 @@
 [Acts 13:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.17?lang=eng#p17)
 
 
-[^a]: TG [[Stranger]].
+[^a]: [[Stranger|TG Stranger]].  

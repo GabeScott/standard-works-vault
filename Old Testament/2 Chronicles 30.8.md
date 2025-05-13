@@ -5,5 +5,5 @@
 [2 Chronicles 30:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.8?lang=eng#p8)
 
 
-[^a]: TG [[Stiffnecked, Stiffneckedness]].
-[^b]: [[Mosiah 3.19|Mosiah 3:19]]; [[Helaman 3.35|Hel. 3:35.]]
+[^a]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  
+[^b]: [[Mosiah 3.19|Mosiah 3:19]]; [[Helaman 3.35|Hel. 3:35]].  

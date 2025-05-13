@@ -5,4 +5,4 @@
 [Deuteronomy 15:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.12?lang=eng#p12)
 
 
-[^a]: [[Leviticus 25.39|Lev. 25:39 (39-43).]]
+[^a]: [[Leviticus 25.39|Lev. 25:39 (39–43)]][[Leviticus 25.40|]][[Leviticus 25.41|]][[Leviticus 25.42|]][[Leviticus 25.43|]].  

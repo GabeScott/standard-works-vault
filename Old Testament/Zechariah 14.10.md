@@ -5,6 +5,6 @@
 [Zechariah 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.10?lang=eng#p10)
 
 
-[^a]: [[Isaiah 40.4|Isa. 40:4 (1-5).]]
-[^b]: HEB she; i.e., Jerusalem.
-[^c]: [[Jeremiah 31.38|Jer. 31:38 (38-40).]]
+[^a]: [[Isaiah 40.1|Isa. 40:4 (1–5)]][[Isaiah 40.2|]][[Isaiah 40.3|]][[Isaiah 40.4|]][[Isaiah 40.5|]].  
+[^b]: HEB she; i.e., Jerusalem.  
+[^c]: [[Jeremiah 31.38|Jer. 31:38 (38–40)]][[Jeremiah 31.39|]][[Jeremiah 31.40|]].  

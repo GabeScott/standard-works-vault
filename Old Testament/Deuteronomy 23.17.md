@@ -5,5 +5,5 @@
 [Deuteronomy 23:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.17?lang=eng#p17)
 
 
-[^a]: [[Leviticus 19.29|Lev. 19:29.]]
-[^b]: HEB a professional male or female prostitute or cultist. 2 Kgs. 23:7. TG [[Homosexual Behavior]].
+[^a]: [[Leviticus 19.29|Lev. 19:29]].  
+[^b]: HEB a professional male or female prostitute or cultist. [[2 Kings 23.7|2 Kgs. 23:7]]. [[Homosexual Behavior|TG Homosexual Behavior]].  

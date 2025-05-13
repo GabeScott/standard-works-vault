@@ -5,4 +5,4 @@
 [Ether 12:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p29#p29)
 
 
-[^a]: TG [[Holy Ghost, Comforter]].
+[^a]: [[Comfort|TG Comfort]].  

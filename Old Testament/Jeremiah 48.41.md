@@ -5,5 +5,5 @@
 [Jeremiah 48:41](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.41?lang=eng#p41)
 
 
-[^a]: [[Jeremiah 48.24|Jer. 48:24.]]
-[^b]: HEB captured.
+[^a]: [[Jeremiah 48.24|Jer. 48:24]].  
+[^b]: HEB captured.  

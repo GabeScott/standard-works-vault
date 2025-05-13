@@ -5,4 +5,4 @@
 [Matthew 26:45](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.45?lang=eng#p45)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  

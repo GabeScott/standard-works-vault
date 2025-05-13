@@ -5,6 +5,6 @@
 [Luke 10:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.1?lang=eng#p1)
 
 
-[^a]: TG [[Authority]]; [[Called of God]]; Priesthood, [[Authority]].
-[^b]: TG [[Church Organization]]; [[Missionary Work]]; [[Seventy]].
-[^c]: [[Mark 6.7|Mark 6:7.]]
+[^a]: [[Authority|TG Authority]]; [[Called of God|Called of God]]; [[Priesthood, Authority|Priesthood, Authority]].  
+[^b]: [[Church Organization|TG Church Organization]]; [[Missionary Work|Missionary Work]]; [[Seventy|Seventy]].  
+[^c]: [[Mark 6.7|Mark 6:7]].  

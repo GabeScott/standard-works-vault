@@ -5,4 +5,4 @@
 [Revelation 21:25](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.25?lang=eng#p25)
 
 
-[^a]: [[Isaiah 60.11|Isa. 60:11.]]
+[^a]: [[Isaiah 60.11|Isa. 60:11]].  

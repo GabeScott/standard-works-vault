@@ -5,4 +5,4 @@
 [Acts 27:23](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.23?lang=eng#p23)
 
 
-[^a]: TG [[Angels]]; [[Vision]].
+[^a]: [[Angels|TG Angels]]; [[Vision|Vision]].  

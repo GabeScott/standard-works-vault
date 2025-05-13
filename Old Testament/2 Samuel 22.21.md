@@ -5,5 +5,5 @@
 [2 Samuel 22:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.21?lang=eng#p21)
 
 
-[^a]: TG [[Reward]].
-[^b]: TG [[Cleanliness]].
+[^a]: [[Reward|TG Reward]].  
+[^b]: [[Cleanliness|TG Cleanliness]].  

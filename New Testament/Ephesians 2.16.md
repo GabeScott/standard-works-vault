@@ -5,4 +5,4 @@
 [Ephesians 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.16?lang=eng#p16)
 
 
-[^a]: TG [[Jesus Christ, Atonement through]].
+[^a]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  

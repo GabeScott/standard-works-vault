@@ -5,5 +5,5 @@
 [Psalms 77:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/77.2?lang=eng#p2)
 
 
-[^a]: [[Psalms 86.7|Ps. 86:7.]]
-[^b]: [[Genesis 37.35|Gen. 37:35]]; [[Moses 7.44|Moses 7:44.]]
+[^a]: [[Psalms 86.7|Ps. 86:7]].  
+[^b]: [[Genesis 37.35|Gen. 37:35]]; [[Moses 7.44|Moses 7:44]].  

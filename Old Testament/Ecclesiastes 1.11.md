@@ -5,4 +5,4 @@
 [Ecclesiastes 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.11?lang=eng#p11)
 
 
-[^a]: TG [[Veil]].
+[^a]: [[Veil|TG Veil]].  

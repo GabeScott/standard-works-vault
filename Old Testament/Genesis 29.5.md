@@ -5,4 +5,4 @@
 [Genesis 29:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.5?lang=eng#p5)
 
 
-[^a]: [[Genesis 24.29|Gen. 24:29.]]
+[^a]: [[Genesis 24.29|Gen. 24:29]].  

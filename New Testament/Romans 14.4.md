@@ -5,4 +5,4 @@
 [Romans 14:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.4?lang=eng#p4)
 
 
-[^a]: [[D&C 11.12|D&C 11:12.]]
+[^a]: [[D&C 11.12|D&C 11:12]].  

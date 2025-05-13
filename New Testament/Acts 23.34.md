@@ -5,4 +5,4 @@
 [Acts 23:34](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.34?lang=eng#p34)
 
 
-[^a]: [[Acts 21.39|Acts 21:39.]]
+[^a]: [[Acts 21.39|Acts 21:39]].  

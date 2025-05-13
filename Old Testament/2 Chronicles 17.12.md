@@ -5,4 +5,4 @@
 [2 Chronicles 17:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/17.12?lang=eng#p12)
 
 
-[^a]: IE fortifications.
+[^a]: IE fortifications.  

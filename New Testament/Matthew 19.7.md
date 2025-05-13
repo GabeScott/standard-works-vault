@@ -5,5 +5,5 @@
 [Matthew 19:7](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.7?lang=eng#p7)
 
 
-[^a]: GR certificate of divorce.
-[^b]: TG [[Divorce, Divorcement]].
+[^a]: GR certificate of divorce.  
+[^b]: [[Divorce, Divorcement|TG Divorce]].  

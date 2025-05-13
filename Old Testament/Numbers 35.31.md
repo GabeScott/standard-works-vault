@@ -5,5 +5,5 @@
 [Numbers 35:31](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.31?lang=eng#p31)
 
 
-[^a]: HEB ransom, fine (also v. 32).
-[^b]: TG [[Guiltless]].
+[^a]: HEB ransom, fine (also [[Numbers 35.32|v. 32]]).  
+[^b]: [[Guilt, Guilty|TG Guilt]].  

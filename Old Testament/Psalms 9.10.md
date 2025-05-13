@@ -5,5 +5,5 @@
 [Psalms 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/9.10?lang=eng#p10)
 
 
-[^a]: [[Acts 4.12|Acts 4:12 (10-12).]]
-[^b]: TG [[Trust in God]].
+[^a]: [[Acts 4.10|Acts 4:12 (10–12)]][[Acts 4.11|]][[Acts 4.12|]].  
+[^b]: [[Trust in God|TG Trust in God]].  

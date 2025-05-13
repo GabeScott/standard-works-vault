@@ -5,4 +5,4 @@
 [1 Chronicles 16:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.21?lang=eng#p21)
 
 
-[^a]: [[Genesis 12.17|Gen. 12:17.]]
+[^a]: [[Genesis 12.17|Gen. 12:17]].  

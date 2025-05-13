@@ -5,4 +5,4 @@
 [2 Nephi 4:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 1.9|2 Ne. 1:9]]; [[Alma 9.13|Alma 9:13.]]
+[^a]: [[2 Nephi 1.9|2 Ne. 1:9]]; [[Alma 9.13|Alma 9:13]].  

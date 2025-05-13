@@ -5,4 +5,4 @@
 [Acts 13:38](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.38?lang=eng#p38)
 
 
-[^a]: TG [[Forgive, Forgiveness]]; [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]]; [[Remission of Sins]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]]; [[Jesus Christ, Atonement through|Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer|Jesus Christ, Redeemer]]; [[Remission of Sins|Remission of Sins]].  

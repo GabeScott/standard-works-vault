@@ -5,4 +5,4 @@
 [Alma 5:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p24#p24)
 
 
-[^a]: [[Luke 13.28|Luke 13:28.]]
+[^a]: [[Luke 13.28|Luke 13:28]].  

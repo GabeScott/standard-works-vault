@@ -5,4 +5,4 @@
 [Ezekiel 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/19.13?lang=eng#p13)
 
 
-[^a]: [[2 Kings 24.15|2 Kgs. 24:15 (12-16).]]
+[^a]: [[2 Kings 24.12|2 Kgs. 24:15 (12–16)]][[2 Kings 24.13|]][[2 Kings 24.14|]][[2 Kings 24.15|]][[2 Kings 24.16|]].  

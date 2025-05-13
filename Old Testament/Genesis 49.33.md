@@ -5,5 +5,5 @@
 [Genesis 49:33](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.33?lang=eng#p33)
 
 
-[^a]: [[Jacob 7.20|Jacob 7:20 (20-21)]]; [[Helaman 14.21|Hel. 14:21]]. TG [[Spirits, Disembodied]].
-[^b]: TG [[Family, Eternal]].
+[^a]: [[Jacob 7.20|Jacob 7:20 (20–21)]][[Jacob 7.21|]]; [[Helaman 14.21|Hel. 14:21]]. [[Spirits, Disembodied|TG Spirits, Disembodied]].  
+[^b]: [[Family, Eternal|TG Family, Eternal]].  

@@ -5,6 +5,6 @@
 [Alma 5:46](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p46#p46)
 
 
-[^a]: [[1 Corinthians 2.10|1 Cor. 2:10 (9-16).]]
-[^b]: [[Alma 10.7|Alma 10:7.]]
-[^c]: [[Revelation 19.10|Rev. 19:10.]]
+[^a]: [[1 Corinthians 2.9|1 Cor. 2:10 (9–16)]][[1 Corinthians 2.10|]][[1 Corinthians 2.11|]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]][[1 Corinthians 2.15|]][[1 Corinthians 2.16|]].  
+[^b]: [[Alma 10.7|Alma 10:7]].  
+[^c]: [[Revelation 19.10|Rev. 19:10]].  

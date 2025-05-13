@@ -5,4 +5,4 @@
 [Numbers 16:41](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.41?lang=eng#p41)
 
 
-[^a]: TG [[Murmuring, Murmur]].
+[^a]: [[Murmuring, Murmur|TG Murmuring]].  

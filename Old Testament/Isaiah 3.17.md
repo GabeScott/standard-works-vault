@@ -5,4 +5,4 @@
 [Isaiah 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.17?lang=eng#p17)
 
 
-[^a]: HEB expose; idiom meaning “put them to shame.”
+[^a]: HEB expose; idiom meaning “put them to shame.”  

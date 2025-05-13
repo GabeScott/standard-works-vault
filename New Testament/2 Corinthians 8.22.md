@@ -5,4 +5,4 @@
 [2 Corinthians 8:22](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.22?lang=eng#p22)
 
 
-[^a]: [[2 Corinthians 2.3|2 Cor. 2:3.]]
+[^a]: [[2 Corinthians 2.3|2 Cor. 2:3]].  

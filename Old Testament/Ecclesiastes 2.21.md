@@ -5,5 +5,5 @@
 [Ecclesiastes 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.21?lang=eng#p21)
 
 
-[^a]: OR propriety, skill.
-[^b]: TG [[Vanity]].
+[^a]: OR propriety, skill.  
+[^b]: [[Vanity|TG Vanity]].  

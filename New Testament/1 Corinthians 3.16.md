@@ -5,6 +5,6 @@
 [1 Corinthians 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.16?lang=eng#p16)
 
 
-[^a]: TG [[Body, Sanctity of]]; [[Life, Sanctity of]]; [[Genealogy and Temple Work]].
-[^b]: TG [[God, Spirit of]].
-[^c]: GR in, within, among.
+[^a]: [[Body, Sanctity of|TG Body, Sanctity of]]; [[Life, Sanctity of|Life, Sanctity of]]; [[Temple|Temple]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]].  
+[^c]: GR in, within, among.  

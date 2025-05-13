@@ -5,6 +5,6 @@
 [2 Nephi 9:51](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p51#p51)
 
 
-[^a]: [[Isaiah 55.2|Isa. 55:2]]. TG [[Work, Value of]].
-[^b]: [[Ecclesiastes 1.3|Eccl. 1:3.]]
-[^c]: [[Proverbs 13.25|Prov. 13:25]]; [[Enos 1.4|Enos 1:4]]; [[3 Nephi 12.6|3 Ne. 12:6.]]
+[^a]: [[Isaiah 55.2|Isa. 55:2]]. [[Work, Value of|TG Work, Value of]].  
+[^b]: [[Ecclesiastes 1.3|Eccl. 1:3]].  
+[^c]: [[Proverbs 13.25|Prov. 13:25]]; [[Enos 1.4|Enos 1:4]]; [[3 Nephi 12.6|3 Ne. 12:6]].  

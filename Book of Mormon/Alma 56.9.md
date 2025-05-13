@@ -5,5 +5,5 @@
 [Alma 56:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 53.22|Alma 53:22.]]
-[^b]: [[Alma 57.11|Alma 57:11.]]
+[^a]: [[Alma 53.22|Alma 53:22]].  
+[^b]: [[Alma 57.11|Alma 57:11]].  

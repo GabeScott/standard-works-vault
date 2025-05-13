@@ -5,6 +5,6 @@
 [John 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.13?lang=eng#p13)
 
 
-[^a]: TG [[Jesus Christ, Ascension of]].
-[^b]: [[John 6.62|John 6:62]]. TG [[Jesus Christ, Condescension of]].
-[^c]: [[Moses 6.57|Moses 6:57.]]
+[^a]: [[Jesus Christ, Ascension of|TG Jesus Christ, Ascension of]].  
+[^b]: [[John 6.62|John 6:62]]. [[Jesus Christ, Condescension of|TG Jesus Christ, Condescension of]].  
+[^c]: [[Moses 6.57|Moses 6:57]].  

@@ -5,6 +5,6 @@
 [Alma 10:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p3#p3)
 
 
-[^a]: [[Genesis 41.51|Gen. 41:51]]; [[Joshua 17.1|Josh. 17:1]]; [[1 Chronicles 7.14|1 Chr. 7:14]]; [[1 Chronicles 9.3|9:3]]; [[1 Nephi 5.14|1 Ne. 5:14.]]
-[^b]: TG [[Israel, Joseph, People of]].
-[^c]: [[Genesis 37.36|Gen. 37:36 (29-36).]]
+[^a]: [[Genesis 41.51|Gen. 41:51]]; [[Joshua 17.1|Josh. 17:1]]; [[1 Chronicles 7.14|1 Chr. 7:14]]; [[1 Chronicles 9.3|9:3]]; [[1 Nephi 5.14|1 Ne. 5:14]].  
+[^b]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  
+[^c]: [[Genesis 37.29|Gen. 37:36 (29–36)]][[Genesis 37.30|]][[Genesis 37.31|]][[Genesis 37.32|]][[Genesis 37.33|]][[Genesis 37.34|]][[Genesis 37.35|]][[Genesis 37.36|]].  

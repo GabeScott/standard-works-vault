@@ -5,4 +5,4 @@
 [2 Kings 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/9.6?lang=eng#p6)
 
 
-[^a]: [[2 Chronicles 22.7|2 Chr. 22:7 (7-9).]]
+[^a]: [[2 Chronicles 22.7|2 Chr. 22:7 (7–9)]][[2 Chronicles 22.8|]][[2 Chronicles 22.9|]].  

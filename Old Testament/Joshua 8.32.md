@@ -5,4 +5,4 @@
 [Joshua 8:32](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.32?lang=eng#p32)
 
 
-[^a]: TG [[Scriptures, Writing of]].
+[^a]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  

@@ -5,4 +5,4 @@
 [Genesis 43:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.30?lang=eng#p30)
 
 
-[^a]: [[Genesis 42.24|Gen. 42:24]]; [[Genesis 45.1|45:1 (1-2).]]
+[^a]: [[Genesis 42.24|Gen. 42:24]]; [[Genesis 45.1|45:1 (1–2)]][[Genesis 45.2|]].  

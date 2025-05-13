@@ -5,4 +5,4 @@
 [Acts 9:33](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.33?lang=eng#p33)
 
 
-[^a]: GR paralyzed.
+[^a]: GR paralyzed.  

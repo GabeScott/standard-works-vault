@@ -5,4 +5,4 @@
 [Alma 58:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/58?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Samuel 24.22|1 Sam. 24:22]]; [[3 Nephi 4.1|3 Ne. 4:1.]]
+[^a]: [[1 Samuel 24.22|1 Sam. 24:22]]; [[3 Nephi 4.1|3 Ne. 4:1]].  

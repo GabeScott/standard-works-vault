@@ -5,4 +5,4 @@
 [Deuteronomy 16:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.12?lang=eng#p12)
 
 
-[^a]: OR slave.
+[^a]: OR slave.  

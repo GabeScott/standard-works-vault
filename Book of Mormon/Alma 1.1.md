@@ -5,6 +5,6 @@
 [Alma 1:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mosiah 29.46|Mosiah 29:46.]]
-[^b]: [[Jarom 1.5|Jarom 1:5]]; [[Alma 4.16|Alma 4:16]]; [[Alma 8.17|8:17]]; [[Helaman 4.22|Hel. 4:22.]]
-[^c]: TG [[Citizenship]].
+[^a]: [[Mosiah 29.46|Mosiah 29:46]].  
+[^b]: [[Jarom 1.5|Jarom 1:5]]; [[Alma 4.16|Alma 4:16]]; [[Alma 8.17|8:17]]; [[Helaman 4.22|Hel. 4:22]].  
+[^c]: [[Citizenship|TG Citizenship]].  

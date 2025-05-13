@@ -5,4 +5,4 @@
 [Omni 1:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p1#p1)
 
 
-[^a]: [[Jarom 1.2|Jarom 1:2 (1-2)]]; [[Omni 1.9|Omni 1:9.]]
+[^a]: [[Jarom 1.1|Jarom 1:2 (1–2)]][[Jarom 1.2|]]; [[Omni 1.9|Omni 1:9]].  

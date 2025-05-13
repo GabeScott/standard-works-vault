@@ -5,4 +5,4 @@
 [D&C 1:20](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.20?lang=eng#p20)
 
 
-[^a]: TG [[Authority]].
+[^a]: [[Authority|TG Authority]].  

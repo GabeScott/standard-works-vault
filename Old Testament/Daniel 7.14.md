@@ -5,6 +5,6 @@
 [Daniel 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.14?lang=eng#p14)
 
 
-[^a]: TG [[Jesus Christ, Authority of]]; [[Jesus Christ, Judge]]; [[Judgment]]; [[Kingdom of God, on Earth]].
-[^b]: TG [[Millennium, Preparing a People for]].
-[^c]: TG [[Jesus Christ, Millennial Reign]].
+[^a]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]]; [[Jesus Christ, Judge|Jesus Christ, Judge]]; [[Judgment|Judgment]]; [[Kingdom of God, on Earth|Kingdom of God, on Earth]].  
+[^b]: [[Millennium|TG Millennium]].  
+[^c]: [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]].  

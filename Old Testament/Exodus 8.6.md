@@ -5,4 +5,4 @@
 [Exodus 8:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 105.30|Ps. 105:30.]]
+[^a]: [[Psalms 105.30|Ps. 105:30]].  

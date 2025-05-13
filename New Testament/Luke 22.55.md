@@ -5,4 +5,4 @@
 [Luke 22:55](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.55?lang=eng#p55)
 
 
-[^a]: GR courtyard.
+[^a]: GR courtyard.  

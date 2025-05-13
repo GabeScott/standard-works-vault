@@ -5,4 +5,4 @@
 [Lamentations 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.11?lang=eng#p11)
 
 
-[^a]: [[Isaiah 3.1|Isa. 3:1.]]
+[^a]: [[Isaiah 3.1|Isa. 3:1]].  

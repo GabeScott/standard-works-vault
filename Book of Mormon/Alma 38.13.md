@@ -5,4 +5,4 @@
 [Alma 38:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Hypocrisy, Hypocrite]].
+[^a]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  

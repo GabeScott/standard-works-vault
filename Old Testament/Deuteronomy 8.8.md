@@ -5,4 +5,4 @@
 [Deuteronomy 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.8?lang=eng#p8)
 
 
-[^a]: IE olive trees.
+[^a]: IE olive trees.  

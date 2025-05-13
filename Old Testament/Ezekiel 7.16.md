@@ -5,5 +5,5 @@
 [Ezekiel 7:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.16?lang=eng#p16)
 
 
-[^a]: [[Jeremiah 44.28|Jer. 44:28]]; [[Ezekiel 6.8|Ezek. 6:8.]]
-[^b]: TG [[Mourning, Mourn]].
+[^a]: [[Jeremiah 44.28|Jer. 44:28]]; [[Ezekiel 6.8|Ezek. 6:8]].  
+[^b]: [[Mourning, Mourn|TG Mourning]].  

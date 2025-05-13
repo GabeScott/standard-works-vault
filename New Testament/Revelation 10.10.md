@@ -5,4 +5,4 @@
 [Revelation 10:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/10.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 15.16|Jer. 15:16]]; [[Ezekiel 2.8|Ezek. 2:8]]; [[Ezekiel 3.3|3:3 (1-3)]]; [[D&C 77.14|D&C 77:14.]]
+[^a]: [[Jeremiah 15.16|Jer. 15:16]]; [[Ezekiel 2.8|Ezek. 2:8]]; [[Ezekiel 3.1|3:3 (1–3)]][[Ezekiel 3.2|]][[Ezekiel 3.3|]]; [[D&C 77.14|D&C 77:14]].  

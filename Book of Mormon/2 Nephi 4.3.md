@@ -5,4 +5,4 @@
 [2 Nephi 4:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Firstborn]].
+[^a]: [[Firstborn|TG Firstborn]].  

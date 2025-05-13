@@ -5,6 +5,6 @@
 [Isaiah 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.3?lang=eng#p3)
 
 
-[^a]: [[Isaiah 26.15|Isa. 26:15.]]
-[^b]: [[Abraham 2.9|Abr. 2:9.]]
-[^d]: [[Psalms 119.162|Ps. 119:162.]]
+[^a]: [[Isaiah 26.15|Isa. 26:15]].  
+[^b]: [[Abraham 2.9|Abr. 2:9]].  
+[^d]: [[Psalms 119.162|Ps. 119:162]].  

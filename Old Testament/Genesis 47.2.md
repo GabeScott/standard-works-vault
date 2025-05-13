@@ -5,4 +5,4 @@
 [Genesis 47:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.2?lang=eng#p2)
 
 
-[^a]: [[Acts 7.13|Acts 7:13.]]
+[^a]: [[Acts 7.13|Acts 7:13]].  

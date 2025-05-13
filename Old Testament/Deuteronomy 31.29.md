@@ -5,5 +5,5 @@
 [Deuteronomy 31:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.29?lang=eng#p29)
 
 
-[^a]: [[Jeremiah 44.23|Jer. 44:23.]]
-[^b]: [[Hosea 3.5|Hosea 3:5 (1-5).]]
+[^a]: [[Jeremiah 44.23|Jer. 44:23]].  
+[^b]: [[Hosea 3.1|Hosea 3:5 (1–5)]][[Hosea 3.2|]][[Hosea 3.3|]][[Hosea 3.4|]][[Hosea 3.5|]].  

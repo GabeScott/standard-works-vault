@@ -5,4 +5,4 @@
 [Leviticus 15:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/15.15?lang=eng#p15)
 
 
-[^a]: [[Leviticus 12.8|Lev. 12:8 (7-8)]]; [[Leviticus 14.31|14:31 (30-31).]]
+[^a]: [[Leviticus 12.7|Lev. 12:8 (7–8)]][[Leviticus 12.8|]]; [[Leviticus 14.30|14:31 (30–31)]][[Leviticus 14.31|]].  

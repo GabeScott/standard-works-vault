@@ -5,4 +5,4 @@
 [Leviticus 13:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.25?lang=eng#p25)
 
 
-[^a]: HEB the burn.
+[^a]: HEB the burn.  

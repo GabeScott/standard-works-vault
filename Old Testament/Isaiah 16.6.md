@@ -5,5 +5,5 @@
 [Isaiah 16:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.6?lang=eng#p6)
 
 
-[^a]: Beginning of Judah’s reply, declining Moab’s appeal.
-[^b]: TG [[Pride]].
+[^a]: Beginning of Judah’s reply, declining Moab’s appeal.  
+[^b]: [[Pride|TG Pride]].  

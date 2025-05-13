@@ -5,6 +5,6 @@
 [1 Kings 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.5?lang=eng#p5)
 
 
-[^a]: [[2 Samuel 18.5|2 Sam. 18:5.]]
-[^b]: [[2 Samuel 3.27|2 Sam. 3:27 (27, 39).]]
-[^c]: [[2 Samuel 20.10|2 Sam. 20:10.]]
+[^a]: [[2 Samuel 18.5|2 Sam. 18:5]].  
+[^b]: [[2 Samuel 3.27|2 Sam. 3:27 (27, 39)]][[2 Samuel 3.39|]].  
+[^c]: [[2 Samuel 20.10|2 Sam. 20:10]].  

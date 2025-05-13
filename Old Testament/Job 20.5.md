@@ -5,4 +5,4 @@
 [Job 20:5](https://www.churchofjesuschrist.org/study/scriptures/ot/job/20.5?lang=eng#p5)
 
 
-[^a]: TG [[Joy]].
+[^a]: [[Joy|TG Joy]].  

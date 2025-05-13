@@ -5,4 +5,4 @@
 [2 Samuel 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/18.12?lang=eng#p12)
 
 
-[^a]: [[2 Samuel 18.5|2 Sam. 18:5.]]
+[^a]: [[2 Samuel 18.5|2 Sam. 18:5]].  

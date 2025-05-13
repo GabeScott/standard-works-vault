@@ -5,4 +5,4 @@
 [Joshua 13:33](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.33?lang=eng#p33)
 
 
-[^a]: TG [[Inheritance]].
+[^a]: [[Inheritance|TG Inheritance]].  

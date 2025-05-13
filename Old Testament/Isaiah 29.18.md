@@ -5,7 +5,7 @@
 [Isaiah 29:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.18?lang=eng#p18)
 
 
-[^a]: TG [[Last Days]].
-[^b]: TG [[Book of Mormon]].
-[^c]: [[Isaiah 32.3|Isa. 32:3]]. TG [[Sight]].
-[^d]: TG [[Darkness, Spiritual]].
+[^a]: [[Last Days|TG Last Days]].  
+[^b]: [[Book of Mormon|TG Book of Mormon]].  
+[^c]: [[Isaiah 32.3|Isa. 32:3]]. [[Sight|TG Sight]].  
+[^d]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  

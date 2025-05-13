@@ -5,4 +5,4 @@
 [2 Nephi 20:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p21#p21)
 
 
-[^a]: [[Isaiah 11.11|Isa. 11:11]]. TG [[Israel, Remnant of]].
+[^a]: [[Isaiah 11.11|Isa. 11:11]]. [[Israel, Remnant of|TG Israel, Remnant of]].  

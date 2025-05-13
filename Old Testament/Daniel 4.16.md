@@ -5,4 +5,4 @@
 [Daniel 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.16?lang=eng#p16)
 
 
-[^a]: OR years, or seasons.
+[^a]: OR years, or seasons.  

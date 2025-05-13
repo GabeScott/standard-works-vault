@@ -5,5 +5,5 @@
 [Psalms 106:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.1?lang=eng#p1)
 
 
-[^a]: HEB Hallelu-yah (Hallelujah).
-[^b]: [[Psalms 119.68|Ps. 119:68.]]
+[^a]: HEB Hallelu-yah (Hallelujah).  
+[^b]: [[Psalms 119.68|Ps. 119:68]].  

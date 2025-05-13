@@ -5,4 +5,4 @@
 [Luke 9:43](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.43?lang=eng#p43)
 
 
-[^a]: GR majesty, glory.
+[^a]: GR majesty, glory.  

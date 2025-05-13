@@ -5,5 +5,5 @@
 [Mormon 9:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p21#p21)
 
 
-[^a]: [[Matthew 21.22|Matt. 21:22 (18-22)]]; [[3 Nephi 18.20|3 Ne. 18:20.]]
-[^b]: TG [[Promise]].
+[^a]: [[Matthew 21.18|Matt. 21:22 (18–22)]][[Matthew 21.19|]][[Matthew 21.20|]][[Matthew 21.21|]][[Matthew 21.22|]]; [[3 Nephi 18.20|3 Ne. 18:20]].  
+[^b]: [[Promise|TG Promise]].  

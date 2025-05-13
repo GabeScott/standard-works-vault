@@ -5,5 +5,5 @@
 [Revelation 21:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 40.2|Ezek. 40:2]]; [[Moses 1.1|Moses 1:1.]]
-[^b]: [[Moses 7.63|Moses 7:63 (21, 62-64).]]
+[^a]: [[Ezekiel 40.2|Ezek. 40:2]]; [[Moses 1.1|Moses 1:1]].  
+[^b]: [[Moses 7.21|Moses 7:63 (21, 62–64)]][[Moses 7.62|]][[Moses 7.63|]][[Moses 7.64|]].  

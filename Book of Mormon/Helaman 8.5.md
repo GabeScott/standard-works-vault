@@ -5,4 +5,4 @@
 [Helaman 8:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p5#p5)
 
 
-[^a]: [[Helaman 7.22|Hel. 7:22.]]
+[^a]: [[Helaman 7.22|Hel. 7:22]].  

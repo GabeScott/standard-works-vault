@@ -5,4 +5,4 @@
 [Moroni 7:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p14#p14)
 
 
-[^a]: [[Isaiah 5.20|Isa. 5:20]]; [[2 Nephi 15.20|2 Ne. 15:20]]; [[D&C 64.16|D&C 64:16]]; [[D&C 121.16|121:16.]]
+[^a]: [[Isaiah 5.20|Isa. 5:20]]; [[2 Nephi 15.20|2 Ne. 15:20]]; [[D&C 64.16|D&C 64:16]]; [[D&C 121.16|121:16]].  

@@ -5,5 +5,5 @@
 [1 Nephi 11:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p6#p6)
 
 
-[^a]: [[Exodus 9.29|Ex. 9:29]]; [[Deuteronomy 10.14|Deut. 10:14]]; [[2 Nephi 29.7|2 Ne. 29:7]]; [[3 Nephi 11.14|3 Ne. 11:14]]; [[D&C 55.1|D&C 55:1]]; [[Moses 6.44|Moses 6:44.]]
-[^b]: TG [[Believe]].
+[^a]: [[Exodus 9.29|Ex. 9:29]]; [[Deuteronomy 10.14|Deut. 10:14]]; [[2 Nephi 29.7|2 Ne. 29:7]]; [[3 Nephi 11.14|3 Ne. 11:14]]; [[D&C 55.1|D&C 55:1]]; [[Moses 6.44|Moses 6:44]].  
+[^b]: [[Believe|TG Believe]].  

@@ -5,4 +5,4 @@
 [Luke 21:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.17?lang=eng#p17)
 
 
-[^a]: [[D&C 98.13|D&C 98:13]]; [[D&C 101.35|101:35.]]
+[^a]: [[D&C 98.13|D&C 98:13]]; [[D&C 101.35|101:35]].  

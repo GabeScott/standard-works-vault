@@ -5,4 +5,4 @@
 [Psalms 105:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 39.20|Gen. 39:20.]]
+[^a]: [[Genesis 39.20|Gen. 39:20]].  

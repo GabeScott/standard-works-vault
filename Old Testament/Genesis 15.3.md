@@ -5,4 +5,4 @@
 [Genesis 15:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.3?lang=eng#p3)
 
 
-[^a]: HEB a son of my house. Gen. 14:14.
+[^a]: HEB a son of my house. [[Genesis 14.14|Gen. 14:14]].  

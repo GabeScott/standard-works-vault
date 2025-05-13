@@ -5,4 +5,4 @@
 [Psalms 18:49](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.49?lang=eng#p49)
 
 
-[^a]: [[Romans 15.9|Rom. 15:9.]]
+[^a]: [[Romans 15.9|Rom. 15:9]].  

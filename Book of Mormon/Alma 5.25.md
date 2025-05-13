@@ -5,4 +5,4 @@
 [Alma 5:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p25#p25)
 
 
-[^a]: [[Deuteronomy 32.5|Deut. 32:5]]; [[2 Nephi 9.9|2 Ne. 9:9.]]
+[^a]: [[Deuteronomy 32.5|Deut. 32:5]]; [[2 Nephi 9.9|2 Ne. 9:9]].  

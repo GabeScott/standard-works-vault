@@ -5,4 +5,4 @@
 [Psalms 59:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/59.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 57.4|Ps. 57:4.]]
+[^a]: [[Psalms 57.4|Ps. 57:4]].  

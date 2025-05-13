@@ -5,4 +5,4 @@
 [Acts 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.11?lang=eng#p11)
 
 
-[^a]: [[1 Kings 6.3|1 Kgs. 6:3]]; [[John 10.23|John 10:23.]]
+[^a]: [[1 Kings 6.3|1 Kgs. 6:3]]; [[John 10.23|John 10:23]].  

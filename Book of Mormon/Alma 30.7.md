@@ -5,5 +5,5 @@
 [Alma 30:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 1.17|Alma 1:17.]]
-[^b]: [[Acts 18.13|Acts 18:13.]]
+[^a]: [[Alma 1.17|Alma 1:17]].  
+[^b]: [[Acts 18.13|Acts 18:13]].  

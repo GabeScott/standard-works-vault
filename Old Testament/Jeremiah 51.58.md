@@ -5,4 +5,4 @@
 [Jeremiah 51:58](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.58?lang=eng#p58)
 
 
-[^a]: Hab. 2:13.
+[^a]: [[Habakkuk 2.13|Hab. 2:13]].  

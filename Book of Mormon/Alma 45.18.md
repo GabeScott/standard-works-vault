@@ -5,5 +5,5 @@
 [Alma 45:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p18#p18)
 
 
-[^a]: [[3 Nephi 1.3|3 Ne. 1:3 (2-3).]]
-[^b]: [[Alma 35.13|Alma 35:13.]]
+[^a]: [[3 Nephi 1.2|3 Ne. 1:3 (2–3)]][[3 Nephi 1.3|]].  
+[^b]: [[Alma 35.13|Alma 35:13]].  

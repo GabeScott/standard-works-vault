@@ -5,6 +5,6 @@
 [2 Samuel 18:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/18.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 14.17|Gen. 14:17.]]
-[^b]: [[2 Samuel 14.27|2 Sam. 14:27.]]
-[^c]: OR monument.
+[^a]: [[Genesis 14.17|Gen. 14:17]].  
+[^b]: [[2 Samuel 14.27|2 Sam. 14:27]].  
+[^c]: OR monument.  

@@ -5,4 +5,4 @@
 [Ether 12:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p33#p33)
 
 
-[^a]: [[John 3.16|John 3:16 (16-18).]]
+[^a]: [[John 3.16|John 3:16 (16–18)]][[John 3.17|]][[John 3.18|]].  

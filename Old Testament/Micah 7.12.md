@@ -5,4 +5,4 @@
 [Micah 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.12?lang=eng#p12)
 
 
-[^a]: [[Nehemiah 1.9|Neh. 1:9]]; [[D&C 101.13|D&C 101:13.]]
+[^a]: [[Nehemiah 1.9|Neh. 1:9]]; [[D&C 101.13|D&C 101:13]].  

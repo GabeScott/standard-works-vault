@@ -5,5 +5,5 @@
 [2 Chronicles 29:31](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.31?lang=eng#p31)
 
 
-[^a]: [[Leviticus 7.12|Lev. 7:12 (12, 16, 33).]]
-[^b]: OR willing, generous.
+[^a]: [[Leviticus 7.12|Lev. 7:12 (12, 16, 33)]][[Leviticus 7.16|]][[Leviticus 7.33|]].  
+[^b]: OR willing, generous.  

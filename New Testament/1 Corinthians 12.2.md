@@ -5,5 +5,5 @@
 [1 Corinthians 12:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.2?lang=eng#p2)
 
 
-[^a]: GR led astray.
-[^b]: TG [[Idolatry, Idol]].
+[^a]: GR led astray.  
+[^b]: [[Idolatry, Idol|TG Idolatry]].  

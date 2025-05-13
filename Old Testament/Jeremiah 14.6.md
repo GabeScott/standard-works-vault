@@ -5,4 +5,4 @@
 [Jeremiah 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.6?lang=eng#p6)
 
 
-[^a]: HEB jackals.
+[^a]: HEB jackals.  

@@ -5,6 +5,6 @@
 [Hebrews 8:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/8.10?lang=eng#p10)
 
 
-[^a]: TG [[God, Law of]].
-[^b]: TG [[Mind, Minded]].
-[^c]: [[Jeremiah 31.33|Jer. 31:33]]; [[2 Corinthians 3.3|2 Cor. 3:3.]]
+[^a]: [[God, Law of|TG God, Law of]].  
+[^b]: [[Mind, Minded|TG Mind]].  
+[^c]: [[Jeremiah 31.33|Jer. 31:33]]; [[2 Corinthians 3.3|2 Cor. 3:3]].  

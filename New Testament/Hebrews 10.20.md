@@ -5,4 +5,4 @@
 [Hebrews 10:20](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.20?lang=eng#p20)
 
 
-[^a]: TG [[Veil]].
+[^a]: [[Veil|TG Veil]].  

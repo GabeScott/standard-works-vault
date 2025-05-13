@@ -5,4 +5,4 @@
 [Acts 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.19?lang=eng#p19)
 
 
-[^a]: GR own.
+[^a]: GR own.  

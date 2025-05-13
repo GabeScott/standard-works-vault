@@ -5,7 +5,7 @@
 [Isaiah 11:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.11?lang=eng#p11)
 
 
-[^a]: [[D&C 137.6|D&C 137:6.]]
-[^b]: TG [[Israel, Gathering of]]; [[Israel, Restoration of]]; [[Restoration of the Gospel]].
-[^c]: TG [[Israel, Ten Lost Tribes of]].
-[^d]: [[2 Nephi 10.20|2 Ne. 10:20 (19-22)]]; [[D&C 133.8|D&C 133:8.]]
+[^a]: [[D&C 137.6|D&C 137:6]].  
+[^b]: [[Israel, Gathering of|TG Israel, Gathering of]]; [[Israel, Restoration of|Israel, Restoration of]]; [[Restoration of the Gospel|Restoration of the Gospel]].  
+[^c]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  
+[^d]: [[2 Nephi 10.19|2 Ne. 10:20 (19–22)]][[2 Nephi 10.20|]][[2 Nephi 10.21|]][[2 Nephi 10.22|]]; [[D&C 133.8|D&C 133:8]].  

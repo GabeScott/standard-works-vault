@@ -5,4 +5,4 @@
 [Exodus 39:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.38?lang=eng#p38)
 
 
-[^a]: HEB screen for the opening.
+[^a]: HEB screen for the opening.  

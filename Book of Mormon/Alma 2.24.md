@@ -5,6 +5,6 @@
 [Alma 2:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p24#p24)
 
 
-[^a]: [[Alma 3.20|Alma 3:20.]]
-[^b]: [[Alma 3.4|Alma 3:4 (4, 13-18).]]
-[^c]: [[2 Nephi 5.8|2 Ne. 5:8]]; [[Alma 20.1|Alma 20:1.]]
+[^a]: [[Alma 3.20|Alma 3:20]].  
+[^b]: [[Alma 3.4|Alma 3:4 (4, 13–18)]][[Alma 3.13|]][[Alma 3.14|]][[Alma 3.15|]][[Alma 3.16|]][[Alma 3.17|]][[Alma 3.18|]].  
+[^c]: [[2 Nephi 5.8|2 Ne. 5:8]]; [[Alma 20.1|Alma 20:1]].  

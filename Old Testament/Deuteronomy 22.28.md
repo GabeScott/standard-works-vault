@@ -5,4 +5,4 @@
 [Deuteronomy 22:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.28?lang=eng#p28)
 
 
-[^a]: [[Exodus 22.17|Ex. 22:17 (16-17).]]
+[^a]: [[Exodus 22.16|Ex. 22:17 (16–17)]][[Exodus 22.17|]].  

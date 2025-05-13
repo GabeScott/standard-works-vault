@@ -5,5 +5,5 @@
 [Exodus 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.2?lang=eng#p2)
 
 
-[^a]: IE all within thy border.
-[^b]: TG [[Plague]].
+[^a]: IE all within thy border.  
+[^b]: [[Plague|TG Plague]].  

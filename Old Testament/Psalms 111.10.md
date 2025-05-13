@@ -5,5 +5,5 @@
 [Psalms 111:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/111.10?lang=eng#p10)
 
 
-[^a]: TG [[Learn, Learning]]; [[Wisdom]].
-[^b]: TG [[Understanding]].
+[^a]: [[Learn, Learning|TG Learn]]; [[Wisdom|Wisdom]].  
+[^b]: [[Understanding|TG Understanding]].  

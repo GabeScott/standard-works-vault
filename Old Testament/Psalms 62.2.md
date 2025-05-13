@@ -5,4 +5,4 @@
 [Psalms 62:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/62.2?lang=eng#p2)
 
 
-[^a]: TG [[Salvation for the Dead]].
+[^a]: [[Salvation|TG Salvation]].  

@@ -5,4 +5,4 @@
 [2 Corinthians 11:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.6?lang=eng#p6)
 
 
-[^a]: [[2 Corinthians 10.10|2 Cor. 10:10.]]
+[^a]: [[2 Corinthians 10.10|2 Cor. 10:10]].  

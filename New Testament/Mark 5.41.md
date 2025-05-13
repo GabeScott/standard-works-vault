@@ -5,4 +5,4 @@
 [Mark 5:41](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.41?lang=eng#p41)
 
 
-[^a]: TG [[Death, Power over]].
+[^a]: [[Death, Power over|TG Death, Power over]].  

@@ -5,4 +5,4 @@
 [Matthew 24:42](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.42?lang=eng#p42)
 
 
-[^a]: TG [[Millennium, Preparing a People for]]; [[Watch, Watchfulness]].
+[^a]: [[Millennium, Preparing a People for|TG Millennium, Preparing a People for]]; [[Watch, Watchfulness|Watch]].  

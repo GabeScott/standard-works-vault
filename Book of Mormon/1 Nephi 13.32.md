@@ -5,4 +5,4 @@
 [1 Nephi 13:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p32#p32)
 
 
-[^a]: TG [[Devil, Church of]].
+[^a]: [[Devil, Church of|TG Devil, Church of]].  

@@ -5,4 +5,4 @@
 [Exodus 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.12?lang=eng#p12)
 
 
-[^a]: [[Acts 7.24|Acts 7:24 (23-25).]]
+[^a]: [[Acts 7.23|Acts 7:24 (23–25)]][[Acts 7.24|]][[Acts 7.25|]].  

@@ -5,4 +5,4 @@
 [Esther 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.2?lang=eng#p2)
 
 
-[^a]: OR Susa; i.e., the capital of Persia. Neh. 1:1.
+[^a]: OR Susa; i.e., the capital of Persia. [[Nehemiah 1.1|Neh. 1:1]].  

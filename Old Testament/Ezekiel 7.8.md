@@ -5,4 +5,4 @@
 [Ezekiel 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.8?lang=eng#p8)
 
 
-[^a]: [[Ezekiel 20.8|Ezek. 20:8.]]
+[^a]: [[Ezekiel 20.8|Ezek. 20:8]].  

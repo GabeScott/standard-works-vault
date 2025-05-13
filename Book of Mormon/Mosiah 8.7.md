@@ -5,4 +5,4 @@
 [Mosiah 8:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/8?lang=eng&id=p7#p7)
 
 
-[^a]: [[Mosiah 21.25|Mosiah 21:25.]]
+[^a]: [[Mosiah 21.25|Mosiah 21:25]].  

@@ -5,4 +5,4 @@
 [Galatians 3:22](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.22?lang=eng#p22)
 
 
-[^a]: [[D&C 49.8|D&C 49:8.]]
+[^a]: [[D&C 49.8|D&C 49:8]].  

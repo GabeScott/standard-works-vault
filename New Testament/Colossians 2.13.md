@@ -5,4 +5,4 @@
 [Colossians 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/col/2.13?lang=eng#p13)
 
 
-[^a]: GR caused to become alive. TG [[Jesus Christ, Resurrection]].
+[^a]: GR caused to become alive. [[Resurrection|TG Resurrection]].  

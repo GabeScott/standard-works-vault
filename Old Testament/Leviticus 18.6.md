@@ -5,4 +5,4 @@
 [Leviticus 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.6?lang=eng#p6)
 
 
-[^a]: TG [[Sensuality]]; [[Sexual Immorality]].
+[^a]: [[Sensuality|TG Sensuality]]; [[Sexual Immorality|Sexual Immorality]].  

@@ -5,5 +5,5 @@
 [3 Nephi 13:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Prayer, Pray]].
-[^b]: TG [[Hypocrisy, Hypocrite]].
+[^a]: [[Prayer, Pray|TG Prayer]].  
+[^b]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  

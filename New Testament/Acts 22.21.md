@@ -5,4 +5,4 @@
 [Acts 22:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.21?lang=eng#p21)
 
 
-[^a]: [[Acts 26.17|Acts 26:17 (17-18)]]; [[Romans 11.13|Rom. 11:13.]]
+[^a]: [[Acts 26.17|Acts 26:17 (17–18)]][[Acts 26.18|]]; [[Romans 11.13|Rom. 11:13]].  

@@ -5,5 +5,5 @@
 [3 Nephi 11:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p8#p8)
 
 
-[^a]: [[1 Nephi 12.6|1 Ne. 12:6]]; [[2 Nephi 26.1|2 Ne. 26:1 (1, 9)]]; [[Alma 16.20|Alma 16:20]]; [[Ether 3.17|Ether 3:17 (17-18).]]
-[^b]: [[Acts 1.9|Acts 1:9 (9-11).]]
+[^a]: [[1 Nephi 12.6|1 Ne. 12:6]]; [[2 Nephi 26.1|2 Ne. 26:1 (1, 9)]][[2 Nephi 26.9|]]; [[Alma 16.20|Alma 16:20]]; [[Ether 3.17|Ether 3:17 (17–18)]][[Ether 3.18|]].  
+[^b]: [[Acts 1.9|Acts 1:9 (9–11)]][[Acts 1.10|]][[Acts 1.11|]].  

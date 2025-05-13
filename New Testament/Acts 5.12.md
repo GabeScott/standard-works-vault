@@ -5,4 +5,4 @@
 [Acts 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.12?lang=eng#p12)
 
 
-[^a]: [[Hebrews 2.4|Heb. 2:4]]. TG [[Signs]].
+[^a]: [[Hebrews 2.4|Heb. 2:4]]. [[Signs|TG Signs]].  

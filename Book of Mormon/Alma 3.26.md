@@ -5,4 +5,4 @@
 [Alma 3:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p26#p26)
 
 
-[^a]: [[Psalms 7.16|Ps. 7:16]]. TG [[Agency]]; [[Reward]].
+[^a]: [[Psalms 7.16|Ps. 7:16]]. [[Agency|TG Agency]]; [[Reward|Reward]].  

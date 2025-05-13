@@ -5,4 +5,4 @@
 [Deuteronomy 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.5?lang=eng#p5)
 
 
-[^a]: [[Alma 48.8|Alma 48:8.]]
+[^a]: [[Alma 48.8|Alma 48:8]].  

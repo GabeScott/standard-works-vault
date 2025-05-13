@@ -5,4 +5,4 @@
 [2 Chronicles 13:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/13.7?lang=eng#p7)
 
 
-[^a]: HEB sons of worthlessness; scoundrels.
+[^a]: HEB sons of worthlessness; scoundrels.  

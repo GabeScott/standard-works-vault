@@ -5,5 +5,5 @@
 [Deuteronomy 4:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.28?lang=eng#p28)
 
 
-[^a]: TG [[Idolatry, Idol]].
-[^b]: TG [[God, Body of, Corporeal Nature]].
+[^a]: [[Idolatry, Idol|TG Idolatry]].  
+[^b]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  

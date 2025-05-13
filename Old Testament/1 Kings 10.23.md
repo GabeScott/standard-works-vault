@@ -5,4 +5,4 @@
 [1 Kings 10:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.23?lang=eng#p23)
 
 
-[^a]: [[1 Kings 3.13|1 Kgs. 3:13.]]
+[^a]: [[1 Kings 3.13|1 Kgs. 3:13]].  

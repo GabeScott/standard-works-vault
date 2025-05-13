@@ -5,4 +5,4 @@
 [Joshua 24:22](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.22?lang=eng#p22)
 
 
-[^a]: [[D&C 4.2|D&C 4:2 (2-5).]]
+[^a]: [[D&C 4.2|D&C 4:2 (2–5)]][[D&C 4.3|]][[D&C 4.4|]][[D&C 4.5|]].  

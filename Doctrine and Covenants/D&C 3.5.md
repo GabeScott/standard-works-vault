@@ -5,4 +5,4 @@
 [D&C 3:5](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.5?lang=eng#p5)
 
 
-[^a]: [[Alma 37.14|Alma 37:14.]]
+[^a]: [[Alma 37.14|Alma 37:14]].  

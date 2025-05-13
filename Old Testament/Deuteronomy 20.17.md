@@ -5,4 +5,4 @@
 [Deuteronomy 20:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.17?lang=eng#p17)
 
 
-[^a]: [[Joshua 10.40|Josh. 10:40 (40-43)]]; [[Joshua 11.12|11:12 (11-12).]]
+[^a]: [[Joshua 10.40|Josh. 10:40 (40–43)]][[Joshua 10.41|]][[Joshua 10.42|]][[Joshua 10.43|]]; [[Joshua 11.11|11:12 (11–12)]][[Joshua 11.12|]].  

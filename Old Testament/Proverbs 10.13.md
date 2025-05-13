@@ -5,4 +5,4 @@
 [Proverbs 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.13?lang=eng#p13)
 
 
-[^a]: [[Proverbs 19.29|Prov. 19:29.]]
+[^a]: [[Proverbs 19.29|Prov. 19:29]].  

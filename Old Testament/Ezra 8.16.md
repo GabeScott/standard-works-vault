@@ -5,4 +5,4 @@
 [Ezra 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/8.16?lang=eng#p16)
 
 
-[^a]: [[Nehemiah 6.18|Neh. 6:18.]]
+[^a]: [[Nehemiah 6.18|Neh. 6:18]].  

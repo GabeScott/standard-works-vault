@@ -5,4 +5,4 @@
 [Mark 6:50](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.50?lang=eng#p50)
 
 
-[^a]: OR terrified.
+[^a]: OR terrified.  

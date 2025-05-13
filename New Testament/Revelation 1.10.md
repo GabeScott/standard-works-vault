@@ -5,6 +5,6 @@
 [Revelation 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.10?lang=eng#p10)
 
 
-[^a]: TG [[Sabbath]].
-[^b]: TG [[Jesus Christ, Types of, in Memory]].
-[^c]: [[D&C 29.4|D&C 29:4.]]
+[^a]: [[Sabbath|TG Sabbath]].  
+[^b]: [[Jesus Christ, Types of, in Memory|TG Jesus Christ, Types of, in Memory]].  
+[^c]: [[D&C 29.4|D&C 29:4]].  

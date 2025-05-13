@@ -5,4 +5,4 @@
 [1 Timothy 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.9?lang=eng#p9)
 
 
-[^a]: TG [[Old Age]].
+[^a]: [[Old Age|TG Old Age]].  

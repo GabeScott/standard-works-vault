@@ -5,5 +5,5 @@
 [Genesis 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.4?lang=eng#p4)
 
 
-[^a]: IE a resident alien. TG [[Stranger]].
-[^b]: TG [[Death]].
+[^a]: IE a resident alien. [[Stranger|TG Stranger]].  
+[^b]: [[Death|TG Death]].  

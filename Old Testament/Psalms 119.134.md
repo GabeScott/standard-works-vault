@@ -5,4 +5,4 @@
 [Psalms 119:134](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.134?lang=eng#p134)
 
 
-[^a]: TG [[Oppression, Oppress]].
+[^a]: [[Oppression, Oppress|TG Oppression]].  

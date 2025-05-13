@@ -5,4 +5,4 @@
 [Nehemiah 13:20](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.20?lang=eng#p20)
 
 
-[^a]: OR outside of Jerusalem.
+[^a]: OR outside of Jerusalem.  

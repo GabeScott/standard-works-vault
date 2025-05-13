@@ -5,4 +5,4 @@
 [Alma 22:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 18.3|Alma 18:3 (1-3).]]
+[^a]: [[Alma 18.1|Alma 18:3 (1–3)]][[Alma 18.2|]][[Alma 18.3|]].  

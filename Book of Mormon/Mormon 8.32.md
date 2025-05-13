@@ -5,4 +5,4 @@
 [Mormon 8:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p32#p32)
 
 
-[^a]: TG [[Devil, Church of]].
+[^a]: [[Devil, Church of|TG Devil, Church of]].  

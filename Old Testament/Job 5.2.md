@@ -5,4 +5,4 @@
 [Job 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/job/5.2?lang=eng#p2)
 
 
-[^a]: OR naive.
+[^a]: OR naive.  

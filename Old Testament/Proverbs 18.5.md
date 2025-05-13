@@ -5,4 +5,4 @@
 [Proverbs 18:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 82.2|Ps. 82:2.]]
+[^a]: [[Psalms 82.2|Ps. 82:2]].  

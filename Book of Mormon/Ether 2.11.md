@@ -5,5 +5,5 @@
 [Ether 2:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p11#p11)
 
 
-[^a]: [[1 Nephi 14.6|1 Ne. 14:6]]; [[2 Nephi 28.32|2 Ne. 28:32.]]
-[^b]: [[Alma 45.16|Alma 45:16 (10-14, 16)]]; [[Words of Mormon 1.17|Morm. 1:17.]]
+[^a]: [[1 Nephi 14.6|1 Ne. 14:6]]; [[2 Nephi 28.32|2 Ne. 28:32]].  
+[^b]: [[Alma 45.10|Alma 45:16 (10–14, 16)]][[Alma 45.11|]][[Alma 45.12|]][[Alma 45.13|]][[Alma 45.14|]][[Alma 45.16|]]; [[Mormon 1.17|Morm. 1:17]].  

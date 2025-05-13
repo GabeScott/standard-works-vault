@@ -5,4 +5,4 @@
 [Matthew 24:46](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.46?lang=eng#p46)
 
 
-[^a]: TG [[Servant]].
+[^a]: [[Servant|TG Servant]].  

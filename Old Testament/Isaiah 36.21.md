@@ -5,4 +5,4 @@
 [Isaiah 36:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/36.21?lang=eng#p21)
 
 
-[^a]: OR were silent.
+[^a]: OR were silent.  

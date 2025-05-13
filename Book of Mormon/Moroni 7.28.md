@@ -5,5 +5,5 @@
 [Moroni 7:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Motivations]].
-[^b]: 1 Jn. 2:1; [[2 Nephi 2.9|2 Ne. 2:9]]; [[Mosiah 14.12|Mosiah 14:12]]; [[Mosiah 15.8|15:8]]; [[3 Nephi 18.35|3 Ne. 18:35]]. TG [[Jesus Christ, Relationships with the Father]].
+[^a]: [[Motivations|TG Motivations]].  
+[^b]: [[1 John 2.1|1 Jn. 2:1]]; [[2 Nephi 2.9|2 Ne. 2:9]]; [[Mosiah 14.12|Mosiah 14:12]]; [[Mosiah 15.8|15:8]]; [[3 Nephi 18.35|3 Ne. 18:35]]. [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  

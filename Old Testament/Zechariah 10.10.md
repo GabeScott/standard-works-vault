@@ -5,4 +5,4 @@
 [Zechariah 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/10.10?lang=eng#p10)
 
 
-[^a]: TG [[Israel, Ten Lost Tribes of]].
+[^a]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  

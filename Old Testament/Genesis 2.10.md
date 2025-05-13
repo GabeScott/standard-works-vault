@@ -5,5 +5,5 @@
 [Genesis 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.10?lang=eng#p10)
 
 
-[^a]: TG [[Eden]].
-[^b]: HEB divided into four heads (branches).
+[^a]: [[Eden|TG Eden]].  
+[^b]: HEB divided into four heads (branches).  

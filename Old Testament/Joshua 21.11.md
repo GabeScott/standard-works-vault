@@ -5,4 +5,4 @@
 [Joshua 21:11](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.11?lang=eng#p11)
 
 
-[^a]: [[Joshua 14.15|Josh. 14:15.]]
+[^a]: [[Joshua 14.15|Josh. 14:15]].  

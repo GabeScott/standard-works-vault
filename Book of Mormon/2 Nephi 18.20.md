@@ -5,4 +5,4 @@
 [2 Nephi 18:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p20#p20)
 
 
-[^a]: [[Luke 16.29|Luke 16:29 (29-31).]]
+[^a]: [[Luke 16.29|Luke 16:29 (29–31)]][[Luke 16.30|]][[Luke 16.31|]].  

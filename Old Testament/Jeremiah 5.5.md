@@ -5,4 +5,4 @@
 [Jeremiah 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.5?lang=eng#p5)
 
 
-[^a]: IE of the law and the covenants.
+[^a]: IE of the law and the covenants.  

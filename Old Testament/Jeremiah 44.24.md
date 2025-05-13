@@ -5,4 +5,4 @@
 [Jeremiah 44:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.24?lang=eng#p24)
 
 
-[^a]: [[Jeremiah 43.7|Jer. 43:7.]]
+[^a]: [[Jeremiah 43.7|Jer. 43:7]].  

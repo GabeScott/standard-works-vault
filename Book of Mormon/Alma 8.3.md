@@ -5,5 +5,5 @@
 [Alma 8:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 31.6|Alma 31:6.]]
-[^b]: [[Alma 6.7|Alma 6:7]]; [[Alma 16.6|16:6 (6-7).]]
+[^a]: [[Alma 31.6|Alma 31:6]].  
+[^b]: [[Alma 6.7|Alma 6:7]]; [[Alma 16.6|16:6 (6–7)]][[Alma 16.7|]].  

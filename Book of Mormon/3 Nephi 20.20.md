@@ -5,4 +5,4 @@
 [3 Nephi 20:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p20#p20)
 
 
-[^a]: [[1 Nephi 14.17|1 Ne. 14:17]]; [[1 Nephi 22.16|22:16 (15-16)]]; [[3 Nephi 29.4|3 Ne. 29:4.]]
+[^a]: [[1 Nephi 14.17|1 Ne. 14:17]]; [[1 Nephi 22.15|22:16 (15–16)]][[1 Nephi 22.16|]]; [[3 Nephi 29.4|3 Ne. 29:4]].  

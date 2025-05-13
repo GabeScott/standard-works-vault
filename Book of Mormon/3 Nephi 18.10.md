@@ -5,4 +5,4 @@
 [3 Nephi 18:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Commitment]].
+[^a]: [[Commitment|TG Commitment]].  

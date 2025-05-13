@@ -5,4 +5,4 @@
 [Deuteronomy 10:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.11?lang=eng#p11)
 
 
-[^a]: [[Exodus 33.1|Ex. 33:1 (1-3).]]
+[^a]: [[Exodus 33.1|Ex. 33:1 (1–3)]][[Exodus 33.2|]][[Exodus 33.3|]].  

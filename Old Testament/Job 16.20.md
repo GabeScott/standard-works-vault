@@ -5,4 +5,4 @@
 [Job 16:20](https://www.churchofjesuschrist.org/study/scriptures/ot/job/16.20?lang=eng#p20)
 
 
-[^a]: [[Job 21.3|Job 21:3 (1-3).]]
+[^a]: [[Job 21.1|Job 21:3 (1–3)]][[Job 21.2|]][[Job 21.3|]].  

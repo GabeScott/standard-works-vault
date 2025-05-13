@@ -5,5 +5,5 @@
 [1 Samuel 25:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.28?lang=eng#p28)
 
 
-[^a]: OR firm house; an assurance of descendants.
-[^b]: [[1 Samuel 2.35|1 Sam. 2:35.]]
+[^a]: OR firm house; an assurance of descendants.  
+[^b]: [[1 Samuel 2.35|1 Sam. 2:35]].  

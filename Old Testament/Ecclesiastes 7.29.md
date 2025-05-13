@@ -5,4 +5,4 @@
 [Ecclesiastes 7:29](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.29?lang=eng#p29)
 
 
-[^a]: OR devices, arts.
+[^a]: OR devices, arts.  

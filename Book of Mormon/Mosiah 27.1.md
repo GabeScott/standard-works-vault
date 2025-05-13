@@ -5,4 +5,4 @@
 [Mosiah 27:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p1#p1)
 
 
-[^a]: TG [[Counsel]].
+[^a]: [[Counsel|TG Counsel]].  

@@ -5,5 +5,5 @@
 [Luke 22:20](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.20?lang=eng#p20)
 
 
-[^a]: [[D&C 20.78|D&C 20:78.]]
-[^b]: GR covenant.
+[^a]: [[D&C 20.78|D&C 20:78]].  
+[^b]: GR covenant.  

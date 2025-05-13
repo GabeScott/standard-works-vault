@@ -5,4 +5,4 @@
 [2 Nephi 15:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p8#p8)
 
 
-[^a]: [[Micah 2.2|Micah 2:2.]]
+[^a]: [[Micah 2.2|Micah 2:2]].  

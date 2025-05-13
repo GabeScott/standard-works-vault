@@ -5,4 +5,4 @@
 [2 Kings 23:34](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.34?lang=eng#p34)
 
 
-[^a]: [[2 Chronicles 36.5|2 Chr. 36:5.]]
+[^a]: [[2 Chronicles 36.5|2 Chr. 36:5]].  

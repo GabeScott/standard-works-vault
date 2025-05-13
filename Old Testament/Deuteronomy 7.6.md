@@ -5,7 +5,7 @@
 [Deuteronomy 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.6?lang=eng#p6)
 
 
-[^a]: OR a nation consecrated to.
-[^b]: [[Ezra 9.2|Ezra 9:2]]; [[Isaiah 63.18|Isa. 63:18.]]
-[^c]: TG [[Israel, Blessings of]]; [[Israel, Mission of]].
-[^d]: TG [[Peculiar People]]; [[Separation, Separate]].
+[^a]: OR a nation consecrated to.  
+[^b]: [[Ezra 9.2|Ezra 9:2]]; [[Isaiah 63.18|Isa. 63:18]].  
+[^c]: [[Israel, Blessings of|TG Israel, Blessings of]]; [[Israel, Mission of|Israel, Mission of]].  
+[^d]: [[Peculiar People|TG Peculiar People]]; [[Separation, Separate|Separation]].  

@@ -5,4 +5,4 @@
 [Alma 51:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p30#p30)
 
 
-[^a]: [[Alma 50.29|Alma 50:29]]; [[Alma 52.9|52:9.]]
+[^a]: [[Alma 50.29|Alma 50:29]]; [[Alma 52.9|52:9]].  

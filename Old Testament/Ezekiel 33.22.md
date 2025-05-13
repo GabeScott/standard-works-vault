@@ -5,5 +5,5 @@
 [Ezekiel 33:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.22?lang=eng#p22)
 
 
-[^a]: [[Ezekiel 1.3|Ezek. 1:3.]]
-[^b]: [[Ezekiel 24.27|Ezek. 24:27.]]
+[^a]: [[Ezekiel 1.3|Ezek. 1:3]].  
+[^b]: [[Ezekiel 24.27|Ezek. 24:27]].  

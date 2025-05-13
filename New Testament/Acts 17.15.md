@@ -5,4 +5,4 @@
 [Acts 17:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.15?lang=eng#p15)
 
 
-[^a]: 1 Thes. 3:1.
+[^a]: [[1 Thessalonians 3.1|1 Thes. 3:1]].  

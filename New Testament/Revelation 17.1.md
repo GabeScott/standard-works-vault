@@ -5,6 +5,6 @@
 [Revelation 17:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.1?lang=eng#p1)
 
 
-[^a]: [[Revelation 18.3|Rev. 18:3 (3-9)]]; [[Revelation 19.2|19:2.]]
-[^b]: TG [[Devil, Church of]].
-[^c]: [[Jeremiah 51.13|Jer. 51:13.]]
+[^a]: [[Revelation 18.3|Rev. 18:3 (3–9)]][[Revelation 18.4|]][[Revelation 18.5|]][[Revelation 18.6|]][[Revelation 18.7|]][[Revelation 18.8|]][[Revelation 18.9|]]; [[Revelation 19.2|19:2]].  
+[^b]: [[Devil, Church of|TG Devil, Church of]].  
+[^c]: [[Jeremiah 51.13|Jer. 51:13]].  

@@ -5,4 +5,4 @@
 [Acts 5:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.16?lang=eng#p16)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Heal, Healing|TG Heal]].  

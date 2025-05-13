@@ -5,4 +5,4 @@
 [Exodus 17:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.16?lang=eng#p16)
 
 
-[^a]: HEB A hand upon the throne of the Lord! (an oath, of strong affirmation).
+[^a]: HEB A hand upon the throne of the Lord! (an oath, of strong affirmation).  

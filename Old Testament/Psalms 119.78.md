@@ -5,4 +5,4 @@
 [Psalms 119:78](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.78?lang=eng#p78)
 
 
-[^a]: TG [[Shame]].
+[^a]: [[Shame|TG Shame]].  

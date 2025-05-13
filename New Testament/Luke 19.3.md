@@ -5,4 +5,4 @@
 [Luke 19:3](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.3?lang=eng#p3)
 
 
-[^a]: GR crowd, multitude.
+[^a]: GR crowd, multitude.  

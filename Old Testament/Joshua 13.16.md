@@ -5,4 +5,4 @@
 [Joshua 13:16](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.16?lang=eng#p16)
 
 
-[^a]: OR border (also vv. 25, 30).
+[^a]: OR border (also [[Joshua 13.25|vv. 25, 30]][[Joshua 13.30|]]).  

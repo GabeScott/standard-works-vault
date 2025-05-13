@@ -5,4 +5,4 @@
 [Helaman 4:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 22.32|Alma 22:32.]]
+[^a]: [[Alma 22.32|Alma 22:32]].  

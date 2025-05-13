@@ -5,4 +5,4 @@
 [Deuteronomy 20:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.7?lang=eng#p7)
 
 
-[^a]: [[Deuteronomy 24.5|Deut. 24:5.]]
+[^a]: [[Deuteronomy 24.5|Deut. 24:5]].  

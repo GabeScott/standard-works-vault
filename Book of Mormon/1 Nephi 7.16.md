@@ -5,4 +5,4 @@
 [1 Nephi 7:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/7?lang=eng&id=p16#p16)
 
 
-[^a]: [[1 Nephi 18.11|1 Ne. 18:11 (11-15).]]
+[^a]: [[1 Nephi 18.11|1 Ne. 18:11 (11–15)]][[1 Nephi 18.12|]][[1 Nephi 18.13|]][[1 Nephi 18.14|]][[1 Nephi 18.15|]].  

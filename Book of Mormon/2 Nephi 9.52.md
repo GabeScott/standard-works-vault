@@ -5,5 +5,5 @@
 [2 Nephi 9:52](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p52#p52)
 
 
-[^a]: TG [[Thanksgiving]].
-[^b]: [[Deuteronomy 26.11|Deut. 26:11.]]
+[^a]: [[Thanksgiving|TG Thanksgiving]].  
+[^b]: [[Deuteronomy 26.11|Deut. 26:11]].  

@@ -5,5 +5,5 @@
 [Alma 24:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p10#p10)
 
 
-[^a]: Dan. 9:9.
-[^b]: TG [[Guiltless]].
+[^a]: [[Daniel 9.9|Dan. 9:9]].  
+[^b]: [[Guilt, Guilty|TG Guilt]].  

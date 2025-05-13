@@ -5,4 +5,4 @@
 [Jeremiah 23:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.2?lang=eng#p2)
 
 
-[^a]: IE been mindful of.
+[^a]: IE been mindful of.  

@@ -5,5 +5,5 @@
 [Job 14:5](https://www.churchofjesuschrist.org/study/scriptures/ot/job/14.5?lang=eng#p5)
 
 
-[^a]: TG [[Time]].
-[^b]: [[Acts 17.26|Acts 17:26.]]
+[^a]: [[Time|TG Time]].  
+[^b]: [[Acts 17.26|Acts 17:26]].  

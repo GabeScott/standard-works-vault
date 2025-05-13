@@ -5,6 +5,6 @@
 [Exodus 23:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.21?lang=eng#p21)
 
 
-[^a]: TG [[Provoking, Provoke]].
-[^b]: TG [[Holy Ghost, Loss of]].
-[^c]: TG [[Transgressor]].
+[^a]: [[Provoking, Provoke|TG Provoking]].  
+[^b]: [[Holy Ghost, Loss of|TG Holy Ghost, Loss of]].  
+[^c]: [[Transgress, Transgression|TG Transgress]].  

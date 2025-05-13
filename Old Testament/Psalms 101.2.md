@@ -5,4 +5,4 @@
 [Psalms 101:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/101.2?lang=eng#p2)
 
 
-[^a]: [[Jacob 6.12|Jacob 6:12 (11-12).]]
+[^a]: [[Jacob 6.11|Jacob 6:12 (11–12)]][[Jacob 6.12|]].  

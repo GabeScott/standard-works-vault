@@ -5,6 +5,6 @@
 [Exodus 33:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 33.20|JST Ex. 33:20 (Appendix).]]
-[^b]: [[Moses 1.11|Moses 1:11.]]
-[^c]: TG [[God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Antemortal]].
+[^a]: [[JST Exodus 33.20|JST Ex. 33:20 (Appendix)]].  
+[^b]: [[Moses 1.11|Moses 1:11]].  
+[^c]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Antemortal|Jesus Christ, Appearances, Antemortal]].  

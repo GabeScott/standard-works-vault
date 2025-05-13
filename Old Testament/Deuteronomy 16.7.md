@@ -5,4 +5,4 @@
 [Deuteronomy 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.7?lang=eng#p7)
 
 
-[^a]: HEB boil, cook.
+[^a]: HEB boil, cook.  

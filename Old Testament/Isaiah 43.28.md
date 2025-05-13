@@ -5,5 +5,5 @@
 [Isaiah 43:28](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.28?lang=eng#p28)
 
 
-[^a]: IE dishonored.
-[^b]: OR ministers, priests.
+[^a]: IE dishonored.  
+[^b]: OR ministers, priests.  

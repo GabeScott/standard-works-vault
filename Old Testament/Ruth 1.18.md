@@ -5,4 +5,4 @@
 [Ruth 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/1.18?lang=eng#p18)
 
 
-[^a]: TG [[Commitment]]; [[Courage, Courageous]]; [[Perseverance]]; [[Steadfastness, Steadfast]].
+[^a]: [[Commitment|TG Commitment]]; [[Courage, Courageous|Courage]]; [[Perseverance|Perseverance]]; [[Steadfastness, Steadfast|Steadfastness]].  

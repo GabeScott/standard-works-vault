@@ -5,4 +5,4 @@
 [Moses 6:32](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.32?lang=eng#p32)
 
 
-[^a]: [[Exodus 4.12|Ex. 4:12 (12-16)]]; [[D&C 24.6|D&C 24:6 (5-6)]]; [[D&C 28.4|28:4]]; [[Moses 6.8|Moses 6:8]]; [[Moses 7.13|7:13]]. TG [[Prophets, Mission of]].
+[^a]: [[Exodus 4.12|Ex. 4:12 (12–16)]][[Exodus 4.13|]][[Exodus 4.14|]][[Exodus 4.15|]][[Exodus 4.16|]]; [[D&C 24.5|D&C 24:6 (5–6)]][[D&C 24.6|]]; [[D&C 28.4|28:4]]; [[Moses 6.8|Moses 6:8]]; [[Moses 7.13|7:13]]. [[Prophets, Mission of|TG Prophets, Mission of]].  

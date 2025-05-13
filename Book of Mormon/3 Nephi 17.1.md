@@ -5,4 +5,4 @@
 [3 Nephi 17:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p1#p1)
 
 
-[^a]: IE to return to the Father. See v. 4.
+[^a]: IE to return to the Father. See [[3 Nephi 17.4|v. 4]].  

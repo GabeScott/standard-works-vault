@@ -5,4 +5,4 @@
 [Acts 16:40](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.40?lang=eng#p40)
 
 
-[^a]: [[Acts 16.14|Acts 16:14 (14-15).]]
+[^a]: [[Acts 16.14|Acts 16:14 (14–15)]][[Acts 16.15|]].  

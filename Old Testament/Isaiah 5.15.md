@@ -5,4 +5,4 @@
 [Isaiah 5:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.15?lang=eng#p15)
 
 
-[^a]: OR haughty.
+[^a]: OR haughty.  

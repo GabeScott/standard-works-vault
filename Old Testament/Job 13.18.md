@@ -5,4 +5,4 @@
 [Job 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/job/13.18?lang=eng#p18)
 
 
-[^a]: TG [[Justification, Justify]].
+[^a]: [[Justification, Justify|TG Justification]].  

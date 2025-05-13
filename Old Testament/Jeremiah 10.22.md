@@ -5,5 +5,5 @@
 [Jeremiah 10:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.22?lang=eng#p22)
 
 
-[^a]: [[Jeremiah 1.14|Jer. 1:14]]; [[Jeremiah 4.6|4:6]]; [[Jeremiah 6.1|6:1.]]
-[^b]: HEB jackals.
+[^a]: [[Jeremiah 1.14|Jer. 1:14]]; [[Jeremiah 4.6|4:6]]; [[Jeremiah 6.1|6:1]].  
+[^b]: HEB jackals.  

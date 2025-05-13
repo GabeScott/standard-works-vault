@@ -5,7 +5,7 @@
 [2 Corinthians 12:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.10?lang=eng#p10)
 
 
-[^a]: TG [[Adversity]].
-[^b]: TG [[Persecution, Persecute]].
-[^c]: TG [[Humility, Humble]].
-[^d]: [[Joel 3.10|Joel 3:10]]; [[D&C 50.16|D&C 50:16.]]
+[^a]: [[Adversity|TG Adversity]].  
+[^b]: [[Persecution, Persecute|TG Persecution]].  
+[^c]: [[Humility, Humble|TG Humility]].  
+[^d]: [[Joel 3.10|Joel 3:10]]; [[D&C 50.16|D&C 50:16]].  

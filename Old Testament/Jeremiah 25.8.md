@@ -5,4 +5,4 @@
 [Jeremiah 25:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.8?lang=eng#p8)
 
 
-[^a]: OR obeyed.
+[^a]: OR obeyed.  

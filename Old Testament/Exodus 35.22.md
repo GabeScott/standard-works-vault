@@ -5,6 +5,6 @@
 [Exodus 35:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.22?lang=eng#p22)
 
 
-[^a]: [[Numbers 31.50|Num. 31:50]]; [[Alma 31.28|Alma 31:28.]]
-[^b]: OR gold jewelry.
-[^c]: [[Exodus 38.24|Ex. 38:24.]]
+[^a]: [[Numbers 31.50|Num. 31:50]]; [[Alma 31.28|Alma 31:28]].  
+[^b]: OR gold jewelry.  
+[^c]: [[Exodus 38.24|Ex. 38:24]].  

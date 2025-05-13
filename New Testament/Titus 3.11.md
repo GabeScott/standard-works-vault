@@ -5,4 +5,4 @@
 [Titus 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/3.11?lang=eng#p11)
 
 
-[^a]: GR perverted, changed.
+[^a]: GR perverted, changed.  

@@ -5,5 +5,5 @@
 [Genesis 3:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.24?lang=eng#p24)
 
 
-[^a]: TG [[Cherubim]].
-[^b]: [[Genesis 2.9|Gen. 2:9]]; [[Alma 42.5|Alma 42:5 (2-5).]]
+[^a]: [[Cherubim|TG Cherubim]].  
+[^b]: [[Genesis 2.9|Gen. 2:9]]; [[Alma 42.2|Alma 42:5 (2–5)]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]].  

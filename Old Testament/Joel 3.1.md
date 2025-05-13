@@ -5,4 +5,4 @@
 [Joel 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.1?lang=eng#p1)
 
 
-[^a]: HEB cause the return.
+[^a]: HEB cause the return.  

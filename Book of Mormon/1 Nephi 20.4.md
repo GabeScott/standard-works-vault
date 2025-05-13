@@ -5,4 +5,4 @@
 [1 Nephi 20:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p4#p4)
 
 
-[^a]: TG [[Stiffnecked, Stiffneckedness]].
+[^a]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  

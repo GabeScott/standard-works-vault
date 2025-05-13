@@ -5,4 +5,4 @@
 [Psalms 76:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/76.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 130.3|Ps. 130:3]]; [[Revelation 6.17|Rev. 6:17.]]
+[^a]: [[Psalms 130.3|Ps. 130:3]]; [[Revelation 6.17|Rev. 6:17]].  

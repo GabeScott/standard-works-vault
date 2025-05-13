@@ -5,5 +5,5 @@
 [John 17:1](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.1?lang=eng#p1)
 
 
-[^a]: TG [[Jesus Christ, Divine Sonship]].
-[^b]: TG [[Jesus Christ, Mission of]].
+[^a]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  
+[^b]: [[Jesus Christ, Mission of|TG Jesus Christ, Mission of]].  

@@ -5,5 +5,5 @@
 [Psalms 94:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/94.2?lang=eng#p2)
 
 
-[^a]: TG [[Jesus Christ, Judge]].
-[^b]: TG [[Reward]].
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  
+[^b]: [[Reward|TG Reward]].  

@@ -5,5 +5,5 @@
 [1 Nephi 9:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/9?lang=eng&id=p3#p3)
 
 
-[^a]: [[D&C 3.19|D&C 3:19.]]
-[^b]: [[1 Nephi 6.3|1 Ne. 6:3.]]
+[^a]: [[D&C 3.19|D&C 3:19]].  
+[^b]: [[1 Nephi 6.3|1 Ne. 6:3]].  

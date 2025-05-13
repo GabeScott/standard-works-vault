@@ -5,4 +5,4 @@
 [1 Kings 11:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.15?lang=eng#p15)
 
 
-[^a]: [[1 Chronicles 18.13|1 Chr. 18:13 (12-13).]]
+[^a]: [[1 Chronicles 18.12|1 Chr. 18:13 (12–13)]][[1 Chronicles 18.13|]].  

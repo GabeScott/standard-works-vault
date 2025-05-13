@@ -5,4 +5,4 @@
 [Esther 9:30](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/9.30?lang=eng#p30)
 
 
-[^a]: [[Esther 1.1|Esth. 1:1.]]
+[^a]: [[Esther 1.1|Esth. 1:1]].  

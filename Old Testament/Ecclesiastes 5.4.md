@@ -5,4 +5,4 @@
 [Ecclesiastes 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.4?lang=eng#p4)
 
 
-[^a]: [[Leviticus 22.21|Lev. 22:21.]]
+[^a]: [[Leviticus 22.21|Lev. 22:21]].  

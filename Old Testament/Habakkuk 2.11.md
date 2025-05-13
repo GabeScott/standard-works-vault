@@ -5,4 +5,4 @@
 [Habakkuk 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.11?lang=eng#p11)
 
 
-[^a]: OR a rafter out of the woodwork will witness it.
+[^a]: OR a rafter out of the woodwork will witness it.  

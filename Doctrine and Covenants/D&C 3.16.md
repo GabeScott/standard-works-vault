@@ -5,7 +5,7 @@
 [D&C 3:16](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.16?lang=eng#p16)
 
 
-[^a]: TG [[Israel, Mission of]].
-[^b]: [[John 5.39|John 5:39]]; [[1 Nephi 13.25|1 Ne. 13:25 (23-25)]]; [[2 Nephi 29.4|2 Ne. 29:4 (4-6)]]; [[D&C 20.26|D&C 20:26.]]
-[^c]: [[Mosiah 3.20|Mosiah 3:20.]]
-[^d]: TG [[Jesus Christ, Savior]].
+[^a]: [[Israel, Mission of|TG Israel, Mission of]].  
+[^b]: [[John 5.39|John 5:39]]; [[1 Nephi 13.23|1 Ne. 13:25 (23–25)]][[1 Nephi 13.24|]][[1 Nephi 13.25|]]; [[2 Nephi 29.4|2 Ne. 29:4 (4–6)]][[2 Nephi 29.5|]][[2 Nephi 29.6|]]; [[D&C 20.26|D&C 20:26]].  
+[^c]: [[Mosiah 3.20|Mosiah 3:20]].  
+[^d]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]].  

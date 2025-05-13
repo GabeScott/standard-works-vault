@@ -5,5 +5,5 @@
 [Mark 1:40](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.40?lang=eng#p40)
 
 
-[^a]: TG [[Leprosy, Leper, Leprous]].
-[^b]: GR pure.
+[^a]: [[Leprosy, Leper, Leprous|TG Leprosy]].  
+[^b]: GR pure.  

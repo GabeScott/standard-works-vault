@@ -5,5 +5,5 @@
 [2 Corinthians 10:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.7?lang=eng#p7)
 
 
-[^a]: [[1 Samuel 16.7|1 Sam. 16:7.]]
-[^b]: [[1 Corinthians 3.23|1 Cor. 3:23.]]
+[^a]: [[1 Samuel 16.7|1 Sam. 16:7]].  
+[^b]: [[1 Corinthians 3.23|1 Cor. 3:23]].  

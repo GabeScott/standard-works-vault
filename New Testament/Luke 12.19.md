@@ -5,5 +5,5 @@
 [Luke 12:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.19?lang=eng#p19)
 
 
-[^a]: [[Ecclesiastes 2.24|Eccl. 2:24.]]
-[^b]: [[Isaiah 22.13|Isa. 22:13]]; [[1 Corinthians 15.32|1 Cor. 15:32.]]
+[^a]: [[Ecclesiastes 2.24|Eccl. 2:24]].  
+[^b]: [[Isaiah 22.13|Isa. 22:13]]; [[1 Corinthians 15.32|1 Cor. 15:32]].  

@@ -5,4 +5,4 @@
 [Judges 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/13.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 32.29|Gen. 32:29.]]
+[^a]: [[Genesis 32.29|Gen. 32:29]].  

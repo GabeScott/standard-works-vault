@@ -5,5 +5,5 @@
 [1 Corinthians 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.20?lang=eng#p20)
 
 
-[^a]: TG [[God, Omniscience of]].
-[^b]: GR deceptive, fruitless.
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^b]: GR deceptive, fruitless.  

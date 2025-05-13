@@ -5,6 +5,6 @@
 [Exodus 26:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/26.33?lang=eng#p33)
 
 
-[^a]: [[1 Kings 8.6|1 Kgs. 8:6.]]
-[^b]: TG [[Jesus Christ, Types of, in Anticipation]]; [[Veil]].
-[^c]: [[1 Kings 6.16|1 Kgs. 6:16]]; [[D&C 124.39|D&C 124:39.]]
+[^a]: [[1 Kings 8.6|1 Kgs. 8:6]].  
+[^b]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]]; [[Veil|Veil]].  
+[^c]: [[1 Kings 6.16|1 Kgs. 6:16]]; [[D&C 124.39|D&C 124:39]].  

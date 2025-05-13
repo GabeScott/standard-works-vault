@@ -5,4 +5,4 @@
 [Acts 7:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.21?lang=eng#p21)
 
 
-[^a]: [[Exodus 2.10|Ex. 2:10.]]
+[^a]: [[Exodus 2.10|Ex. 2:10]].  

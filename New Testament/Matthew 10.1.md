@@ -5,9 +5,9 @@
 [Matthew 10:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.1?lang=eng#p1)
 
 
-[^a]: [[1 Nephi 12.7|1 Ne. 12:7 (6-7)]]; [[Moroni 2.2|Moro. 2:2 (1-3)]]. TG [[Delegation of Responsibility]].
-[^b]: TG [[Apostles]].
-[^c]: GR authority over. D&C 50:32. TG [[Authority]]; [[Jesus Christ, Power of]]; [[Priesthood, Power of]].
-[^d]: TG [[Spirits, Evil or Unclean]]; [[Uncleanness, Unclean]].
-[^e]: TG [[Health]].
-[^f]: TG [[Sickness, Sick]].
+[^a]: [[1 Nephi 12.6|1 Ne. 12:7 (6–7)]][[1 Nephi 12.7|]]; [[Moroni 2.1|Moro. 2:2 (1–3)]][[Moroni 2.2|]][[Moroni 2.3|]]. [[Delegation of Responsibility|TG Delegation of Responsibility]].  
+[^b]: [[Apostles|TG Apostles]].  
+[^c]: GR authority over. [[D&C 50.32|D&C 50:32]]. [[Authority|TG Authority]]; [[Jesus Christ, Power of|Jesus Christ, Power of]]; [[Priesthood, Power of|Priesthood, Power of]].  
+[^d]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]]; [[Uncleanness, Unclean|Uncleanness]].  
+[^e]: [[Heal, Healing|TG Heal]].  
+[^f]: [[Sickness, Sick|TG Sickness]].  

@@ -5,6 +5,6 @@
 [Genesis 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.9?lang=eng#p9)
 
 
-[^a]: [[Genesis 26.10|Gen. 26:10.]]
-[^b]: [[Genesis 12.18|Gen. 12:18 (14-20).]]
-[^c]: [[Genesis 26.10|Gen. 26:10.]]
+[^a]: [[Genesis 26.10|Gen. 26:10]].  
+[^b]: [[Genesis 12.14|Gen. 12:18 (14–20)]][[Genesis 12.15|]][[Genesis 12.16|]][[Genesis 12.17|]][[Genesis 12.18|]][[Genesis 12.19|]][[Genesis 12.20|]].  
+[^c]: [[Genesis 26.10|Gen. 26:10]].  

@@ -5,4 +5,4 @@
 [Luke 22:25](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.25?lang=eng#p25)
 
 
-[^a]: TG [[Kings, Earthly]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  

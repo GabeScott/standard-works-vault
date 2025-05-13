@@ -5,4 +5,4 @@
 [1 Nephi 16:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p27#p27)
 
 
-[^a]: TG [[Warn, Warnings]].
+[^a]: [[Warn, Warnings|TG Warn]].  

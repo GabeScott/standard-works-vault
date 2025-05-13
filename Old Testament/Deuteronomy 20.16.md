@@ -5,4 +5,4 @@
 [Deuteronomy 20:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.16?lang=eng#p16)
 
 
-[^a]: [[Joshua 11.14|Josh. 11:14.]]
+[^a]: [[Joshua 11.14|Josh. 11:14]].  

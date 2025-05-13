@@ -5,4 +5,4 @@
 [Mosiah 29:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p35#p35)
 
 
-[^a]: TG [[Kings, Earthly]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  

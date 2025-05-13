@@ -5,8 +5,8 @@
 [Isaiah 3:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.24?lang=eng#p24)
 
 
-[^a]: HEB rags.
-[^b]: [[Isaiah 15.2|Isa. 15:2]]; [[Ezekiel 7.18|Ezek. 7:18 (18-19)]]; [[Amos 8.10|Amos 8:10.]]
-[^c]: OR a robe.
-[^d]: OR branding (a mark of slavery).
-[^e]: TG [[Beauty]].
+[^a]: HEB rags.  
+[^b]: [[Isaiah 15.2|Isa. 15:2]]; [[Ezekiel 7.18|Ezek. 7:18 (18–19)]][[Ezekiel 7.19|]]; [[Amos 8.10|Amos 8:10]].  
+[^c]: OR a robe.  
+[^d]: OR branding (a mark of slavery).  
+[^e]: [[Beauty|TG Beauty]].  

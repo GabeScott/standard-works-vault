@@ -5,5 +5,5 @@
 [Hebrews 5:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.1?lang=eng#p1)
 
 
-[^a]: TG [[Priesthood, History of]]; [[Priesthood, History of]], Ordination.
-[^b]: TG [[Self-Sacrifice]].
+[^a]: [[Priesthood|TG Priesthood]]; [[Priesthood, Ordination|Priesthood, Ordination]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  

@@ -5,5 +5,5 @@
 [Acts 17:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.16?lang=eng#p16)
 
 
-[^a]: GR full of idols; i.e., grossly idolatrous.
-[^b]: TG [[Idolatry, Idol]].
+[^a]: GR full of idols; i.e., grossly idolatrous.  
+[^b]: [[Idolatry, Idol|TG Idolatry]].  

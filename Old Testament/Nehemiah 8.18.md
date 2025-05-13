@@ -5,5 +5,5 @@
 [Nehemiah 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.18?lang=eng#p18)
 
 
-[^a]: [[D&C 84.43|D&C 84:43 (43-44).]]
-[^b]: TG [[Solemn Assembly]].
+[^a]: [[D&C 84.43|D&C 84:43 (43–44)]][[D&C 84.44|]].  
+[^b]: [[Solemn Assembly|TG Solemn Assembly]].  

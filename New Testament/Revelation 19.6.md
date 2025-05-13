@@ -5,5 +5,5 @@
 [Revelation 19:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.6?lang=eng#p6)
 
 
-[^a]: Dan. 2:47.
-[^b]: TG [[Jesus Christ, Power of]].
+[^a]: [[Daniel 2.47|Dan. 2:47]].  
+[^b]: [[Jesus Christ, Power of|TG Jesus Christ, Power of]].  

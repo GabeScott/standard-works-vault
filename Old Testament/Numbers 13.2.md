@@ -5,5 +5,5 @@
 [Numbers 13:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.2?lang=eng#p2)
 
 
-[^a]: [[Joshua 14.7|Josh. 14:7.]]
-[^b]: [[Deuteronomy 1.23|Deut. 1:23.]]
+[^a]: [[Joshua 14.7|Josh. 14:7]].  
+[^b]: [[Deuteronomy 1.23|Deut. 1:23]].  

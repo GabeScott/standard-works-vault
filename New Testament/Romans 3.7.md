@@ -5,4 +5,4 @@
 [Romans 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.7?lang=eng#p7)
 
 
-[^a]: GR in, by, because of.
+[^a]: GR in, by, because of.  

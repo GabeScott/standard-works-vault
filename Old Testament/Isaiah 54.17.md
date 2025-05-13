@@ -5,6 +5,6 @@
 [Isaiah 54:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.17?lang=eng#p17)
 
 
-[^a]: TG [[Protection, Divine]].
-[^b]: [[Acts 6.10|Acts 6:10.]]
-[^c]: TG [[Servant]].
+[^a]: [[Protection, Divine|TG Protection, Divine]].  
+[^b]: [[Acts 6.10|Acts 6:10]].  
+[^c]: [[Servant|TG Servant]].  

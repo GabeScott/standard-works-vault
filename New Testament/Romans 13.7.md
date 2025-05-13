@@ -5,4 +5,4 @@
 [Romans 13:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.7?lang=eng#p7)
 
 
-[^a]: [[D&C 134.6|D&C 134:6]]. TG [[Honorable]].
+[^a]: [[D&C 134.6|D&C 134:6]]. [[Honor|TG Honor]].  

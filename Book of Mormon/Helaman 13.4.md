@@ -5,5 +5,5 @@
 [Helaman 13:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p4#p4)
 
 
-[^a]: [[Helaman 14.11|Hel. 14:11]]; [[Helaman 16.1|16:1.]]
-[^b]: TG [[Teaching with the Spirit]].
+[^a]: [[Helaman 14.11|Hel. 14:11]]; [[Helaman 16.1|16:1]].  
+[^b]: [[Teaching with the Spirit|TG Teaching with the Spirit]].  

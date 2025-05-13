@@ -5,5 +5,5 @@
 [Ecclesiastes 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.13?lang=eng#p13)
 
 
-[^a]: [[D&C 97.1|D&C 97:1 (1-2).]]
-[^b]: HEB (literally) “evil business”; i.e., that which is of little profit. Eccl. 4:8.
+[^a]: [[D&C 97.1|D&C 97:1 (1–2)]][[D&C 97.2|]].  
+[^b]: HEB (literally) “evil business”; i.e., that which is of little profit. [[Ecclesiastes 4.8|Eccl. 4:8]].  

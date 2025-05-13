@@ -5,6 +5,6 @@
 [1 Timothy 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.15?lang=eng#p15)
 
 
-[^a]: TG [[Meditation, Meditate]].
-[^b]: GR progress, advancement.
-[^c]: GR be manifest in all.
+[^a]: [[Meditation, Meditate|TG Meditation]].  
+[^b]: GR progress, advancement.  
+[^c]: GR be manifest in all.  

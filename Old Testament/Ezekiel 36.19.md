@@ -5,7 +5,7 @@
 [Ezekiel 36:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.19?lang=eng#p19)
 
 
-[^a]: [[Helaman 3.16|Hel. 3:16.]]
-[^b]: TG [[Heathen]].
-[^c]: [[Jeremiah 25.34|Jer. 25:34.]]
-[^d]: [[Ezekiel 39.24|Ezek. 39:24.]]
+[^a]: [[Helaman 3.16|Hel. 3:16]].  
+[^b]: [[Heathen|TG Heathen]].  
+[^c]: [[Jeremiah 25.34|Jer. 25:34]].  
+[^d]: [[Ezekiel 39.24|Ezek. 39:24]].  

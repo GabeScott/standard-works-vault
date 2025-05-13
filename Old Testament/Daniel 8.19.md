@@ -5,4 +5,4 @@
 [Daniel 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.19?lang=eng#p19)
 
 
-[^a]: IE in the latter part of the period of indignation, or in the last days.
+[^a]: IE in the latter part of the period of indignation, or in the last days.  

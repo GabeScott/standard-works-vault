@@ -5,5 +5,5 @@
 [Jacob 5:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p20#p20)
 
 
-[^a]: [[Jacob 5.39|Jacob 5:39.]]
-[^b]: TG [[Israel, Restoration of]].
+[^a]: [[Jacob 5.39|Jacob 5:39]].  
+[^b]: [[Israel, Restoration of|TG Israel, Restoration of]].  

@@ -5,4 +5,4 @@
 [Psalms 48:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/48.10?lang=eng#p10)
 
 
-[^a]: [[Deuteronomy 28.58|Deut. 28:58.]]
+[^a]: [[Deuteronomy 28.58|Deut. 28:58]].  

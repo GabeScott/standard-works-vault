@@ -5,4 +5,4 @@
 [Isaiah 46:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.3?lang=eng#p3)
 
 
-[^a]: [[Isaiah 45.20|Isa. 45:20.]]
+[^a]: [[Isaiah 45.20|Isa. 45:20]].  

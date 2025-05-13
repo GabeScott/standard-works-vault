@@ -5,4 +5,4 @@
 [Alma 27:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p16#p16)
 
 
-[^a]: [[Alma 17.1|Alma 17:1 (1-4).]]
+[^a]: [[Alma 17.1|Alma 17:1 (1–4)]][[Alma 17.2|]][[Alma 17.3|]][[Alma 17.4|]].  

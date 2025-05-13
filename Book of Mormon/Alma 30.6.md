@@ -5,5 +5,5 @@
 [Alma 30:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Antichrist]]; [[False Prophets]].
-[^b]: TG [[False Doctrine]]; [[Prophets, Rejection of]].
+[^a]: [[Antichrist|TG Antichrist]]; [[False Prophets|False Prophets]].  
+[^b]: [[False Doctrine|TG False Doctrine]]; [[Prophets, Rejection of|Prophets, Rejection of]].  

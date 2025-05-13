@@ -5,5 +5,5 @@
 [Jeremiah 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.3?lang=eng#p3)
 
 
-[^a]: [[Hosea 10.12|Hosea 10:12.]]
-[^b]: [[Matthew 13.7|Matt. 13:7.]]
+[^a]: [[Hosea 10.12|Hosea 10:12]].  
+[^b]: [[Matthew 13.7|Matt. 13:7]].  

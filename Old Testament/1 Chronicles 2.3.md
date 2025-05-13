@@ -5,5 +5,5 @@
 [1 Chronicles 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/2.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 38.3|Gen. 38:3 (3-5).]]
-[^b]: [[Genesis 46.12|Gen. 46:12.]]
+[^a]: [[Genesis 38.3|Gen. 38:3 (3–5)]][[Genesis 38.4|]][[Genesis 38.5|]].  
+[^b]: [[Genesis 46.12|Gen. 46:12]].  

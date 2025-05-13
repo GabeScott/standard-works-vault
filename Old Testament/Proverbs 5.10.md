@@ -5,4 +5,4 @@
 [Proverbs 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/5.10?lang=eng#p10)
 
 
-[^a]: OR strength.
+[^a]: OR strength.  

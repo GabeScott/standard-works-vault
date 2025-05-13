@@ -5,5 +5,5 @@
 [Abraham 3:25](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.25?lang=eng#p25)
 
 
-[^a]: [[D&C 98.14|D&C 98:14 (12-14)]]; [[D&C 124.55|124:55]]. TG [[Agency]]; [[Salvation, Plan of]]; [[Testament]].
-[^b]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[D&C 98.12|D&C 98:14 (12–14)]][[D&C 98.13|]][[D&C 98.14|]]; [[D&C 124.55|124:55]]. [[Agency|TG Agency]]; [[Salvation, Plan of|Salvation, Plan of]]; [[Test, Try, Prove|Test]].  
+[^b]: [[Obedience, Obedient, Obey|TG Obedience]].  

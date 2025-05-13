@@ -5,4 +5,4 @@
 [Deuteronomy 22:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.9?lang=eng#p9)
 
 
-[^a]: [[Leviticus 19.19|Lev. 19:19.]]
+[^a]: [[Leviticus 19.19|Lev. 19:19]].  

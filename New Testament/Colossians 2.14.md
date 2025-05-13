@@ -5,4 +5,4 @@
 [Colossians 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/col/2.14?lang=eng#p14)
 
 
-[^a]: [[Ephesians 2.15|Eph. 2:15.]]
+[^a]: [[Ephesians 2.15|Eph. 2:15]].  

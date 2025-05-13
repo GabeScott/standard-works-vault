@@ -5,4 +5,4 @@
 [1 John 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/1.4?lang=eng#p4)
 
 
-[^a]: TG [[Scriptures, Writing of]].
+[^a]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  

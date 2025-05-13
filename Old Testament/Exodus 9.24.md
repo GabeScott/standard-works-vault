@@ -5,4 +5,4 @@
 [Exodus 9:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.24?lang=eng#p24)
 
 
-[^a]: [[Revelation 8.7|Rev. 8:7.]]
+[^a]: [[Revelation 8.7|Rev. 8:7]].  

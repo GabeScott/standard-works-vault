@@ -5,4 +5,4 @@
 [Acts 8:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.21?lang=eng#p21)
 
 
-[^a]: [[D&C 49.2|D&C 49:2.]]
+[^a]: [[D&C 49.2|D&C 49:2]].  

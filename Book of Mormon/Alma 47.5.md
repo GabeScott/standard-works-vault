@@ -5,4 +5,4 @@
 [Alma 47:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/47?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 32.4|Alma 32:4.]]
+[^a]: [[Alma 32.4|Alma 32:4]].  

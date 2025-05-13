@@ -5,4 +5,4 @@
 [Isaiah 45:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.16?lang=eng#p16)
 
 
-[^a]: TG [[Idolatry, Idol]].
+[^a]: [[Idolatry, Idol|TG Idolatry]].  

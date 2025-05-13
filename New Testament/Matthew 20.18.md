@@ -5,5 +5,5 @@
 [Matthew 20:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.18?lang=eng#p18)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
-[^b]: TG [[Jesus Christ, Death of]].
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  
+[^b]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

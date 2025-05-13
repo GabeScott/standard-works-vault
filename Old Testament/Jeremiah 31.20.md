@@ -5,4 +5,4 @@
 [Jeremiah 31:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.20?lang=eng#p20)
 
 
-[^a]: OR a child in whom I delight.
+[^a]: OR a child in whom I delight.  

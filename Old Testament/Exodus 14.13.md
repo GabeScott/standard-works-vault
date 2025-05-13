@@ -5,4 +5,4 @@
 [Exodus 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.13?lang=eng#p13)
 
 
-[^a]: HEB accomplish for you.
+[^a]: HEB accomplish for you.  

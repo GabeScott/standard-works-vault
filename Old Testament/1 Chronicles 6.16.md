@@ -5,5 +5,5 @@
 [1 Chronicles 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/6.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 6.16|Ex. 6:16 (16-19).]]
-[^b]: [[1 Chronicles 15.5|1 Chr. 15:5.]]
+[^a]: [[Exodus 6.16|Ex. 6:16 (16–19)]][[Exodus 6.17|]][[Exodus 6.18|]][[Exodus 6.19|]].  
+[^b]: [[1 Chronicles 15.5|1 Chr. 15:5]].  

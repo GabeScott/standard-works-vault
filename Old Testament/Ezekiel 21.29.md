@@ -5,4 +5,4 @@
 [Ezekiel 21:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.29?lang=eng#p29)
 
 
-[^a]: IE While they see false visions for you.
+[^a]: IE While they see false visions for you.  

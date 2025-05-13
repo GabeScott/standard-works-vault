@@ -5,7 +5,7 @@
 [Alma 41:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/41?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[God, Justice of]]; [[God, Justice of]].
-[^b]: TG [[Accountability]]; [[Judgment, the Last]].
-[^c]: [[Isaiah 59.18|Isa. 59:18]]; [[Alma 36.15|Alma 36:15]]; [[Alma 42.27|42:27]]; [[D&C 1.10|D&C 1:10 (9-10).]]
-[^d]: [[Helaman 14.31|Hel. 14:31.]]
+[^a]: [[God, Justice of|TG God, Justice of]]; [[Justice|Justice]].  
+[^b]: [[Accountability|TG Accountability]]; [[Judgment, the Last|Judgment, the Last]].  
+[^c]: [[Isaiah 59.18|Isa. 59:18]]; [[Alma 36.15|Alma 36:15]]; [[Alma 42.27|42:27]]; [[D&C 1.9|D&C 1:10 (9–10)]][[D&C 1.10|]].  
+[^d]: [[Helaman 14.31|Hel. 14:31]].  

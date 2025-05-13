@@ -5,4 +5,4 @@
 [Proverbs 16:32](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.32?lang=eng#p32)
 
 
-[^a]: TG [[Anger]].
+[^a]: [[Anger|TG Anger]].  

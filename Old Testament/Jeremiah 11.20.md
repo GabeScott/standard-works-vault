@@ -5,5 +5,5 @@
 [Jeremiah 11:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.20?lang=eng#p20)
 
 
-[^a]: TG [[Testament]].
-[^b]: [[D&C 64.34|D&C 64:34.]]
+[^a]: [[Test, Try, Prove|TG Test]].  
+[^b]: [[D&C 64.34|D&C 64:34]].  

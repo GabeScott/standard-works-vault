@@ -5,5 +5,5 @@
 [Proverbs 3:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.27?lang=eng#p27)
 
 
-[^a]: [[Proverbs 21.26|Prov. 21:26 (25-26)]]; [[Luke 6.30|Luke 6:30.]]
-[^b]: [[Galatians 6.10|Gal. 6:10 (9-10).]]
+[^a]: [[Proverbs 21.25|Prov. 21:26 (25–26)]][[Proverbs 21.26|]]; [[Luke 6.30|Luke 6:30]].  
+[^b]: [[Galatians 6.9|Gal. 6:10 (9–10)]][[Galatians 6.10|]].  

@@ -5,4 +5,4 @@
 [Jeremiah 20:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.14?lang=eng#p14)
 
 
-[^a]: [[Job 3.3|Job 3:3 (3-4).]]
+[^a]: [[Job 3.3|Job 3:3 (3–4)]][[Job 3.4|]].  

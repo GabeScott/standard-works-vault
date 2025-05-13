@@ -5,5 +5,5 @@
 [1 Kings 22:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.17?lang=eng#p17)
 
 
-[^a]: TG [[Israel, Scattering of]].
-[^b]: TG [[Sheep]]; [[Shepherd]].
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  
+[^b]: [[Sheep|TG Sheep]]; [[Shepherd|Shepherd]].  

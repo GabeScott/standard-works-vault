@@ -5,8 +5,8 @@
 [Mosiah 27:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p31#p31)
 
 
-[^a]: Philip. 2:10 (9-11); [[Mosiah 16.1|Mosiah 16:1 (1-2)]]; [[D&C 88.104|D&C 88:104]]; [[D&C 138.23|138:23.]]
-[^b]: TG [[Jesus Christ, Judge]].
-[^c]: [[Mosiah 7.27|Mosiah 7:27]]; [[Alma 11.39|Alma 11:39 (38-39).]]
-[^d]: [[Ephesians 2.12|Eph. 2:12]]; [[Alma 41.11|Alma 41:11.]]
-[^e]: TG [[God, Omniscience of]].
+[^a]: [[Philippians 2.9|Philip. 2:10 (9–11)]][[Philippians 2.10|]][[Philippians 2.11|]]; [[Mosiah 16.1|Mosiah 16:1 (1–2)]][[Mosiah 16.2|]]; [[D&C 88.104|D&C 88:104]]; [[D&C 138.23|138:23]].  
+[^b]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  
+[^c]: [[Mosiah 7.27|Mosiah 7:27]]; [[Alma 11.38|Alma 11:39 (38–39)]][[Alma 11.39|]].  
+[^d]: [[Ephesians 2.12|Eph. 2:12]]; [[Alma 41.11|Alma 41:11]].  
+[^e]: [[God, Omniscience of|TG God, Omniscience of]].  

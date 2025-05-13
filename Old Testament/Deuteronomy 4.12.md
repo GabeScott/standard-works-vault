@@ -5,5 +5,5 @@
 [Deuteronomy 4:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.12?lang=eng#p12)
 
 
-[^a]: TG [[God, Manifestations of]].
-[^b]: OR form (also vv. 15-16).
+[^a]: [[God, Manifestations of|TG God, Manifestations of]].  
+[^b]: OR form (also [[Deuteronomy 4.15|vv. 15–16]][[Deuteronomy 4.16|]]).  

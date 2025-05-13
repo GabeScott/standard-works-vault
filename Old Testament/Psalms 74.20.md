@@ -5,5 +5,5 @@
 [Psalms 74:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.20?lang=eng#p20)
 
 
-[^a]: [[Psalms 106.45|Ps. 106:45]]; [[D&C 1.22|D&C 1:22]]; [[D&C 49.9|49:9.]]
-[^b]: TG [[Cruelty, Cruel]].
+[^a]: [[Psalms 106.45|Ps. 106:45]]; [[D&C 1.22|D&C 1:22]]; [[D&C 49.9|49:9]].  
+[^b]: [[Cruelty, Cruel|TG Cruelty]].  

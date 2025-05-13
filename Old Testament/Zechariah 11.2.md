@@ -5,5 +5,5 @@
 [Zechariah 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/11.2?lang=eng#p2)
 
 
-[^a]: [[Nahum 2.3|Nahum 2:3.]]
-[^b]: [[Ezekiel 27.6|Ezek. 27:6.]]
+[^a]: [[Nahum 2.3|Nahum 2:3]].  
+[^b]: [[Ezekiel 27.6|Ezek. 27:6]].  

@@ -5,5 +5,5 @@
 [Jeremiah 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.16?lang=eng#p16)
 
 
-[^a]: [[Jeremiah 19.4|Jer. 19:4.]]
-[^b]: TG [[Idolatry, Idol]].
+[^a]: [[Jeremiah 19.4|Jer. 19:4]].  
+[^b]: [[Idolatry, Idol|TG Idolatry]].  

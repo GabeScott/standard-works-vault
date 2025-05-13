@@ -5,4 +5,4 @@
 [Numbers 25:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/25.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 106.30|Ps. 106:30.]]
+[^a]: [[Psalms 106.30|Ps. 106:30]].  

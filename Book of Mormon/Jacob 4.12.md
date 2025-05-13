@@ -5,4 +5,4 @@
 [Jacob 4:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/4?lang=eng&id=p12#p12)
 
 
-[^a]: [[2 Nephi 25.26|2 Ne. 25:26.]]
+[^a]: [[2 Nephi 25.26|2 Ne. 25:26]].  

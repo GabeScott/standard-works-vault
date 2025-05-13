@@ -5,4 +5,4 @@
 [Micah 7:10](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.10?lang=eng#p10)
 
 
-[^a]: Mal. 4:3.
+[^a]: [[Malachi 4.3|Mal. 4:3]].  

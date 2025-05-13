@@ -5,4 +5,4 @@
 [Ezekiel 37:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.3?lang=eng#p3)
 
 
-[^a]: OR resurrect.
+[^a]: OR resurrect.  

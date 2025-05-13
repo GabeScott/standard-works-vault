@@ -5,5 +5,5 @@
 [Exodus 19:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.17?lang=eng#p17)
 
 
-[^a]: TG [[God, Presence of]]; [[Meetings]].
-[^b]: OR foot of.
+[^a]: [[God, Presence of|TG God, Presence of]]; [[Meetings|Meetings]].  
+[^b]: OR foot of.  

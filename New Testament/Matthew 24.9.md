@@ -5,6 +5,6 @@
 [Matthew 24:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.9?lang=eng#p9)
 
 
-[^a]: TG [[Martyrdom]].
-[^b]: TG [[Persecution, Persecute]].
-[^c]: GR on account of my name.
+[^a]: [[Martyrdom|TG Martyrdom]].  
+[^b]: [[Persecution, Persecute|TG Persecution]].  
+[^c]: GR on account of my name.  

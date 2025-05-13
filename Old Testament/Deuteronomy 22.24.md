@@ -5,4 +5,4 @@
 [Deuteronomy 22:24](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.24?lang=eng#p24)
 
 
-[^a]: IE did not cry for help.
+[^a]: IE did not cry for help.  

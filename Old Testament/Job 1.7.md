@@ -5,4 +5,4 @@
 [Job 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.7?lang=eng#p7)
 
 
-[^a]: [[D&C 10.27|D&C 10:27.]]
+[^a]: [[D&C 10.27|D&C 10:27]].  

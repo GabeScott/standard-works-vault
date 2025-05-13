@@ -5,5 +5,5 @@
 [Isaiah 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.15?lang=eng#p15)
 
 
-[^a]: OR elder and man of rank. 2 Ne. 19:15.
-[^b]: TG [[False Prophets]].
+[^a]: OR elder and man of rank. [[2 Nephi 19.15|2 Ne. 19:15]].  
+[^b]: [[False Prophets|TG False Prophets]].  

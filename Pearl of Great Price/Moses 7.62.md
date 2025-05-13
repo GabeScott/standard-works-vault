@@ -5,9 +5,9 @@
 [Moses 7:62](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.62?lang=eng#p62)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Testimony]].
-[^c]: TG [[Jesus Christ, Resurrection]].
-[^d]: TG [[Israel, Gathering of]].
-[^e]: TG [[Zion, Sion]].
-[^f]: TG [[Jerusalem, New]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Testimony|TG Testimony]].  
+[^c]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  
+[^d]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^e]: [[Zion, Sion|TG Zion]].  
+[^f]: [[Jerusalem, New|TG Jerusalem, New]].  

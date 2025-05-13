@@ -5,7 +5,7 @@
 [Moroni 5:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/5?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Sacrament]].
-[^b]: [[Luke 22.20|Luke 22:20]]; [[1 Corinthians 11.25|1 Cor. 11:25.]]
-[^c]: [[D&C 27.2|D&C 27:2 (2-4).]]
-[^d]: TG [[Spirituality]].
+[^a]: [[Sacrament|TG Sacrament]].  
+[^b]: [[Luke 22.20|Luke 22:20]]; [[1 Corinthians 11.25|1 Cor. 11:25]].  
+[^c]: [[D&C 27.2|D&C 27:2 (2–4)]][[D&C 27.3|]][[D&C 27.4|]].  
+[^d]: [[Spirituality|TG Spirituality]].  

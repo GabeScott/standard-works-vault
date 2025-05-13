@@ -5,4 +5,4 @@
 [Deuteronomy 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 49.27|Gen. 49:27.]]
+[^a]: [[Genesis 49.27|Gen. 49:27]].  

@@ -5,4 +5,4 @@
 [Psalms 144:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/144.9?lang=eng#p9)
 
 
-[^a]: TG [[Singing, Sing, Sang, Sung]].
+[^a]: [[Singing, Sing, Sang, Sung|TG Singing]].  

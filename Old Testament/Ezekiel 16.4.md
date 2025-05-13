@@ -5,6 +5,6 @@
 [Ezekiel 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.4?lang=eng#p4)
 
 
-[^a]: [[Hosea 2.3|Hosea 2:3.]]
-[^b]: IE umbilical cord.
-[^c]: HEB cleanse.
+[^a]: [[Hosea 2.3|Hosea 2:3]].  
+[^b]: IE umbilical cord.  
+[^c]: HEB cleanse.  

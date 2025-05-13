@@ -5,5 +5,5 @@
 [Genesis 19:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 19.18|JST Gen. 19:18 … these holy men …]]
-[^b]: [[1 Nephi 2.2|1 Ne. 2:2 (1-4)]]; [[Abraham 2.6|Abr. 2:6.]]
+[^a]: JST Gen. 19:18 … these holy men …  
+[^b]: [[1 Nephi 2.1|1 Ne. 2:2 (1–4)]][[1 Nephi 2.2|]][[1 Nephi 2.3|]][[1 Nephi 2.4|]]; [[Abraham 2.6|Abr. 2:6]].  

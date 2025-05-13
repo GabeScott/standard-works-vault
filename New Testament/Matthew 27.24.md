@@ -5,6 +5,6 @@
 [Matthew 27:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.24?lang=eng#p24)
 
 
-[^a]: GR was accomplishing.
-[^b]: TG [[Rioting and Reveling]].
-[^c]: [[John 18.38|John 18:38 (28-38).]]
+[^a]: GR was accomplishing.  
+[^b]: [[Rioting and Reveling|TG Rioting and Reveling]].  
+[^c]: [[John 18.28|John 18:38 (28–38)]][[John 18.29|]][[John 18.30|]][[John 18.31|]][[John 18.32|]][[John 18.33|]][[John 18.34|]][[John 18.35|]][[John 18.36|]][[John 18.37|]][[John 18.38|]].  

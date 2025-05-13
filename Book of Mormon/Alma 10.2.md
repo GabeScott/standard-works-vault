@@ -5,4 +5,4 @@
 [Alma 10:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p2#p2)
 
 
-[^a]: Dan. 5:16.
+[^a]: [[Daniel 5.16|Dan. 5:16]].  

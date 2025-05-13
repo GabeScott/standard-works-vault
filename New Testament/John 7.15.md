@@ -5,4 +5,4 @@
 [John 7:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.15?lang=eng#p15)
 
 
-[^a]: [[Luke 2.46|Luke 2:46 (46-47).]]
+[^a]: [[Luke 2.46|Luke 2:46 (46–47)]][[Luke 2.47|]].  

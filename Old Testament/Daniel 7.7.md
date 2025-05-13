@@ -5,6 +5,6 @@
 [Daniel 7:7](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.7?lang=eng#p7)
 
 
-[^a]: Dan. 2:40.
-[^b]: Dan. 2:41.
-[^c]: Dan. 7:24 (20-24).
+[^a]: [[Daniel 2.40|Dan. 2:40]].  
+[^b]: [[Daniel 2.41|Dan. 2:41]].  
+[^c]: [[Daniel 7.20|Dan. 7:24 (20–24)]][[Daniel 7.21|]][[Daniel 7.22|]][[Daniel 7.23|]][[Daniel 7.24|]].  

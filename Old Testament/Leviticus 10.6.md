@@ -5,5 +5,5 @@
 [Leviticus 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.6?lang=eng#p6)
 
 
-[^a]: [[Ezekiel 24.17|Ezek. 24:17.]]
-[^b]: [[Leviticus 13.45|Lev. 13:45]]; [[Alma 46.21|Alma 46:21.]]
+[^a]: [[Ezekiel 24.17|Ezek. 24:17]].  
+[^b]: [[Leviticus 13.45|Lev. 13:45]]; [[Alma 46.21|Alma 46:21]].  

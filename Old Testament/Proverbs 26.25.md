@@ -5,4 +5,4 @@
 [Proverbs 26:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.25?lang=eng#p25)
 
 
-[^a]: [[Psalms 28.3|Ps. 28:3]]; [[Isaiah 9.17|Isa. 9:17.]]
+[^a]: [[Psalms 28.3|Ps. 28:3]]; [[Isaiah 9.17|Isa. 9:17]].  

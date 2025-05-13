@@ -5,4 +5,4 @@
 [Deuteronomy 11:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.22?lang=eng#p22)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

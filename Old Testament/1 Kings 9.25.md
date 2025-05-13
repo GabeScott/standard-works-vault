@@ -5,5 +5,5 @@
 [1 Kings 9:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.25?lang=eng#p25)
 
 
-[^a]: [[2 Chronicles 8.13|2 Chr. 8:13 (12-13).]]
-[^b]: TG [[Self-Sacrifice]].
+[^a]: [[2 Chronicles 8.12|2 Chr. 8:13 (12–13)]][[2 Chronicles 8.13|]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  

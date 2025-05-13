@@ -5,4 +5,4 @@
 [Psalms 150:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/150.1?lang=eng#p1)
 
 
-[^a]: [[Alma 15.17|Alma 15:17.]]
+[^a]: [[Alma 15.17|Alma 15:17]].  

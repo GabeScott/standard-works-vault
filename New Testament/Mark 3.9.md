@@ -5,4 +5,4 @@
 [Mark 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.9?lang=eng#p9)
 
 
-[^a]: GR boat.
+[^a]: GR boat.  

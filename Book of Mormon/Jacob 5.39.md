@@ -5,4 +5,4 @@
 [Jacob 5:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p39#p39)
 
 
-[^a]: [[Jacob 5.20|Jacob 5:20 (20, 23, 25).]]
+[^a]: [[Jacob 5.20|Jacob 5:20 (20, 23, 25)]][[Jacob 5.23|]][[Jacob 5.25|]].  

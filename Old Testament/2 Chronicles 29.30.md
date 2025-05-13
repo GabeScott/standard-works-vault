@@ -5,4 +5,4 @@
 [2 Chronicles 29:30](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.30?lang=eng#p30)
 
 
-[^a]: TG [[Seer]].
+[^a]: [[Seer|TG Seer]].  

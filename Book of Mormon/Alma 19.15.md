@@ -5,4 +5,4 @@
 [Alma 19:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 18.1|Alma 18:1 (1-2).]]
+[^a]: [[Alma 18.1|Alma 18:1 (1–2)]][[Alma 18.2|]].  

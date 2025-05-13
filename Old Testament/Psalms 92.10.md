@@ -5,4 +5,4 @@
 [Psalms 92:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/92.10?lang=eng#p10)
 
 
-[^a]: HEB a buffalo, bison.
+[^a]: HEB a buffalo, bison.  

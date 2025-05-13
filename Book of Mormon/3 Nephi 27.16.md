@@ -5,6 +5,6 @@
 [3 Nephi 27:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Repent, Repentance]].
-[^b]: TG [[Baptism, Qualifications for]].
-[^c]: [[1 Nephi 13.37|1 Ne. 13:37]]. TG [[Endure]]; [[Steadfastness, Steadfast]].
+[^a]: [[Repent, Repentance|TG Repent]].  
+[^b]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  
+[^c]: [[1 Nephi 13.37|1 Ne. 13:37]]. [[Endure|TG Endure]]; [[Steadfastness, Steadfast|Steadfastness]].  

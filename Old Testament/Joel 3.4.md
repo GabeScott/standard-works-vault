@@ -5,5 +5,5 @@
 [Joel 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.4?lang=eng#p4)
 
 
-[^a]: TG [[Reward]].
-[^b]: [[Deuteronomy 32.35|Deut. 32:35.]]
+[^a]: [[Reward|TG Reward]].  
+[^b]: [[Deuteronomy 32.35|Deut. 32:35]].  

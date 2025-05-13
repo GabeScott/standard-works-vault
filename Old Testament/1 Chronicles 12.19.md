@@ -5,4 +5,4 @@
 [1 Chronicles 12:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/12.19?lang=eng#p19)
 
 
-[^a]: [[1 Samuel 29.4|1 Sam. 29:4.]]
+[^a]: [[1 Samuel 29.4|1 Sam. 29:4]].  

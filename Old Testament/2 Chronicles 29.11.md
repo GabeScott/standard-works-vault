@@ -5,4 +5,4 @@
 [2 Chronicles 29:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.11?lang=eng#p11)
 
 
-[^a]: TG [[Priesthood, Aaronic]].
+[^a]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  

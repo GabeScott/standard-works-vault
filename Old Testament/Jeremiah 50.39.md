@@ -5,4 +5,4 @@
 [Jeremiah 50:39](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.39?lang=eng#p39)
 
 
-[^a]: HEB daughters of the ostrich.
+[^a]: HEB daughters of the ostrich.  

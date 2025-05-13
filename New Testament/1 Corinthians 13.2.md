@@ -5,5 +5,5 @@
 [1 Corinthians 13:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/13.2?lang=eng#p2)
 
 
-[^a]: TG [[Prophecy]].
-[^b]: TG [[Mysteries of Godliness]].
+[^a]: [[Prophecy|TG Prophecy]].  
+[^b]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  

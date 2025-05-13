@@ -5,4 +5,4 @@
 [2 Kings 5:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/5.27?lang=eng#p27)
 
 
-[^a]: TG [[Leprosy, Leper, Leprous]].
+[^a]: [[Leprosy, Leper, Leprous|TG Leprosy]].  

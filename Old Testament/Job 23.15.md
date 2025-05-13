@@ -5,4 +5,4 @@
 [Job 23:15](https://www.churchofjesuschrist.org/study/scriptures/ot/job/23.15?lang=eng#p15)
 
 
-[^a]: [[Genesis 45.3|Gen. 45:3.]]
+[^a]: [[Genesis 45.3|Gen. 45:3]].  

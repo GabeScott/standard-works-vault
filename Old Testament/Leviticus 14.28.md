@@ -5,4 +5,4 @@
 [Leviticus 14:28](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.28?lang=eng#p28)
 
 
-[^a]: [[D&C 124.39|D&C 124:39.]]
+[^a]: [[D&C 124.39|D&C 124:39]].  

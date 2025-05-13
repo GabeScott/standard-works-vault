@@ -5,6 +5,6 @@
 [Genesis 41:42](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.42?lang=eng#p42)
 
 
-[^a]: [[Esther 3.10|Esth. 3:10]]; [[Esther 8.2|8:2 (2, 8, 10).]]
-[^b]: Dan. 5:29.
-[^c]: [[Esther 8.15|Esth. 8:15.]]
+[^a]: [[Esther 3.10|Esth. 3:10]]; [[Esther 8.2|8:2 (2, 8, 10)]][[Esther 8.8|]][[Esther 8.10|]].  
+[^b]: [[Daniel 5.29|Dan. 5:29]].  
+[^c]: [[Esther 8.15|Esth. 8:15]].  

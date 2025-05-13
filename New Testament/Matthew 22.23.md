@@ -5,4 +5,4 @@
 [Matthew 22:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.23?lang=eng#p23)
 
 
-[^a]: [[Matthew 16.12|Matt. 16:12 (1, 6, 11-12)]]; [[Acts 23.8|Acts 23:8.]]
+[^a]: [[Matthew 16.1|Matt. 16:12 (1, 6, 11–12)]][[Matthew 16.6|]][[Matthew 16.11|]][[Matthew 16.12|]]; [[Acts 23.8|Acts 23:8]].  

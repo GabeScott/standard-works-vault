@@ -5,4 +5,4 @@
 [Alma 2:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 10.8|Mosiah 10:8]]; [[Helaman 1.14|Hel. 1:14.]]
+[^a]: [[Mosiah 10.8|Mosiah 10:8]]; [[Helaman 1.14|Hel. 1:14]].  

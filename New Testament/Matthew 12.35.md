@@ -5,5 +5,5 @@
 [Matthew 12:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.35?lang=eng#p35)
 
 
-[^a]: TG [[Treasure]].
-[^b]: TG [[Evil]].
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[Evil|TG Evil]].  

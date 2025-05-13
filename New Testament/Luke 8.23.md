@@ -5,4 +5,4 @@
 [Luke 8:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.23?lang=eng#p23)
 
 
-[^a]: JST Luke 8:23 … and they were filled with fear, and were in danger.
+[^a]: JST Luke 8:23 … and they were filled with fear, and were in danger.  

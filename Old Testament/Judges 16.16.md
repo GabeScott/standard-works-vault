@@ -5,5 +5,5 @@
 [Judges 16:16](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16.16?lang=eng#p16)
 
 
-[^a]: [[Genesis 39.10|Gen. 39:10 (7-10).]]
-[^b]: [[Judges 2.18|Judg. 2:18.]]
+[^a]: [[Genesis 39.7|Gen. 39:10 (7–10)]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]].  
+[^b]: [[Judges 2.18|Judg. 2:18]].  

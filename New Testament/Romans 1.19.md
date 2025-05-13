@@ -5,4 +5,4 @@
 [Romans 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.19?lang=eng#p19)
 
 
-[^a]: GR among, within.
+[^a]: GR among, within.  

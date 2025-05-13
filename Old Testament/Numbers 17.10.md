@@ -5,4 +5,4 @@
 [Numbers 17:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/17.10?lang=eng#p10)
 
 
-[^a]: [[Hebrews 9.4|Heb. 9:4.]]
+[^a]: [[Hebrews 9.4|Heb. 9:4]].  

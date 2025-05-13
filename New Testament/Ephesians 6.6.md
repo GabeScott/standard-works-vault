@@ -5,5 +5,5 @@
 [Ephesians 6:6](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.6?lang=eng#p6)
 
 
-[^a]: [[1 Corinthians 7.22|1 Cor. 7:22 (21-24).]]
-[^b]: TG [[God, Will of]].
+[^a]: [[1 Corinthians 7.21|1 Cor. 7:22 (21–24)]][[1 Corinthians 7.22|]][[1 Corinthians 7.23|]][[1 Corinthians 7.24|]].  
+[^b]: [[God, Will of|TG God, Will of]].  

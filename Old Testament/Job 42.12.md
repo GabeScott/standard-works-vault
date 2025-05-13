@@ -5,4 +5,4 @@
 [Job 42:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/42.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 26.12|Gen. 26:12.]]
+[^a]: [[Genesis 26.12|Gen. 26:12]].  

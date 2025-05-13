@@ -5,6 +5,6 @@
 [Genesis 21:33](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.33?lang=eng#p33)
 
 
-[^a]: OR tamarisk.
-[^b]: TG [[Prayer, Pray]].
-[^c]: [[Isaiah 40.28|Isa. 40:28]]; [[Romans 16.26|Rom. 16:26]]; [[D&C 133.34|D&C 133:34.]]
+[^a]: OR tamarisk.  
+[^b]: [[Prayer, Pray|TG Prayer]].  
+[^c]: [[Isaiah 40.28|Isa. 40:28]]; [[Romans 16.26|Rom. 16:26]]; [[D&C 133.34|D&C 133:34]].  

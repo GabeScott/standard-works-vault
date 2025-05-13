@@ -5,8 +5,8 @@
 [Jude 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 19.24|Gen. 19:24]]; 2 Pet. 2:6 (1-9).
-[^b]: TG [[Fornication]].
-[^c]: TG [[Homosexual Behavior]].
-[^d]: TG [[Example, Ensample]].
-[^e]: [[D&C 76.105|D&C 76:105]]. TG [[Punish, Punishment]].
+[^a]: [[Genesis 19.24|Gen. 19:24]]; [[2 Peter 2.1|2 Pet. 2:6 (1–9)]][[2 Peter 2.2|]][[2 Peter 2.3|]][[2 Peter 2.4|]][[2 Peter 2.5|]][[2 Peter 2.6|]][[2 Peter 2.7|]][[2 Peter 2.8|]][[2 Peter 2.9|]].  
+[^b]: [[Fornication|TG Fornication]].  
+[^c]: [[Homosexual Behavior|TG Homosexual Behavior]].  
+[^d]: [[Example, Ensample|TG Example]].  
+[^e]: [[D&C 76.105|D&C 76:105]]. [[Punish, Punishment|TG Punish]].  

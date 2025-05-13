@@ -5,9 +5,9 @@
 [Isaiah 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.17?lang=eng#p17)
 
 
-[^a]: TG [[Learn, Learning]].
-[^b]: TG [[Good Works]].
-[^c]: HEB justice.
-[^d]: TG [[Charity]].
-[^e]: IE give a just verdict to the fatherless.
-[^f]: TG [[Widows]].
+[^a]: [[Learn, Learning|TG Learn]].  
+[^b]: [[Good Works|TG Good Works]].  
+[^c]: HEB justice.  
+[^d]: [[Charity|TG Charity]].  
+[^e]: IE give a just verdict to the fatherless.  
+[^f]: [[Widows|TG Widows]].  

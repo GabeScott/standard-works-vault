@@ -5,4 +5,4 @@
 [Deuteronomy 14:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.29?lang=eng#p29)
 
 
-[^a]: [[D&C 83.6|D&C 83:6 (5-6).]]
+[^a]: [[D&C 83.5|D&C 83:6 (5–6)]][[D&C 83.6|]].  

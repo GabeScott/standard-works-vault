@@ -5,4 +5,4 @@
 [Jeremiah 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/19.7?lang=eng#p7)
 
 
-[^a]: [[Jeremiah 7.33|Jer. 7:33]]; [[Alma 16.10|Alma 16:10.]]
+[^a]: [[Jeremiah 7.33|Jer. 7:33]]; [[Alma 16.10|Alma 16:10]].  

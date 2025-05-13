@@ -5,4 +5,4 @@
 [Daniel 4:34](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.34?lang=eng#p34)
 
 
-[^a]: IE the seven years.
+[^a]: IE the seven years.  

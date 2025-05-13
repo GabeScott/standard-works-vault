@@ -5,5 +5,5 @@
 [1 Nephi 3:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p20#p20)
 
 
-[^a]: TG [[Scriptures, Preservation of]].
-[^b]: [[Zechariah 7.12|Zech. 7:12]]; [[Matthew 11.13|Matt. 11:13]]; [[Mosiah 15.13|Mosiah 15:13.]]
+[^a]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  
+[^b]: [[Zechariah 7.12|Zech. 7:12]]; [[Matthew 11.13|Matt. 11:13]]; [[Mosiah 15.13|Mosiah 15:13]].  

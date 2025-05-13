@@ -5,4 +5,4 @@
 [Exodus 35:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.5?lang=eng#p5)
 
 
-[^a]: [[D&C 59.15|D&C 59:15]]; 64:22, 34.
+[^a]: [[D&C 59.15|D&C 59:15]]; [[D&C 64.22|64:22, 34]][[D&C 64.34|]].  

@@ -5,6 +5,6 @@
 [Hosea 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/9.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 31.16|Deut. 31:16]]; [[Hosea 5.3|Hosea 5:3.]]
-[^b]: OR harlot’s hire.
-[^c]: OR threshing floor.
+[^a]: [[Deuteronomy 31.16|Deut. 31:16]]; [[Hosea 5.3|Hosea 5:3]].  
+[^b]: OR harlot’s hire.  
+[^c]: OR threshing floor.  

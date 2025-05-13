@@ -5,6 +5,6 @@
 [2 Nephi 30:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/30?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 3.14|Alma 3:14.]]
-[^b]: TG [[Darkness, Spiritual]]; [[Spiritual Blindness]].
-[^c]: W of M 1:8; [[D&C 49.24|D&C 49:24]]; [[D&C 109.65|109:65.]]
+[^a]: [[Alma 3.14|Alma 3:14]].  
+[^b]: [[Darkness, Spiritual|TG Darkness, Spiritual]]; [[Spiritual Blindness|Spiritual Blindness]].  
+[^c]: [[Words of Mormon 1.8|W of M 1:8]]; [[D&C 49.24|D&C 49:24]]; [[D&C 109.65|109:65]].  

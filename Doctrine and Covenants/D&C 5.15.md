@@ -5,4 +5,4 @@
 [D&C 5:15](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.15?lang=eng#p15)
 
 
-[^a]: [[D&C 17.1|D&C 17:1]]. TG [[Witness, Witnesses]].
+[^a]: [[D&C 17.1|D&C 17:1]]. [[Witness, Witnesses|TG Witness]].  

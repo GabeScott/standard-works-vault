@@ -5,7 +5,7 @@
 [1 Nephi 2:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/2?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Stiffnecked, Stiffneckedness]].
-[^b]: [[1 Nephi 17.17|1 Ne. 17:17]]. TG [[Murmuring, Murmur]].
-[^c]: [[Proverbs 20.20|Prov. 20:20.]]
-[^d]: [[1 Nephi 5.4|1 Ne. 5:4 (2-4)]]; [[1 Nephi 17.20|17:20.]]
+[^a]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  
+[^b]: [[1 Nephi 17.17|1 Ne. 17:17]]. [[Murmuring, Murmur|TG Murmuring]].  
+[^c]: [[Proverbs 20.20|Prov. 20:20]].  
+[^d]: [[1 Nephi 5.2|1 Ne. 5:4 (2–4)]][[1 Nephi 5.3|]][[1 Nephi 5.4|]]; [[1 Nephi 17.20|17:20]].  

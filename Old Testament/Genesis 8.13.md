@@ -5,4 +5,4 @@
 [Genesis 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 7.6|Gen. 7:6.]]
+[^a]: [[Genesis 7.6|Gen. 7:6]].  

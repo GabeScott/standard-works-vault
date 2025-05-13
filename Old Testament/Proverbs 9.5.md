@@ -5,4 +5,4 @@
 [Proverbs 9:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/9.5?lang=eng#p5)
 
 
-[^a]: Wisdom prepares her feast and invites participants.
+[^a]: Wisdom prepares her feast and invites participants.  

@@ -5,4 +5,4 @@
 [Proverbs 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.1?lang=eng#p1)
 
 
-[^a]: IE to make her availability and values known.
+[^a]: IE to make her availability and values known.  

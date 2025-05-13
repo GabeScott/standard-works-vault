@@ -5,4 +5,4 @@
 [Exodus 31:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.7?lang=eng#p7)
 
 
-[^a]: HEB tent of meeting.
+[^a]: HEB tent of meeting.  

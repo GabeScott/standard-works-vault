@@ -5,4 +5,4 @@
 [3 Nephi 20:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p12#p12)
 
 
-[^a]: [[Genesis 17.11|Gen. 17:11 (9-12)]]; [[3 Nephi 15.7|3 Ne. 15:7.]]
+[^a]: [[Genesis 17.9|Gen. 17:11 (9–12)]][[Genesis 17.10|]][[Genesis 17.11|]][[Genesis 17.12|]]; [[3 Nephi 15.7|3 Ne. 15:7]].  

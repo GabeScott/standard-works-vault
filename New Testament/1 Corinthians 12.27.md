@@ -5,5 +5,5 @@
 [1 Corinthians 12:27](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.27?lang=eng#p27)
 
 
-[^a]: TG [[Jesus Christ, Head of the Church]].
-[^b]: TG [[Church Organization]].
+[^a]: [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]].  
+[^b]: [[Church Organization|TG Church Organization]].  

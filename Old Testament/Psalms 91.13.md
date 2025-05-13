@@ -5,5 +5,5 @@
 [Psalms 91:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/91.13?lang=eng#p13)
 
 
-[^a]: [[Luke 10.19|Luke 10:19.]]
-[^b]: OR serpent.
+[^a]: [[Luke 10.19|Luke 10:19]].  
+[^b]: OR serpent.  

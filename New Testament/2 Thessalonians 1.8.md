@@ -5,7 +5,7 @@
 [2 Thessalonians 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/1.8?lang=eng#p8)
 
 
-[^a]: TG [[World, End of]].
-[^b]: 1 Thes. 4:6.
-[^c]: TG [[Disobedience, Disobey]].
-[^d]: TG [[Gospel]].
+[^a]: [[World, End of|TG World, End of]].  
+[^b]: [[1 Thessalonians 4.6|1 Thes. 4:6]].  
+[^c]: [[Disobedience, Disobey|TG Disobedience]].  
+[^d]: [[Gospel|TG Gospel]].  

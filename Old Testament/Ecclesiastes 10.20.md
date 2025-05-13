@@ -5,4 +5,4 @@
 [Ecclesiastes 10:20](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.20?lang=eng#p20)
 
 
-[^a]: TG [[Citizenship]]; [[Kings, Earthly]].
+[^a]: [[Citizenship|TG Citizenship]]; [[Kings, Earthly|Kings, Earthly]].  

@@ -5,4 +5,4 @@
 [2 Thessalonians 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.1?lang=eng#p1)
 
 
-[^a]: GR concerning.
+[^a]: GR concerning.  

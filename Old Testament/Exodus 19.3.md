@@ -5,5 +5,5 @@
 [Exodus 19:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.3?lang=eng#p3)
 
 
-[^a]: [[Leviticus 1.1|Lev. 1:1]]; [[Moses 1.17|Moses 1:17.]]
-[^b]: [[Exodus 3.12|Ex. 3:12]]; [[Moses 1.1|Moses 1:1 (1-3).]]
+[^a]: [[Leviticus 1.1|Lev. 1:1]]; [[Moses 1.17|Moses 1:17]].  
+[^b]: [[Exodus 3.12|Ex. 3:12]]; [[Moses 1.1|Moses 1:1 (1–3)]][[Moses 1.2|]][[Moses 1.3|]].  

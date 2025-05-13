@@ -5,4 +5,4 @@
 [Deuteronomy 9:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 32.22|Ex. 32:22 (21-24).]]
+[^a]: [[Exodus 32.21|Ex. 32:22 (21–24)]][[Exodus 32.22|]][[Exodus 32.23|]][[Exodus 32.24|]].  

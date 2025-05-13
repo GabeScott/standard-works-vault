@@ -5,6 +5,6 @@
 [Luke 4:42](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.42?lang=eng#p42)
 
 
-[^a]: [[Luke 5.16|Luke 5:16]]; [[Luke 6.12|6:12.]]
-[^b]: JST Luke 4:42 … solitary …
-[^c]: GR detained Him.
+[^a]: [[Luke 5.16|Luke 5:16]]; [[Luke 6.12|6:12]].  
+[^b]: JST Luke 4:42 … solitary …  
+[^c]: GR detained Him.  

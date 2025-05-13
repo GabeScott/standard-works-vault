@@ -5,4 +5,4 @@
 [Job 27:13](https://www.churchofjesuschrist.org/study/scriptures/ot/job/27.13?lang=eng#p13)
 
 
-[^a]: TG [[Injustice]]; [[Oppression, Oppress]].
+[^a]: [[Injustice|TG Injustice]]; [[Oppression, Oppress|Oppression]].  

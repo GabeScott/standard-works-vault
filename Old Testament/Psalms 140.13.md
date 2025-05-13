@@ -5,4 +5,4 @@
 [Psalms 140:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/140.13?lang=eng#p13)
 
 
-[^a]: TG [[God, Presence of]].
+[^a]: [[God, Presence of|TG God, Presence of]].  

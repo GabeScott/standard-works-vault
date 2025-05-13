@@ -5,4 +5,4 @@
 [Jeremiah 49:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 19.24|Gen. 19:24.]]
+[^a]: [[Genesis 19.24|Gen. 19:24]].  

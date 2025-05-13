@@ -5,4 +5,4 @@
 [Numbers 33:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.10?lang=eng#p10)
 
 
-[^a]: OR Reed Sea.
+[^a]: OR Reed Sea.  

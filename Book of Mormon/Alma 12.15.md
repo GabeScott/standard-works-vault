@@ -5,5 +5,5 @@
 [Alma 12:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p15#p15)
 
 
-[^a]: [[Mosiah 3.25|Mosiah 3:25]]. TG [[Shame]].
-[^b]: 2 Pet. 2:9. TG [[God, Justice of]].
+[^a]: [[Mosiah 3.25|Mosiah 3:25]]. [[Shame|TG Shame]].  
+[^b]: [[2 Peter 2.9|2 Pet. 2:9]]. [[Justice|TG Justice]].  

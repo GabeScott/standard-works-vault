@@ -5,4 +5,4 @@
 [2 Kings 23:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.6?lang=eng#p6)
 
 
-[^a]: IE Asherah, a fertility goddess. 2 Chr. 34:4.
+[^a]: IE Asherah, a fertility goddess. [[2 Chronicles 34.4|2 Chr. 34:4]].  

@@ -5,5 +5,5 @@
 [Isaiah 32:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/32.19?lang=eng#p19)
 
 
-[^a]: [[D&C 29.16|D&C 29:16.]]
-[^b]: IE The “forest” and “city” are probably “the proud and the wicked.”
+[^a]: [[D&C 29.16|D&C 29:16]].  
+[^b]: IE The “forest” and “city” are probably “the proud and the wicked.”  

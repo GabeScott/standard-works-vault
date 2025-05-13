@@ -5,5 +5,5 @@
 [Deuteronomy 33:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.26?lang=eng#p26)
 
 
-[^a]: HEB the upright, righteous. Deut. 32:15; [[Isaiah 44.2|Isa. 44:2.]]
-[^b]: OR majesty through.
+[^a]: HEB the upright, righteous. [[Deuteronomy 32.15|Deut. 32:15]]; [[Isaiah 44.2|Isa. 44:2]].  
+[^b]: OR majesty through.  

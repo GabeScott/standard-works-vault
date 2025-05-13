@@ -5,5 +5,5 @@
 [Acts 24:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.25?lang=eng#p25)
 
 
-[^a]: GR self-control.
-[^b]: GR feared.
+[^a]: GR self-control.  
+[^b]: GR feared.  

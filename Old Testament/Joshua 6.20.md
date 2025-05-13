@@ -5,4 +5,4 @@
 [Joshua 6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.20?lang=eng#p20)
 
 
-[^a]: [[Hebrews 11.30|Heb. 11:30]]; [[D&C 101.57|D&C 101:57.]]
+[^a]: [[Hebrews 11.30|Heb. 11:30]]; [[D&C 101.57|D&C 101:57]].  

@@ -5,5 +5,5 @@
 [Exodus 33:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.2?lang=eng#p2)
 
 
-[^a]: TG [[Angels]].
-[^b]: [[Exodus 3.17|Ex. 3:17 (8, 17)]]; [[Exodus 13.5|13:5.]]
+[^a]: [[Angels|TG Angels]].  
+[^b]: [[Exodus 3.8|Ex. 3:17 (8, 17)]][[Exodus 3.17|]]; [[Exodus 13.5|13:5]].  

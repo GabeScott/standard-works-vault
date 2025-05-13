@@ -5,4 +5,4 @@
 [Acts 27:39](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.39?lang=eng#p39)
 
 
-[^a]: GR bay.
+[^a]: GR bay.  

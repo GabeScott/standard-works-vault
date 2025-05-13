@@ -5,6 +5,6 @@
 [Numbers 34:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/34.3?lang=eng#p3)
 
 
-[^a]: [[Joshua 15.1|Josh. 15:1 (1-4).]]
-[^b]: OR side.
-[^c]: [[Genesis 14.3|Gen. 14:3.]]
+[^a]: [[Joshua 15.1|Josh. 15:1 (1–4)]][[Joshua 15.2|]][[Joshua 15.3|]][[Joshua 15.4|]].  
+[^b]: OR side.  
+[^c]: [[Genesis 14.3|Gen. 14:3]].  

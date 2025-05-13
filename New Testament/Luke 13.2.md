@@ -5,4 +5,4 @@
 [Luke 13:2](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.2?lang=eng#p2)
 
 
-[^a]: TG [[Suffering]].
+[^a]: [[Suffering|TG Suffering]].  

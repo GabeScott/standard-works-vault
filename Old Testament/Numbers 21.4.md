@@ -5,6 +5,6 @@
 [Numbers 21:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.4?lang=eng#p4)
 
 
-[^a]: [[Numbers 33.41|Num. 33:41 (41-42).]]
-[^b]: HEB Reed Sea (also v. 14).
-[^c]: OR go around.
+[^a]: [[Numbers 33.41|Num. 33:41 (41–42)]][[Numbers 33.42|]].  
+[^b]: HEB Reed Sea (also [[Numbers 21.14|v. 14]]).  
+[^c]: OR go around.  

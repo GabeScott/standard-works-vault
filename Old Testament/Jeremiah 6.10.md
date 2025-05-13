@@ -5,5 +5,5 @@
 [Jeremiah 6:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.10?lang=eng#p10)
 
 
-[^a]: TG [[Warn, Warnings]].
-[^b]: [[Acts 7.51|Acts 7:51.]]
+[^a]: [[Warn, Warnings|TG Warn]].  
+[^b]: [[Acts 7.51|Acts 7:51]].  

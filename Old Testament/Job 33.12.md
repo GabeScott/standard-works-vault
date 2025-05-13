@@ -5,4 +5,4 @@
 [Job 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/33.12?lang=eng#p12)
 
 
-[^a]: [[Isaiah 55.9|Isa. 55:9 (8-9).]]
+[^a]: [[Isaiah 55.8|Isa. 55:9 (8–9)]][[Isaiah 55.9|]].  

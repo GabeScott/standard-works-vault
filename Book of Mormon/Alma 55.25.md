@@ -5,4 +5,4 @@
 [Alma 55:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/55?lang=eng&id=p25#p25)
 
 
-[^a]: [[Alma 53.5|Alma 53:5 (3-5).]]
+[^a]: [[Alma 53.3|Alma 53:5 (3–5)]][[Alma 53.4|]][[Alma 53.5|]].  

@@ -5,4 +5,4 @@
 [Jeremiah 47:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/47.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 25.22|Jer. 25:22.]]
+[^a]: [[Jeremiah 25.22|Jer. 25:22]].  

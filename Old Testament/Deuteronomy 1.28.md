@@ -5,4 +5,4 @@
 [Deuteronomy 1:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.28?lang=eng#p28)
 
 
-[^a]: HEB fortified. Num. 13:28.
+[^a]: HEB fortified. [[Numbers 13.28|Num. 13:28]].  

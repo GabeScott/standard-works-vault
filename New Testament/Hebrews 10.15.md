@@ -5,5 +5,5 @@
 [Hebrews 10:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.15?lang=eng#p15)
 
 
-[^a]: [[Hebrews 3.7|Heb. 3:7.]]
-[^b]: TG [[Holy Ghost, Mission of]]; [[Witness, Witnesses]].
+[^a]: [[Hebrews 3.7|Heb. 3:7]].  
+[^b]: [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]]; [[Witness, Witnesses|Witness]].  

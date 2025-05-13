@@ -5,4 +5,4 @@
 [Acts 22:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.6?lang=eng#p6)
 
 
-[^a]: TG [[Vision]].
+[^a]: [[Vision|TG Vision]].  

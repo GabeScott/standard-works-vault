@@ -5,5 +5,5 @@
 [Leviticus 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/1.9?lang=eng#p9)
 
 
-[^a]: [[1 Chronicles 6.49|1 Chr. 6:49.]]
-[^b]: [[Genesis 8.21|Gen. 8:21]]; [[Ephesians 5.2|Eph. 5:2.]]
+[^a]: [[1 Chronicles 6.49|1 Chr. 6:49]].  
+[^b]: [[Genesis 8.21|Gen. 8:21]]; [[Ephesians 5.2|Eph. 5:2]].  

@@ -5,4 +5,4 @@
 [Judges 9:21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.21?lang=eng#p21)
 
 
-[^a]: [[Numbers 21.16|Num. 21:16.]]
+[^a]: [[Numbers 21.16|Num. 21:16]].  

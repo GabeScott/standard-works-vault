@@ -5,4 +5,4 @@
 [Psalms 106:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.23?lang=eng#p23)
 
 
-[^a]: [[Exodus 32.10|Ex. 32:10 (10-11, 32).]]
+[^a]: [[Exodus 32.10|Ex. 32:10 (10–11, 32)]][[Exodus 32.11|]][[Exodus 32.32|]].  

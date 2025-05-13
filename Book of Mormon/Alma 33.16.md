@@ -5,4 +5,4 @@
 [Alma 33:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p16#p16)
 
 
-[^a]: 2 Pet. 3:5 (4-5).
+[^a]: [[2 Peter 3.4|2 Pet. 3:5 (4–5)]][[2 Peter 3.5|]].  

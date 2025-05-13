@@ -5,5 +5,5 @@
 [2 Samuel 24:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/24.25?lang=eng#p25)
 
 
-[^a]: [[1 Chronicles 21.26|1 Chr. 21:26.]]
-[^b]: TG [[Self-Sacrifice]].
+[^a]: [[1 Chronicles 21.26|1 Chr. 21:26]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  

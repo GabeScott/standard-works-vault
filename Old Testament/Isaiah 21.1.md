@@ -5,5 +5,5 @@
 [Isaiah 21:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/21.1?lang=eng#p1)
 
 
-[^a]: IE a message or prophecy of doom to Babylon.
-[^b]: OR the Negev desert.
+[^a]: IE a message or prophecy of doom to Babylon.  
+[^b]: OR the Negev desert.  

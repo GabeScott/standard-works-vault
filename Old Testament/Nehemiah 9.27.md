@@ -5,7 +5,7 @@
 [Nehemiah 9:27](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.27?lang=eng#p27)
 
 
-[^a]: [[Judges 2.14|Judg. 2:14.]]
-[^b]: [[Helaman 12.3|Hel. 12:3 (2-3).]]
-[^c]: TG [[Tribulation]].
-[^d]: [[Judges 3.9|Judg. 3:9.]]
+[^a]: [[Judges 2.14|Judg. 2:14]].  
+[^b]: [[Helaman 12.2|Hel. 12:3 (2–3)]][[Helaman 12.3|]].  
+[^c]: [[Tribulation|TG Tribulation]].  
+[^d]: [[Judges 3.9|Judg. 3:9]].  

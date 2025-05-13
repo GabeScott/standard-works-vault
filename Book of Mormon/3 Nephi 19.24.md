@@ -5,5 +5,5 @@
 [3 Nephi 19:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p24#p24)
 
 
-[^a]: [[Matthew 6.7|Matt. 6:7.]]
-[^b]: [[Helaman 10.5|Hel. 10:5]]; [[D&C 46.30|D&C 46:30.]]
+[^a]: [[Matthew 6.7|Matt. 6:7]].  
+[^b]: [[Helaman 10.5|Hel. 10:5]]; [[D&C 46.30|D&C 46:30]].  

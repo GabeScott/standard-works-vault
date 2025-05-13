@@ -5,4 +5,4 @@
 [Mosiah 1:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p4#p4)
 
 
-[^a]: [[1 Nephi 1.2|1 Ne. 1:2]]; [[1 Nephi 3.19|3:19]]; [[Mormon 9.32|Morm. 9:32 (32-33)]]; JS—H 1:64.
+[^a]: [[1 Nephi 1.2|1 Ne. 1:2]]; [[1 Nephi 3.19|3:19]]; [[Mormon 9.32|Morm. 9:32 (32–33)]][[Mormon 9.33|]]; [[Joseph Smith History 1.64|JS—H 1:64]].  

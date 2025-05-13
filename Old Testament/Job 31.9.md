@@ -5,4 +5,4 @@
 [Job 31:9](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.9?lang=eng#p9)
 
 
-[^a]: HEB enticed.
+[^a]: HEB enticed.  

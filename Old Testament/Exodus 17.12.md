@@ -5,5 +5,5 @@
 [Exodus 17:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.12?lang=eng#p12)
 
 
-[^a]: IE grew heavy with weariness.
-[^b]: OR supported.
+[^a]: IE grew heavy with weariness.  
+[^b]: OR supported.  

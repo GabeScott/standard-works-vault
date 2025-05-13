@@ -5,5 +5,5 @@
 [Ezekiel 21:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.22?lang=eng#p22)
 
 
-[^b]: OR siege mounds.
-[^c]: OR siegeworks.
+[^b]: OR siege mounds.  
+[^c]: OR siegeworks.  

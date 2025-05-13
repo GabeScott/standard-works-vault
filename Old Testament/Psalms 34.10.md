@@ -5,4 +5,4 @@
 [Psalms 34:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.10?lang=eng#p10)
 
 
-[^a]: [[Proverbs 13.25|Prov. 13:25.]]
+[^a]: [[Proverbs 13.25|Prov. 13:25]].  

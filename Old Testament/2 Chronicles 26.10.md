@@ -5,5 +5,5 @@
 [2 Chronicles 26:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.10?lang=eng#p10)
 
 
-[^a]: OR fruitful fields.
-[^b]: HEB the soil.
+[^a]: OR fruitful fields.  
+[^b]: HEB the soil.  

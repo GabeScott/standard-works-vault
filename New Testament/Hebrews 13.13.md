@@ -5,4 +5,4 @@
 [Hebrews 13:13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.13?lang=eng#p13)
 
 
-[^a]: TG [[Reproach]].
+[^a]: [[Reproach|TG Reproach]].  

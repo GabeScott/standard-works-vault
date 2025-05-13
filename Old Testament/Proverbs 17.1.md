@@ -5,5 +5,5 @@
 [Proverbs 17:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.1?lang=eng#p1)
 
 
-[^a]: [[Proverbs 15.17|Prov. 15:17.]]
-[^b]: TG [[Strife]].
+[^a]: [[Proverbs 15.17|Prov. 15:17]].  
+[^b]: [[Strife|TG Strife]].  

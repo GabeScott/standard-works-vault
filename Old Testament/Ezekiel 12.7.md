@@ -5,4 +5,4 @@
 [Ezekiel 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.7?lang=eng#p7)
 
 
-[^a]: HEB evening.
+[^a]: HEB evening.  

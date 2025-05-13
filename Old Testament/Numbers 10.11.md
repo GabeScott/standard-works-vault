@@ -5,5 +5,5 @@
 [Numbers 10:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/10.11?lang=eng#p11)
 
 
-[^a]: [[Exodus 40.36|Ex. 40:36.]]
-[^b]: [[Exodus 38.21|Ex. 38:21.]]
+[^a]: [[Exodus 40.36|Ex. 40:36]].  
+[^b]: [[Exodus 38.21|Ex. 38:21]].  

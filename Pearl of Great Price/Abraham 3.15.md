@@ -5,4 +5,4 @@
 [Abraham 3:15](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.15?lang=eng#p15)
 
 
-[^a]: TG [[Guidance, Divine]].
+[^a]: [[Guidance, Divine|TG Guidance, Divine]].  

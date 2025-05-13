@@ -5,4 +5,4 @@
 [John 13:21](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.21?lang=eng#p21)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  

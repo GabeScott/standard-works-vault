@@ -5,6 +5,6 @@
 [Exodus 32:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.20?lang=eng#p20)
 
 
-[^a]: [[Deuteronomy 9.21|Deut. 9:21.]]
-[^b]: OR strewed.
-[^c]: [[Deuteronomy 9.21|Deut. 9:21.]]
+[^a]: [[Deuteronomy 9.21|Deut. 9:21]].  
+[^b]: OR strewed.  
+[^c]: [[Deuteronomy 9.21|Deut. 9:21]].  

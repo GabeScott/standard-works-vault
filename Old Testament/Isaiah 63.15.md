@@ -5,6 +5,6 @@
 [Isaiah 63:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.15?lang=eng#p15)
 
 
-[^a]: [[Deuteronomy 26.15|Deut. 26:15]]; [[Psalms 33.14|Ps. 33:14.]]
-[^b]: TG [[Holiness]].
-[^c]: IE the abundance of Thy tenderness.
+[^a]: [[Deuteronomy 26.15|Deut. 26:15]]; [[Psalms 33.14|Ps. 33:14]].  
+[^b]: [[Holiness|TG Holiness]].  
+[^c]: IE the abundance of Thy tenderness.  

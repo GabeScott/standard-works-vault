@@ -5,5 +5,5 @@
 [Numbers 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.2?lang=eng#p2)
 
 
-[^a]: TG [[Vow]].
-[^b]: [[Amos 2.11|Amos 2:11 (11-12).]]
+[^a]: [[Vow|TG Vow]].  
+[^b]: [[Amos 2.11|Amos 2:11 (11–12)]][[Amos 2.12|]].  

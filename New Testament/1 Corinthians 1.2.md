@@ -5,5 +5,5 @@
 [1 Corinthians 1:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.2?lang=eng#p2)
 
 
-[^a]: TG [[Sanctification, Sanctify]].
-[^b]: TG [[Mission of Early Saints]]; [[Mission of Latter-day Saints]].
+[^a]: [[Sanctification, Sanctify|TG Sanctification]].  
+[^b]: [[Mission of Early Saints|TG Mission of Early Saints]]; [[Saints|Saints]].  

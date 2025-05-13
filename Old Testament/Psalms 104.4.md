@@ -5,4 +5,4 @@
 [Psalms 104:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.4?lang=eng#p4)
 
 
-[^a]: OR the winds His messengers. TG [[Angels]].
+[^a]: OR the winds His messengers. [[Angels|TG Angels]].  

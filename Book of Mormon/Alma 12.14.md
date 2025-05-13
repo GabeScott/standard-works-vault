@@ -5,6 +5,6 @@
 [Alma 12:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p14#p14)
 
 
-[^a]: [[Proverbs 18.21|Prov. 18:21]]; [[Matthew 12.36|Matt. 12:36]]; [[James 3.6|James 3:6 (1-13)]]; [[Mosiah 4.30|Mosiah 4:30 (29-30).]]
-[^b]: [[Hosea 10.8|Hosea 10:8]]; [[2 Nephi 26.5|2 Ne. 26:5.]]
-[^c]: [[Job 34.22|Job 34:22]]; [[Amos 9.3|Amos 9:3]]; [[2 Nephi 12.10|2 Ne. 12:10.]]
+[^a]: [[Proverbs 18.21|Prov. 18:21]]; [[Matthew 12.36|Matt. 12:36]]; [[James 3.1|James 3:6 (1–13)]][[James 3.2|]][[James 3.3|]][[James 3.4|]][[James 3.5|]][[James 3.6|]][[James 3.7|]][[James 3.8|]][[James 3.9|]][[James 3.10|]][[James 3.11|]][[James 3.12|]][[James 3.13|]]; [[Mosiah 4.29|Mosiah 4:30 (29–30)]][[Mosiah 4.30|]].  
+[^b]: [[Hosea 10.8|Hosea 10:8]]; [[2 Nephi 26.5|2 Ne. 26:5]].  
+[^c]: [[Job 34.22|Job 34:22]]; [[Amos 9.3|Amos 9:3]]; [[2 Nephi 12.10|2 Ne. 12:10]].  

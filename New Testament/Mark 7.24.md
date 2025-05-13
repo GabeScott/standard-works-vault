@@ -5,4 +5,4 @@
 [Mark 7:24](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.24?lang=eng#p24)
 
 
-[^a]: JST Mark 7:22-23 … and would that no man should come unto him. But he could not deny them; for he had compassion upon all men.
+[^a]: JST Mark 7:22–23 … and would that no man should come unto him. But he could not deny them; for he had compassion upon all men.  

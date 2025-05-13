@@ -5,4 +5,4 @@
 [Isaiah 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.6?lang=eng#p6)
 
 
-[^a]: HEB divide it up.
+[^a]: HEB divide it up.  

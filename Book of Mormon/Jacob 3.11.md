@@ -5,8 +5,8 @@
 [Jacob 3:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Apathy]].
-[^b]: [[2 Nephi 28.21|2 Ne. 28:21]]; [[Alma 5.7|Alma 5:7 (6-7).]]
-[^c]: TG [[Hell]].
-[^d]: [[2 Nephi 9.9|2 Ne. 9:9 (8-9)]]. TG [[Spirits, Evil or Unclean]].
-[^e]: TG [[Death, Spiritual, Second]].
+[^a]: [[Apathy|TG Apathy]].  
+[^b]: [[2 Nephi 28.21|2 Ne. 28:21]]; [[Alma 5.6|Alma 5:7 (6–7)]][[Alma 5.7|]].  
+[^c]: [[Hell|TG Hell]].  
+[^d]: [[2 Nephi 9.8|2 Ne. 9:9 (8–9)]][[2 Nephi 9.9|]]. [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  
+[^e]: [[Death, Spiritual, Second|TG Death, Spiritual, Second]].  

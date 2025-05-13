@@ -5,7 +5,7 @@
 [John 14:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.26?lang=eng#p26)
 
 
-[^a]: TG [[Holy Ghost, Comforter]].
-[^b]: TG [[Guidance, Divine]].
-[^c]: TG [[Name of the Lord]].
-[^d]: TG [[God, Omniscience of]]; [[Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of]]; [[Inspiration, Inspire]]; [[Learn, Learning]]; [[Teaching with the Spirit]].
+[^a]: [[Holy Ghost, Comforter|TG Holy Ghost, Comforter]].  
+[^b]: [[Guidance, Divine|TG Guidance, Divine]].  
+[^c]: [[Name|TG Name]].  
+[^d]: [[God, Omniscience of|TG God, Omniscience of]]; [[Holy Ghost, Gifts of|Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of|Holy Ghost, Mission of]]; [[Inspiration, Inspire|Inspiration]]; [[Learn, Learning|Learn]]; [[Teaching, Teach, Taught|Teaching]].  

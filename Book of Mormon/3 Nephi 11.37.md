@@ -5,5 +5,5 @@
 [3 Nephi 11:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p37#p37)
 
 
-[^a]: [[Mark 10.15|Mark 10:15]]; [[Luke 18.17|Luke 18:17.]]
-[^b]: [[3 Nephi 9.22|3 Ne. 9:22.]]
+[^a]: [[Mark 10.15|Mark 10:15]]; [[Luke 18.17|Luke 18:17]].  
+[^b]: [[3 Nephi 9.22|3 Ne. 9:22]].  

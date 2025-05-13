@@ -5,5 +5,5 @@
 [Moses 7:44](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.44?lang=eng#p44)
 
 
-[^a]: [[Job 10.1|Job 10:1]]; [[Isaiah 38.15|Isa. 38:15.]]
-[^b]: [[Psalms 77.2|Ps. 77:2]]; [[Ether 15.3|Ether 15:3.]]
+[^a]: [[Job 10.1|Job 10:1]]; [[Isaiah 38.15|Isa. 38:15]].  
+[^b]: [[Psalms 77.2|Ps. 77:2]]; [[Ether 15.3|Ether 15:3]].  

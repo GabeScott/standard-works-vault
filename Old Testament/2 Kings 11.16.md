@@ -5,4 +5,4 @@
 [2 Kings 11:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/11.16?lang=eng#p16)
 
 
-[^a]: [[2 Chronicles 23.15|2 Chr. 23:15.]]
+[^a]: [[2 Chronicles 23.15|2 Chr. 23:15]].  

@@ -5,5 +5,5 @@
 [Acts 10:30](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.30?lang=eng#p30)
 
 
-[^a]: TG [[Fast, Fasting]].
-[^b]: TG [[Angels]].
+[^a]: [[Fast, Fasting|TG Fast, Fasting]].  
+[^b]: [[Angels|TG Angels]].  

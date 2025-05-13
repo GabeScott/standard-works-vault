@@ -5,4 +5,4 @@
 [Revelation 9:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/9.14?lang=eng#p14)
 
 
-[^a]: JST Rev. 9:14 … in the bottomless pit.
+[^a]: JST Rev. 9:14 … in the bottomless pit.  

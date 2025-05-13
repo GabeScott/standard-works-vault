@@ -5,8 +5,8 @@
 [Ecclesiastes 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.9?lang=eng#p9)
 
 
-[^a]: TG [[Joy]].
-[^b]: TG [[Marriage, Husbands]]; [[Marriage, Wives]].
-[^c]: TG [[Family, Love within]].
-[^d]: TG [[Vanity]].
-[^e]: [[Ecclesiastes 2.10|Eccl. 2:10.]]
+[^a]: [[Joy|TG Joy]].  
+[^b]: [[Marriage, Husbands|TG Marriage, Husbands]]; [[Marriage, Wives|Marriage, Wives]].  
+[^c]: [[Family, Love within|TG Family, Love within]].  
+[^d]: [[Vanity|TG Vanity]].  
+[^e]: [[Ecclesiastes 2.10|Eccl. 2:10]].  

@@ -5,6 +5,6 @@
 [Deuteronomy 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.5?lang=eng#p5)
 
 
-[^a]: TG [[Lands of Inheritance]].
-[^b]: HEB tread, step.
-[^c]: [[Genesis 32.3|Gen. 32:3.]]
+[^a]: [[Lands of Inheritance|TG Lands of Inheritance]].  
+[^b]: HEB tread, step.  
+[^c]: [[Genesis 32.3|Gen. 32:3]].  

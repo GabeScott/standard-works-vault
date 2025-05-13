@@ -5,4 +5,4 @@
 [Moroni 7:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p25#p25)
 
 
-[^a]: [[Alma 12.29|Alma 12:29 (28-30)]]; [[Moses 5.58|Moses 5:58.]]
+[^a]: [[Alma 12.28|Alma 12:29 (28–30)]][[Alma 12.29|]][[Alma 12.30|]]; [[Moses 5.58|Moses 5:58]].  

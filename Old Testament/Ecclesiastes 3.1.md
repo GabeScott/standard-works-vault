@@ -5,5 +5,5 @@
 [Ecclesiastes 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.1?lang=eng#p1)
 
 
-[^a]: [[Proverbs 15.23|Prov. 15:23.]]
-[^b]: TG [[Time]].
+[^a]: [[Proverbs 15.23|Prov. 15:23]].  
+[^b]: [[Time|TG Time]].  

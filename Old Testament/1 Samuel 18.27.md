@@ -5,5 +5,5 @@
 [1 Samuel 18:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/18.27?lang=eng#p27)
 
 
-[^a]: IE full number.
-[^b]: [[1 Samuel 14.49|1 Sam. 14:49.]]
+[^a]: IE full number.  
+[^b]: [[1 Samuel 14.49|1 Sam. 14:49]].  

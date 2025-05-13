@@ -5,5 +5,5 @@
 [Zechariah 14:15](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.15?lang=eng#p15)
 
 
-[^a]: IE The beasts also shall be smitten.
-[^b]: HEB camps.
+[^a]: IE The beasts also shall be smitten.  
+[^b]: HEB camps.  

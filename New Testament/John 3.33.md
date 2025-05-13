@@ -5,5 +5,5 @@
 [John 3:33](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.33?lang=eng#p33)
 
 
-[^a]: OR declared that, certified that.
-[^b]: TG [[Seal]].
+[^a]: OR declared that, certified that.  
+[^b]: [[Seal|TG Seal]].  

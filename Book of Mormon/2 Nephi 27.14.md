@@ -5,4 +5,4 @@
 [2 Nephi 27:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p14#p14)
 
 
-[^a]: [[2 Nephi 28.29|2 Ne. 28:29 (29-30)]]; [[Ether 4.8|Ether 4:8.]]
+[^a]: [[2 Nephi 28.29|2 Ne. 28:29 (29–30)]][[2 Nephi 28.30|]]; [[Ether 4.8|Ether 4:8]].  

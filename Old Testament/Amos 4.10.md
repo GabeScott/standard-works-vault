@@ -5,4 +5,4 @@
 [Amos 4:10](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/4.10?lang=eng#p10)
 
 
-[^a]: [[Isaiah 3.25|Isa. 3:25]]; [[D&C 45.33|D&C 45:33.]]
+[^a]: [[Isaiah 3.25|Isa. 3:25]]; [[D&C 45.33|D&C 45:33]].  

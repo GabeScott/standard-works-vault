@@ -5,4 +5,4 @@
 [Moses 5:59](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.59?lang=eng#p59)
 
 
-[^a]: TG [[Adam]].
+[^a]: [[Adam|TG Adam]].  

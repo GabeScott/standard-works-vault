@@ -5,4 +5,4 @@
 [Deuteronomy 7:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.16?lang=eng#p16)
 
 
-[^a]: [[2 Kings 17.35|2 Kgs. 17:35 (33-36).]]
+[^a]: [[2 Kings 17.33|2 Kgs. 17:35 (33–36)]][[2 Kings 17.34|]][[2 Kings 17.35|]][[2 Kings 17.36|]].  

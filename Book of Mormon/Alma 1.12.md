@@ -5,5 +5,5 @@
 [Alma 1:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p12#p12)
 
 
-[^a]: [[2 Nephi 26.29|2 Ne. 26:29]]; [[Alma 2.20|Alma 2:20]]; [[Alma 14.16|14:16]]. TG [[Priestcraft]].
-[^b]: [[Alma 21.4|Alma 21:4.]]
+[^a]: [[2 Nephi 26.29|2 Ne. 26:29]]; [[Alma 2.20|Alma 2:20]]; [[Alma 14.16|14:16]]. [[Priestcraft|TG Priestcraft]].  
+[^b]: [[Alma 21.4|Alma 21:4]].  

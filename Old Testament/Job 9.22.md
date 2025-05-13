@@ -5,4 +5,4 @@
 [Job 9:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/9.22?lang=eng#p22)
 
 
-[^a]: Mal. 3:14 (14-18).
+[^a]: [[Malachi 3.14|Mal. 3:14 (14–18)]][[Malachi 3.15|]][[Malachi 3.16|]][[Malachi 3.17|]][[Malachi 3.18|]].  

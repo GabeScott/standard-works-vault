@@ -5,7 +5,7 @@
 [Titus 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/3.5?lang=eng#p5)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[God, Mercy of]].
-[^c]: TG [[Baptism, Essential]].
-[^d]: TG [[Holy Ghost, Gifts of]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[God, Mercy of|TG God, Mercy of]].  
+[^c]: [[Baptism, Essential|TG Baptism, Essential]].  
+[^d]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  

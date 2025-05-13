@@ -5,5 +5,5 @@
 [1 Corinthians 15:54](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.54?lang=eng#p54)
 
 
-[^a]: TG [[Immortality, Immortal]].
-[^b]: [[Isaiah 25.8|Isa. 25:8.]]
+[^a]: [[Immortality, Immortal|TG Immortality]].  
+[^b]: [[Isaiah 25.8|Isa. 25:8]].  

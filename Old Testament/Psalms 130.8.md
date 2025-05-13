@@ -5,4 +5,4 @@
 [Psalms 130:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/130.8?lang=eng#p8)
 
 
-[^a]: [[Psalms 25.22|Ps. 25:22.]]
+[^a]: [[Psalms 25.22|Ps. 25:22]].  

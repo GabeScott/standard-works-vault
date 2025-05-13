@@ -5,4 +5,4 @@
 [Amos 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/6.12?lang=eng#p12)
 
 
-[^a]: [[Amos 5.24|Amos 5:24.]]
+[^a]: [[Amos 5.24|Amos 5:24]].  

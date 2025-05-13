@@ -5,4 +5,4 @@
 [Jeremiah 17:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.11?lang=eng#p11)
 
 
-[^a]: [[2 Nephi 9.30|2 Ne. 9:30]]; [[D&C 56.16|D&C 56:16.]]
+[^a]: [[2 Nephi 9.30|2 Ne. 9:30]]; [[D&C 56.16|D&C 56:16]].  

@@ -5,4 +5,4 @@
 [2 Timothy 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.1?lang=eng#p1)
 
 
-[^a]: [[Titus 1.2|Titus 1:2.]]
+[^a]: [[Titus 1.2|Titus 1:2]].  

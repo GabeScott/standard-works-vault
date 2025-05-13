@@ -5,5 +5,5 @@
 [2 Nephi 9:48](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p48#p48)
 
 
-[^a]: [[2 Nephi 5.26|2 Ne. 5:26]]. TG [[Teacher]]; [[Teaching with the Spirit]].
-[^b]: [[Deuteronomy 33.10|Deut. 33:10]]; [[2 Chronicles 15.3|2 Chr. 15:3 (1-4)]]; [[2 Chronicles 17.9|17:9]]. TG [[Prophets, Mission of]].
+[^a]: [[2 Nephi 5.26|2 Ne. 5:26]]. [[Teacher|TG Teacher]]; [[Teaching, Teach, Taught|Teaching]].  
+[^b]: [[Deuteronomy 33.10|Deut. 33:10]]; [[2 Chronicles 15.1|2 Chr. 15:3 (1–4)]][[2 Chronicles 15.2|]][[2 Chronicles 15.3|]][[2 Chronicles 15.4|]]; [[2 Chronicles 17.9|17:9]]. [[Prophets, Mission of|TG Prophets, Mission of]].  

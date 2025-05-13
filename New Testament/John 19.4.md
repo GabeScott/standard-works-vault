@@ -5,4 +5,4 @@
 [John 19:4](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.4?lang=eng#p4)
 
 
-[^a]: GR cause, crime, case. John 18:38; [[Mosiah 14.9|Mosiah 14:9.]]
+[^a]: GR cause, crime, case. [[John 18.38|John 18:38]]; [[Mosiah 14.9|Mosiah 14:9]].  

@@ -5,4 +5,4 @@
 [Romans 14:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.5?lang=eng#p5)
 
 
-[^a]: [[Galatians 4.10|Gal. 4:10 (9-10).]]
+[^a]: [[Galatians 4.9|Gal. 4:10 (9–10)]][[Galatians 4.10|]].  

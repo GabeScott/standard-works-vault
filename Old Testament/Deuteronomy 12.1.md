@@ -5,4 +5,4 @@
 [Deuteronomy 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.1?lang=eng#p1)
 
 
-[^a]: HEB ordinances.
+[^a]: HEB ordinances.  

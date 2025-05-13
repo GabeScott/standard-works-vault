@@ -5,4 +5,4 @@
 [Deuteronomy 13:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/13.11?lang=eng#p11)
 
 
-[^a]: [[Deuteronomy 17.13|Deut. 17:13.]]
+[^a]: [[Deuteronomy 17.13|Deut. 17:13]].  

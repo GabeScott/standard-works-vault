@@ -5,4 +5,4 @@
 [Mosiah 26:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p24#p24)
 
 
-[^a]: [[John 17.3|John 17:3.]]
+[^a]: [[John 17.3|John 17:3]].  

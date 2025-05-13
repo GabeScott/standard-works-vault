@@ -5,6 +5,6 @@
 [Matthew 21:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.19?lang=eng#p19)
 
 
-[^a]: GR by the road.
-[^b]: TG [[Vineyard of the Lord]].
-[^c]: GR immediately; see also Mark 11:20-24.
+[^a]: GR by the road.  
+[^b]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  
+[^c]: GR immediately; see also [[Mark 11.20|Mark 11:20–24]][[Mark 11.21|]][[Mark 11.22|]][[Mark 11.23|]][[Mark 11.24|]].  

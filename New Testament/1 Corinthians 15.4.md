@@ -5,4 +5,4 @@
 [1 Corinthians 15:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.4?lang=eng#p4)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

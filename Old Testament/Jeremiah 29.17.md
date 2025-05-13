@@ -5,4 +5,4 @@
 [Jeremiah 29:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.17?lang=eng#p17)
 
 
-[^a]: OR bad.
+[^a]: OR bad.  

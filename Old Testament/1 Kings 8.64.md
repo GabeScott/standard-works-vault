@@ -5,4 +5,4 @@
 [1 Kings 8:64](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.64?lang=eng#p64)
 
 
-[^a]: [[2 Chronicles 4.1|2 Chr. 4:1.]]
+[^a]: [[2 Chronicles 4.1|2 Chr. 4:1]].  

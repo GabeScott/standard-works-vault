@@ -5,4 +5,4 @@
 [Luke 15:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.17?lang=eng#p17)
 
 
-[^a]: [[Psalms 119.59|Ps. 119:59]]. TG [[Repent, Repentance]].
+[^a]: [[Psalms 119.59|Ps. 119:59]]. [[Repent, Repentance|TG Repent]].  

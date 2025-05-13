@@ -5,4 +5,4 @@
 [John 21:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/21.23?lang=eng#p23)
 
 
-[^a]: [[Luke 9.27|Luke 9:27.]]
+[^a]: [[Luke 9.27|Luke 9:27]].  

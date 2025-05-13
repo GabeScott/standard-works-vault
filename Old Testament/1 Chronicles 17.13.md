@@ -5,4 +5,4 @@
 [1 Chronicles 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/17.13?lang=eng#p13)
 
 
-[^a]: [[Hebrews 1.5|Heb. 1:5 (5-6).]]
+[^a]: [[Hebrews 1.5|Heb. 1:5 (5–6)]][[Hebrews 1.6|]].  

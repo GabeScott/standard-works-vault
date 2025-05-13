@@ -5,4 +5,4 @@
 [2 Chronicles 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/18.21?lang=eng#p21)
 
 
-[^a]: JST 2 Chr. 18:21 … so; for all these have sinned against me.
+[^a]: JST 2 Chr. 18:21 … so; for all these have sinned against me.  

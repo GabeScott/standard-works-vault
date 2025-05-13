@@ -5,4 +5,4 @@
 [Alma 5:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p32#p32)
 
 
-[^a]: [[Psalms 5.5|Ps. 5:5 (4-6).]]
+[^a]: [[Psalms 5.4|Ps. 5:5 (4–6)]][[Psalms 5.5|]][[Psalms 5.6|]].  

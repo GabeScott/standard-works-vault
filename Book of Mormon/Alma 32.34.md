@@ -5,7 +5,7 @@
 [Alma 32:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p34#p34)
 
 
-[^a]: TG [[Knowledge]].
-[^b]: [[Psalms 19.7|Ps. 19:7.]]
-[^c]: [[Ether 3.19|Ether 3:19.]]
-[^d]: TG [[Mind, Minded]].
+[^a]: [[Knowledge|TG Knowledge]].  
+[^b]: [[Psalms 19.7|Ps. 19:7]].  
+[^c]: [[Ether 3.19|Ether 3:19]].  
+[^d]: [[Mind, Minded|TG Mind]].  

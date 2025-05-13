@@ -5,6 +5,6 @@
 [Philippians 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.3?lang=eng#p3)
 
 
-[^a]: TG [[Circumcision]].
-[^b]: TG [[Assembly for Worship]].
-[^c]: TG [[Trust Not in the Arm of Flesh]].
+[^a]: [[Circumcision|TG Circumcision]].  
+[^b]: [[Worship|TG Worship]].  
+[^c]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  

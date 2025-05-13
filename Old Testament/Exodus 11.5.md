@@ -5,5 +5,5 @@
 [Exodus 11:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/11.5?lang=eng#p5)
 
 
-[^a]: TG [[Plague]].
-[^b]: [[Exodus 4.23|Ex. 4:23 (21-23).]]
+[^a]: [[Plague|TG Plague]].  
+[^b]: [[Exodus 4.21|Ex. 4:23 (21–23)]][[Exodus 4.22|]][[Exodus 4.23|]].  

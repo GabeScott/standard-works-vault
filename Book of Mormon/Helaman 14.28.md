@@ -5,4 +5,4 @@
 [Helaman 14:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p28#p28)
 
 
-[^a]: [[1 Nephi 12.4|1 Ne. 12:4 (4-5)]]; [[1 Nephi 19.12|19:12 (10-12)]]; [[3 Nephi 10.11|3 Ne. 10:11.]]
+[^a]: [[1 Nephi 12.4|1 Ne. 12:4 (4–5)]][[1 Nephi 12.5|]]; [[1 Nephi 19.10|19:12 (10–12)]][[1 Nephi 19.11|]][[1 Nephi 19.12|]]; [[3 Nephi 10.11|3 Ne. 10:11]].  

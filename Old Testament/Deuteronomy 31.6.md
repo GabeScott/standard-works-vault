@@ -5,6 +5,6 @@
 [Deuteronomy 31:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.6?lang=eng#p6)
 
 
-[^a]: TG [[Courage, Courageous]].
-[^c]: [[Alma 2.28|Alma 2:28.]]
-[^d]: [[1 Kings 6.13|1 Kgs. 6:13]]; [[Psalms 94.14|Ps. 94:14.]]
+[^a]: [[Courage, Courageous|TG Courage]].  
+[^c]: [[Alma 2.28|Alma 2:28]].  
+[^d]: [[1 Kings 6.13|1 Kgs. 6:13]]; [[Psalms 94.14|Ps. 94:14]].  

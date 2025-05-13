@@ -5,5 +5,5 @@
 [1 Peter 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.7?lang=eng#p7)
 
 
-[^a]: TG [[Opposition]]; [[Testament]].
-[^b]: GR revelation.
+[^a]: [[Opposition|TG Opposition]]; [[Test, Try, Prove|Test]].  
+[^b]: GR revelation.  

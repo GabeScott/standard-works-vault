@@ -5,4 +5,4 @@
 [3 Nephi 11:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p34#p34)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]].
+[^a]: [[Baptism|TG Baptism]].  

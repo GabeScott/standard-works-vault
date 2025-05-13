@@ -5,10 +5,10 @@
 [D&C 6:13](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.13?lang=eng#p13)
 
 
-[^a]: TG [[Good Works]].
-[^b]: [[1 Timothy 1.19|1 Tim. 1:19]]; [[1 Nephi 15.24|1 Ne. 15:24.]]
-[^c]: [[Psalms 31.23|Ps. 31:23]]; [[Mosiah 2.41|Mosiah 2:41]]; [[Ether 4.19|Ether 4:19]]; [[D&C 51.19|D&C 51:19]]; [[D&C 63.47|63:47]]; [[D&C 138.12|138:12]]. TG [[Perseverance]]; [[Steadfastness, Steadfast]].
-[^d]: [[Revelation 2.10|Rev. 2:10.]]
-[^e]: TG [[Kingdom of God, in Heaven]].
-[^f]: TG [[God, Gifts of]].
-[^g]: TG [[Salvation for the Dead]].
+[^a]: [[Good Works|TG Good Works]].  
+[^b]: [[1 Timothy 1.19|1 Tim. 1:19]]; [[1 Nephi 15.24|1 Ne. 15:24]].  
+[^c]: [[Psalms 31.23|Ps. 31:23]]; [[Mosiah 2.41|Mosiah 2:41]]; [[Ether 4.19|Ether 4:19]]; [[D&C 51.19|D&C 51:19]]; [[D&C 63.47|63:47]]; [[D&C 138.12|138:12]]. [[Perseverance|TG Perseverance]]; [[Steadfastness, Steadfast|Steadfastness]].  
+[^d]: [[Revelation 2.10|Rev. 2:10]].  
+[^e]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  
+[^f]: [[God, Gifts of|TG God, Gifts of]].  
+[^g]: [[Salvation|TG Salvation]].  

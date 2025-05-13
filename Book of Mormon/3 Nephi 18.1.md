@@ -5,4 +5,4 @@
 [3 Nephi 18:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p1#p1)
 
 
-[^a]: [[Matthew 26.26|Matt. 26:26]]; [[3 Nephi 20.3|3 Ne. 20:3 (3-9)]]; [[3 Nephi 26.13|26:13.]]
+[^a]: [[Matthew 26.26|Matt. 26:26]]; [[3 Nephi 20.3|3 Ne. 20:3 (3–9)]][[3 Nephi 20.4|]][[3 Nephi 20.5|]][[3 Nephi 20.6|]][[3 Nephi 20.7|]][[3 Nephi 20.8|]][[3 Nephi 20.9|]]; [[3 Nephi 26.13|26:13]].  

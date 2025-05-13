@@ -5,4 +5,4 @@
 [Moses 8:16](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.16?lang=eng#p16)
 
 
-[^a]: [[Moses 6.23|Moses 6:23.]]
+[^a]: [[Moses 6.23|Moses 6:23]].  

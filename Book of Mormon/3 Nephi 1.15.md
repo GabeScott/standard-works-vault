@@ -5,5 +5,5 @@
 [3 Nephi 1:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p15#p15)
 
 
-[^a]: [[Joshua 10.13|Josh. 10:13.]]
-[^b]: [[Helaman 14.3|Hel. 14:3.]]
+[^a]: [[Joshua 10.13|Josh. 10:13]].  
+[^b]: [[Helaman 14.3|Hel. 14:3]].  

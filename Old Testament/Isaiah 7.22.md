@@ -5,4 +5,4 @@
 [Isaiah 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.22?lang=eng#p22)
 
 
-[^a]: HEB curd and honey; i.e., typical nomad staples.
+[^a]: HEB curd and honey; i.e., typical nomad staples.  

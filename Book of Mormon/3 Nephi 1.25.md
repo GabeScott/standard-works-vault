@@ -5,5 +5,5 @@
 [3 Nephi 1:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p25#p25)
 
 
-[^a]: [[Matthew 5.18|Matt. 5:18]]; [[2 Nephi 25.24|2 Ne. 25:24.]]
-[^b]: [[Numbers 5.7|Num. 5:7 (6-10)]]; [[Mosiah 26.29|Mosiah 26:29 (29, 35)]]; [[Alma 17.4|Alma 17:4.]]
+[^a]: [[Matthew 5.18|Matt. 5:18]]; [[2 Nephi 25.24|2 Ne. 25:24]].  
+[^b]: [[Numbers 5.6|Num. 5:7 (6–10)]][[Numbers 5.7|]][[Numbers 5.8|]][[Numbers 5.9|]][[Numbers 5.10|]]; [[Mosiah 26.29|Mosiah 26:29 (29, 35)]][[Mosiah 26.35|]]; [[Alma 17.4|Alma 17:4]].  

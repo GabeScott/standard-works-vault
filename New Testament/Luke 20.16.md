@@ -5,4 +5,4 @@
 [Luke 20:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.16?lang=eng#p16)
 
 
-[^a]: GR May it not be.
+[^a]: GR May it not be.  

@@ -5,5 +5,5 @@
 [Matthew 27:7](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.7?lang=eng#p7)
 
 
-[^a]: [[Zechariah 11.13|Zech. 11:13 (12-13).]]
-[^b]: TG [[Stranger]].
+[^a]: [[Zechariah 11.12|Zech. 11:13 (12–13)]][[Zechariah 11.13|]].  
+[^b]: [[Stranger|TG Stranger]].  

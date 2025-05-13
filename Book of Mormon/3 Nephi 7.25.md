@@ -5,5 +5,5 @@
 [3 Nephi 7:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]].
-[^b]: [[D&C 20.37|D&C 20:37]]. TG [[Remission of Sins]].
+[^a]: [[Baptism|TG Baptism]].  
+[^b]: [[D&C 20.37|D&C 20:37]]. [[Remission of Sins|TG Remission of Sins]].  

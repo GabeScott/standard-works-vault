@@ -5,4 +5,4 @@
 [Romans 14:22](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.22?lang=eng#p22)
 
 
-[^a]: GR by what he tries, approves.
+[^a]: GR by what he tries, approves.  

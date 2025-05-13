@@ -5,4 +5,4 @@
 [Ezekiel 36:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.13?lang=eng#p13)
 
 
-[^a]: [[Jeremiah 15.7|Jer. 15:7]]; [[Ezekiel 5.17|Ezek. 5:17.]]
+[^a]: [[Jeremiah 15.7|Jer. 15:7]]; [[Ezekiel 5.17|Ezek. 5:17]].  

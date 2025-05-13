@@ -5,5 +5,5 @@
 [Nehemiah 9:8](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 12.7|Gen. 12:7]]; [[1 Chronicles 16.16|1 Chr. 16:16.]]
-[^b]: [[D&C 3.2|D&C 3:2.]]
+[^a]: [[Genesis 12.7|Gen. 12:7]]; [[1 Chronicles 16.16|1 Chr. 16:16]].  
+[^b]: [[D&C 3.2|D&C 3:2]].  

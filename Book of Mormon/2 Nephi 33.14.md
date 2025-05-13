@@ -5,6 +5,6 @@
 [2 Nephi 33:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Bible]].
-[^b]: TG [[Book of Mormon]].
-[^c]: [[2 Nephi 29.11|2 Ne. 29:11]]; W of M 1:11.
+[^a]: [[Bible|TG Bible]].  
+[^b]: [[Book of Mormon|TG Book of Mormon]].  
+[^c]: [[2 Nephi 29.11|2 Ne. 29:11]]; [[Words of Mormon 1.11|W of M 1:11]].  

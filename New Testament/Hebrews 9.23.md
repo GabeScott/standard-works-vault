@@ -5,4 +5,4 @@
 [Hebrews 9:23](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.23?lang=eng#p23)
 
 
-[^a]: TG [[Blood, Symbolism of]].
+[^a]: [[Symbolism|TG Symbolism]].  

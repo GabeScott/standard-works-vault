@@ -5,6 +5,6 @@
 [Ezekiel 24:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.21?lang=eng#p21)
 
 
-[^a]: [[Jeremiah 7.14|Jer. 7:14]]; [[Ezekiel 7.22|Ezek. 7:22 (21-22).]]
-[^b]: [[Psalms 103.13|Ps. 103:13.]]
-[^c]: [[Ezekiel 23.47|Ezek. 23:47.]]
+[^a]: [[Jeremiah 7.14|Jer. 7:14]]; [[Ezekiel 7.21|Ezek. 7:22 (21–22)]][[Ezekiel 7.22|]].  
+[^b]: [[Psalms 103.13|Ps. 103:13]].  
+[^c]: [[Ezekiel 23.47|Ezek. 23:47]].  

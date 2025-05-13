@@ -5,4 +5,4 @@
 [John 12:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.15?lang=eng#p15)
 
 
-[^a]: [[Zechariah 9.9|Zech. 9:9.]]
+[^a]: [[Zechariah 9.9|Zech. 9:9]].  

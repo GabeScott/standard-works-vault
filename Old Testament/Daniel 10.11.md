@@ -5,4 +5,4 @@
 [Daniel 10:11](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/10.11?lang=eng#p11)
 
 
-[^a]: [[D&C 7.1|D&C 7:1 (1, 5).]]
+[^a]: [[D&C 7.1|D&C 7:1 (1, 5)]][[D&C 7.5|]].  

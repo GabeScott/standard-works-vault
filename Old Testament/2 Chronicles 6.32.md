@@ -5,4 +5,4 @@
 [2 Chronicles 6:32](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/6.32?lang=eng#p32)
 
 
-[^a]: HEB toward.
+[^a]: HEB toward.  

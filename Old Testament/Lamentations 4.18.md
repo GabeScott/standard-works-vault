@@ -5,4 +5,4 @@
 [Lamentations 4:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/4.18?lang=eng#p18)
 
 
-[^a]: [[Ezekiel 7.2|Ezek. 7:2 (2-3, 6).]]
+[^a]: [[Ezekiel 7.2|Ezek. 7:2 (2–3, 6)]][[Ezekiel 7.3|]][[Ezekiel 7.6|]].  

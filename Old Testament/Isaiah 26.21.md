@@ -5,4 +5,4 @@
 [Isaiah 26:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.21?lang=eng#p21)
 
 
-[^a]: HEB bloods; i.e., the bloodshed, crime, and violence committed will be exposed and recompensed.
+[^a]: HEB bloods; i.e., the bloodshed, crime, and violence committed will be exposed and recompensed.  

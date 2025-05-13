@@ -5,5 +5,5 @@
 [Daniel 4:18](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.18?lang=eng#p18)
 
 
-[^a]: TG [[God, Spirit of]]; [[Inspiration, Inspire]].
-[^b]: TG [[Holiness]].
+[^a]: [[God, Spirit of|TG God, Spirit of]]; [[Inspiration, Inspire|Inspiration]].  
+[^b]: [[Holiness|TG Holiness]].  

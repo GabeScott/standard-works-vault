@@ -5,5 +5,5 @@
 [Numbers 7:89](https://www.churchofjesuschrist.org/study/scriptures/ot/num/7.89?lang=eng#p89)
 
 
-[^a]: [[Exodus 25.22|Ex. 25:22 (17-22).]]
-[^b]: TG [[Cherubim]].
+[^a]: [[Exodus 25.17|Ex. 25:22 (17–22)]][[Exodus 25.18|]][[Exodus 25.19|]][[Exodus 25.20|]][[Exodus 25.21|]][[Exodus 25.22|]].  
+[^b]: [[Cherubim|TG Cherubim]].  

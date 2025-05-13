@@ -5,6 +5,6 @@
 [Leviticus 25:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.10?lang=eng#p10)
 
 
-[^a]: HEB sanctify.
-[^b]: TG [[Liberty]].
-[^c]: TG [[Family, Patriarchal]].
+[^a]: HEB sanctify.  
+[^b]: [[Liberty|TG Liberty]].  
+[^c]: [[Family, Patriarchal|TG Family, Patriarchal]].  

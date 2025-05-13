@@ -5,5 +5,5 @@
 [Hebrews 11:26](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.26?lang=eng#p26)
 
 
-[^a]: TG [[Reproach]].
-[^b]: TG [[Treasure]].
+[^a]: [[Reproach|TG Reproach]].  
+[^b]: [[Treasure|TG Treasure]].  

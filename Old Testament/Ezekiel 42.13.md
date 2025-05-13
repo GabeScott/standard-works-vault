@@ -5,7 +5,7 @@
 [Ezekiel 42:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/42.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 40.46|Ezek. 40:46.]]
-[^b]: [[Leviticus 6.26|Lev. 6:26 (16, 26)]]; [[Leviticus 10.13|10:13.]]
-[^c]: [[Leviticus 2.1|Lev. 2:1 (1, 3, 10).]]
-[^d]: [[Leviticus 4.3|Lev. 4:3 (2-3)]]; [[Ezekiel 40.39|Ezek. 40:39.]]
+[^a]: [[Ezekiel 40.46|Ezek. 40:46]].  
+[^b]: [[Leviticus 6.16|Lev. 6:26 (16, 26)]][[Leviticus 6.26|]]; [[Leviticus 10.13|10:13]].  
+[^c]: [[Leviticus 2.1|Lev. 2:1 (1, 3, 10)]][[Leviticus 2.3|]][[Leviticus 2.10|]].  
+[^d]: [[Leviticus 4.2|Lev. 4:3 (2–3)]][[Leviticus 4.3|]]; [[Ezekiel 40.39|Ezek. 40:39]].  

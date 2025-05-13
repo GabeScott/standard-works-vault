@@ -5,4 +5,4 @@
 [Judges 7:23](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7.23?lang=eng#p23)
 
 
-[^a]: [[Isaiah 9.4|Isa. 9:4.]]
+[^a]: [[Isaiah 9.4|Isa. 9:4]].  

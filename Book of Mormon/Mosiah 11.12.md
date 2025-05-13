@@ -5,6 +5,6 @@
 [Mosiah 11:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p12#p12)
 
 
-[^a]: [[Genesis 35.21|Gen. 35:21]]; [[Mosiah 2.7|Mosiah 2:7 (7-8)]]; [[Mosiah 19.5|19:5 (5-6).]]
-[^b]: [[Mosiah 9.14|Mosiah 9:14 (6, 8, 14)]]; [[Mosiah 22.11|22:11 (8, 11).]]
-[^c]: [[Mosiah 10.7|Mosiah 10:7.]]
+[^a]: [[Genesis 35.21|Gen. 35:21]]; [[Mosiah 2.7|Mosiah 2:7 (7–8)]][[Mosiah 2.8|]]; [[Mosiah 19.5|19:5 (5–6)]][[Mosiah 19.6|]].  
+[^b]: [[Mosiah 9.6|Mosiah 9:14 (6, 8, 14)]][[Mosiah 9.8|]][[Mosiah 9.14|]]; [[Mosiah 22.8|22:11 (8, 11)]][[Mosiah 22.11|]].  
+[^c]: [[Mosiah 10.7|Mosiah 10:7]].  

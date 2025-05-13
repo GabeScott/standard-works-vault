@@ -5,4 +5,4 @@
 [Ezekiel 17:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.15?lang=eng#p15)
 
 
-[^a]: [[2 Kings 24.20|2 Kgs. 24:20]]; [[2 Chronicles 36.13|2 Chr. 36:13]]; [[Jeremiah 52.3|Jer. 52:3.]]
+[^a]: [[2 Kings 24.20|2 Kgs. 24:20]]; [[2 Chronicles 36.13|2 Chr. 36:13]]; [[Jeremiah 52.3|Jer. 52:3]].  

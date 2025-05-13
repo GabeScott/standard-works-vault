@@ -5,5 +5,5 @@
 [Micah 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.20?lang=eng#p20)
 
 
-[^a]: [[2 Nephi 29.14|2 Ne. 29:14.]]
-[^b]: [[Luke 1.55|Luke 1:55 (54-55), 72.]]
+[^a]: [[2 Nephi 29.14|2 Ne. 29:14]].  
+[^b]: [[Luke 1.54|Luke 1:55 (54–55)]][[Luke 1.55|]], [[Luke 1.72|72]].  

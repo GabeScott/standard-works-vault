@@ -5,4 +5,4 @@
 [Exodus 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/5.13?lang=eng#p13)
 
 
-[^a]: OR urged.
+[^a]: OR urged.  

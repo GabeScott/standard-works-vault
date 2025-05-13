@@ -5,4 +5,4 @@
 [Philippians 4:14](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.14?lang=eng#p14)
 
 
-[^a]: GR participate.
+[^a]: GR participate.  

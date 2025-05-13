@@ -5,5 +5,5 @@
 [Acts 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Priesthood, Power of]].
-[^b]: TG [[Name of the Lord]].
+[^a]: [[Priesthood, Power of|TG Priesthood, Power of]].  
+[^b]: [[Name|TG Name]].  

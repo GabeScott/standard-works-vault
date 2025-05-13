@@ -5,5 +5,5 @@
 [Luke 17:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.17?lang=eng#p17)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
-[^b]: TG [[Ingratitude]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  
+[^b]: [[Ingratitude|TG Ingratitude]].  

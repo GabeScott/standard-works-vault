@@ -5,4 +5,4 @@
 [1 Kings 9:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.8?lang=eng#p8)
 
 
-[^a]: [[Deuteronomy 29.24|Deut. 29:24 (24-26)]]; [[Jeremiah 22.8|Jer. 22:8 (8-9).]]
+[^a]: [[Deuteronomy 29.24|Deut. 29:24 (24–26)]][[Deuteronomy 29.25|]][[Deuteronomy 29.26|]]; [[Jeremiah 22.8|Jer. 22:8 (8–9)]][[Jeremiah 22.9|]].  

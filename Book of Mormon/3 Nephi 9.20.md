@@ -5,5 +5,5 @@
 [3 Nephi 9:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p20#p20)
 
 
-[^a]: [[Psalms 51.17|Ps. 51:17]]; [[Omni 1.26|Omni 1:26]]; [[3 Nephi 12.19|3 Ne. 12:19]]; [[D&C 64.34|D&C 64:34.]]
-[^b]: TG [[Holy Ghost, Baptism of]].
+[^a]: [[Psalms 51.17|Ps. 51:17]]; [[Omni 1.26|Omni 1:26]]; [[3 Nephi 12.19|3 Ne. 12:19]]; [[D&C 64.34|D&C 64:34]].  
+[^b]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  

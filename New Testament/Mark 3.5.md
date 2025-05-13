@@ -5,5 +5,5 @@
 [Mark 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.5?lang=eng#p5)
 
 
-[^a]: TG [[God, Indignation of]].
-[^b]: GR insensibility, dullness. TG [[Cruelty, Cruel]].
+[^a]: [[God, Indignation of|TG God, Indignation of]].  
+[^b]: GR insensibility, dullness. [[Cruelty, Cruel|TG Cruelty]].  

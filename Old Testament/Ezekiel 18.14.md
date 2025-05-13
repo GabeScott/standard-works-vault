@@ -5,4 +5,4 @@
 [Ezekiel 18:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.14?lang=eng#p14)
 
 
-[^a]: HEB like them.
+[^a]: HEB like them.  

@@ -5,4 +5,4 @@
 [Alma 15:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/15?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 14.7|Alma 14:7 (6-7).]]
+[^a]: [[Alma 14.6|Alma 14:7 (6–7)]][[Alma 14.7|]].  

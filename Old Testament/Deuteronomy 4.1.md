@@ -5,5 +5,5 @@
 [Deuteronomy 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.1?lang=eng#p1)
 
 
-[^a]: [[Hosea 8.12|Hosea 8:12 (11-12).]]
-[^b]: HEB ordinances (also vv. 5, 8, 14, 45). TG [[Judgment]].
+[^a]: [[Hosea 8.11|Hosea 8:12 (11–12)]][[Hosea 8.12|]].  
+[^b]: HEB ordinances (also [[Deuteronomy 4.5|vv. 5, 8, 14, 45]][[Deuteronomy 4.8|]][[Deuteronomy 4.14|]][[Deuteronomy 4.45|]]). [[Judgment|TG Judgment]].  

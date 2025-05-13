@@ -5,8 +5,8 @@
 [1 Kings 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/3.1?lang=eng#p1)
 
 
-[^a]: HEB a marriage alliance.
-[^b]: [[1 Kings 7.8|1 Kgs. 7:8]]; [[1 Kings 9.16|9:16 (16, 24)]]; [[1 Kings 11.1|11:1.]]
-[^c]: [[1 Kings 2.10|1 Kgs. 2:10.]]
-[^d]: [[1 Kings 7.1|1 Kgs. 7:1.]]
-[^e]: [[1 Kings 9.15|1 Kgs. 9:15 (15, 19).]]
+[^a]: HEB a marriage alliance.  
+[^b]: [[1 Kings 7.8|1 Kgs. 7:8]]; [[1 Kings 9.16|9:16 (16, 24)]][[1 Kings 9.24|]]; [[1 Kings 11.1|11:1]].  
+[^c]: [[1 Kings 2.10|1 Kgs. 2:10]].  
+[^d]: [[1 Kings 7.1|1 Kgs. 7:1]].  
+[^e]: [[1 Kings 9.15|1 Kgs. 9:15 (15, 19)]][[1 Kings 9.19|]].  

@@ -5,4 +5,4 @@
 [Genesis 38:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/38.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 46.12|Gen. 46:12.]]
+[^a]: [[Genesis 46.12|Gen. 46:12]].  

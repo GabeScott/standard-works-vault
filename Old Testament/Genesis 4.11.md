@@ -5,5 +5,5 @@
 [Genesis 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.11?lang=eng#p11)
 
 
-[^a]: TG [[Curse]].
-[^b]: [[Numbers 16.32|Num. 16:32.]]
+[^a]: [[Curse|TG Curse]].  
+[^b]: [[Numbers 16.32|Num. 16:32]].  

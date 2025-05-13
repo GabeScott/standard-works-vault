@@ -5,6 +5,6 @@
 [3 Nephi 22:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/22?lang=eng&id=p4#p4)
 
 
-[^a]: [[Joel 2.26|Joel 2:26 (26-27)]]; [[2 Nephi 6.13|2 Ne. 6:13 (7, 13).]]
-[^b]: TG [[Shame]].
-[^c]: TG [[Reproach]].
+[^a]: [[Joel 2.26|Joel 2:26 (26–27)]][[Joel 2.27|]]; [[2 Nephi 6.7|2 Ne. 6:13 (7, 13)]][[2 Nephi 6.13|]].  
+[^b]: [[Shame|TG Shame]].  
+[^c]: [[Reproach|TG Reproach]].  

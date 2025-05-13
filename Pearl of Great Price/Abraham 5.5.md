@@ -5,4 +5,4 @@
 [Abraham 5:5](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.5?lang=eng#p5)
 
 
-[^a]: TG [[Spirit Creation]].
+[^a]: [[Spirit Creation|TG Spirit Creation]].  

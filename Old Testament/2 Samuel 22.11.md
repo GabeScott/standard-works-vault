@@ -5,4 +5,4 @@
 [2 Samuel 22:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.11?lang=eng#p11)
 
 
-[^a]: TG [[Cherubim]].
+[^a]: [[Cherubim|TG Cherubim]].  

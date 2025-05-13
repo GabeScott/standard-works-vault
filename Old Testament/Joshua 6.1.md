@@ -5,4 +5,4 @@
 [Joshua 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.1?lang=eng#p1)
 
 
-[^a]: [[Joshua 24.11|Josh. 24:11.]]
+[^a]: [[Joshua 24.11|Josh. 24:11]].  

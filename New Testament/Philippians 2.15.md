@@ -5,6 +5,6 @@
 [Philippians 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.15?lang=eng#p15)
 
 
-[^a]: TG [[Sons and Daughters of God]].
-[^b]: GR generation.
-[^c]: TG [[Mission of Early Saints]].
+[^a]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  
+[^b]: GR generation.  
+[^c]: [[Mission of Early Saints|TG Mission of Early Saints]].  

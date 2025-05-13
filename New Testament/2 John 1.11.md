@@ -5,4 +5,4 @@
 [2 John 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-jn/1.11?lang=eng#p11)
 
 
-[^a]: [[1 Timothy 5.22|1 Tim. 5:22.]]
+[^a]: [[1 Timothy 5.22|1 Tim. 5:22]].  

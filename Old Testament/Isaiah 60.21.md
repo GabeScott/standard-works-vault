@@ -5,8 +5,8 @@
 [Isaiah 60:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.21?lang=eng#p21)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: OR earth.
-[^c]: [[Ezekiel 37.25|Ezek. 37:25.]]
-[^d]: TG [[Vineyard of the Lord]].
-[^e]: [[Isaiah 64.8|Isa. 64:8]]; [[Ephesians 2.10|Eph. 2:10.]]
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: OR earth.  
+[^c]: [[Ezekiel 37.25|Ezek. 37:25]].  
+[^d]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  
+[^e]: [[Isaiah 64.8|Isa. 64:8]]; [[Ephesians 2.10|Eph. 2:10]].  

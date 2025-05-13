@@ -5,4 +5,4 @@
 [2 Nephi 32:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/32?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Nephi 12.6|1 Ne. 12:6.]]
+[^a]: [[1 Nephi 12.6|1 Ne. 12:6]].  

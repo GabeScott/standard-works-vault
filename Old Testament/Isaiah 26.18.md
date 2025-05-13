@@ -5,4 +5,4 @@
 [Isaiah 26:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.18?lang=eng#p18)
 
 
-[^a]: OR been brought low.
+[^a]: OR been brought low.  

@@ -5,4 +5,4 @@
 [Genesis 17:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.15?lang=eng#p15)
 
 
-[^a]: IE Princess.
+[^a]: IE Princess.  

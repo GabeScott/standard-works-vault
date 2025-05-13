@@ -5,4 +5,4 @@
 [Psalms 113:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/113.6?lang=eng#p6)
 
 
-[^a]: TG [[Jesus Christ, Condescension of]].
+[^a]: [[Jesus Christ, Condescension of|TG Jesus Christ, Condescension of]].  

@@ -5,4 +5,4 @@
 [Numbers 26:61](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.61?lang=eng#p61)
 
 
-[^a]: OR unauthorized.
+[^a]: OR unauthorized.  

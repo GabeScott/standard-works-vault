@@ -5,7 +5,7 @@
 [3 Nephi 19:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p4#p4)
 
 
-[^a]: [[3 Nephi 7.19|3 Ne. 7:19.]]
-[^b]: TG [[Death, Power over]].
-[^c]: [[3 Nephi 28.25|3 Ne. 28:25.]]
-[^d]: [[3 Nephi 18.36|3 Ne. 18:36 (36-37)]]; [[3 Nephi 26.17|26:17.]]
+[^a]: [[3 Nephi 7.19|3 Ne. 7:19]].  
+[^b]: [[Death, Power over|TG Death, Power over]].  
+[^c]: [[3 Nephi 28.25|3 Ne. 28:25]].  
+[^d]: [[3 Nephi 18.36|3 Ne. 18:36 (36–37)]][[3 Nephi 18.37|]]; [[3 Nephi 26.17|26:17]].  

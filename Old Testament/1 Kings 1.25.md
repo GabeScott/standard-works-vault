@@ -5,4 +5,4 @@
 [1 Kings 1:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/1.25?lang=eng#p25)
 
 
-[^a]: HEB May King Adonijah live (long)!
+[^a]: HEB May King Adonijah live (long)!  

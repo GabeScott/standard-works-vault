@@ -5,5 +5,5 @@
 [Hebrews 6:19](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.19?lang=eng#p19)
 
 
-[^a]: [[Ether 12.4|Ether 12:4.]]
-[^b]: TG [[Veil]].
+[^a]: [[Ether 12.4|Ether 12:4]].  
+[^b]: [[Veil|TG Veil]].  

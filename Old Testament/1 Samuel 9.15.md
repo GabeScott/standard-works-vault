@@ -5,4 +5,4 @@
 [1 Samuel 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.15?lang=eng#p15)
 
 
-[^b]: [[D&C 88.66|D&C 88:66.]]
+[^b]: [[D&C 88.66|D&C 88:66]].  

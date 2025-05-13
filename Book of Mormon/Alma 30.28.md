@@ -5,5 +5,5 @@
 [Alma 30:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p28#p28)
 
 
-[^a]: [[2 Nephi 28.5|2 Ne. 28:5.]]
-[^b]: [[Alma 30.53|Alma 30:53.]]
+[^a]: [[2 Nephi 28.5|2 Ne. 28:5]].  
+[^b]: [[Alma 30.53|Alma 30:53]].  

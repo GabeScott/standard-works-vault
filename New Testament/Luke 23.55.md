@@ -5,4 +5,4 @@
 [Luke 23:55](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.55?lang=eng#p55)
 
 
-[^a]: [[Luke 24.1|Luke 24:1 (1-3).]]
+[^a]: [[Luke 24.1|Luke 24:1 (1–3)]][[Luke 24.2|]][[Luke 24.3|]].  

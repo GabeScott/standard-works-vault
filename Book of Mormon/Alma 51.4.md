@@ -5,4 +5,4 @@
 [Alma 51:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p4#p4)
 
 
-[^a]: TG [[Disputations, Dispute]].
+[^a]: [[Disputations, Dispute|TG Disputations]].  

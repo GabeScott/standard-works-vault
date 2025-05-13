@@ -5,4 +5,4 @@
 [Psalms 75:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/75.10?lang=eng#p10)
 
 
-[^a]: [[1 Samuel 2.1|1 Sam. 2:1]]; [[Jeremiah 48.25|Jer. 48:25.]]
+[^a]: [[1 Samuel 2.1|1 Sam. 2:1]]; [[Jeremiah 48.25|Jer. 48:25]].  

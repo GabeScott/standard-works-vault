@@ -5,4 +5,4 @@
 [Proverbs 19:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.4?lang=eng#p4)
 
 
-[^a]: [[Proverbs 14.20|Prov. 14:20.]]
+[^a]: [[Proverbs 14.20|Prov. 14:20]].  

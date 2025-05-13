@@ -5,5 +5,5 @@
 [Esther 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.8?lang=eng#p8)
 
 
-[^a]: [[2 Nephi 15.22|2 Ne. 15:22.]]
-[^b]: [[Alma 12.31|Alma 12:31.]]
+[^a]: [[2 Nephi 15.22|2 Ne. 15:22]].  
+[^b]: [[Alma 12.31|Alma 12:31]].  

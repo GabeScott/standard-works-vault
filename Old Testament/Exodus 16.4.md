@@ -5,7 +5,7 @@
 [Exodus 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.4?lang=eng#p4)
 
 
-[^a]: OR food (also vv. 15, 22). TG [[Bread]].
-[^b]: OR portion.
-[^c]: TG [[Testament]].
-[^d]: TG [[Walking with God]].
+[^a]: OR food (also [[Exodus 16.15|vv. 15, 22]][[Exodus 16.22|]]). [[Bread|TG Bread]].  
+[^b]: OR portion.  
+[^c]: [[Test, Try, Prove|TG Test]].  
+[^d]: [[Walking with God|TG Walking with God]].  

@@ -5,5 +5,5 @@
 [Leviticus 26:41](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.41?lang=eng#p41)
 
 
-[^a]: TG [[Contrite Heart]].
-[^b]: TG [[Punish, Punishment]].
+[^a]: [[Contrite Heart|TG Contrite Heart]].  
+[^b]: [[Punish, Punishment|TG Punish]].  

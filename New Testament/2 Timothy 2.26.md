@@ -5,4 +5,4 @@
 [2 Timothy 2:26](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.26?lang=eng#p26)
 
 
-[^a]: [[Moses 7.26|Moses 7:26]]. TG [[Bondage, Spiritual]].
+[^a]: [[Moses 7.26|Moses 7:26]]. [[Bondage, Spiritual|TG Bondage, Spiritual]].  

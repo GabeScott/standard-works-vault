@@ -5,5 +5,5 @@
 [Psalms 101:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/101.7?lang=eng#p7)
 
 
-[^a]: TG [[Deceit, Deceive]].
-[^b]: TG [[Honesty]]; [[Lying, Liar, Lie]].
+[^a]: [[Deceit, Deceive|TG Deceit]].  
+[^b]: [[Honesty|TG Honesty]]; [[Lying, Liar, Lie|Lying]].  

@@ -5,4 +5,4 @@
 [Ezekiel 38:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.19?lang=eng#p19)
 
 
-[^a]: [[Haggai 2.6|Hag. 2:6 (6-7).]]
+[^a]: [[Haggai 2.6|Hag. 2:6 (6–7)]][[Haggai 2.7|]].  

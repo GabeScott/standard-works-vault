@@ -5,5 +5,5 @@
 [Romans 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.9?lang=eng#p9)
 
 
-[^a]: TG [[Jesus Christ, Atonement through]].
-[^b]: TG [[Blood, Symbolism of]].
+[^a]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  
+[^b]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  

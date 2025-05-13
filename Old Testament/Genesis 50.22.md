@@ -5,4 +5,4 @@
 [Genesis 50:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.22?lang=eng#p22)
 
 
-[^a]: TG [[Israel, Joseph, People of]].
+[^a]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  

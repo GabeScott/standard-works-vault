@@ -5,4 +5,4 @@
 [Exodus 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.13?lang=eng#p13)
 
 
-[^a]: [[Acts 7.26|Acts 7:26 (26-28).]]
+[^a]: [[Acts 7.26|Acts 7:26 (26–28)]][[Acts 7.27|]][[Acts 7.28|]].  

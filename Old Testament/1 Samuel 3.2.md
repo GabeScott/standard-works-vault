@@ -5,4 +5,4 @@
 [1 Samuel 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/3.2?lang=eng#p2)
 
 
-[^a]: [[1 Samuel 4.15|1 Sam. 4:15.]]
+[^a]: [[1 Samuel 4.15|1 Sam. 4:15]].  

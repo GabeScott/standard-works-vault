@@ -5,5 +5,5 @@
 [Deuteronomy 32:51](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.51?lang=eng#p51)
 
 
-[^a]: [[Numbers 20.12|Num. 20:12 (11-13).]]
-[^b]: [[Numbers 27.14|Num. 27:14 (12-14).]]
+[^a]: [[Numbers 20.11|Num. 20:12 (11–13)]][[Numbers 20.12|]][[Numbers 20.13|]].  
+[^b]: [[Numbers 27.12|Num. 27:14 (12–14)]][[Numbers 27.13|]][[Numbers 27.14|]].  

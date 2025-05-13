@@ -5,4 +5,4 @@
 [Job 36:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/36.12?lang=eng#p12)
 
 
-[^a]: TG [[Disobedience, Disobey]].
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  

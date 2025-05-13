@@ -5,4 +5,4 @@
 [Psalms 88:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/88.13?lang=eng#p13)
 
 
-[^a]: HEB come before Thy face.
+[^a]: HEB come before Thy face.  

@@ -5,6 +5,6 @@
 [Mark 12:26](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.26?lang=eng#p26)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
-[^b]: TG [[God, Manifestations of]].
-[^c]: [[Exodus 3.6|Ex. 3:6.]]
+[^a]: [[Resurrection|TG Resurrection]].  
+[^b]: [[God, Manifestations of|TG God, Manifestations of]].  
+[^c]: [[Exodus 3.6|Ex. 3:6]].  

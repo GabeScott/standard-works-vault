@@ -5,5 +5,5 @@
 [Alma 44:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p15#p15)
 
 
-[^a]: [[1 Nephi 4.37|1 Ne. 4:37]]; [[Alma 50.36|Alma 50:36.]]
-[^b]: [[Helaman 1.33|Hel. 1:33.]]
+[^a]: [[1 Nephi 4.37|1 Ne. 4:37]]; [[Alma 50.36|Alma 50:36]].  
+[^b]: [[Helaman 1.33|Hel. 1:33]].  

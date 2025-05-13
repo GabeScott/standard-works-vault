@@ -5,4 +5,4 @@
 [Nehemiah 10:35](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.35?lang=eng#p35)
 
 
-[^a]: [[Exodus 22.29|Ex. 22:29]]; [[Exodus 34.26|34:26]]; [[Ezekiel 44.30|Ezek. 44:30.]]
+[^a]: [[Exodus 22.29|Ex. 22:29]]; [[Exodus 34.26|34:26]]; [[Ezekiel 44.30|Ezek. 44:30]].  

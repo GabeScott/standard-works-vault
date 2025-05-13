@@ -5,4 +5,4 @@
 [Mark 12:43](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.43?lang=eng#p43)
 
 
-[^a]: TG [[Almsgiving]].
+[^a]: [[Almsgiving|TG Almsgiving]].  

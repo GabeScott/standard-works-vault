@@ -5,5 +5,5 @@
 [Mosiah 11:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p29#p29)
 
 
-[^a]: [[1 Kings 15.26|1 Kgs. 15:26 (26-34)]]. TG [[Spiritual Blindness]].
-[^b]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[1 Kings 15.26|1 Kgs. 15:26 (26–34)]][[1 Kings 15.27|]][[1 Kings 15.28|]][[1 Kings 15.29|]][[1 Kings 15.30|]][[1 Kings 15.31|]][[1 Kings 15.32|]][[1 Kings 15.33|]][[1 Kings 15.34|]]. [[Spiritual Blindness|TG Spiritual Blindness]].  
+[^b]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

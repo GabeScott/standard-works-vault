@@ -5,4 +5,4 @@
 [Ezra 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.16?lang=eng#p16)
 
 
-[^a]: TG [[Dedication, Dedicate]].
+[^a]: [[Dedication, Dedicate|TG Dedication]].  

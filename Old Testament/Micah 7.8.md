@@ -5,5 +5,5 @@
 [Micah 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.8?lang=eng#p8)
 
 
-[^a]: TG [[Darkness, Spiritual]].
-[^b]: TG [[Jesus Christ, Light of the World]].
+[^a]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  
+[^b]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]].  

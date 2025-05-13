@@ -5,5 +5,5 @@
 [Jeremiah 10:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.15?lang=eng#p15)
 
 
-[^a]: HEB mockery.
-[^b]: [[D&C 56.1|D&C 56:1.]]
+[^a]: HEB mockery.  
+[^b]: [[D&C 56.1|D&C 56:1]].  

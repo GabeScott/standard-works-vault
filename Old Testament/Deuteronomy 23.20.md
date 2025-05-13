@@ -5,5 +5,5 @@
 [Deuteronomy 23:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.20?lang=eng#p20)
 
 
-[^a]: HEB foreigner.
-[^b]: TG [[Debt]].
+[^a]: HEB foreigner.  
+[^b]: [[Debt|TG Debt]].  

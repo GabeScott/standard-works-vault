@@ -5,4 +5,4 @@
 [Psalms 141:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/141.8?lang=eng#p8)
 
 
-[^a]: [[Psalms 25.15|Ps. 25:15]]; [[D&C 4.5|D&C 4:5.]]
+[^a]: [[Psalms 25.15|Ps. 25:15]]; [[D&C 4.5|D&C 4:5]].  

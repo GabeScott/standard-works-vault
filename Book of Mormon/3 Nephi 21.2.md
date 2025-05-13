@@ -5,4 +5,4 @@
 [3 Nephi 21:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p2#p2)
 
 
-[^a]: [[1 Nephi 10.14|1 Ne. 10:14]]; [[Ether 4.17|Ether 4:17]]; [[D&C 20.9|D&C 20:9 (8-11)]]; JS—H 1:34.
+[^a]: [[1 Nephi 10.14|1 Ne. 10:14]]; [[Ether 4.17|Ether 4:17]]; [[D&C 20.8|D&C 20:9 (8–11)]][[D&C 20.9|]][[D&C 20.10|]][[D&C 20.11|]]; [[Joseph Smith History 1.34|JS—H 1:34]].  

@@ -5,5 +5,5 @@
 [Numbers 10:35](https://www.churchofjesuschrist.org/study/scriptures/ot/num/10.35?lang=eng#p35)
 
 
-[^a]: [[Psalms 68.1|Ps. 68:1.]]
-[^b]: TG [[Hate]].
+[^a]: [[Psalms 68.1|Ps. 68:1]].  
+[^b]: [[Hate|TG Hate]].  

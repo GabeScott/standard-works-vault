@@ -5,7 +5,7 @@
 [Deuteronomy 15:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.7?lang=eng#p7)
 
 
-[^a]: IE cities, towns (also v. 22).
-[^b]: TG [[Hardheartedness, Harden, Hardness]].
-[^c]: TG [[Poor]]; [[Welfare]].
-[^d]: TG [[Brotherhood and Sisterhood]].
+[^a]: IE cities, towns (also [[Deuteronomy 15.22|v. 22]]).  
+[^b]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  
+[^c]: [[Poor|TG Poor]]; [[Welfare|Welfare]].  
+[^d]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  

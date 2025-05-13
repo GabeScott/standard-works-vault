@@ -5,6 +5,6 @@
 [Lamentations 1:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.20?lang=eng#p20)
 
 
-[^a]: [[Jeremiah 4.19|Jer. 4:19 (19-20)]]; Lam. 2:11.
-[^b]: [[Helaman 12.3|Hel. 12:3.]]
-[^c]: [[Ezekiel 7.15|Ezek. 7:15.]]
+[^a]: [[Jeremiah 4.19|Jer. 4:19 (19–20)]][[Jeremiah 4.20|]]; [[Lamentations 2.11|Lam. 2:11]].  
+[^b]: [[Helaman 12.3|Hel. 12:3]].  
+[^c]: [[Ezekiel 7.15|Ezek. 7:15]].  

@@ -5,4 +5,4 @@
 [Job 3:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/3.21?lang=eng#p21)
 
 
-[^a]: [[Revelation 9.6|Rev. 9:6.]]
+[^a]: [[Revelation 9.6|Rev. 9:6]].  

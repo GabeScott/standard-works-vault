@@ -5,4 +5,4 @@
 [Deuteronomy 15:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.18?lang=eng#p18)
 
 
-[^a]: IE at half the cost of a hired worker.
+[^a]: IE at half the cost of a hired worker.  

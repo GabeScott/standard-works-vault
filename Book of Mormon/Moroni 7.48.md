@@ -5,7 +5,7 @@
 [Moroni 7:48](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p48#p48)
 
 
-[^a]: TG [[Communication]]; [[Prayer, Pray]].
-[^b]: TG [[Jesus Christ, Exemplar]].
-[^c]: 1 Jn. 3:2 (1-3); [[3 Nephi 27.27|3 Ne. 27:27.]]
-[^d]: [[3 Nephi 19.28|3 Ne. 19:28 (28-29)]]. TG [[Cleanliness]]; [[Purity, Pure]].
+[^a]: [[Communication|TG Communication]]; [[Prayer, Pray|Prayer]].  
+[^b]: [[Jesus Christ, Exemplar|TG Jesus Christ, Exemplar]].  
+[^c]: [[1 John 3.1|1 Jn. 3:2 (1–3)]][[1 John 3.2|]][[1 John 3.3|]]; [[3 Nephi 27.27|3 Ne. 27:27]].  
+[^d]: [[3 Nephi 19.28|3 Ne. 19:28 (28–29)]][[3 Nephi 19.29|]]. [[Cleanliness|TG Cleanliness]]; [[Purity, Pure|Purity]].  

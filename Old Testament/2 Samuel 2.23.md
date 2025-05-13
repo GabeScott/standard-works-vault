@@ -5,5 +5,5 @@
 [2 Samuel 2:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/2.23?lang=eng#p23)
 
 
-[^a]: [[2 Samuel 20.10|2 Sam. 20:10.]]
-[^b]: [[2 Samuel 3.27|2 Sam. 3:27.]]
+[^a]: [[2 Samuel 20.10|2 Sam. 20:10]].  
+[^b]: [[2 Samuel 3.27|2 Sam. 3:27]].  

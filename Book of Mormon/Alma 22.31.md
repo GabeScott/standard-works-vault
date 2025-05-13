@@ -5,6 +5,6 @@
 [Alma 22:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p31#p31)
 
 
-[^a]: [[Helaman 6.10|Hel. 6:10.]]
-[^b]: [[Alma 46.17|Alma 46:17]]; [[Alma 63.4|63:4.]]
-[^c]: [[Helaman 3.6|Hel. 3:6 (5-6).]]
+[^a]: [[Helaman 6.10|Hel. 6:10]].  
+[^b]: [[Alma 46.17|Alma 46:17]]; [[Alma 63.4|63:4]].  
+[^c]: [[Helaman 3.5|Hel. 3:6 (5–6)]][[Helaman 3.6|]].  

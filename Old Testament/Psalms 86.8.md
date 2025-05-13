@@ -5,4 +5,4 @@
 [Psalms 86:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/86.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 15.11|Ex. 15:11.]]
+[^a]: [[Exodus 15.11|Ex. 15:11]].  

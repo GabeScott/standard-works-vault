@@ -5,6 +5,6 @@
 [Jeremiah 27:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.3?lang=eng#p3)
 
 
-[^a]: [[Jeremiah 52.32|Jer. 52:32.]]
-[^b]: [[Jeremiah 25.21|Jer. 25:21.]]
-[^c]: [[Ezekiel 28.21|Ezek. 28:21.]]
+[^a]: [[Jeremiah 52.32|Jer. 52:32]].  
+[^b]: [[Jeremiah 25.21|Jer. 25:21]].  
+[^c]: [[Ezekiel 28.21|Ezek. 28:21]].  

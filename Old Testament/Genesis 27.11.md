@@ -5,4 +5,4 @@
 [Genesis 27:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.11?lang=eng#p11)
 
 
-[^a]: [[Genesis 25.25|Gen. 25:25.]]
+[^a]: [[Genesis 25.25|Gen. 25:25]].  

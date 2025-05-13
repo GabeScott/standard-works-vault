@@ -5,8 +5,8 @@
 [Isaiah 51:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.7?lang=eng#p7)
 
 
-[^a]: TG [[Heart]].
-[^b]: [[Matthew 10.28|Matt. 10:28.]]
-[^c]: TG [[Reproach]].
-[^d]: [[D&C 30.11|D&C 30:11.]]
-[^e]: TG [[Reviling, Revile]].
+[^a]: [[Heart|TG Heart]].  
+[^b]: [[Matthew 10.28|Matt. 10:28]].  
+[^c]: [[Reproach|TG Reproach]].  
+[^d]: [[D&C 30.11|D&C 30:11]].  
+[^e]: [[Reviling, Revile|TG Reviling]].  

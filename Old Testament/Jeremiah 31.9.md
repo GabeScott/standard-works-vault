@@ -5,7 +5,7 @@
 [Jeremiah 31:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.9?lang=eng#p9)
 
 
-[^a]: [[Jeremiah 50.4|Jer. 50:4.]]
-[^b]: [[2 Corinthians 6.18|2 Cor. 6:18.]]
-[^c]: [[Genesis 48.20|Gen. 48:20 (18-20)]]; [[D&C 133.34|D&C 133:34.]]
-[^d]: TG [[Birthright]]; [[Firstborn]].
+[^a]: [[Jeremiah 50.4|Jer. 50:4]].  
+[^b]: [[2 Corinthians 6.18|2 Cor. 6:18]].  
+[^c]: [[Genesis 48.18|Gen. 48:20 (18–20)]][[Genesis 48.19|]][[Genesis 48.20|]]; [[D&C 133.34|D&C 133:34]].  
+[^d]: [[Birthright|TG Birthright]]; [[Firstborn|Firstborn]].  

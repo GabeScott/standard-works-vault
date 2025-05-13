@@ -5,4 +5,4 @@
 [Daniel 5:15](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.15?lang=eng#p15)
 
 
-[^a]: TG [[Sorcery]].
+[^a]: [[Sorcery|TG Sorcery]].  

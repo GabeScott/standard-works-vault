@@ -5,4 +5,4 @@
 [Genesis 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.16?lang=eng#p16)
 
 
-[^a]: HEB tsohar; some rabbis believed it was a precious stone that shone in the ark. Ether 2:23 (23-24).
+[^a]: HEB tsohar; some rabbis believed it was a precious stone that shone in the ark. [[Ether 2.23|Ether 2:23 (23–24)]][[Ether 2.24|]].  

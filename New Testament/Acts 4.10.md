@@ -5,4 +5,4 @@
 [Acts 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.10?lang=eng#p10)
 
 
-[^a]: [[Acts 3.6|Acts 3:6.]]
+[^a]: [[Acts 3.6|Acts 3:6]].  

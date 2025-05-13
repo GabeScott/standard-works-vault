@@ -5,6 +5,6 @@
 [Isaiah 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.12?lang=eng#p12)
 
 
-[^a]: [[2 Kings 19.35|2 Kgs. 19:35 (35-37).]]
-[^b]: IE the proud boasting.
-[^c]: [[Isaiah 8.7|Isa. 8:7.]]
+[^a]: [[2 Kings 19.35|2 Kgs. 19:35 (35–37)]][[2 Kings 19.36|]][[2 Kings 19.37|]].  
+[^b]: IE the proud boasting.  
+[^c]: [[Isaiah 8.7|Isa. 8:7]].  

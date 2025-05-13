@@ -5,6 +5,6 @@
 [Alma 6:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/6?lang=eng&id=p3#p3)
 
 
-[^a]: [[Mosiah 26.6|Mosiah 26:6.]]
-[^b]: [[1 Corinthians 5.2|1 Cor. 5:2.]]
-[^c]: [[Exodus 32.33|Ex. 32:33]]; [[Mosiah 26.36|Mosiah 26:36]]; [[Alma 1.24|Alma 1:24]]; [[Alma 5.57|5:57 (57-58)]]. TG [[Excommunication]].
+[^a]: [[Mosiah 26.6|Mosiah 26:6]].  
+[^b]: [[1 Corinthians 5.2|1 Cor. 5:2]].  
+[^c]: [[Exodus 32.33|Ex. 32:33]]; [[Mosiah 26.36|Mosiah 26:36]]; [[Alma 1.24|Alma 1:24]]; [[Alma 5.57|5:57 (57–58)]][[Alma 5.58|]]. [[Excommunication|TG Excommunication]].  

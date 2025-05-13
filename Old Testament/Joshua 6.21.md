@@ -5,4 +5,4 @@
 [Joshua 6:21](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.21?lang=eng#p21)
 
 
-[^a]: [[Deuteronomy 7.2|Deut. 7:2.]]
+[^a]: [[Deuteronomy 7.2|Deut. 7:2]].  

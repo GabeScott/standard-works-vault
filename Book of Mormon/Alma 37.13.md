@@ -5,6 +5,6 @@
 [Alma 37:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p13#p13)
 
 
-[^a]: [[Luke 13.24|Luke 13:24 (22-30).]]
-[^b]: [[Alma 9.13|Alma 9:13 (13-14)]]; [[3 Nephi 5.22|3 Ne. 5:22.]]
-[^c]: [[Psalms 122.6|Ps. 122:6]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Alma 36.30|Alma 36:30]]; [[Alma 50.20|50:20.]]
+[^a]: [[Luke 13.22|Luke 13:24 (22–30)]][[Luke 13.23|]][[Luke 13.24|]][[Luke 13.25|]][[Luke 13.26|]][[Luke 13.27|]][[Luke 13.28|]][[Luke 13.29|]][[Luke 13.30|]].  
+[^b]: [[Alma 9.13|Alma 9:13 (13–14)]][[Alma 9.14|]]; [[3 Nephi 5.22|3 Ne. 5:22]].  
+[^c]: [[Psalms 122.6|Ps. 122:6]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Alma 36.30|Alma 36:30]]; [[Alma 50.20|50:20]].  

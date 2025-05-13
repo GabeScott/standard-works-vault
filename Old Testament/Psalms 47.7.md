@@ -5,4 +5,4 @@
 [Psalms 47:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/47.7?lang=eng#p7)
 
 
-[^a]: [[Zechariah 14.9|Zech. 14:9.]]
+[^a]: [[Zechariah 14.9|Zech. 14:9]].  

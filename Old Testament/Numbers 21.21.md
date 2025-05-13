@@ -5,5 +5,5 @@
 [Numbers 21:21](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.21?lang=eng#p21)
 
 
-[^a]: [[Joshua 12.2|Josh. 12:2.]]
-[^b]: [[Joshua 24.8|Josh. 24:8.]]
+[^a]: [[Joshua 12.2|Josh. 12:2]].  
+[^b]: [[Joshua 24.8|Josh. 24:8]].  

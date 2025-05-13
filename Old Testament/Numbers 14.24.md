@@ -5,6 +5,6 @@
 [Numbers 14:24](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.24?lang=eng#p24)
 
 
-[^a]: [[Numbers 13.30|Num. 13:30.]]
-[^b]: [[Joshua 14.8|Josh. 14:8 (6-8)]]. TG [[Commitment]].
-[^c]: [[Joshua 14.10|Josh. 14:10.]]
+[^a]: [[Numbers 13.30|Num. 13:30]].  
+[^b]: [[Joshua 14.6|Josh. 14:8 (6–8)]][[Joshua 14.7|]][[Joshua 14.8|]]. [[Commitment|TG Commitment]].  
+[^c]: [[Joshua 14.10|Josh. 14:10]].  

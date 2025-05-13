@@ -5,4 +5,4 @@
 [Psalms 114:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/114.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 17.6|Ex. 17:6.]]
+[^a]: [[Exodus 17.6|Ex. 17:6]].  

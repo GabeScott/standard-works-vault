@@ -5,4 +5,4 @@
 [Leviticus 24:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.15?lang=eng#p15)
 
 
-[^a]: TG [[Curse]].
+[^a]: [[Curse|TG Curse]].  

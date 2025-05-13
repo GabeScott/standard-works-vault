@@ -5,4 +5,4 @@
 [Moroni 8:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Word of the Lord]].
+[^a]: [[Word of the Lord|TG Word of the Lord]].  

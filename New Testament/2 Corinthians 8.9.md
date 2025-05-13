@@ -5,7 +5,7 @@
 [2 Corinthians 8:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.9?lang=eng#p9)
 
 
-[^a]: TG [[Grace]].
-[^b]: TG [[Treasure]].
-[^c]: Philip. 2:7 (5-8).
-[^d]: [[2 Corinthians 6.10|2 Cor. 6:10.]]
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[Treasure|TG Treasure]].  
+[^c]: [[Philippians 2.5|Philip. 2:7 (5–8)]][[Philippians 2.6|]][[Philippians 2.7|]][[Philippians 2.8|]].  
+[^d]: [[2 Corinthians 6.10|2 Cor. 6:10]].  

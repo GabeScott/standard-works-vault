@@ -5,4 +5,4 @@
 [Hebrews 11:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.10?lang=eng#p10)
 
 
-[^a]: [[D&C 76.66|D&C 76:66.]]
+[^a]: [[D&C 76.66|D&C 76:66]].  

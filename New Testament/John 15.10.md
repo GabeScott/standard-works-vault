@@ -5,5 +5,5 @@
 [John 15:10](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.10?lang=eng#p10)
 
 
-[^a]: [[1 Nephi 17.35|1 Ne. 17:35]]; [[Mosiah 2.4|Mosiah 2:4]]; [[D&C 95.12|D&C 95:12]]. TG [[Obedience, Obedient, Obey]].
-[^b]: TG [[Love]].
+[^a]: [[1 Nephi 17.35|1 Ne. 17:35]]; [[Mosiah 2.4|Mosiah 2:4]]; [[D&C 95.12|D&C 95:12]]. [[Obedience, Obedient, Obey|TG Obedience]].  
+[^b]: [[Love|TG Love]].  

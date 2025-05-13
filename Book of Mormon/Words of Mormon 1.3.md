@@ -5,7 +5,7 @@
 [Words of Mormon 1:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/w-of-m/1?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Nephi 1.17|1 Ne. 1:17 (16-17)]]; [[D&C 10.44|D&C 10:44.]]
-[^b]: [[Jarom 1.14|Jarom 1:14]]; W of M 1:10; [[D&C 10.38|D&C 10:38 (38-40).]]
-[^c]: [[Mosiah 1.6|Mosiah 1:6 (2-6)]]; [[Helaman 3.13|Hel. 3:13 (13-15)]]; [[Mormon 4.23|Morm. 4:23.]]
-[^d]: [[Omni 1.23|Omni 1:23 (23-25).]]
+[^a]: [[1 Nephi 1.16|1 Ne. 1:17 (16–17)]][[1 Nephi 1.17|]]; [[D&C 10.44|D&C 10:44]].  
+[^b]: [[Jarom 1.14|Jarom 1:14]]; [[Words of Mormon 1.10|W of M 1:10]]; [[D&C 10.38|D&C 10:38 (38–40)]][[D&C 10.39|]][[D&C 10.40|]].  
+[^c]: [[Mosiah 1.2|Mosiah 1:6 (2–6)]][[Mosiah 1.3|]][[Mosiah 1.4|]][[Mosiah 1.5|]][[Mosiah 1.6|]]; [[Helaman 3.13|Hel. 3:13 (13–15)]][[Helaman 3.14|]][[Helaman 3.15|]]; [[Mormon 4.23|Morm. 4:23]].  
+[^d]: [[Omni 1.23|Omni 1:23 (23–25)]][[Omni 1.24|]][[Omni 1.25|]].  

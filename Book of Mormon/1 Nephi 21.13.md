@@ -5,6 +5,6 @@
 [1 Nephi 21:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/21?lang=eng&id=p13#p13)
 
 
-[^a]: [[Isaiah 44.23|Isa. 44:23.]]
-[^b]: TG [[Earth, Renewal of]].
-[^c]: [[2 Samuel 22.28|2 Sam. 22:28]]; [[Psalms 18.27|Ps. 18:27]]; [[Isaiah 49.13|Isa. 49:13.]]
+[^a]: [[Isaiah 44.23|Isa. 44:23]].  
+[^b]: [[Earth, Renewal of|TG Earth, Renewal of]].  
+[^c]: [[2 Samuel 22.28|2 Sam. 22:28]]; [[Psalms 18.27|Ps. 18:27]]; [[Isaiah 49.13|Isa. 49:13]].  

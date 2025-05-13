@@ -5,5 +5,5 @@
 [Alma 43:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 23.17|Alma 23:17]]; [[Alma 24.1|24:1 (1-3, 5, 20)]]; [[Alma 25.13|25:13 (1, 13)]]; [[Alma 27.2|27:2 (2, 21-26).]]
-[^b]: [[Alma 47.29|Alma 47:29.]]
+[^a]: [[Alma 23.17|Alma 23:17]]; [[Alma 24.1|24:1 (1–3, 5, 20)]][[Alma 24.2|]][[Alma 24.3|]][[Alma 24.5|]][[Alma 24.20|]]; [[Alma 25.1|25:13 (1, 13)]][[Alma 25.13|]]; [[Alma 27.2|27:2 (2, 21–26)]][[Alma 27.21|]][[Alma 27.22|]][[Alma 27.23|]][[Alma 27.24|]][[Alma 27.25|]][[Alma 27.26|]].  
+[^b]: [[Alma 47.29|Alma 47:29]].  

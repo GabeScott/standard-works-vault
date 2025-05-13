@@ -5,4 +5,4 @@
 [Joshua 13:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.7?lang=eng#p7)
 
 
-[^a]: TG [[Lands of Inheritance]].
+[^a]: [[Lands of Inheritance|TG Lands of Inheritance]].  

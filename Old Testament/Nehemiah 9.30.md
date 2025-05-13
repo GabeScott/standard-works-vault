@@ -5,7 +5,7 @@
 [Nehemiah 9:30](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.30?lang=eng#p30)
 
 
-[^a]: TG [[Forbear, Forbearance]].
-[^b]: [[2 Kings 17.13|2 Kgs. 17:13.]]
-[^c]: [[Acts 7.51|Acts 7:51]]. TG [[Holy Ghost, Mission of]].
-[^d]: TG [[Prophets, Mission of]].
+[^a]: [[Forbear, Forbearance|TG Forbear]].  
+[^b]: [[2 Kings 17.13|2 Kgs. 17:13]].  
+[^c]: [[Acts 7.51|Acts 7:51]]. [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  
+[^d]: [[Prophets, Mission of|TG Prophets, Mission of]].  

@@ -5,4 +5,4 @@
 [1 Nephi 13:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p35#p35)
 
 
-[^a]: [[1 Nephi 14.7|1 Ne. 14:7]]; [[1 Nephi 22.8|22:8]]; [[2 Nephi 27.26|2 Ne. 27:26 (6-26)]]; [[2 Nephi 29.1|29:1 (1-2)]]. TG [[Book of Mormon]].
+[^a]: [[1 Nephi 14.7|1 Ne. 14:7]]; [[1 Nephi 22.8|22:8]]; [[2 Nephi 27.6|2 Ne. 27:26 (6–26)]][[2 Nephi 27.7|]][[2 Nephi 27.8|]][[2 Nephi 27.9|]][[2 Nephi 27.10|]][[2 Nephi 27.11|]][[2 Nephi 27.12|]][[2 Nephi 27.13|]][[2 Nephi 27.14|]][[2 Nephi 27.15|]][[2 Nephi 27.16|]][[2 Nephi 27.17|]][[2 Nephi 27.18|]][[2 Nephi 27.19|]][[2 Nephi 27.20|]][[2 Nephi 27.21|]][[2 Nephi 27.22|]][[2 Nephi 27.23|]][[2 Nephi 27.24|]][[2 Nephi 27.25|]][[2 Nephi 27.26|]]; [[2 Nephi 29.1|29:1 (1–2)]][[2 Nephi 29.2|]]. [[Book of Mormon|TG Book of Mormon]].  

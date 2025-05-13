@@ -5,4 +5,4 @@
 [Luke 22:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.4?lang=eng#p4)
 
 
-[^a]: GR talked, conferred.
+[^a]: GR talked, conferred.  

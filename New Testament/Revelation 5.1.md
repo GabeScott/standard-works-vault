@@ -5,6 +5,6 @@
 [Revelation 5:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/5.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 2.9|Ezek. 2:9 (9-10).]]
-[^b]: [[D&C 77.6|D&C 77:6.]]
-[^c]: TG [[Seal]].
+[^a]: [[Ezekiel 2.9|Ezek. 2:9 (9–10)]][[Ezekiel 2.10|]].  
+[^b]: [[D&C 77.6|D&C 77:6]].  
+[^c]: [[Seal|TG Seal]].  

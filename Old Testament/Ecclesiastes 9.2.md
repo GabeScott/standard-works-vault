@@ -5,7 +5,7 @@
 [Ecclesiastes 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.2?lang=eng#p2)
 
 
-[^a]: [[Ecclesiastes 2.14|Eccl. 2:14.]]
-[^b]: [[Alma 12.8|Alma 12:8.]]
-[^c]: IE makes a covenant.
-[^d]: IE avoids committing himself.
+[^a]: [[Ecclesiastes 2.14|Eccl. 2:14]].  
+[^b]: [[Alma 12.8|Alma 12:8]].  
+[^c]: IE makes a covenant.  
+[^d]: IE avoids committing himself.  

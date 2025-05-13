@@ -5,9 +5,9 @@
 [Ephesians 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.11?lang=eng#p11)
 
 
-[^a]: TG [[Authority]].
-[^b]: TG [[Apostles]]; [[Church Organization]]; [[Priesthood, History of]].
-[^c]: TG [[Prophets, Mission of]].
-[^d]: [[Acts 21.8|Acts 21:8]]; 2 Tim. 4:5. TG [[Family, Patriarchal]].
-[^e]: TG [[Bishop]].
-[^f]: TG [[Teacher]].
+[^a]: [[Authority|TG Authority]].  
+[^b]: [[Apostles|TG Apostles]]; [[Church Organization|Church Organization]]; [[Priesthood, History of|Priesthood, History of]].  
+[^c]: [[Prophets, Mission of|TG Prophets, Mission of]].  
+[^d]: [[Acts 21.8|Acts 21:8]]; [[2 Timothy 4.5|2 Tim. 4:5]]. [[Patriarch|TG Patriarch]].  
+[^e]: [[Bishop|TG Bishop]].  
+[^f]: [[Teacher|TG Teacher]].  

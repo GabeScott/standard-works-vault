@@ -5,5 +5,5 @@
 [Deuteronomy 11:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.19?lang=eng#p19)
 
 
-[^a]: [[Ephesians 6.4|Eph. 6:4 (1-4).]]
-[^b]: TG [[Children]]; Family, [[Children]], Responsibilities toward.
+[^a]: [[Ephesians 6.1|Eph. 6:4 (1–4)]][[Ephesians 6.2|]][[Ephesians 6.3|]][[Ephesians 6.4|]].  
+[^b]: [[Children|TG Children]]; [[Family, Children, Responsibilities toward|Family, Children, Responsibilities toward]].  

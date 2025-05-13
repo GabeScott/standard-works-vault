@@ -5,7 +5,7 @@
 [Mormon 9:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Unbelief, Unbelievers]].
-[^b]: Ezek. 18:23, 32; [[D&C 98.47|D&C 98:47.]]
-[^c]: TG [[Cleanliness]]; [[Purification, Purify, Purifying]].
-[^d]: TG [[Jesus Christ, Lamb of God]].
+[^a]: [[Unbelief, Unbelievers|TG Unbelief]].  
+[^b]: [[Ezekiel 18.23|Ezek. 18:23, 32]][[Ezekiel 18.32|]]; [[D&C 98.47|D&C 98:47]].  
+[^c]: [[Cleanliness|TG Cleanliness]]; [[Purification, Purify, Purifying|Purification]].  
+[^d]: [[Jesus Christ, Lamb of God|TG Jesus Christ, Lamb of God]].  

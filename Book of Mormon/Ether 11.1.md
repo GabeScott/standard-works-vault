@@ -5,4 +5,4 @@
 [Ether 11:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p1#p1)
 
 
-[^a]: [[Ether 7.23|Ether 7:23]]; [[Ether 9.28|9:28.]]
+[^a]: [[Ether 7.23|Ether 7:23]]; [[Ether 9.28|9:28]].  

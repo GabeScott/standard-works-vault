@@ -5,4 +5,4 @@
 [2 Kings 23:30](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.30?lang=eng#p30)
 
 
-[^a]: [[2 Chronicles 36.1|2 Chr. 36:1 (1-4).]]
+[^a]: [[2 Chronicles 36.1|2 Chr. 36:1 (1–4)]][[2 Chronicles 36.2|]][[2 Chronicles 36.3|]][[2 Chronicles 36.4|]].  

@@ -5,4 +5,4 @@
 [2 Nephi 27:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p34#p34)
 
 
-[^a]: [[Isaiah 29.23|Isa. 29:23.]]
+[^a]: [[Isaiah 29.23|Isa. 29:23]].  

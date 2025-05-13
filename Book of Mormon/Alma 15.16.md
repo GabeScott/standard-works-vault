@@ -5,5 +5,5 @@
 [Alma 15:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/15?lang=eng&id=p16#p16)
 
 
-[^a]: [[Luke 14.33|Luke 14:33]]; [[Alma 10.4|Alma 10:4.]]
-[^b]: TG [[Prophets, Rejection of]].
+[^a]: [[Luke 14.33|Luke 14:33]]; [[Alma 10.4|Alma 10:4]].  
+[^b]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

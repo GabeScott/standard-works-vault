@@ -5,6 +5,6 @@
 [Luke 14:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.23?lang=eng#p23)
 
 
-[^a]: [[2 Corinthians 5.20|2 Cor. 5:20.]]
-[^b]: GR hedged pathways.
-[^c]: GR urge.
+[^a]: [[2 Corinthians 5.20|2 Cor. 5:20]].  
+[^b]: GR hedged pathways.  
+[^c]: GR urge.  

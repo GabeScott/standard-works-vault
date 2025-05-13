@@ -5,5 +5,5 @@
 [2 Chronicles 6:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/6.24?lang=eng#p24)
 
 
-[^a]: HEB smitten.
-[^b]: OR repent.
+[^a]: HEB smitten.  
+[^b]: OR repent.  

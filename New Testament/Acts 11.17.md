@@ -5,4 +5,4 @@
 [Acts 11:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/11.17?lang=eng#p17)
 
 
-[^a]: TG [[Holy Ghost, Gift of]]; [[Holy Ghost, Gifts of]].
+[^a]: [[Holy Ghost, Gift of|TG Holy Ghost, Gift of]]; [[Holy Ghost, Gifts of|Holy Ghost, Gifts of]].  

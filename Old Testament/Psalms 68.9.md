@@ -5,4 +5,4 @@
 [Psalms 68:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.9?lang=eng#p9)
 
 
-[^a]: [[Ezekiel 22.24|Ezek. 22:24]]; [[Ezekiel 34.26|34:26.]]
+[^a]: [[Ezekiel 22.24|Ezek. 22:24]]; [[Ezekiel 34.26|34:26]].  

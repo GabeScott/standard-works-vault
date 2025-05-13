@@ -5,6 +5,6 @@
 [Matthew 25:40](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.40?lang=eng#p40)
 
 
-[^a]: [[Mosiah 2.17|Mosiah 2:17]]; [[D&C 42.38|D&C 42:38.]]
-[^b]: TG [[Good Works]]; [[Neighbor]]; [[Poor]].
-[^c]: TG [[Welfare]].
+[^a]: [[Mosiah 2.17|Mosiah 2:17]]; [[D&C 42.38|D&C 42:38]].  
+[^b]: [[Good Works|TG Good Works]]; [[Neighbor|Neighbor]]; [[Poor|Poor]].  
+[^c]: [[Welfare|TG Welfare]].  

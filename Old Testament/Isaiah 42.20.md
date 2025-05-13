@@ -5,4 +5,4 @@
 [Isaiah 42:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.20?lang=eng#p20)
 
 
-[^a]: TG [[Spiritual Blindness]].
+[^a]: [[Spiritual Blindness|TG Spiritual Blindness]].  

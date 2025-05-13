@@ -5,4 +5,4 @@
 [Moses 5:42](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.42?lang=eng#p42)
 
 
-[^a]: IE There was a man named Enoch in Cain’s lineage, and a city by that name among his people. Do not confuse these with the Enoch of the righteous line of Seth and with his city, Zion, also called “City of Enoch.”
+[^a]: IE There was a man named Enoch in Cain’s lineage, and a city by that name among his people. Do not confuse these with the Enoch of the righteous line of Seth and with his city, Zion, also called “City of Enoch.”  

@@ -5,5 +5,5 @@
 [Acts 6:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.9?lang=eng#p9)
 
 
-[^a]: GR Freed-men.
-[^b]: TG [[Disputations, Dispute]].
+[^a]: GR Freed-men.  
+[^b]: [[Disputations, Dispute|TG Disputations]].  

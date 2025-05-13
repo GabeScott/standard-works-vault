@@ -5,5 +5,5 @@
 [Psalms 68:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.8?lang=eng#p8)
 
 
-[^a]: IE rained.
-[^b]: [[Judges 5.5|Judg. 5:5.]]
+[^a]: IE rained.  
+[^b]: [[Judges 5.5|Judg. 5:5]].  

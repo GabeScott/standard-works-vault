@@ -5,4 +5,4 @@
 [1 Samuel 26:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/26.6?lang=eng#p6)
 
 
-[^a]: [[2 Samuel 2.18|2 Sam. 2:18.]]
+[^a]: [[2 Samuel 2.18|2 Sam. 2:18]].  

@@ -5,10 +5,10 @@
 [Articles of Faith 1:7](https://www.churchofjesuschrist.org/study/scriptures/pgp/a-of-f/1.7?lang=eng#p7)
 
 
-[^a]: TG [[Holy Ghost, Gifts of]].
-[^b]: TG [[Language]].
-[^c]: TG [[Prophecy]].
-[^d]: TG [[Revelation]].
-[^e]: TG [[Vision]].
-[^f]: TG [[Health]].
-[^g]: [[1 Corinthians 12.10|1 Cor. 12:10]]; [[Mormon 9.7|Morm. 9:7.]]
+[^a]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  
+[^b]: [[Language|TG Language]].  
+[^c]: [[Prophecy|TG Prophecy]].  
+[^d]: [[Revelation|TG Revelation]].  
+[^e]: [[Vision|TG Vision]].  
+[^f]: [[Heal, Healing|TG Heal]].  
+[^g]: [[1 Corinthians 12.10|1 Cor. 12:10]]; [[Mormon 9.7|Morm. 9:7]].  

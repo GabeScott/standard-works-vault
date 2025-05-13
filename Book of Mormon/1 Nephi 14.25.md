@@ -5,4 +5,4 @@
 [1 Nephi 14:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p25#p25)
 
 
-[^a]: [[John 20.30|John 20:30 (30-31)]]; [[John 21.25|21:25]]; [[Revelation 1.19|Rev. 1:19.]]
+[^a]: [[John 20.30|John 20:30 (30–31)]][[John 20.31|]]; [[John 21.25|21:25]]; [[Revelation 1.19|Rev. 1:19]].  

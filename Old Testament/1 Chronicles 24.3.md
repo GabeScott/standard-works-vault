@@ -5,4 +5,4 @@
 [1 Chronicles 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/24.3?lang=eng#p3)
 
 
-[^a]: [[2 Samuel 8.17|2 Sam. 8:17]]; [[1 Chronicles 6.8|1 Chr. 6:8.]]
+[^a]: [[2 Samuel 8.17|2 Sam. 8:17]]; [[1 Chronicles 6.8|1 Chr. 6:8]].  

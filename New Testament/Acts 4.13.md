@@ -5,5 +5,5 @@
 [Acts 4:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.13?lang=eng#p13)
 
 
-[^a]: [[D&C 1.19|D&C 1:19]]; [[D&C 35.13|35:13.]]
-[^b]: GR ordinary, plain.
+[^a]: [[D&C 1.19|D&C 1:19]]; [[D&C 35.13|35:13]].  
+[^b]: GR ordinary, plain.  

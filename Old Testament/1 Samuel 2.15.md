@@ -5,4 +5,4 @@
 [1 Samuel 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.15?lang=eng#p15)
 
 
-[^a]: OR cooked, boiled.
+[^a]: OR cooked, boiled.  

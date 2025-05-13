@@ -5,4 +5,4 @@
 [Deuteronomy 12:23](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.23?lang=eng#p23)
 
 
-[^a]: TG [[Blood, Eating of]].
+[^a]: [[Blood, Eating of|TG Blood, Eating of]].  

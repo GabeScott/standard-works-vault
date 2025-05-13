@@ -5,4 +5,4 @@
 [Judges 16:20](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16.20?lang=eng#p20)
 
 
-[^a]: OR knew.
+[^a]: OR knew.  

@@ -5,9 +5,9 @@
 [1 Corinthians 6:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/6.9?lang=eng#p9)
 
 
-[^a]: [[1 Nephi 10.21|1 Ne. 10:21]]; [[Alma 11.37|Alma 11:37]]; [[Alma 40.26|40:26]]; [[Moses 6.57|Moses 6:57]]. TG [[Worthiness, Worthy]].
-[^b]: [[John 3.5|John 3:5]]; [[1 Corinthians 15.50|1 Cor. 15:50.]]
-[^c]: GR sexually immoral persons, male prostitutes. TG [[Fornication]].
-[^d]: TG [[Adulterer, Adultery]]; [[Sexual Immorality]].
-[^e]: GR catamites.
-[^f]: GR male homosexuals. TG [[Homosexual Behavior]].
+[^a]: [[1 Nephi 10.21|1 Ne. 10:21]]; [[Alma 11.37|Alma 11:37]]; [[Alma 40.26|40:26]]; [[Moses 6.57|Moses 6:57]]. [[Worthiness, Worthy|TG Worthiness]].  
+[^b]: [[John 3.5|John 3:5]]; [[1 Corinthians 15.50|1 Cor. 15:50]].  
+[^c]: GR sexually immoral persons, male prostitutes. [[Fornication|TG Fornication]].  
+[^d]: [[Adulterer, Adultery|TG Adulterer]]; [[Sexual Immorality|Sexual Immorality]].  
+[^e]: GR catamites.  
+[^f]: GR male homosexuals. [[Homosexual Behavior|TG Homosexual Behavior]].  

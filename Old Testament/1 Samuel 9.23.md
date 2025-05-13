@@ -5,4 +5,4 @@
 [1 Samuel 9:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.23?lang=eng#p23)
 
 
-[^a]: OR Set it aside.
+[^a]: OR Set it aside.  

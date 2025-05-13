@@ -5,7 +5,7 @@
 [Genesis 22:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.2?lang=eng#p2)
 
 
-[^a]: [[D&C 132.36|D&C 132:36.]]
-[^b]: [[John 3.16|John 3:16 (16-21)]]; [[Jacob 4.5|Jacob 4:5.]]
-[^c]: TG [[Love]].
-[^d]: [[2 Samuel 24.18|2 Sam. 24:18]]; [[2 Chronicles 3.1|2 Chr. 3:1.]]
+[^a]: [[D&C 132.36|D&C 132:36]].  
+[^b]: [[John 3.16|John 3:16 (16–21)]][[John 3.17|]][[John 3.18|]][[John 3.19|]][[John 3.20|]][[John 3.21|]]; [[Jacob 4.5|Jacob 4:5]].  
+[^c]: [[Love|TG Love]].  
+[^d]: [[2 Samuel 24.18|2 Sam. 24:18]]; [[2 Chronicles 3.1|2 Chr. 3:1]].  

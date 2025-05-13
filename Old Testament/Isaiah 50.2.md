@@ -5,6 +5,6 @@
 [Isaiah 50:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 59.1|Isa. 59:1]]; [[D&C 35.8|D&C 35:8.]]
-[^b]: [[D&C 133.67|D&C 133:67.]]
-[^c]: TG [[Drought]].
+[^a]: [[Isaiah 59.1|Isa. 59:1]]; [[D&C 35.8|D&C 35:8]].  
+[^b]: [[D&C 133.67|D&C 133:67]].  
+[^c]: [[Drought|TG Drought]].  

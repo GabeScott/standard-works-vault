@@ -5,4 +5,4 @@
 [1 Nephi 14:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p24#p24)
 
 
-[^a]: [[Ether 4.16|Ether 4:16.]]
+[^a]: [[Ether 4.16|Ether 4:16]].  

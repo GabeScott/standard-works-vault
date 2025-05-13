@@ -5,6 +5,6 @@
 [Ephesians 5:23](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.23?lang=eng#p23)
 
 
-[^a]: TG [[Marriage, Husbands]].
-[^b]: TG [[Jesus Christ, Head of the Church]].
-[^c]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Marriage, Husbands|TG Marriage, Husbands]].  
+[^b]: [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]].  
+[^c]: [[Church|TG Church]].  

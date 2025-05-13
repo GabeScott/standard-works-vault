@@ -5,4 +5,4 @@
 [Deuteronomy 28:57](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.57?lang=eng#p57)
 
 
-[^a]: Lam. 4:10.
+[^a]: [[Lamentations 4.10|Lam. 4:10]].  

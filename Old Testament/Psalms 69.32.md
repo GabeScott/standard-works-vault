@@ -5,4 +5,4 @@
 [Psalms 69:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.32?lang=eng#p32)
 
 
-[^a]: [[D&C 101.38|D&C 101:38.]]
+[^a]: [[D&C 101.38|D&C 101:38]].  

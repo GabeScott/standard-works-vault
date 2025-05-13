@@ -5,4 +5,4 @@
 [2 Kings 23:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.12?lang=eng#p12)
 
 
-[^a]: [[Jeremiah 19.13|Jer. 19:13]]; [[Jeremiah 32.29|32:29]]; Zeph. 1:5.
+[^a]: [[Jeremiah 19.13|Jer. 19:13]]; [[Jeremiah 32.29|32:29]]; [[Zephaniah 1.5|Zeph. 1:5]].  

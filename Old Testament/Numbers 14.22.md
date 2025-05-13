@@ -5,5 +5,5 @@
 [Numbers 14:22](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.22?lang=eng#p22)
 
 
-[^a]: TG [[Miracle]].
-[^b]: TG [[Testament]].
+[^a]: [[Miracle|TG Miracle]].  
+[^b]: [[Test, Try, Prove|TG Test]].  

@@ -5,4 +5,4 @@
 [Psalms 135:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/135.7?lang=eng#p7)
 
 
-[^a]: IE clouds to ascend.
+[^a]: IE clouds to ascend.  

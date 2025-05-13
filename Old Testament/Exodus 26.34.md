@@ -5,5 +5,5 @@
 [Exodus 26:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/26.34?lang=eng#p34)
 
 
-[^a]: [[Exodus 25.21|Ex. 25:21.]]
-[^b]: TG [[Scriptures, Preservation of]].
+[^a]: [[Exodus 25.21|Ex. 25:21]].  
+[^b]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  

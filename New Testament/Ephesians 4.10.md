@@ -5,4 +5,4 @@
 [Ephesians 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.10?lang=eng#p10)
 
 
-[^a]: TG [[Jesus Christ, Ascension of]].
+[^a]: [[Jesus Christ, Ascension of|TG Jesus Christ, Ascension of]].  

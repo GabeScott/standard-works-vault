@@ -5,8 +5,8 @@
 [Matthew 23:37](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.37?lang=eng#p37)
 
 
-[^a]: TG [[Jerusalem]].
-[^b]: TG [[Prophets, Rejection of]].
-[^c]: GR have I desired to gather.
-[^d]: [[3 Nephi 10.6|3 Ne. 10:6 (4-6)]]; [[D&C 29.2|D&C 29:2]]; [[D&C 43.24|43:24 (24-25)]]. TG [[Israel, Gathering of]].
-[^e]: [[D&C 138.21|D&C 138:21 (21-22)]]. TG [[Rebellion, Rebel]]; [[Stubbornness, Stubborn]].
+[^a]: [[Jerusalem|TG Jerusalem]].  
+[^b]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  
+[^c]: GR have I desired to gather.  
+[^d]: [[3 Nephi 10.4|3 Ne. 10:6 (4–6)]][[3 Nephi 10.5|]][[3 Nephi 10.6|]]; [[D&C 29.2|D&C 29:2]]; [[D&C 43.24|43:24 (24–25)]][[D&C 43.25|]]. [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^e]: [[D&C 138.21|D&C 138:21 (21–22)]][[D&C 138.22|]]. [[Rebellion, Rebel|TG Rebellion]]; [[Stubbornness, Stubborn|Stubbornness]].  

@@ -5,5 +5,5 @@
 [Mosiah 21:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p13#p13)
 
 
-[^a]: [[Mosiah 19.28|Mosiah 19:28 (26, 28)]]; [[Mosiah 21.36|21:36.]]
-[^b]: TG [[Submissiveness, Submit]].
+[^a]: [[Mosiah 19.26|Mosiah 19:28 (26, 28)]][[Mosiah 19.28|]]; [[Mosiah 21.36|21:36]].  
+[^b]: [[Submissiveness, Submit|TG Submissiveness]].  

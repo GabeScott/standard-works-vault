@@ -5,4 +5,4 @@
 [Mark 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/2.5?lang=eng#p5)
 
 
-[^a]: [[Luke 7.48|Luke 7:48]]; [[James 5.15|James 5:15 (14-15).]]
+[^a]: [[Luke 7.48|Luke 7:48]]; [[James 5.14|James 5:15 (14–15)]][[James 5.15|]].  

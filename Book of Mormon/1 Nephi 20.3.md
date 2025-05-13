@@ -5,4 +5,4 @@
 [1 Nephi 20:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p3#p3)
 
 
-[^a]: [[Isaiah 42.9|Isa. 42:9]]; [[Isaiah 46.10|46:10 (9-10)]]. TG [[God, Foreknowledge of]].
+[^a]: [[Isaiah 42.9|Isa. 42:9]]; [[Isaiah 46.9|46:10 (9–10)]][[Isaiah 46.10|]]. [[God, Foreknowledge of|TG God, Foreknowledge of]].  

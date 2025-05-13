@@ -5,6 +5,6 @@
 [Deuteronomy 25:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.1?lang=eng#p1)
 
 
-[^a]: TG [[Disputations, Dispute]].
-[^b]: [[Ezekiel 44.24|Ezek. 44:24.]]
-[^c]: TG [[Justification, Justify]].
+[^a]: [[Disputations, Dispute|TG Disputations]].  
+[^b]: [[Ezekiel 44.24|Ezek. 44:24]].  
+[^c]: [[Justification, Justify|TG Justification]].  

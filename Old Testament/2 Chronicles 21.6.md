@@ -5,4 +5,4 @@
 [2 Chronicles 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.6?lang=eng#p6)
 
 
-[^a]: [[1 Kings 16.30|1 Kgs. 16:30 (30-33)]]; [[2 Chronicles 22.3|2 Chr. 22:3.]]
+[^a]: [[1 Kings 16.30|1 Kgs. 16:30 (30–33)]][[1 Kings 16.31|]][[1 Kings 16.32|]][[1 Kings 16.33|]]; [[2 Chronicles 22.3|2 Chr. 22:3]].  

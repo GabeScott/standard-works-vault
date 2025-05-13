@@ -5,5 +5,5 @@
 [2 Nephi 2:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p12#p12)
 
 
-[^a]: [[D&C 88.25|D&C 88:25]]. TG [[Earth, Purpose of]].
-[^b]: TG [[God, Justice of]].
+[^a]: [[D&C 88.25|D&C 88:25]]. [[Earth, Purpose of|TG Earth, Purpose of]].  
+[^b]: [[God, Justice of|TG God, Justice of]].  

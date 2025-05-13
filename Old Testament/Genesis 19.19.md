@@ -5,4 +5,4 @@
 [Genesis 19:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.19?lang=eng#p19)
 
 
-[^a]: TG [[Grace]].
+[^a]: [[Grace|TG Grace]].  

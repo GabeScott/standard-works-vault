@@ -5,5 +5,5 @@
 [1 Peter 2:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.19?lang=eng#p19)
 
 
-[^a]: GR pleasing, gracious.
-[^b]: TG [[Tribulation]].
+[^a]: GR pleasing, gracious.  
+[^b]: [[Tribulation|TG Tribulation]].  

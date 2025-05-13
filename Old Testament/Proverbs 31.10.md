@@ -5,5 +5,5 @@
 [Proverbs 31:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.10?lang=eng#p10)
 
 
-[^a]: TG [[Chastity, Chaste]]; [[Virtue, Virtuous]].
-[^b]: TG [[Marriage, Marry]]; [[Marriage, Wives]]; [[Woman, Women]].
+[^a]: [[Chastity, Chaste|TG Chastity]]; [[Virtue, Virtuous|Virtue]].  
+[^b]: [[Marriage, Marry|TG Marriage, Marry]]; [[Marriage, Wives|Marriage, Wives]]; [[Woman, Women|Woman]].  

@@ -5,4 +5,4 @@
 [Leviticus 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/2.13?lang=eng#p13)
 
 
-[^a]: TG [[Salt]].
+[^a]: [[Salt|TG Salt]].  

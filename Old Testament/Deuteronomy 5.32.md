@@ -5,5 +5,5 @@
 [Deuteronomy 5:32](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.32?lang=eng#p32)
 
 
-[^a]: TG [[Duty]].
-[^b]: [[Deuteronomy 17.20|Deut. 17:20]]; [[Deuteronomy 28.14|28:14.]]
+[^a]: [[Duty|TG Duty]].  
+[^b]: [[Deuteronomy 17.20|Deut. 17:20]]; [[Deuteronomy 28.14|28:14]].  

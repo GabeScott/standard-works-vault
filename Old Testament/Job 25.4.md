@@ -5,5 +5,5 @@
 [Job 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/25.4?lang=eng#p4)
 
 
-[^a]: TG [[Justification, Justify]].
-[^b]: [[Ether 12.37|Ether 12:37]]; [[D&C 88.74|D&C 88:74 (74-75)]]; [[D&C 135.5|135:5 (4-5).]]
+[^a]: [[Justification, Justify|TG Justification]].  
+[^b]: [[Ether 12.37|Ether 12:37]]; [[D&C 88.74|D&C 88:74 (74–75)]][[D&C 88.75|]]; [[D&C 135.4|135:5 (4–5)]][[D&C 135.5|]].  

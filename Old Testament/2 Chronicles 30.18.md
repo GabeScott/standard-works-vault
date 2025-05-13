@@ -5,4 +5,4 @@
 [2 Chronicles 30:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.18?lang=eng#p18)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

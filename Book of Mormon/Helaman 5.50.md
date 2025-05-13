@@ -5,4 +5,4 @@
 [Helaman 5:50](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p50#p50)
 
 
-[^a]: [[Ether 12.14|Ether 12:14.]]
+[^a]: [[Ether 12.14|Ether 12:14]].  

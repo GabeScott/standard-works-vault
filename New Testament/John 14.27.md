@@ -5,6 +5,6 @@
 [John 14:27](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.27?lang=eng#p27)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: TG [[Contentment]]; [[Peace of God]].
-[^c]: TG [[Sorrow]].
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: [[Contentment|TG Contentment]]; [[Peace|Peace]].  
+[^c]: [[Sorrow|TG Sorrow]].  

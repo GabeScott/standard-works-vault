@@ -5,4 +5,4 @@
 [Ezekiel 27:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 10.4|Gen. 10:4.]]
+[^a]: [[Genesis 10.4|Gen. 10:4]].  

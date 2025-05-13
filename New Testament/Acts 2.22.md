@@ -5,6 +5,6 @@
 [Acts 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.22?lang=eng#p22)
 
 
-[^a]: [[John 9.33|John 9:33 (31-33).]]
-[^b]: [[Mosiah 3.5|Mosiah 3:5 (5-6).]]
-[^c]: [[Exodus 8.19|Ex. 8:19]]; [[Luke 11.20|Luke 11:20]]; [[John 3.2|John 3:2]]; [[Acts 10.38|Acts 10:38.]]
+[^a]: [[John 9.31|John 9:33 (31–33)]][[John 9.32|]][[John 9.33|]].  
+[^b]: [[Mosiah 3.5|Mosiah 3:5 (5–6)]][[Mosiah 3.6|]].  
+[^c]: [[Exodus 8.19|Ex. 8:19]]; [[Luke 11.20|Luke 11:20]]; [[John 3.2|John 3:2]]; [[Acts 10.38|Acts 10:38]].  

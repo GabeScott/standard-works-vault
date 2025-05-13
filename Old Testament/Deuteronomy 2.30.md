@@ -5,5 +5,5 @@
 [Deuteronomy 2:30](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.30?lang=eng#p30)
 
 
-[^a]: [[Romans 9.18|Rom. 9:18.]]
-[^b]: TG [[Stubbornness, Stubborn]].
+[^a]: [[Romans 9.18|Rom. 9:18]].  
+[^b]: [[Stubbornness, Stubborn|TG Stubbornness]].  

@@ -5,5 +5,5 @@
 [Psalms 101:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/101.6?lang=eng#p6)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: TG [[Perfection, Perfect, Perfectly]].
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Perfection, Perfect, Perfectly|TG Perfection]].  

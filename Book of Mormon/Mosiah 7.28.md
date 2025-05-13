@@ -5,4 +5,4 @@
 [Mosiah 7:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p28#p28)
 
 
-[^a]: [[Mosiah 17.13|Mosiah 17:13.]]
+[^a]: [[Mosiah 17.13|Mosiah 17:13]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 34:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.5?lang=eng#p5)
 
 
-[^a]: [[D&C 84.25|D&C 84:25.]]
-[^b]: [[Deuteronomy 32.50|Deut. 32:50 (48-50)]]; [[Joshua 1.1|Josh. 1:1.]]
+[^a]: [[D&C 84.25|D&C 84:25]].  
+[^b]: [[Deuteronomy 32.48|Deut. 32:50 (48–50)]][[Deuteronomy 32.49|]][[Deuteronomy 32.50|]]; [[Joshua 1.1|Josh. 1:1]].  

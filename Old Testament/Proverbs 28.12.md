@@ -5,4 +5,4 @@
 [Proverbs 28:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.12?lang=eng#p12)
 
 
-[^a]: [[Proverbs 11.10|Prov. 11:10.]]
+[^a]: [[Proverbs 11.10|Prov. 11:10]].  

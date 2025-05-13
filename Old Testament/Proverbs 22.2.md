@@ -5,4 +5,4 @@
 [Proverbs 22:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.2?lang=eng#p2)
 
 
-[^a]: [[Mosiah 4.19|Mosiah 4:19.]]
+[^a]: [[Mosiah 4.19|Mosiah 4:19]].  

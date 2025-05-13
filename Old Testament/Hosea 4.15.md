@@ -5,5 +5,5 @@
 [Hosea 4:15](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.15?lang=eng#p15)
 
 
-[^a]: [[Ezekiel 16.15|Ezek. 16:15 (15, 34).]]
-[^b]: [[Hosea 10.8|Hosea 10:8 (7-8).]]
+[^a]: [[Ezekiel 16.15|Ezek. 16:15 (15, 34)]][[Ezekiel 16.34|]].  
+[^b]: [[Hosea 10.7|Hosea 10:8 (7–8)]][[Hosea 10.8|]].  

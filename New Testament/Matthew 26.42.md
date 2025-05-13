@@ -5,4 +5,4 @@
 [Matthew 26:42](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.42?lang=eng#p42)
 
 
-[^a]: [[Acts 21.14|Acts 21:14]]. TG [[God, Will of]].
+[^a]: [[Acts 21.14|Acts 21:14]]. [[God, Will of|TG God, Will of]].  

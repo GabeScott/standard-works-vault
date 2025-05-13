@@ -5,4 +5,4 @@
 [Exodus 30:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.7?lang=eng#p7)
 
 
-[^a]: [[Exodus 31.11|Ex. 31:11]]; [[Exodus 40.27|40:27]]; [[1 Chronicles 6.49|1 Chr. 6:49]]; [[2 Chronicles 26.18|2 Chr. 26:18 (16-23)]]; [[Psalms 141.2|Ps. 141:2.]]
+[^a]: [[Exodus 31.11|Ex. 31:11]]; [[Exodus 40.27|40:27]]; [[1 Chronicles 6.49|1 Chr. 6:49]]; [[2 Chronicles 26.16|2 Chr. 26:18 (16–23)]][[2 Chronicles 26.17|]][[2 Chronicles 26.18|]][[2 Chronicles 26.19|]][[2 Chronicles 26.20|]][[2 Chronicles 26.21|]][[2 Chronicles 26.22|]][[2 Chronicles 26.23|]]; [[Psalms 141.2|Ps. 141:2]].  

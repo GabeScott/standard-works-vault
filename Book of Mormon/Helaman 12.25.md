@@ -5,5 +5,5 @@
 [Helaman 12:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p25#p25)
 
 
-[^a]: Mal. 4:5; [[3 Nephi 26.4|3 Ne. 26:4.]]
-[^b]: TG [[God, Presence of]].
+[^a]: [[Malachi 4.5|Mal. 4:5]]; [[3 Nephi 26.4|3 Ne. 26:4]].  
+[^b]: [[God, Presence of|TG God, Presence of]].  

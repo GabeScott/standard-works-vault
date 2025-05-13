@@ -5,6 +5,6 @@
 [3 Nephi 26:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/26?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Benevolence]].
-[^b]: 4 Ne. 1:3 (3, 25-26).
-[^c]: TG [[Consecration]].
+[^a]: [[Benevolence|TG Benevolence]].  
+[^b]: [[4 Nephi 1.3|4 Ne. 1:3 (3, 25–26)]][[4 Nephi 1.25|]][[4 Nephi 1.26|]].  
+[^c]: [[Consecration|TG Consecration]].  

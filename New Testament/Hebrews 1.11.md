@@ -5,4 +5,4 @@
 [Hebrews 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.11?lang=eng#p11)
 
 
-[^a]: GR grow old, become worn.
+[^a]: GR grow old, become worn.  

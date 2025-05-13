@@ -5,5 +5,5 @@
 [Genesis 26:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.15?lang=eng#p15)
 
 
-[^a]: [[Genesis 21.30|Gen. 21:30.]]
-[^b]: [[Genesis 21.25|Gen. 21:25.]]
+[^a]: [[Genesis 21.30|Gen. 21:30]].  
+[^b]: [[Genesis 21.25|Gen. 21:25]].  

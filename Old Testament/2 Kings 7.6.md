@@ -5,4 +5,4 @@
 [2 Kings 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/7.6?lang=eng#p6)
 
 
-[^a]: [[2 Kings 6.17|2 Kgs. 6:17.]]
+[^a]: [[2 Kings 6.17|2 Kgs. 6:17]].  

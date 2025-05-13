@@ -5,6 +5,6 @@
 [Jeremiah 49:29](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.29?lang=eng#p29)
 
 
-[^a]: [[Psalms 120.5|Ps. 120:5.]]
-[^b]: OR tent-cloths.
-[^c]: [[Jeremiah 50.46|Jer. 50:46.]]
+[^a]: [[Psalms 120.5|Ps. 120:5]].  
+[^b]: OR tent-cloths.  
+[^c]: [[Jeremiah 50.46|Jer. 50:46]].  

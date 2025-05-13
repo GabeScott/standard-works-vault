@@ -5,6 +5,6 @@
 [2 Peter 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.5?lang=eng#p5)
 
 
-[^a]: TG [[Diligence, Diligent, Diligently]].
-[^b]: TG [[Chastity, Chaste]]; [[Good Works]]; [[Virtue, Virtuous]].
-[^c]: TG [[Knowledge]]; [[Learn, Learning]]; [[Study]].
+[^a]: [[Diligence, Diligent, Diligently|TG Diligence]].  
+[^b]: [[Chastity, Chaste|TG Chastity]]; [[Good Works|Good Works]]; [[Virtue, Virtuous|Virtue]].  
+[^c]: [[Knowledge|TG Knowledge]]; [[Learn, Learning|Learn]]; [[Study|Study]].  

@@ -5,5 +5,5 @@
 [Alma 21:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 17.13|Alma 17:13 (13, 17).]]
-[^b]: [[Alma 24.1|Alma 24:1]]; [[3 Nephi 9.7|3 Ne. 9:7.]]
+[^a]: [[Alma 17.13|Alma 17:13 (13, 17)]][[Alma 17.17|]].  
+[^b]: [[Alma 24.1|Alma 24:1]]; [[3 Nephi 9.7|3 Ne. 9:7]].  

@@ -5,4 +5,4 @@
 [2 Nephi 18:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p3#p3)
 
 
-[^a]: [[2 Nephi 18.18|2 Ne. 18:18.]]
+[^a]: [[2 Nephi 18.18|2 Ne. 18:18]].  

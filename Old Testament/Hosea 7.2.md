@@ -5,4 +5,4 @@
 [Hosea 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/7.2?lang=eng#p2)
 
 
-[^a]: [[Proverbs 5.22|Prov. 5:22.]]
+[^a]: [[Proverbs 5.22|Prov. 5:22]].  

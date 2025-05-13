@@ -5,4 +5,4 @@
 [Genesis 42:37](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.37?lang=eng#p37)
 
 
-[^a]: [[Genesis 42.22|Gen. 42:22]]; [[Numbers 26.5|Num. 26:5.]]
+[^a]: [[Genesis 42.22|Gen. 42:22]]; [[Numbers 26.5|Num. 26:5]].  

@@ -5,4 +5,4 @@
 [Ezekiel 27:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.25?lang=eng#p25)
 
 
-[^a]: [[Psalms 48.7|Ps. 48:7]]; [[Isaiah 2.16|Isa. 2:16.]]
+[^a]: [[Psalms 48.7|Ps. 48:7]]; [[Isaiah 2.16|Isa. 2:16]].  

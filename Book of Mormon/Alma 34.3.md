@@ -5,4 +5,4 @@
 [Alma 34:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 32.5|Alma 32:5.]]
+[^a]: [[Alma 32.5|Alma 32:5]].  

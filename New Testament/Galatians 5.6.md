@@ -5,7 +5,7 @@
 [Galatians 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.6?lang=eng#p6)
 
 
-[^a]: TG [[Circumcision]].
-[^b]: GR has any power, validity, service.
-[^c]: TG [[Faith]].
-[^d]: TG [[Love]].
+[^a]: [[Circumcision|TG Circumcision]].  
+[^b]: GR has any power, validity, service.  
+[^c]: [[Faith|TG Faith]].  
+[^d]: [[Love|TG Love]].  

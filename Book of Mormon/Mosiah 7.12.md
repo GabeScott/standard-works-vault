@@ -5,4 +5,4 @@
 [Mosiah 7:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 47.22|Alma 47:22 (22-23).]]
+[^a]: [[Alma 47.22|Alma 47:22 (22–23)]][[Alma 47.23|]].  

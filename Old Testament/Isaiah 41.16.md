@@ -5,4 +5,4 @@
 [Isaiah 41:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.16?lang=eng#p16)
 
 
-[^a]: [[Jeremiah 51.2|Jer. 51:2.]]
+[^a]: [[Jeremiah 51.2|Jer. 51:2]].  

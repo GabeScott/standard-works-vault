@@ -5,5 +5,5 @@
 [Acts 22:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.12?lang=eng#p12)
 
 
-[^a]: [[Acts 9.10|Acts 9:10.]]
-[^b]: [[1 Timothy 3.7|1 Tim. 3:7.]]
+[^a]: [[Acts 9.10|Acts 9:10]].  
+[^b]: [[1 Timothy 3.7|1 Tim. 3:7]].  

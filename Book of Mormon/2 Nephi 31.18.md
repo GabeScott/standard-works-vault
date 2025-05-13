@@ -5,7 +5,7 @@
 [2 Nephi 31:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p18#p18)
 
 
-[^a]: [[1 Nephi 8.20|1 Ne. 8:20.]]
-[^b]: [[Proverbs 4.18|Prov. 4:18]]. TG [[Gate]]; [[Path]]; [[Way]].
-[^c]: TG [[Holy Ghost, Mission of]]; [[Holy Ghost, Source of Testimony]].
-[^d]: [[3 Nephi 28.11|3 Ne. 28:11]]; [[Moses 6.66|Moses 6:66.]]
+[^a]: [[1 Nephi 8.20|1 Ne. 8:20]].  
+[^b]: [[Proverbs 4.18|Prov. 4:18]]. [[Gate|TG Gate]]; [[Path|Path]]; [[Way|Way]].  
+[^c]: [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]]; [[Holy Ghost, Source of Testimony|Holy Ghost, Source of Testimony]].  
+[^d]: [[3 Nephi 28.11|3 Ne. 28:11]]; [[Moses 6.66|Moses 6:66]].  

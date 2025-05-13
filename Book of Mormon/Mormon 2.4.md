@@ -5,4 +5,4 @@
 [Mormon 2:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/2?lang=eng&id=p4#p4)
 
 
-[^a]: [[3 Nephi 3.14|3 Ne. 3:14 (14, 25)]]; [[Mormon 2.21|Morm. 2:21.]]
+[^a]: [[3 Nephi 3.14|3 Ne. 3:14 (14, 25)]][[3 Nephi 3.25|]]; [[Mormon 2.21|Morm. 2:21]].  

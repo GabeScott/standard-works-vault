@@ -5,4 +5,4 @@
 [Ruth 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/3.3?lang=eng#p3)
 
 
-[^a]: IE threshing floor.
+[^a]: IE threshing floor.  

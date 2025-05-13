@@ -5,7 +5,7 @@
 [1 Corinthians 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.3?lang=eng#p3)
 
 
-[^a]: TG [[Carnal Mind]]; [[Man, Natural, Not Spiritually Reborn]].
-[^b]: TG [[Envy, Envious]].
-[^c]: TG [[Strife]].
-[^d]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Carnal Mind|TG Carnal Mind]]; [[Man, Natural, Not Spiritually Reborn|Man, Natural, Not Spiritually Reborn]].  
+[^b]: [[Envy, Envious|TG Envy]].  
+[^c]: [[Strife|TG Strife]].  
+[^d]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

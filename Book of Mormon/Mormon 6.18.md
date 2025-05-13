@@ -5,4 +5,4 @@
 [Mormon 6:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p18#p18)
 
 
-[^a]: Lam. 2:11.
+[^a]: [[Lamentations 2.11|Lam. 2:11]].  

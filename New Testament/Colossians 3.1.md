@@ -5,4 +5,4 @@
 [Colossians 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.1?lang=eng#p1)
 
 
-[^a]: Col. 2:12.
+[^a]: [[Colossians 2.12|Col. 2:12]].  

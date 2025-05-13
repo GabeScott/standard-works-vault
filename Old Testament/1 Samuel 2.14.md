@@ -5,4 +5,4 @@
 [1 Samuel 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.14?lang=eng#p14)
 
 
-[^a]: [[Leviticus 7.33|Lev. 7:33 (30-34)]]; [[Deuteronomy 18.3|Deut. 18:3.]]
+[^a]: [[Leviticus 7.30|Lev. 7:33 (30–34)]][[Leviticus 7.31|]][[Leviticus 7.32|]][[Leviticus 7.33|]][[Leviticus 7.34|]]; [[Deuteronomy 18.3|Deut. 18:3]].  

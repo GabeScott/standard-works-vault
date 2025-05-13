@@ -5,7 +5,7 @@
 [Deuteronomy 16:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.19?lang=eng#p19)
 
 
-[^a]: OR pervert justice, nor show partiality nor take a bribe.
-[^b]: TG [[Judgment]].
-[^c]: [[Exodus 18.21|Ex. 18:21 (21-22).]]
-[^d]: TG [[Spiritual Blindness]].
+[^a]: OR pervert justice, nor show partiality nor take a bribe.  
+[^b]: [[Judgment|TG Judgment]].  
+[^c]: [[Exodus 18.21|Ex. 18:21 (21–22)]][[Exodus 18.22|]].  
+[^d]: [[Spiritual Blindness|TG Spiritual Blindness]].  

@@ -5,5 +5,5 @@
 [Luke 1:77](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.77?lang=eng#p77)
 
 
-[^a]: [[Luke 11.52|Luke 11:52.]]
-[^b]: TG [[Remission of Sins]].
+[^a]: [[Luke 11.52|Luke 11:52]].  
+[^b]: [[Remission of Sins|TG Remission of Sins]].  

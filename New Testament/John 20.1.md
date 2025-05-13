@@ -5,7 +5,7 @@
 [John 20:1](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.1?lang=eng#p1)
 
 
-[^a]: TG [[Sabbath]].
-[^b]: [[Mark 16.2|Mark 16:2.]]
-[^c]: [[Matthew 27.60|Matt. 27:60.]]
-[^d]: JST John 20:1 … sepulcher, and two angels sitting thereon.
+[^a]: [[Sabbath|TG Sabbath]].  
+[^b]: [[Mark 16.2|Mark 16:2]].  
+[^c]: [[Matthew 27.60|Matt. 27:60]].  
+[^d]: JST John 20:1 … sepulcher, and two angels sitting thereon.  

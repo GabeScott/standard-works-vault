@@ -5,5 +5,5 @@
 [Luke 15:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.4?lang=eng#p4)
 
 
-[^a]: JST Luke 15:4 … and go into the wilderness after that which is lost …
-[^b]: [[Ezekiel 34.16|Ezek. 34:16 (11-12, 16).]]
+[^a]: JST Luke 15:4 … and go into the wilderness after that which is lost …  
+[^b]: [[Ezekiel 34.11|Ezek. 34:16 (11–12, 16)]][[Ezekiel 34.12|]][[Ezekiel 34.16|]].  

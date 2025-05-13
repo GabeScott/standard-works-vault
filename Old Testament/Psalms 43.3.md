@@ -5,5 +5,5 @@
 [Psalms 43:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/43.3?lang=eng#p3)
 
 
-[^a]: TG [[Light]].
-[^b]: OR dwelling places.
+[^a]: [[Light [noun]|TG Light [noun]]].  
+[^b]: OR dwelling places.  

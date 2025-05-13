@@ -5,4 +5,4 @@
 [Nehemiah 12:37](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/12.37?lang=eng#p37)
 
 
-[^a]: [[Nehemiah 2.14|Neh. 2:14.]]
+[^a]: [[Nehemiah 2.14|Neh. 2:14]].  

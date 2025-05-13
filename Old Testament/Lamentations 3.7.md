@@ -5,4 +5,4 @@
 [Lamentations 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/3.7?lang=eng#p7)
 
 
-[^a]: [[Hosea 2.6|Hosea 2:6]]; [[D&C 122.7|D&C 122:7.]]
+[^a]: [[Hosea 2.6|Hosea 2:6]]; [[D&C 122.7|D&C 122:7]].  

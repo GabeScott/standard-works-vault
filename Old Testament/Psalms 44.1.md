@@ -5,5 +5,5 @@
 [Psalms 44:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/44.1?lang=eng#p1)
 
 
-[^a]: TG [[Marriage, Fatherhood]].
-[^b]: [[Deuteronomy 32.7|Deut. 32:7.]]
+[^a]: [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  
+[^b]: [[Deuteronomy 32.7|Deut. 32:7]].  

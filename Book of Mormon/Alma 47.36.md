@@ -5,8 +5,8 @@
 [Alma 47:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/47?lang=eng&id=p36#p36)
 
 
-[^a]: TG [[Apostasy of Individuals]].
-[^b]: [[Hebrews 10.26|Heb. 10:26 (26-27)]]; [[Alma 24.30|Alma 24:30.]]
-[^c]: [[Jeremiah 8.12|Jer. 8:12.]]
-[^d]: TG [[Peer Influence]].
-[^e]: [[3 Nephi 4.5|3 Ne. 4:5.]]
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  
+[^b]: [[Hebrews 10.26|Heb. 10:26 (26–27)]][[Hebrews 10.27|]]; [[Alma 24.30|Alma 24:30]].  
+[^c]: [[Jeremiah 8.12|Jer. 8:12]].  
+[^d]: [[Peer Influence|TG Peer Influence]].  
+[^e]: [[3 Nephi 4.5|3 Ne. 4:5]].  

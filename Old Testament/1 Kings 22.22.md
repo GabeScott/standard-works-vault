@@ -5,4 +5,4 @@
 [1 Kings 22:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.22?lang=eng#p22)
 
 
-[^a]: See JST 2 Chr. 18:22 (2 Chr. 18:22 note a). Isa. 19:14 (11-14).
+[^a]: See [[2 Chronicles 18.note22a|JST 2 Chr. 18:22 (2 Chr. 18:22 note a)]]. [[Isaiah 19.11|Isa. 19:14 (11–14)]][[Isaiah 19.12|]][[Isaiah 19.13|]][[Isaiah 19.14|]].  

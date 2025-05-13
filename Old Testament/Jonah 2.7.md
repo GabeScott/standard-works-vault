@@ -5,6 +5,6 @@
 [Jonah 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/2.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 107.6|Ps. 107:6 (5-6)]]; [[Helaman 12.3|Hel. 12:3.]]
-[^b]: TG [[Prayer, Pray]].
-[^c]: [[Psalms 18.6|Ps. 18:6.]]
+[^a]: [[Psalms 107.5|Ps. 107:6 (5–6)]][[Psalms 107.6|]]; [[Helaman 12.3|Hel. 12:3]].  
+[^b]: [[Prayer, Pray|TG Prayer]].  
+[^c]: [[Psalms 18.6|Ps. 18:6]].  

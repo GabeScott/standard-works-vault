@@ -5,5 +5,5 @@
 [Deuteronomy 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.16?lang=eng#p16)
 
 
-[^a]: [[Hosea 13.6|Hosea 13:6 (5-8).]]
-[^b]: TG [[Testament]].
+[^a]: [[Hosea 13.5|Hosea 13:6 (5–8)]][[Hosea 13.6|]][[Hosea 13.7|]][[Hosea 13.8|]].  
+[^b]: [[Test, Try, Prove|TG Test]].  

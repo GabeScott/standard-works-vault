@@ -5,4 +5,4 @@
 [1 Kings 20:42](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.42?lang=eng#p42)
 
 
-[^a]: [[1 Kings 22.37|1 Kgs. 22:37 (34-40)]]; [[2 Kings 10.24|2 Kgs. 10:24.]]
+[^a]: [[1 Kings 22.34|1 Kgs. 22:37 (34–40)]][[1 Kings 22.35|]][[1 Kings 22.36|]][[1 Kings 22.37|]][[1 Kings 22.38|]][[1 Kings 22.39|]][[1 Kings 22.40|]]; [[2 Kings 10.24|2 Kgs. 10:24]].  

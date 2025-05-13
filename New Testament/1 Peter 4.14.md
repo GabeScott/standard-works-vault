@@ -5,5 +5,5 @@
 [1 Peter 4:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.14?lang=eng#p14)
 
 
-[^a]: TG [[Reproach]].
-[^b]: TG [[Happiness, Happy]].
+[^a]: [[Reproach|TG Reproach]].  
+[^b]: [[Happiness, Happy|TG Happiness]].  

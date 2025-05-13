@@ -5,4 +5,4 @@
 [John 13:29](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.29?lang=eng#p29)
 
 
-[^a]: [[John 12.6|John 12:6.]]
+[^a]: [[John 12.6|John 12:6]].  

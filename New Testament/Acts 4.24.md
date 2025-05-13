@@ -5,4 +5,4 @@
 [Acts 4:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.24?lang=eng#p24)
 
 
-[^a]: [[D&C 14.9|D&C 14:9.]]
+[^a]: [[D&C 14.9|D&C 14:9]].  

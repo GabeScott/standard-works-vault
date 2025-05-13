@@ -5,5 +5,5 @@
 [2 Chronicles 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/12.3?lang=eng#p3)
 
 
-[^a]: IE Libyans. Nahum 3:9.
-[^b]: HEB Cushites, Nubians.
+[^a]: IE Libyans. [[Nahum 3.9|Nahum 3:9]].  
+[^b]: HEB Cushites, Nubians.  

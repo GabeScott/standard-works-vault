@@ -5,4 +5,4 @@
 [Hebrews 10:18](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.18?lang=eng#p18)
 
 
-[^a]: TG [[Remission of Sins]].
+[^a]: [[Remission of Sins|TG Remission of Sins]].  

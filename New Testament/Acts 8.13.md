@@ -5,4 +5,4 @@
 [Acts 8:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.13?lang=eng#p13)
 
 
-[^a]: OR was amazed, astonished.
+[^a]: OR was amazed, astonished.  

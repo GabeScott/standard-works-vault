@@ -5,4 +5,4 @@
 [1 Nephi 11:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p16#p16)
 
 
-[^a]: [[1 Nephi 11.26|1 Ne. 11:26]]. TG [[Jesus Christ, Condescension of]].
+[^a]: [[1 Nephi 11.26|1 Ne. 11:26]]. [[Jesus Christ, Condescension of|TG Jesus Christ, Condescension of]].  

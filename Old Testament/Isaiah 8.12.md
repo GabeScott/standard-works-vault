@@ -5,4 +5,4 @@
 [Isaiah 8:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.12?lang=eng#p12)
 
 
-[^a]: IE Judah should not rely on secret plots with others for safety.
+[^a]: IE Judah should not rely on secret plots with others for safety.  

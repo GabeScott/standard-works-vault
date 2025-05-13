@@ -5,5 +5,5 @@
 [Helaman 7:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p29#p29)
 
 
-[^a]: [[Helaman 8.8|Hel. 8:8.]]
-[^b]: [[Helaman 8.12|Hel. 8:12.]]
+[^a]: [[Helaman 8.8|Hel. 8:8]].  
+[^b]: [[Helaman 8.12|Hel. 8:12]].  

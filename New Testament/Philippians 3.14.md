@@ -5,5 +5,5 @@
 [Philippians 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.14?lang=eng#p14)
 
 
-[^a]: TG [[Steadfastness, Steadfast]].
-[^b]: TG [[Objectives]].
+[^a]: [[Steadfastness, Steadfast|TG Steadfastness]].  
+[^b]: [[Objectives|TG Objectives]].  

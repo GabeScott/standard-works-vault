@@ -5,4 +5,4 @@
 [Acts 23:30](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.30?lang=eng#p30)
 
 
-[^a]: GR immediately.
+[^a]: GR immediately.  

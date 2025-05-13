@@ -5,11 +5,11 @@
 [Malachi 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.5?lang=eng#p5)
 
 
-[^a]: TG [[Judgment]].
-[^b]: TG [[Sorcery]].
-[^c]: TG [[Adulterer, Adultery]]; [[Sexual Immorality]].
-[^d]: [[D&C 121.18|D&C 121:18.]]
-[^e]: [[Ephesians 6.9|Eph. 6:9]]; Col. 4:1.
-[^f]: TG [[Wages]].
-[^g]: [[D&C 83.6|D&C 83:6.]]
-[^h]: TG [[Stranger]].
+[^a]: [[Judgment|TG Judgment]].  
+[^b]: [[Sorcery|TG Sorcery]].  
+[^c]: [[Adulterer, Adultery|TG Adulterer]]; [[Sexual Immorality|Sexual Immorality]].  
+[^d]: [[D&C 121.18|D&C 121:18]].  
+[^e]: [[Ephesians 6.9|Eph. 6:9]]; [[Colossians 4.1|Col. 4:1]].  
+[^f]: [[Wages|TG Wages]].  
+[^g]: [[D&C 83.6|D&C 83:6]].  
+[^h]: [[Stranger|TG Stranger]].  

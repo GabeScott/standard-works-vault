@@ -5,4 +5,4 @@
 [Micah 7:7](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 4.1|Ps. 4:1 (1, 3).]]
+[^a]: [[Psalms 4.1|Ps. 4:1 (1, 3)]][[Psalms 4.3|]].  

@@ -5,4 +5,4 @@
 [Alma 6:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/6?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Baptism, Qualifications for]].
+[^a]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  

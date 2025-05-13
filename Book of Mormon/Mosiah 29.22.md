@@ -5,4 +5,4 @@
 [Mosiah 29:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p22#p22)
 
 
-[^a]: [[1 Kings 12.8|1 Kgs. 12:8 (8-15).]]
+[^a]: [[1 Kings 12.8|1 Kgs. 12:8 (8–15)]][[1 Kings 12.9|]][[1 Kings 12.10|]][[1 Kings 12.11|]][[1 Kings 12.12|]][[1 Kings 12.13|]][[1 Kings 12.14|]][[1 Kings 12.15|]].  

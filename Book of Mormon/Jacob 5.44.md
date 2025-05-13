@@ -5,4 +5,4 @@
 [Jacob 5:44](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p44#p44)
 
 
-[^a]: [[Moroni 9.23|Moro. 9:23.]]
+[^a]: [[Moroni 9.23|Moro. 9:23]].  

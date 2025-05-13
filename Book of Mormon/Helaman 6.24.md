@@ -5,4 +5,4 @@
 [Helaman 6:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[Wickedness, Wicked]].
+[^a]: [[Wickedness, Wicked|TG Wickedness]].  

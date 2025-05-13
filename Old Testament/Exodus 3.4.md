@@ -5,4 +5,4 @@
 [Exodus 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.4?lang=eng#p4)
 
 
-[^a]: [[Acts 7.31|Acts 7:31 (31, 33).]]
+[^a]: [[Acts 7.31|Acts 7:31 (31, 33)]][[Acts 7.33|]].  

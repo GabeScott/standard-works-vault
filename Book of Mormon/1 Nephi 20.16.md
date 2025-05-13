@@ -5,5 +5,5 @@
 [1 Nephi 20:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p16#p16)
 
 
-[^a]: [[Isaiah 45.19|Isa. 45:19.]]
-[^b]: TG [[God, Spirit of]].
+[^a]: [[Isaiah 45.19|Isa. 45:19]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]].  

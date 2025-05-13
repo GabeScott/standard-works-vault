@@ -5,5 +5,5 @@
 [Abraham 5:18](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.18?lang=eng#p18)
 
 
-[^a]: [[D&C 42.22|D&C 42:22]]; [[D&C 49.15|49:15 (15-16).]]
-[^b]: TG [[Divorce, Divorcement]]; [[Marriage, Celestial]].
+[^a]: [[D&C 42.22|D&C 42:22]]; [[D&C 49.15|49:15 (15–16)]][[D&C 49.16|]].  
+[^b]: [[Divorce, Divorcement|TG Divorce]]; [[Marriage, Celestial|Marriage, Celestial]].  

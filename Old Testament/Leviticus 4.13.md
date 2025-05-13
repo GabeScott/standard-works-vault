@@ -5,5 +5,5 @@
 [Leviticus 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.13?lang=eng#p13)
 
 
-[^a]: [[Mosiah 3.11|Mosiah 3:11.]]
-[^b]: TG [[Guiltless]].
+[^a]: [[Mosiah 3.11|Mosiah 3:11]].  
+[^b]: [[Guilt, Guilty|TG Guilt]].  

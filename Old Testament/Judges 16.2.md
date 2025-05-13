@@ -5,4 +5,4 @@
 [Judges 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16.2?lang=eng#p2)
 
 
-[^a]: [[Joshua 6.3|Josh. 6:3.]]
+[^a]: [[Joshua 6.3|Josh. 6:3]].  

@@ -5,4 +5,4 @@
 [Luke 6:40](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.40?lang=eng#p40)
 
 
-[^a]: GR having been perfectly prepared. TG [[Perfection, Perfect, Perfectly]].
+[^a]: GR having been perfectly prepared. [[Perfection, Perfect, Perfectly|TG Perfection]].  

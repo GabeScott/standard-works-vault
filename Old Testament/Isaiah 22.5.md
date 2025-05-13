@@ -5,4 +5,4 @@
 [Isaiah 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 37.3|Isa. 37:3.]]
+[^a]: [[Isaiah 37.3|Isa. 37:3]].  

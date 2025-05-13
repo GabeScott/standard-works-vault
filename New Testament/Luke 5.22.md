@@ -5,4 +5,4 @@
 [Luke 5:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.22?lang=eng#p22)
 
 
-[^a]: TG [[Jesus Christ, Teaching Mode of]].
+[^a]: [[Jesus Christ, Teaching Mode of|TG Jesus Christ, Teaching Mode of]].  

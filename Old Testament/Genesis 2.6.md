@@ -5,4 +5,4 @@
 [Genesis 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.6?lang=eng#p6)
 
 
-[^a]: HEB (also) flood, flow.
+[^a]: HEB (also) flood, flow.  

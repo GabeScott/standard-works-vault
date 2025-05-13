@@ -5,8 +5,8 @@
 [1 Nephi 11:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p25#p25)
 
 
-[^a]: [[Revelation 2.27|Rev. 2:27]]; JST [[Revelation 2.27|Rev. 2:27]] (Bible Appendix).
-[^b]: [[1 Nephi 8.19|1 Ne. 8:19.]]
-[^c]: TG [[Guidance, Divine]].
-[^d]: TG [[Living Water]].
-[^e]: [[Genesis 2.9|Gen. 2:9]]; [[Proverbs 11.30|Prov. 11:30 (22-30)]]; [[Moses 4.28|Moses 4:28 (28, 31).]]
+[^a]: [[Revelation 2.27|Rev. 2:27]]; [[JST Revelation 2.27|JST Rev. 2:27 (Bible Appendix)]].  
+[^b]: [[1 Nephi 8.19|1 Ne. 8:19]].  
+[^c]: [[Guidance, Divine|TG Guidance, Divine]].  
+[^d]: [[Living Water|TG Living Water]].  
+[^e]: [[Genesis 2.9|Gen. 2:9]]; [[Proverbs 11.22|Prov. 11:30 (22–30)]][[Proverbs 11.23|]][[Proverbs 11.24|]][[Proverbs 11.25|]][[Proverbs 11.26|]][[Proverbs 11.27|]][[Proverbs 11.28|]][[Proverbs 11.29|]][[Proverbs 11.30|]]; [[Moses 4.28|Moses 4:28 (28, 31)]][[Moses 4.31|]].  

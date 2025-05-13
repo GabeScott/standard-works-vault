@@ -5,5 +5,5 @@
 [1 Nephi 15:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p30#p30)
 
 
-[^a]: TG [[God, Justice of]]; [[God, Justice of]].
-[^b]: [[Numbers 11.1|Num. 11:1 (1, 10)]]; [[2 Nephi 26.6|2 Ne. 26:6.]]
+[^a]: [[God, Justice of|TG God, Justice of]]; [[Justice|Justice]].  
+[^b]: [[Numbers 11.1|Num. 11:1 (1, 10)]][[Numbers 11.10|]]; [[2 Nephi 26.6|2 Ne. 26:6]].  

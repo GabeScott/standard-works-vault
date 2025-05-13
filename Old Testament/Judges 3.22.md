@@ -5,4 +5,4 @@
 [Judges 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/3.22?lang=eng#p22)
 
 
-[^a]: OR handle.
+[^a]: OR handle.  

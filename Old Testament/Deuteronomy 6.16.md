@@ -5,4 +5,4 @@
 [Deuteronomy 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.16?lang=eng#p16)
 
 
-[^a]: HEB put to the test. TG [[Doubt, Doubtful]]; [[Jesus Christ, Temptation of]]; [[Testament]].
+[^a]: HEB put to the test. [[Doubt, Doubtful|TG Doubt]]; [[Jesus Christ, Temptation of|Jesus Christ, Temptation of]]; [[Test, Try, Prove|Test]].  

@@ -5,4 +5,4 @@
 [Hebrews 12:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.3?lang=eng#p3)
 
 
-[^a]: GR rebellion, opposition.
+[^a]: GR rebellion, opposition.  

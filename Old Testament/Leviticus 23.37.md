@@ -5,4 +5,4 @@
 [Leviticus 23:37](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.37?lang=eng#p37)
 
 
-[^a]: OR every one according to its day.
+[^a]: OR every one according to its day.  

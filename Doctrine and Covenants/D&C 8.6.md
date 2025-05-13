@@ -5,4 +5,4 @@
 [D&C 8:6](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/8.6?lang=eng#p6)
 
 
-[^a]: [[D&C 6.10|D&C 6:10.]]
+[^a]: [[D&C 6.10|D&C 6:10]].  

@@ -5,5 +5,5 @@
 [Luke 15:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.16?lang=eng#p16)
 
 
-[^a]: GR desired, set the heart upon.
-[^b]: GR pods (of the carob tree).
+[^a]: GR desired, set the heart upon.  
+[^b]: GR pods (of the carob tree).  

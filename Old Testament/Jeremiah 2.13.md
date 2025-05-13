@@ -5,5 +5,5 @@
 [Jeremiah 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.13?lang=eng#p13)
 
 
-[^a]: TG [[Apostasy of Israel]].
-[^b]: TG [[Living Water]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  
+[^b]: [[Living Water|TG Living Water]].  

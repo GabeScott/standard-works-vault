@@ -5,4 +5,4 @@
 [Ezekiel 40:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.11?lang=eng#p11)
 
 
-[^a]: OR height.
+[^a]: OR height.  

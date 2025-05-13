@@ -5,7 +5,7 @@
 [1 Kings 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/19.8?lang=eng#p8)
 
 
-[^a]: HEB food.
-[^b]: TG [[Fast, Fasting]].
-[^c]: [[Exodus 3.1|Ex. 3:1]]; [[3 Nephi 25.4|3 Ne. 25:4.]]
-[^d]: [[Exodus 4.27|Ex. 4:27.]]
+[^a]: HEB food.  
+[^b]: [[Fast, Fasting|TG Fast, Fasting]].  
+[^c]: [[Exodus 3.1|Ex. 3:1]]; [[3 Nephi 25.4|3 Ne. 25:4]].  
+[^d]: [[Exodus 4.27|Ex. 4:27]].  

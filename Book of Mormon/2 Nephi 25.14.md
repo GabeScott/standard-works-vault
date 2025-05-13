@@ -5,7 +5,7 @@
 [2 Nephi 25:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Jesus Christ, Messiah]].
-[^b]: [[Matthew 24.2|Matt. 24:2 (1-2)]]; [[Luke 21.24|Luke 21:24.]]
-[^c]: [[Psalms 83.17|Ps. 83:17 (2-17)]]; [[D&C 71.7|D&C 71:7]]; [[Moses 7.15|Moses 7:15 (14-16).]]
-[^d]: TG [[Jesus Christ, Head of the Church]].
+[^a]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  
+[^b]: [[Matthew 24.1|Matt. 24:2 (1–2)]][[Matthew 24.2|]]; [[Luke 21.24|Luke 21:24]].  
+[^c]: [[Psalms 83.2|Ps. 83:17 (2–17)]][[Psalms 83.3|]][[Psalms 83.4|]][[Psalms 83.5|]][[Psalms 83.6|]][[Psalms 83.7|]][[Psalms 83.8|]][[Psalms 83.9|]][[Psalms 83.10|]][[Psalms 83.11|]][[Psalms 83.12|]][[Psalms 83.13|]][[Psalms 83.14|]][[Psalms 83.15|]][[Psalms 83.16|]][[Psalms 83.17|]]; [[D&C 71.7|D&C 71:7]]; [[Moses 7.14|Moses 7:15 (14–16)]][[Moses 7.15|]][[Moses 7.16|]].  
+[^d]: [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]].  

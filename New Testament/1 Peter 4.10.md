@@ -5,5 +5,5 @@
 [1 Peter 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.10?lang=eng#p10)
 
 
-[^a]: TG [[Priesthood, Magnifying Callings within]].
-[^b]: TG [[Stewardship, Steward]].
+[^a]: [[Priesthood, Magnifying Callings within|TG Priesthood, Magnifying Callings within]].  
+[^b]: [[Stewardship, Steward|TG Stewardship]].  

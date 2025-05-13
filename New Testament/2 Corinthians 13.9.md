@@ -5,4 +5,4 @@
 [2 Corinthians 13:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/13.9?lang=eng#p9)
 
 
-[^a]: [[2 Corinthians 12.9|2 Cor. 12:9.]]
+[^a]: [[2 Corinthians 12.9|2 Cor. 12:9]].  

@@ -5,4 +5,4 @@
 [James 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.16?lang=eng#p16)
 
 
-[^a]: [[Luke 3.11|Luke 3:11 (8-14)]]; [[D&C 104.18|D&C 104:18.]]
+[^a]: [[Luke 3.8|Luke 3:11 (8–14)]][[Luke 3.9|]][[Luke 3.10|]][[Luke 3.11|]][[Luke 3.12|]][[Luke 3.13|]][[Luke 3.14|]]; [[D&C 104.18|D&C 104:18]].  

@@ -5,4 +5,4 @@
 [Jeremiah 49:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.6?lang=eng#p6)
 
 
-[^a]: OR turn away, remove.
+[^a]: OR turn away, remove.  

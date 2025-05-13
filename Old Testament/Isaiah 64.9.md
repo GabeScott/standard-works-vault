@@ -5,4 +5,4 @@
 [Isaiah 64:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/64.9?lang=eng#p9)
 
 
-[^a]: [[Psalms 79.13|Ps. 79:13.]]
+[^a]: [[Psalms 79.13|Ps. 79:13]].  

@@ -5,4 +5,4 @@
 [Psalms 90:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/90.17?lang=eng#p17)
 
 
-[^a]: TG [[Beauty]].
+[^a]: [[Beauty|TG Beauty]].  

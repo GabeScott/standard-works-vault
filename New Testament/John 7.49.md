@@ -5,4 +5,4 @@
 [John 7:49](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.49?lang=eng#p49)
 
 
-[^a]: TG [[Curse]].
+[^a]: [[Curse|TG Curse]].  

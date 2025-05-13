@@ -5,6 +5,6 @@
 [Exodus 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.9?lang=eng#p9)
 
 
-[^a]: OR festering boils.
-[^b]: [[Deuteronomy 28.27|Deut. 28:27]]. TG [[Plague]].
-[^c]: HEB blisters, pustules.
+[^a]: OR festering boils.  
+[^b]: [[Deuteronomy 28.27|Deut. 28:27]]. [[Plague|TG Plague]].  
+[^c]: HEB blisters, pustules.  

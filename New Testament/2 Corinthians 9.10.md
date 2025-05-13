@@ -5,4 +5,4 @@
 [2 Corinthians 9:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/9.10?lang=eng#p10)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Righteousness|TG Righteousness]].  

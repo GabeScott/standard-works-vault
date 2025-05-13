@@ -5,6 +5,6 @@
 [2 Nephi 26:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p24#p24)
 
 
-[^a]: [[2 Nephi 2.27|2 Ne. 2:27]]; [[Jacob 5.41|Jacob 5:41]]; [[Alma 26.37|Alma 26:37.]]
-[^b]: [[John 3.16|John 3:16.]]
-[^c]: [[John 12.32|John 12:32]]; [[2 Nephi 9.5|2 Ne. 9:5.]]
+[^a]: [[2 Nephi 2.27|2 Ne. 2:27]]; [[Jacob 5.41|Jacob 5:41]]; [[Alma 26.37|Alma 26:37]].  
+[^b]: [[John 3.16|John 3:16]].  
+[^c]: [[John 12.32|John 12:32]]; [[2 Nephi 9.5|2 Ne. 9:5]].  

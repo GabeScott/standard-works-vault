@@ -5,6 +5,6 @@
 [Isaiah 46:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.11?lang=eng#p11)
 
 
-[^a]: HEB bird of prey; i.e., a symbol of Cyrus and his rapid conquest.
-[^b]: [[Isaiah 41.2|Isa. 41:2 (2, 25).]]
-[^c]: [[Numbers 23.19|Num. 23:19.]]
+[^a]: HEB bird of prey; i.e., a symbol of Cyrus and his rapid conquest.  
+[^b]: [[Isaiah 41.2|Isa. 41:2 (2, 25)]][[Isaiah 41.25|]].  
+[^c]: [[Numbers 23.19|Num. 23:19]].  

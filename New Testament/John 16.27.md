@@ -5,5 +5,5 @@
 [John 16:27](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.27?lang=eng#p27)
 
 
-[^a]: TG [[God, Love of]].
-[^b]: TG [[Faith]].
+[^a]: [[God, Love of|TG God, Love of]].  
+[^b]: [[Faith|TG Faith]].  

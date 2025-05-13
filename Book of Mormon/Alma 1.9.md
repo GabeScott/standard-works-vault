@@ -5,5 +5,5 @@
 [Alma 1:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p9#p9)
 
 
-[^a]: [[Genesis 24.1|Gen. 24:1]]; [[1 Nephi 18.17|1 Ne. 18:17.]]
-[^b]: [[Alma 6.7|Alma 6:7.]]
+[^a]: [[Genesis 24.1|Gen. 24:1]]; [[1 Nephi 18.17|1 Ne. 18:17]].  
+[^b]: [[Alma 6.7|Alma 6:7]].  

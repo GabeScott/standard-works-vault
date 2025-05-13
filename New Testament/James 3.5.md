@@ -5,5 +5,5 @@
 [James 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.5?lang=eng#p5)
 
 
-[^a]: TG [[Boast, Boasting]]; [[Rashness]].
-[^b]: GR forest.
+[^a]: [[Boast, Boasting|TG Boast]]; [[Rashness|Rashness]].  
+[^b]: GR forest.  

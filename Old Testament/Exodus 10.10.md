@@ -5,5 +5,5 @@
 [Exodus 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.10?lang=eng#p10)
 
 
-[^a]: OR if.
-[^b]: Hebrew idiom meaning “you are bent on mischief.”
+[^a]: OR if.  
+[^b]: Hebrew idiom meaning “you are bent on mischief.”  

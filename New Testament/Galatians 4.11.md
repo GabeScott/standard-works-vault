@@ -5,4 +5,4 @@
 [Galatians 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.11?lang=eng#p11)
 
 
-[^a]: GR concerning.
+[^a]: GR concerning.  

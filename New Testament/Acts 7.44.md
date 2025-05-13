@@ -5,4 +5,4 @@
 [Acts 7:44](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.44?lang=eng#p44)
 
 
-[^a]: [[1 Chronicles 28.19|1 Chr. 28:19 (11, 19)]]; [[Hebrews 8.5|Heb. 8:5.]]
+[^a]: [[1 Chronicles 28.11|1 Chr. 28:19 (11, 19)]][[1 Chronicles 28.19|]]; [[Hebrews 8.5|Heb. 8:5]].  

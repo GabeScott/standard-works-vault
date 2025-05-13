@@ -5,4 +5,4 @@
 [Joshua 13:15](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.15?lang=eng#p15)
 
 
-[^a]: [[Numbers 26.5|Num. 26:5.]]
+[^a]: [[Numbers 26.5|Num. 26:5]].  

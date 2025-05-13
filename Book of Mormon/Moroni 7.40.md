@@ -5,4 +5,4 @@
 [Moroni 7:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p40#p40)
 
 
-[^a]: [[Hebrews 11.1|Heb. 11:1]]; [[Ether 12.4|Ether 12:4]]. TG [[Hope]].
+[^a]: [[Hebrews 11.1|Heb. 11:1]]; [[Ether 12.4|Ether 12:4]]. [[Hope|TG Hope]].  

@@ -5,4 +5,4 @@
 [Moses 2:10](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.10?lang=eng#p10)
 
 
-[^a]: IE The whole sphere or any of its parts above the seas is called “Earth.”
+[^a]: IE The whole sphere or any of its parts above the seas is called “Earth.”  

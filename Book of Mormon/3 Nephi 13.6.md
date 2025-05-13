@@ -5,5 +5,5 @@
 [3 Nephi 13:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p6#p6)
 
 
-[^a]: [[2 Kings 4.33|2 Kgs. 4:33.]]
-[^b]: TG [[God, Omniscience of]].
+[^a]: [[2 Kings 4.33|2 Kgs. 4:33]].  
+[^b]: [[God, Omniscience of|TG God, Omniscience of]].  

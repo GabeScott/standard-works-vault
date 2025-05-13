@@ -5,5 +5,5 @@
 [Luke 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.20?lang=eng#p20)
 
 
-[^a]: Dan. 10:15; [[Mosiah 27.19|Mosiah 27:19]]; [[Alma 30.49|Alma 30:49 (47-52).]]
-[^b]: [[Luke 12.29|Luke 12:29]]; [[Luke 24.25|24:25]]; [[Mormon 9.11|Morm. 9:11 (9-11, 27).]]
+[^a]: [[Daniel 10.15|Dan. 10:15]]; [[Mosiah 27.19|Mosiah 27:19]]; [[Alma 30.47|Alma 30:49 (47–52)]][[Alma 30.48|]][[Alma 30.49|]][[Alma 30.50|]][[Alma 30.51|]][[Alma 30.52|]].  
+[^b]: [[Luke 12.29|Luke 12:29]]; [[Luke 24.25|24:25]]; [[Mormon 9.9|Morm. 9:11 (9–11, 27)]][[Mormon 9.10|]][[Mormon 9.11|]][[Mormon 9.27|]].  

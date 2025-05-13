@@ -5,5 +5,5 @@
 [Moses 7:21](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.21?lang=eng#p21)
 
 
-[^a]: [[Moses 7.31|Moses 7:31.]]
-[^b]: Moses 7:47, 69.
+[^a]: [[Moses 7.31|Moses 7:31]].  
+[^b]: [[Moses 7.47|Moses 7:47, 69]][[Moses 7.69|]].  

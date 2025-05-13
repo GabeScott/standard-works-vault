@@ -5,4 +5,4 @@
 [1 Nephi 17:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Skill]].
+[^a]: [[Skill|TG Skill]].  

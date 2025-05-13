@@ -5,4 +5,4 @@
 [Numbers 25:6](https://www.churchofjesuschrist.org/study/scriptures/ot/num/25.6?lang=eng#p6)
 
 
-[^a]: HEB tent of meeting.
+[^a]: HEB tent of meeting.  

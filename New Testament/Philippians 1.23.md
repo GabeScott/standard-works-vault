@@ -5,4 +5,4 @@
 [Philippians 1:23](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.23?lang=eng#p23)
 
 
-[^a]: GR hard-pressed to choose.
+[^a]: GR hard-pressed to choose.  

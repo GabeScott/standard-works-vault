@@ -5,4 +5,4 @@
 [Genesis 21:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.17?lang=eng#p17)
 
 
-[^a]: TG [[Angels]].
+[^a]: [[Angels|TG Angels]].  

@@ -5,4 +5,4 @@
 [Joshua 2:24](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/2.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 23.31|Ex. 23:31]]; [[1 Nephi 17.35|1 Ne. 17:35 (32-35).]]
+[^a]: [[Exodus 23.31|Ex. 23:31]]; [[1 Nephi 17.32|1 Ne. 17:35 (32–35)]][[1 Nephi 17.33|]][[1 Nephi 17.34|]][[1 Nephi 17.35|]].  

@@ -5,7 +5,7 @@
 [1 Corinthians 15:52](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.52?lang=eng#p52)
 
 
-[^a]: [[D&C 63.51|D&C 63:51 (50-51).]]
-[^b]: [[D&C 29.26|D&C 29:26.]]
-[^c]: TG [[Death]].
-[^d]: [[D&C 101.31|D&C 101:31.]]
+[^a]: [[D&C 63.50|D&C 63:51 (50–51)]][[D&C 63.51|]].  
+[^b]: [[D&C 29.26|D&C 29:26]].  
+[^c]: [[Death|TG Death]].  
+[^d]: [[D&C 101.31|D&C 101:31]].  

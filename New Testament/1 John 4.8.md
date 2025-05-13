@@ -5,4 +5,4 @@
 [1 John 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.8?lang=eng#p8)
 
 
-[^a]: [[John 17.3|John 17:3.]]
+[^a]: [[John 17.3|John 17:3]].  

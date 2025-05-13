@@ -5,4 +5,4 @@
 [Jacob 1:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/1?lang=eng&id=p16#p16)
 
 
-[^a]: [[Mosiah 2.12|Mosiah 2:12.]]
+[^a]: [[Mosiah 2.12|Mosiah 2:12]].  

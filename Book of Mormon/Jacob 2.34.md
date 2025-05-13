@@ -5,4 +5,4 @@
 [Jacob 2:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p34#p34)
 
 
-[^a]: [[1 Nephi 1.16|1 Ne. 1:16 (16-17).]]
+[^a]: [[1 Nephi 1.16|1 Ne. 1:16 (16–17)]][[1 Nephi 1.17|]].  

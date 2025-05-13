@@ -5,6 +5,6 @@
 [1 Corinthians 12:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.3?lang=eng#p3)
 
 
-[^a]: TG [[Revelation]]; [[Testimony]].
-[^b]: TG [[Jesus Christ, Lord]].
-[^c]: [[John 6.44|John 6:44 (44, 63-65)]]. TG [[Holy Ghost, Mission of]]; [[Holy Ghost, Source of Testimony]]; [[Inspiration, Inspire]].
+[^a]: [[Revelation|TG Revelation]]; [[Testimony|Testimony]].  
+[^b]: [[Jesus Christ, Lord|TG Jesus Christ, Lord]].  
+[^c]: [[John 6.44|John 6:44 (44, 63–65)]][[John 6.63|]][[John 6.64|]][[John 6.65|]]. [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]]; [[Holy Ghost, Source of Testimony|Holy Ghost, Source of Testimony]]; [[Inspiration, Inspire|Inspiration]].  

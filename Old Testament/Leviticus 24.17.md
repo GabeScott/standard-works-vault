@@ -5,5 +5,5 @@
 [Leviticus 24:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.17?lang=eng#p17)
 
 
-[^a]: TG [[Murder, Murderer]].
-[^b]: TG [[Punish, Punishment]].
+[^a]: [[Murder, Murderer|TG Murder]].  
+[^b]: [[Punish, Punishment|TG Punish]].  

@@ -5,4 +5,4 @@
 [Job 38:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/38.22?lang=eng#p22)
 
 
-[^a]: OR storehouses.
+[^a]: OR storehouses.  

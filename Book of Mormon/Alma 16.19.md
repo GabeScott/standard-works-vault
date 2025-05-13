@@ -5,4 +5,4 @@
 [Alma 16:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/16?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

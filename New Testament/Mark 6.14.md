@@ -5,4 +5,4 @@
 [Mark 6:14](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.14?lang=eng#p14)
 
 
-[^a]: [[Luke 9.7|Luke 9:7 (7-9).]]
+[^a]: [[Luke 9.7|Luke 9:7 (7–9)]][[Luke 9.8|]][[Luke 9.9|]].  

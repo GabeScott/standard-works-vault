@@ -5,4 +5,4 @@
 [1 Timothy 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.18?lang=eng#p18)
 
 
-[^a]: [[1 Timothy 4.14|1 Tim. 4:14 (14-16)]]; 2 Tim. 1:6.
+[^a]: [[1 Timothy 4.14|1 Tim. 4:14 (14–16)]][[1 Timothy 4.15|]][[1 Timothy 4.16|]]; [[2 Timothy 1.6|2 Tim. 1:6]].  

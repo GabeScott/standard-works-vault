@@ -5,6 +5,6 @@
 [Mormon 9:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p2#p2)
 
 
-[^a]: Mal. 4:5; [[3 Nephi 28.31|3 Ne. 28:31.]]
-[^b]: [[Mormon 5.23|Morm. 5:23]]; [[D&C 63.21|D&C 63:21 (20-21)]]. TG [[World, End of]].
-[^c]: [[Amos 9.13|Amos 9:13]]; [[3 Nephi 26.3|3 Ne. 26:3.]]
+[^a]: [[Malachi 4.5|Mal. 4:5]]; [[3 Nephi 28.31|3 Ne. 28:31]].  
+[^b]: [[Mormon 5.23|Morm. 5:23]]; [[D&C 63.20|D&C 63:21 (20–21)]][[D&C 63.21|]]. [[World, End of|TG World, End of]].  
+[^c]: [[Amos 9.13|Amos 9:13]]; [[3 Nephi 26.3|3 Ne. 26:3]].  

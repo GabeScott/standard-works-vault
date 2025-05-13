@@ -5,6 +5,6 @@
 [2 Timothy 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.12?lang=eng#p12)
 
 
-[^a]: TG [[Mysteries of Godliness]].
-[^b]: [[Psalms 34.19|Ps. 34:19]]. TG [[Suffering]].
-[^c]: TG [[Cruelty, Cruel]]; [[Persecution, Persecute]].
+[^a]: [[Godliness, Godly|TG Godliness]].  
+[^b]: [[Psalms 34.19|Ps. 34:19]]. [[Suffering|TG Suffering]].  
+[^c]: [[Cruelty, Cruel|TG Cruelty]]; [[Persecution, Persecute|Persecution]].  

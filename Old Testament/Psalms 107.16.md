@@ -5,4 +5,4 @@
 [Psalms 107:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 45.2|Isa. 45:2.]]
+[^a]: [[Isaiah 45.2|Isa. 45:2]].  

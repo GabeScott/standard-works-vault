@@ -5,5 +5,5 @@
 [Ezekiel 33:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.4?lang=eng#p4)
 
 
-[^a]: [[Ezekiel 18.13|Ezek. 18:13]]; [[Acts 18.6|Acts 18:6.]]
-[^b]: TG [[Accountability]].
+[^a]: [[Ezekiel 18.13|Ezek. 18:13]]; [[Acts 18.6|Acts 18:6]].  
+[^b]: [[Accountability|TG Accountability]].  

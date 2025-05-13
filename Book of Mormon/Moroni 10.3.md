@@ -5,6 +5,6 @@
 [Moroni 10:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p3#p3)
 
 
-[^a]: [[Genesis 19.16|Gen. 19:16.]]
-[^b]: [[Deuteronomy 11.18|Deut. 11:18]]. TG [[Meditation, Meditate]]; [[Study]].
-[^c]: [[Deuteronomy 6.6|Deut. 6:6.]]
+[^a]: [[Genesis 19.16|Gen. 19:16]].  
+[^b]: [[Deuteronomy 11.18|Deut. 11:18]]. [[Meditation, Meditate|TG Meditation]]; [[Study|Study]].  
+[^c]: [[Deuteronomy 6.6|Deut. 6:6]].  

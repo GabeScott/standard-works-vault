@@ -5,4 +5,4 @@
 [Isaiah 21:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/21.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 60.7|Isa. 60:7.]]
+[^a]: [[Isaiah 60.7|Isa. 60:7]].  

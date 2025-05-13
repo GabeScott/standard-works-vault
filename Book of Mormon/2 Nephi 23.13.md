@@ -5,5 +5,5 @@
 [2 Nephi 23:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p13#p13)
 
 
-[^a]: [[Haggai 2.6|Hag. 2:6 (6-7)]]; [[Hebrews 12.26|Heb. 12:26.]]
-[^b]: TG [[Earth, Renewal of]].
+[^a]: [[Haggai 2.6|Hag. 2:6 (6–7)]][[Haggai 2.7|]]; [[Hebrews 12.26|Heb. 12:26]].  
+[^b]: [[Earth, Renewal of|TG Earth, Renewal of]].  

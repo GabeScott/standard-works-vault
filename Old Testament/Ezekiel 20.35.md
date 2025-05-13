@@ -5,6 +5,6 @@
 [Ezekiel 20:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.35?lang=eng#p35)
 
 
-[^a]: [[Hosea 2.14|Hosea 2:14.]]
-[^b]: [[Ezekiel 17.20|Ezek. 17:20.]]
-[^c]: TG [[God, Presence of]].
+[^a]: [[Hosea 2.14|Hosea 2:14]].  
+[^b]: [[Ezekiel 17.20|Ezek. 17:20]].  
+[^c]: [[God, Presence of|TG God, Presence of]].  

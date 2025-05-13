@@ -5,4 +5,4 @@
 [Haggai 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.16?lang=eng#p16)
 
 
-[^a]: IE winevat.
+[^a]: IE winevat.  

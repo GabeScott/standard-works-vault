@@ -5,4 +5,4 @@
 [Enos 1:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Trust in God]].
+[^a]: [[Trust in God|TG Trust in God]].  

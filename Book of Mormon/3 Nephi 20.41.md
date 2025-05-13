@@ -5,6 +5,6 @@
 [3 Nephi 20:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p41#p41)
 
 
-[^a]: [[Isaiah 52.11|Isa. 52:11 (11-15).]]
-[^b]: TG [[Uncleanness, Unclean]].
-[^c]: [[D&C 133.5|D&C 133:5]]. TG [[Cleanliness]].
+[^a]: [[Isaiah 52.11|Isa. 52:11 (11–15)]][[Isaiah 52.12|]][[Isaiah 52.13|]][[Isaiah 52.14|]][[Isaiah 52.15|]].  
+[^b]: [[Uncleanness, Unclean|TG Uncleanness]].  
+[^c]: [[D&C 133.5|D&C 133:5]]. [[Cleanliness|TG Cleanliness]].  

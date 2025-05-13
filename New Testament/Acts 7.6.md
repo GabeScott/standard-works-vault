@@ -5,5 +5,5 @@
 [Acts 7:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.6?lang=eng#p6)
 
 
-[^a]: [[Genesis 26.3|Gen. 26:3.]]
-[^b]: TG [[Israel, Bondage of, in Egypt]].
+[^a]: [[Genesis 26.3|Gen. 26:3]].  
+[^b]: [[Israel, Bondage of, in Egypt|TG Israel, Bondage of, in Egypt]].  

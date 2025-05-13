@@ -5,6 +5,6 @@
 [Isaiah 44:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.18?lang=eng#p18)
 
 
-[^a]: [[Isaiah 45.20|Isa. 45:20.]]
-[^b]: [[Jacob 4.14|Jacob 4:14.]]
-[^c]: [[3 Nephi 19.33|3 Ne. 19:33.]]
+[^a]: [[Isaiah 45.20|Isa. 45:20]].  
+[^b]: [[Jacob 4.14|Jacob 4:14]].  
+[^c]: [[3 Nephi 19.33|3 Ne. 19:33]].  

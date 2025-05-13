@@ -5,5 +5,5 @@
 [Alma 51:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p19#p19)
 
 
-[^a]: [[Alma 60.16|Alma 60:16.]]
-[^b]: [[Alma 62.9|Alma 62:9.]]
+[^a]: [[Alma 60.16|Alma 60:16]].  
+[^b]: [[Alma 62.9|Alma 62:9]].  

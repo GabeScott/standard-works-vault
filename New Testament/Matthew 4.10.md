@@ -5,5 +5,5 @@
 [Matthew 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.10?lang=eng#p10)
 
 
-[^a]: TG [[Devil, Church of]].
-[^b]: TG [[Assembly for Worship]].
+[^a]: [[Devil|TG Devil]].  
+[^b]: [[Worship|TG Worship]].  

@@ -5,4 +5,4 @@
 [Micah 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.15?lang=eng#p15)
 
 
-[^a]: [[Deuteronomy 28.38|Deut. 28:38]]; [[Haggai 1.6|Hag. 1:6.]]
+[^a]: [[Deuteronomy 28.38|Deut. 28:38]]; [[Haggai 1.6|Hag. 1:6]].  

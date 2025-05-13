@@ -5,5 +5,5 @@
 [Mark 9:41](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.41?lang=eng#p41)
 
 
-[^a]: [[Matthew 10.42|Matt. 10:42]]; [[D&C 84.90|D&C 84:90.]]
-[^b]: TG [[Reward]].
+[^a]: [[Matthew 10.42|Matt. 10:42]]; [[D&C 84.90|D&C 84:90]].  
+[^b]: [[Reward|TG Reward]].  

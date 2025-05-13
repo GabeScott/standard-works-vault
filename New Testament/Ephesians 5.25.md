@@ -5,6 +5,6 @@
 [Ephesians 5:25](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.25?lang=eng#p25)
 
 
-[^a]: TG [[Family, Patriarchal]].
-[^b]: TG [[Family, Love within]]; [[Love]].
-[^c]: TG [[Marriage, Continuing Courtship in]].
+[^a]: [[Family, Patriarchal|TG Family, Patriarchal]].  
+[^b]: [[Family, Love within|TG Family, Love within]]; [[Love|Love]].  
+[^c]: [[Marriage, Continuing Courtship in|TG Marriage, Continuing Courtship in]].  

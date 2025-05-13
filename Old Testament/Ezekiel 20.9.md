@@ -5,4 +5,4 @@
 [Ezekiel 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.9?lang=eng#p9)
 
 
-[^a]: [[Exodus 9.16|Ex. 9:16]]; [[Psalms 106.8|Ps. 106:8]]; [[Isaiah 48.11|Isa. 48:11]]; [[Isaiah 63.14|63:14]]; [[Ezekiel 36.21|Ezek. 36:21 (21-24).]]
+[^a]: [[Exodus 9.16|Ex. 9:16]]; [[Psalms 106.8|Ps. 106:8]]; [[Isaiah 48.11|Isa. 48:11]]; [[Isaiah 63.14|63:14]]; [[Ezekiel 36.21|Ezek. 36:21 (21–24)]][[Ezekiel 36.22|]][[Ezekiel 36.23|]][[Ezekiel 36.24|]].  

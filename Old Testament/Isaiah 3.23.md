@@ -5,4 +5,4 @@
 [Isaiah 3:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.23?lang=eng#p23)
 
 
-[^a]: OR transparent garments.
+[^a]: OR transparent garments.  

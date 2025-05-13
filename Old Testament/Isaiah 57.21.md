@@ -5,4 +5,4 @@
 [Isaiah 57:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.21?lang=eng#p21)
 
 
-[^a]: TG [[Conscience]]; [[Peace of God]].
+[^a]: [[Conscience|TG Conscience]]; [[Peace|Peace]].  

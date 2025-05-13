@@ -5,4 +5,4 @@
 [Ecclesiastes 9:11](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.11?lang=eng#p11)
 
 
-[^a]: [[Amos 2.14|Amos 2:14 (14-15)]]; [[Mosiah 4.27|Mosiah 4:27.]]
+[^a]: [[Amos 2.14|Amos 2:14 (14–15)]][[Amos 2.15|]]; [[Mosiah 4.27|Mosiah 4:27]].  

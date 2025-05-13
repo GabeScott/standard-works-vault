@@ -5,4 +5,4 @@
 [Alma 53:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p9#p9)
 
 
-[^a]: [[Joshua 7.4|Josh. 7:4.]]
+[^a]: [[Joshua 7.4|Josh. 7:4]].  

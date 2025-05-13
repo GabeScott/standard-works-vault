@@ -5,4 +5,4 @@
 [Helaman 2:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/2?lang=eng&id=p3#p3)
 
 
-[^a]: [[Helaman 1.9|Hel. 1:9.]]
+[^a]: [[Helaman 1.9|Hel. 1:9]].  

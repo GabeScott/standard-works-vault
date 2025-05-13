@@ -5,4 +5,4 @@
 [Jeremiah 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.22?lang=eng#p22)
 
 
-[^a]: [[3 Nephi 9.13|3 Ne. 9:13]]; [[3 Nephi 18.32|18:32.]]
+[^a]: [[3 Nephi 9.13|3 Ne. 9:13]]; [[3 Nephi 18.32|18:32]].  

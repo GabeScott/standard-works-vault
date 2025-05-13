@@ -5,8 +5,8 @@
 [3 Nephi 27:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p14#p14)
 
 
-[^a]: [[3 Nephi 15.1|3 Ne. 15:1]]; [[Mormon 2.19|Morm. 2:19.]]
-[^b]: [[Moses 7.55|Moses 7:55.]]
-[^c]: [[Luke 9.44|Luke 9:44 (44-45)]]; [[1 Nephi 11.33|1 Ne. 11:33.]]
-[^d]: [[John 6.44|John 6:44]]; [[2 Nephi 9.5|2 Ne. 9:5]]; [[D&C 17.8|D&C 17:8]]; [[D&C 27.18|27:18.]]
-[^e]: TG [[Jesus Christ, Judge]].
+[^a]: [[3 Nephi 15.1|3 Ne. 15:1]]; [[Mormon 2.19|Morm. 2:19]].  
+[^b]: [[Moses 7.55|Moses 7:55]].  
+[^c]: [[Luke 9.44|Luke 9:44 (44–45)]][[Luke 9.45|]]; [[1 Nephi 11.33|1 Ne. 11:33]].  
+[^d]: [[John 6.44|John 6:44]]; [[2 Nephi 9.5|2 Ne. 9:5]]; [[D&C 17.8|D&C 17:8]]; [[D&C 27.18|27:18]].  
+[^e]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

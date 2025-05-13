@@ -5,4 +5,4 @@
 [Exodus 3:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.21?lang=eng#p21)
 
 
-[^a]: [[Exodus 11.3|Ex. 11:3 (2-3)]]; [[Exodus 12.36|12:36 (35-36).]]
+[^a]: [[Exodus 11.2|Ex. 11:3 (2–3)]][[Exodus 11.3|]]; [[Exodus 12.35|12:36 (35–36)]][[Exodus 12.36|]].  

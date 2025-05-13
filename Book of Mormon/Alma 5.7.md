@@ -5,5 +5,5 @@
 [Alma 5:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p7#p7)
 
 
-[^a]: [[Mosiah 15.8|Mosiah 15:8]]. TG [[Bondage, Spiritual]]; [[Man, Natural, Not Spiritually Reborn]].
-[^b]: [[Alma 12.11|Alma 12:11 (9-11)]]; [[D&C 138.23|D&C 138:23]]. TG [[Hell]].
+[^a]: [[Mosiah 15.8|Mosiah 15:8]]. [[Bondage, Spiritual|TG Bondage, Spiritual]]; [[Man, Natural, Not Spiritually Reborn|Man, Natural, Not Spiritually Reborn]].  
+[^b]: [[Alma 12.9|Alma 12:11 (9–11)]][[Alma 12.10|]][[Alma 12.11|]]; [[D&C 138.23|D&C 138:23]]. [[Hell|TG Hell]].  

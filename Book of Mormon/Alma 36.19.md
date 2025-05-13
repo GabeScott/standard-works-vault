@@ -5,5 +5,5 @@
 [Alma 36:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: [[Jeremiah 31.34|Jer. 31:34]]; [[D&C 19.16|D&C 19:16.]]
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: [[Jeremiah 31.34|Jer. 31:34]]; [[D&C 19.16|D&C 19:16]].  

@@ -5,6 +5,6 @@
 [John 12:24](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.24?lang=eng#p24)
 
 
-[^a]: GR grain, seed.
-[^b]: [[1 Corinthians 15.36|1 Cor. 15:36 (35-38).]]
-[^c]: TG [[Death]].
+[^a]: GR grain, seed.  
+[^b]: [[1 Corinthians 15.35|1 Cor. 15:36 (35–38)]][[1 Corinthians 15.36|]][[1 Corinthians 15.37|]][[1 Corinthians 15.38|]].  
+[^c]: [[Death|TG Death]].  

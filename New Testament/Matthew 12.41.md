@@ -5,5 +5,5 @@
 [Matthew 12:41](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.41?lang=eng#p41)
 
 
-[^a]: [[Jonah 3.5|Jonah 3:5.]]
-[^b]: TG [[Repent, Repentance]].
+[^a]: [[Jonah 3.5|Jonah 3:5]].  
+[^b]: [[Repent, Repentance|TG Repent]].  

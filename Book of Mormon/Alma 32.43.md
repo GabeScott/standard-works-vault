@@ -5,6 +5,6 @@
 [Alma 32:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p43#p43)
 
 
-[^a]: TG [[Harvest]].
-[^b]: TG [[Reward]].
-[^c]: [[Alma 33.23|Alma 33:23.]]
+[^a]: [[Harvest|TG Harvest]].  
+[^b]: [[Reward|TG Reward]].  
+[^c]: [[Alma 33.23|Alma 33:23]].  

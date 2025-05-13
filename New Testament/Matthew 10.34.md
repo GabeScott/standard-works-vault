@@ -5,4 +5,4 @@
 [Matthew 10:34](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.34?lang=eng#p34)
 
 
-[^a]: [[John 7.43|John 7:43]]. TG [[Peace of God]].
+[^a]: [[John 7.43|John 7:43]]. [[Peace|TG Peace]].  

@@ -5,4 +5,4 @@
 [Genesis 10:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.21?lang=eng#p21)
 
 
-[^a]: [[Genesis 14.13|Gen. 14:13.]]
+[^a]: [[Genesis 14.13|Gen. 14:13]].  

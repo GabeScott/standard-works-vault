@@ -5,4 +5,4 @@
 [Jeremiah 25:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.3?lang=eng#p3)
 
 
-[^a]: [[Jeremiah 1.2|Jer. 1:2]]; [[Jeremiah 36.2|36:2.]]
+[^a]: [[Jeremiah 1.2|Jer. 1:2]]; [[Jeremiah 36.2|36:2]].  

@@ -5,4 +5,4 @@
 [Leviticus 26:24](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.24?lang=eng#p24)
 
 
-[^a]: [[Joel 1.4|Joel 1:4.]]
+[^a]: [[Joel 1.4|Joel 1:4]].  

@@ -5,5 +5,5 @@
 [Joshua 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Ark of the Covenant]].
-[^b]: TG [[Blood, Symbolism of]].
+[^a]: [[Ark of the Covenant|TG Ark of the Covenant]].  
+[^b]: [[Symbolism|TG Symbolism]].  

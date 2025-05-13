@@ -5,4 +5,4 @@
 [Moses 3:8](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 51.3|Isa. 51:3]]. TG [[Eden]].
+[^a]: [[Isaiah 51.3|Isa. 51:3]]. [[Eden|TG Eden]].  

@@ -5,4 +5,4 @@
 [Acts 9:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.13?lang=eng#p13)
 
 
-[^a]: [[Acts 26.10|Acts 26:10.]]
+[^a]: [[Acts 26.10|Acts 26:10]].  

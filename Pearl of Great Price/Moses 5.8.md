@@ -5,6 +5,6 @@
 [Moses 5:8](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.8?lang=eng#p8)
 
 
-[^a]: [[Moses 1.17|Moses 1:17.]]
-[^b]: [[Moses 6.57|Moses 6:57]]; [[Moses 7.10|7:10]]. TG [[Repent, Repentance]].
-[^c]: TG [[Prayer, Pray]].
+[^a]: [[Moses 1.17|Moses 1:17]].  
+[^b]: [[Moses 6.57|Moses 6:57]]; [[Moses 7.10|7:10]]. [[Repent, Repentance|TG Repent]].  
+[^c]: [[Prayer, Pray|TG Prayer]].  

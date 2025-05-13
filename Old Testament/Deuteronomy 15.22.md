@@ -5,4 +5,4 @@
 [Deuteronomy 15:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.22?lang=eng#p22)
 
 
-[^a]: [[Deuteronomy 12.15|Deut. 12:15.]]
+[^a]: [[Deuteronomy 12.15|Deut. 12:15]].  

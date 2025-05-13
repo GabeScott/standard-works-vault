@@ -5,4 +5,4 @@
 [Isaiah 37:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/37.16?lang=eng#p16)
 
 
-[^a]: TG [[Cherubim]].
+[^a]: [[Cherubim|TG Cherubim]].  

@@ -5,4 +5,4 @@
 [John 4:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.9?lang=eng#p9)
 
 
-[^a]: [[2 Kings 17.29|2 Kgs. 17:29]]; [[Luke 10.33|Luke 10:33.]]
+[^a]: [[2 Kings 17.29|2 Kgs. 17:29]]; [[Luke 10.33|Luke 10:33]].  

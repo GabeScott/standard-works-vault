@@ -5,4 +5,4 @@
 [Numbers 9:22](https://www.churchofjesuschrist.org/study/scriptures/ot/num/9.22?lang=eng#p22)
 
 
-[^a]: HEB an extended period of time.
+[^a]: HEB an extended period of time.  

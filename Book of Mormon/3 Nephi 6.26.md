@@ -5,4 +5,4 @@
 [3 Nephi 6:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p26#p26)
 
 
-[^a]: [[Mosiah 29.25|Mosiah 29:25]]; [[Alma 1.14|Alma 1:14.]]
+[^a]: [[Mosiah 29.25|Mosiah 29:25]]; [[Alma 1.14|Alma 1:14]].  

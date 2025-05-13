@@ -5,6 +5,6 @@
 [Ezekiel 44:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.13?lang=eng#p13)
 
 
-[^a]: [[Numbers 18.3|Num. 18:3]]; [[2 Kings 23.9|2 Kgs. 23:9.]]
-[^b]: [[Ezekiel 41.4|Ezek. 41:4 (1-4)]]; [[Ezekiel 45.3|45:3.]]
-[^c]: TG [[Shame]].
+[^a]: [[Numbers 18.3|Num. 18:3]]; [[2 Kings 23.9|2 Kgs. 23:9]].  
+[^b]: [[Ezekiel 41.1|Ezek. 41:4 (1–4)]][[Ezekiel 41.2|]][[Ezekiel 41.3|]][[Ezekiel 41.4|]]; [[Ezekiel 45.3|45:3]].  
+[^c]: [[Shame|TG Shame]].  

@@ -5,4 +5,4 @@
 [Proverbs 23:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.22?lang=eng#p22)
 
 
-[^a]: TG [[Family, Children, Duties of]].
+[^a]: [[Family, Children, Duties of|TG Family, Children, Duties of]].  

@@ -5,5 +5,5 @@
 [Ether 15:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/15?lang=eng&id=p15#p15)
 
 
-[^a]: [[Ether 10.27|Ether 10:27.]]
-[^b]: [[Mosiah 8.10|Mosiah 8:10.]]
+[^a]: [[Ether 10.27|Ether 10:27]].  
+[^b]: [[Mosiah 8.10|Mosiah 8:10]].  

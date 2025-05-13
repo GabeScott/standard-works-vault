@@ -5,4 +5,4 @@
 [Isaiah 23:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/23.11?lang=eng#p11)
 
 
-[^a]: OR concerning Canaan.
+[^a]: OR concerning Canaan.  

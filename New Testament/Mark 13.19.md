@@ -5,4 +5,4 @@
 [Mark 13:19](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.19?lang=eng#p19)
 
 
-[^a]: TG [[Affliction]].
+[^a]: [[Affliction|TG Affliction]].  

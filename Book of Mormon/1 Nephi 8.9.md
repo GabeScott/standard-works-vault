@@ -5,4 +5,4 @@
 [1 Nephi 8:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p9#p9)
 
 
-[^a]: [[Matthew 13.38|Matt. 13:38.]]
+[^a]: [[Matthew 13.38|Matt. 13:38]].  

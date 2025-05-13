@@ -5,5 +5,5 @@
 [Genesis 49:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.29?lang=eng#p29)
 
 
-[^a]: [[Alma 5.24|Alma 5:24.]]
-[^b]: [[Genesis 47.29|Gen. 47:29]]; [[Genesis 50.13|50:13.]]
+[^a]: [[Alma 5.24|Alma 5:24]].  
+[^b]: [[Genesis 47.29|Gen. 47:29]]; [[Genesis 50.13|50:13]].  

@@ -5,9 +5,9 @@
 [Colossians 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.12?lang=eng#p12)
 
 
-[^a]: TG [[Election, Elect]].
-[^b]: [[Galatians 5.22|Gal. 5:22.]]
-[^c]: TG [[Mercy, Merciful]].
-[^d]: TG [[Benevolence]].
-[^e]: TG [[Humility, Humble]].
-[^f]: TG [[Meek, Meekness]].
+[^a]: [[Election, Elect|TG Election]].  
+[^b]: [[Galatians 5.22|Gal. 5:22]].  
+[^c]: [[Mercy, Merciful|TG Mercy]].  
+[^d]: [[Benevolence|TG Benevolence]].  
+[^e]: [[Humility, Humble|TG Humility]].  
+[^f]: [[Meek, Meekness|TG Meek]].  

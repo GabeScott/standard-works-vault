@@ -5,4 +5,4 @@
 [Exodus 12:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.31?lang=eng#p31)
 
 
-[^a]: [[Exodus 3.20|Ex. 3:20]]; [[Exodus 6.1|6:1.]]
+[^a]: [[Exodus 3.20|Ex. 3:20]]; [[Exodus 6.1|6:1]].  

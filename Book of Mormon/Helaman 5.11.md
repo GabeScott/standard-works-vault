@@ -5,4 +5,4 @@
 [Helaman 5:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 13.24|Alma 13:24 (24-25)]]; [[Alma 39.19|39:19.]]
+[^a]: [[Alma 13.24|Alma 13:24 (24–25)]][[Alma 13.25|]]; [[Alma 39.19|39:19]].  

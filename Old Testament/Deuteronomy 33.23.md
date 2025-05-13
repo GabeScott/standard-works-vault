@@ -5,5 +5,5 @@
 [Deuteronomy 33:23](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.23?lang=eng#p23)
 
 
-[^a]: [[Genesis 49.21|Gen. 49:21.]]
-[^b]: HEB sea; i.e., Galilee as an inheritance.
+[^a]: [[Genesis 49.21|Gen. 49:21]].  
+[^b]: HEB sea; i.e., Galilee as an inheritance.  

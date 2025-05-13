@@ -5,4 +5,4 @@
 [Joshua 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.11?lang=eng#p11)
 
 
-[^a]: [[Deuteronomy 3.28|Deut. 3:28.]]
+[^a]: [[Deuteronomy 3.28|Deut. 3:28]].  

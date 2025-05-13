@@ -5,4 +5,4 @@
 [Ether 10:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Oppression, Oppress]]; [[Tyranny]].
+[^a]: [[Oppression, Oppress|TG Oppression]]; [[Tyranny|Tyranny]].  

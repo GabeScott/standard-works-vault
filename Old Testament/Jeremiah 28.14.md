@@ -5,6 +5,6 @@
 [Jeremiah 28:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/28.14?lang=eng#p14)
 
 
-[^a]: [[1 Nephi 13.5|1 Ne. 13:5 (4-9).]]
-[^b]: [[Jeremiah 25.11|Jer. 25:11.]]
-[^c]: [[Jeremiah 27.6|Jer. 27:6.]]
+[^a]: [[1 Nephi 13.4|1 Ne. 13:5 (4–9)]][[1 Nephi 13.5|]][[1 Nephi 13.6|]][[1 Nephi 13.7|]][[1 Nephi 13.8|]][[1 Nephi 13.9|]].  
+[^b]: [[Jeremiah 25.11|Jer. 25:11]].  
+[^c]: [[Jeremiah 27.6|Jer. 27:6]].  

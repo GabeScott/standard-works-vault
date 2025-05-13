@@ -5,6 +5,6 @@
 [Helaman 3:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p14#p14)
 
 
-[^a]: [[3 Nephi 5.8|3 Ne. 5:8]]; [[3 Nephi 26.6|26:6 (6-11).]]
-[^b]: [[2 Nephi 5.16|2 Ne. 5:16]]; [[Jacob 1.17|Jacob 1:17]]; [[3 Nephi 11.1|3 Ne. 11:1.]]
-[^c]: [[Alma 23.2|Alma 23:2.]]
+[^a]: [[3 Nephi 5.8|3 Ne. 5:8]]; [[3 Nephi 26.6|26:6 (6–11)]][[3 Nephi 26.7|]][[3 Nephi 26.8|]][[3 Nephi 26.9|]][[3 Nephi 26.10|]][[3 Nephi 26.11|]].  
+[^b]: [[2 Nephi 5.16|2 Ne. 5:16]]; [[Jacob 1.17|Jacob 1:17]]; [[3 Nephi 11.1|3 Ne. 11:1]].  
+[^c]: [[Alma 23.2|Alma 23:2]].  

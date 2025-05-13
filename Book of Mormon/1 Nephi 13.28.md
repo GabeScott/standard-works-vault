@@ -5,4 +5,4 @@
 [1 Nephi 13:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p28#p28)
 
 
-[^a]: [[1 Nephi 14.23|1 Ne. 14:23.]]
+[^a]: [[1 Nephi 14.23|1 Ne. 14:23]].  

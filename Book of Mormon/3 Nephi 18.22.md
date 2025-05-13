@@ -5,4 +5,4 @@
 [3 Nephi 18:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p22#p22)
 
 
-[^a]: TG [[Meetings]].
+[^a]: [[Meetings|TG Meetings]].  

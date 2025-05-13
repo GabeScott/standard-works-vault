@@ -5,4 +5,4 @@
 [Jeremiah 31:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.12?lang=eng#p12)
 
 
-[^a]: TG [[Sorrow]].
+[^a]: [[Sorrow|TG Sorrow]].  

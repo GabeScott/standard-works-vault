@@ -5,4 +5,4 @@
 [Proverbs 5:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/5.18?lang=eng#p18)
 
 
-[^a]: TG [[Family, Love within]]; [[Marriage, Husbands]].
+[^a]: [[Family, Love within|TG Family, Love within]]; [[Marriage, Husbands|Marriage, Husbands]].  

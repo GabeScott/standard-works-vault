@@ -5,4 +5,4 @@
 [Exodus 32:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.27?lang=eng#p27)
 
 
-[^a]: [[Numbers 25.5|Num. 25:5.]]
+[^a]: [[Numbers 25.5|Num. 25:5]].  

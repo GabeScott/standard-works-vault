@@ -5,4 +5,4 @@
 [Jeremiah 22:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.9?lang=eng#p9)
 
 
-[^a]: [[Deuteronomy 29.25|Deut. 29:25.]]
+[^a]: [[Deuteronomy 29.25|Deut. 29:25]].  

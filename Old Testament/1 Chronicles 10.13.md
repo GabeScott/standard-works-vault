@@ -5,6 +5,6 @@
 [1 Chronicles 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/10.13?lang=eng#p13)
 
 
-[^a]: [[2 Samuel 4.10|2 Sam. 4:10.]]
-[^b]: TG [[Transgressor]].
-[^c]: TG [[Spirits, Evil or Unclean]]; [[Superstitions]].
+[^a]: [[2 Samuel 4.10|2 Sam. 4:10]].  
+[^b]: [[Transgress, Transgression|TG Transgress]].  
+[^c]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]]; [[Superstitions|Superstitions]].  

@@ -5,4 +5,4 @@
 [D&C 5:9](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.9?lang=eng#p9)
 
 
-[^a]: [[Alma 37.18|Alma 37:18.]]
+[^a]: [[Alma 37.18|Alma 37:18]].  

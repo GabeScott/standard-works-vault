@@ -5,6 +5,6 @@
 [Jeremiah 31:31](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.31?lang=eng#p31)
 
 
-[^a]: TG [[New and Everlasting Covenant]]; [[Restoration of the Gospel]].
-[^b]: TG [[Abrahamic Covenant]]; [[Covenants]].
-[^c]: TG [[Israel, Judah, People of]].
+[^a]: [[New and Everlasting Covenant|TG New and Everlasting Covenant]]; [[Restoration of the Gospel|Restoration of the Gospel]].  
+[^b]: [[Abrahamic Covenant|TG Abrahamic Covenant]]; [[Covenants|Covenants]].  
+[^c]: [[Israel, Judah, People of|TG Israel, Judah, People of]].  

@@ -5,6 +5,6 @@
 [Deuteronomy 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.7?lang=eng#p7)
 
 
-[^a]: [[Exodus 3.8|Ex. 3:8.]]
-[^b]: TG [[Israel, Land of]].
-[^c]: OR springs and water recesses. Deut. 33:28.
+[^a]: [[Exodus 3.8|Ex. 3:8]].  
+[^b]: [[Israel, Land of|TG Israel, Land of]].  
+[^c]: OR springs and water recesses. [[Deuteronomy 33.28|Deut. 33:28]].  

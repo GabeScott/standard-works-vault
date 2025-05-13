@@ -5,5 +5,5 @@
 [Mormon 2:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/2?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Contrite Heart]].
-[^b]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^a]: [[Contrite Heart|TG Contrite Heart]].  
+[^b]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  

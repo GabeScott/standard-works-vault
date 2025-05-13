@@ -5,8 +5,8 @@
 [Deuteronomy 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.5?lang=eng#p5)
 
 
-[^a]: TG [[Widows]].
-[^b]: OR outside the family.
-[^c]: [[Ruth 1.11|Ruth 1:11]]; [[Ruth 3.12|3:12.]]
-[^d]: [[Ruth 4.5|Ruth 4:5]]; [[Matthew 22.24|Matt. 22:24 (23-33)]]; [[Mark 12.19|Mark 12:19]]; [[Luke 20.28|Luke 20:28 (27-38).]]
-[^e]: TG [[Marriage, Fatherhood]].
+[^a]: [[Widows|TG Widows]].  
+[^b]: OR outside the family.  
+[^c]: [[Ruth 1.11|Ruth 1:11]]; [[Ruth 3.12|3:12]].  
+[^d]: [[Ruth 4.5|Ruth 4:5]]; [[Matthew 22.23|Matt. 22:24 (23–33)]][[Matthew 22.24|]][[Matthew 22.25|]][[Matthew 22.26|]][[Matthew 22.27|]][[Matthew 22.28|]][[Matthew 22.29|]][[Matthew 22.30|]][[Matthew 22.31|]][[Matthew 22.32|]][[Matthew 22.33|]]; [[Mark 12.19|Mark 12:19]]; [[Luke 20.27|Luke 20:28 (27–38)]][[Luke 20.28|]][[Luke 20.29|]][[Luke 20.30|]][[Luke 20.31|]][[Luke 20.32|]][[Luke 20.33|]][[Luke 20.34|]][[Luke 20.35|]][[Luke 20.36|]][[Luke 20.37|]][[Luke 20.38|]].  
+[^e]: [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  

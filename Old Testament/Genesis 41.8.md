@@ -5,5 +5,5 @@
 [Genesis 41:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.8?lang=eng#p8)
 
 
-[^a]: Dan. 2:1 (1-3).
-[^b]: TG [[Sorcery]].
+[^a]: [[Daniel 2.1|Dan. 2:1 (1–3)]][[Daniel 2.2|]][[Daniel 2.3|]].  
+[^b]: [[Sorcery|TG Sorcery]].  

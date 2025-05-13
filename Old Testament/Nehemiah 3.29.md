@@ -5,4 +5,4 @@
 [Nehemiah 3:29](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/3.29?lang=eng#p29)
 
 
-[^a]: Probably the area of the “Golden Gate.”
+[^a]: Probably the area of the “Golden Gate.”  

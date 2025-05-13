@@ -5,4 +5,4 @@
 [Jeremiah 50:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.17?lang=eng#p17)
 
 
-[^a]: [[Numbers 24.8|Num. 24:8.]]
+[^a]: [[Numbers 24.8|Num. 24:8]].  

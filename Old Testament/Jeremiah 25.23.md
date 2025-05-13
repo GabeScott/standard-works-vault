@@ -5,4 +5,4 @@
 [Jeremiah 25:23](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.23?lang=eng#p23)
 
 
-[^a]: [[Jeremiah 9.26|Jer. 9:26.]]
+[^a]: [[Jeremiah 9.26|Jer. 9:26]].  

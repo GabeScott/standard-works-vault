@@ -5,5 +5,5 @@
 [Ecclesiastes 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.16?lang=eng#p16)
 
 
-[^a]: [[Ecclesiastes 3.19|Eccl. 3:19.]]
-[^b]: [[Psalms 49.10|Ps. 49:10.]]
+[^a]: [[Ecclesiastes 3.19|Eccl. 3:19]].  
+[^b]: [[Psalms 49.10|Ps. 49:10]].  

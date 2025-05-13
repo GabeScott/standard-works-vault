@@ -5,4 +5,4 @@
 [Judges 19:21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/19.21?lang=eng#p21)
 
 
-[^a]: [[Genesis 24.32|Gen. 24:32.]]
+[^a]: [[Genesis 24.32|Gen. 24:32]].  

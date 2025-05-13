@@ -5,4 +5,4 @@
 [Mark 15:36](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.36?lang=eng#p36)
 
 
-[^a]: [[Psalms 69.21|Ps. 69:21.]]
+[^a]: [[Psalms 69.21|Ps. 69:21]].  

@@ -5,5 +5,5 @@
 [Ecclesiastes 7:25](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.25?lang=eng#p25)
 
 
-[^a]: [[Ecclesiastes 1.17|Eccl. 1:17]]; [[Mosiah 12.27|Mosiah 12:27.]]
-[^b]: [[D&C 42.68|D&C 42:68.]]
+[^a]: [[Ecclesiastes 1.17|Eccl. 1:17]]; [[Mosiah 12.27|Mosiah 12:27]].  
+[^b]: [[D&C 42.68|D&C 42:68]].  

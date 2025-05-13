@@ -5,4 +5,4 @@
 [Philemon 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/philem/1.14?lang=eng#p14)
 
 
-[^a]: GR assent, suggestion. TG [[Mind, Minded]].
+[^a]: GR assent, suggestion. [[Mind, Minded|TG Mind]].  

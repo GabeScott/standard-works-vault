@@ -5,4 +5,4 @@
 [Matthew 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.12?lang=eng#p12)
 
 
-[^a]: [[1 Chronicles 3.19|1 Chr. 3:19 (17-19)]]; [[Ezra 2.2|Ezra 2:2 (1-2)]]; [[Haggai 1.1|Hag. 1:1.]]
+[^a]: [[1 Chronicles 3.17|1 Chr. 3:19 (17–19)]][[1 Chronicles 3.18|]][[1 Chronicles 3.19|]]; [[Ezra 2.1|Ezra 2:2 (1–2)]][[Ezra 2.2|]]; [[Haggai 1.1|Hag. 1:1]].  

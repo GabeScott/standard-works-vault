@@ -5,4 +5,4 @@
 [Matthew 13:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.10?lang=eng#p10)
 
 
-[^a]: Dan. 12:10. TG [[Jesus Christ, Teaching Mode of]].
+[^a]: [[Daniel 12.10|Dan. 12:10]]. [[Jesus Christ, Teaching Mode of|TG Jesus Christ, Teaching Mode of]].  

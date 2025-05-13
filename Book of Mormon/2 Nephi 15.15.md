@@ -5,6 +5,6 @@
 [2 Nephi 15:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p15#p15)
 
 
-[^a]: [[Isaiah 2.17|Isa. 2:17 (11, 17).]]
-[^b]: [[2 Nephi 12.11|2 Ne. 12:11.]]
-[^c]: TG [[Haughtiness, Haughty]].
+[^a]: [[Isaiah 2.11|Isa. 2:17 (11, 17)]][[Isaiah 2.17|]].  
+[^b]: [[2 Nephi 12.11|2 Ne. 12:11]].  
+[^c]: [[Haughtiness, Haughty|TG Haughtiness]].  

@@ -5,7 +5,7 @@
 [1 Timothy 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/2.15?lang=eng#p15)
 
 
-[^a]: JST 1 Tim. 2:15 … they …
-[^b]: TG [[Birth Control]]; [[Marriage, Motherhood]].
-[^c]: TG [[Holiness]].
-[^d]: GR modesty.
+[^a]: JST 1 Tim. 2:15 … they …  
+[^b]: [[Birth Control|TG Birth Control]]; [[Marriage, Motherhood|Marriage, Motherhood]].  
+[^c]: [[Holiness|TG Holiness]].  
+[^d]: GR modesty.  

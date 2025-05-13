@@ -5,4 +5,4 @@
 [Exodus 12:51](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.51?lang=eng#p51)
 
 
-[^a]: [[Deuteronomy 26.8|Deut. 26:8]]; [[Amos 2.10|Amos 2:10]]; [[Acts 7.36|Acts 7:36]]; [[1 Nephi 17.40|1 Ne. 17:40]]; [[Mosiah 7.19|Mosiah 7:19]]; [[Mosiah 12.34|12:34]]; [[Alma 36.28|Alma 36:28.]]
+[^a]: [[Deuteronomy 26.8|Deut. 26:8]]; [[Amos 2.10|Amos 2:10]]; [[Acts 7.36|Acts 7:36]]; [[1 Nephi 17.40|1 Ne. 17:40]]; [[Mosiah 7.19|Mosiah 7:19]]; [[Mosiah 12.34|12:34]]; [[Alma 36.28|Alma 36:28]].  

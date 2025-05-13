@@ -5,4 +5,4 @@
 [Joshua 17:2](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/17.2?lang=eng#p2)
 
 
-[^a]: [[Numbers 26.29|Num. 26:29 (29-32).]]
+[^a]: [[Numbers 26.29|Num. 26:29 (29–32)]][[Numbers 26.30|]][[Numbers 26.31|]][[Numbers 26.32|]].  

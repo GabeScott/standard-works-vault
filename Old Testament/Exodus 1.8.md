@@ -5,4 +5,4 @@
 [Exodus 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.8?lang=eng#p8)
 
 
-[^a]: [[Acts 7.18|Acts 7:18 (17-19).]]
+[^a]: [[Acts 7.17|Acts 7:18 (17–19)]][[Acts 7.18|]][[Acts 7.19|]].  

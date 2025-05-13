@@ -5,4 +5,4 @@
 [Mormon 2:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/2?lang=eng&id=p21#p21)
 
 
-[^a]: [[Mormon 2.4|Morm. 2:4.]]
+[^a]: [[Mormon 2.4|Morm. 2:4]].  

@@ -5,5 +5,5 @@
 [1 Nephi 6:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/6?lang=eng&id=p4#p4)
 
 
-[^a]: [[Luke 1.4|Luke 1:4 (3-4)]]; [[John 20.31|John 20:31 (30-31).]]
-[^b]: [[2 Nephi 9.41|2 Ne. 9:41 (41, 45, 51).]]
+[^a]: [[Luke 1.3|Luke 1:4 (3–4)]][[Luke 1.4|]]; [[John 20.30|John 20:31 (30–31)]][[John 20.31|]].  
+[^b]: [[2 Nephi 9.41|2 Ne. 9:41 (41, 45, 51)]][[2 Nephi 9.45|]][[2 Nephi 9.51|]].  

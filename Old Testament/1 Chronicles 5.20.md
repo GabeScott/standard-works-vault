@@ -5,6 +5,6 @@
 [1 Chronicles 5:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/5.20?lang=eng#p20)
 
 
-[^a]: [[Alma 57.26|Alma 57:26 (25-27).]]
-[^b]: [[Genesis 25.21|Gen. 25:21.]]
-[^c]: TG [[Trust in God]].
+[^a]: [[Alma 57.25|Alma 57:26 (25–27)]][[Alma 57.26|]][[Alma 57.27|]].  
+[^b]: [[Genesis 25.21|Gen. 25:21]].  
+[^c]: [[Trust in God|TG Trust in God]].  

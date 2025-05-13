@@ -5,5 +5,5 @@
 [Joshua 18:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/18.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 35.6|Gen. 35:6]]; [[Genesis 48.3|48:3.]]
-[^b]: OR lower.
+[^a]: [[Genesis 35.6|Gen. 35:6]]; [[Genesis 48.3|48:3]].  
+[^b]: OR lower.  

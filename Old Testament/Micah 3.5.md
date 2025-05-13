@@ -5,6 +5,6 @@
 [Micah 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/3.5?lang=eng#p5)
 
 
-[^a]: TG [[False Prophets]].
-[^b]: TG [[Peace of God]].
-[^c]: [[1 Nephi 11.35|1 Ne. 11:35 (34-36)]]; [[D&C 121.38|D&C 121:38.]]
+[^a]: [[False Prophets|TG False Prophets]].  
+[^b]: [[Peace|TG Peace]].  
+[^c]: [[1 Nephi 11.34|1 Ne. 11:35 (34–36)]][[1 Nephi 11.35|]][[1 Nephi 11.36|]]; [[D&C 121.38|D&C 121:38]].  

@@ -5,7 +5,7 @@
 [Ephesians 4:31](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.31?lang=eng#p31)
 
 
-[^a]: TG [[Anger]].
-[^b]: TG [[Backbiting]].
-[^c]: TG [[Slander]].
-[^d]: TG [[Malice]].
+[^a]: [[Anger|TG Anger]].  
+[^b]: [[Backbiting|TG Backbiting]].  
+[^c]: [[Slander|TG Slander]].  
+[^d]: [[Malice|TG Malice]].  

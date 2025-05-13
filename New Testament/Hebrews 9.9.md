@@ -5,5 +5,5 @@
 [Hebrews 9:9](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.9?lang=eng#p9)
 
 
-[^a]: GR similitude, type, parable. TG [[Jesus Christ, Types of, in Anticipation]].
-[^b]: [[Hebrews 7.19|Heb. 7:19.]]
+[^a]: GR similitude, type, parable. [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]].  
+[^b]: [[Hebrews 7.19|Heb. 7:19]].  

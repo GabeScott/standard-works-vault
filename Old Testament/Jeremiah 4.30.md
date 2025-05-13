@@ -5,6 +5,6 @@
 [Jeremiah 4:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.30?lang=eng#p30)
 
 
-[^a]: [[Hosea 2.13|Hosea 2:13.]]
-[^b]: OR enlargest thine eyes.
-[^c]: HEB sensuous lovers.
+[^a]: [[Hosea 2.13|Hosea 2:13]].  
+[^b]: OR enlargest thine eyes.  
+[^c]: HEB sensuous lovers.  

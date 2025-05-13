@@ -5,4 +5,4 @@
 [Psalms 31:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.16?lang=eng#p16)
 
 
-[^a]: [[Numbers 6.25|Num. 6:25.]]
+[^a]: [[Numbers 6.25|Num. 6:25]].  

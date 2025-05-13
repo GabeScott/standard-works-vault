@@ -5,4 +5,4 @@
 [Job 33:18](https://www.churchofjesuschrist.org/study/scriptures/ot/job/33.18?lang=eng#p18)
 
 
-[^a]: TG [[Hell]].
+[^a]: [[Hell|TG Hell]].  

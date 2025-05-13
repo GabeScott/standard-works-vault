@@ -5,4 +5,4 @@
 [Moses 6:47](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.47?lang=eng#p47)
 
 
-[^a]: [[1 Nephi 17.48|1 Ne. 17:48 (48-55).]]
+[^a]: [[1 Nephi 17.48|1 Ne. 17:48 (48–55)]][[1 Nephi 17.49|]][[1 Nephi 17.50|]][[1 Nephi 17.51|]][[1 Nephi 17.52|]][[1 Nephi 17.53|]][[1 Nephi 17.54|]][[1 Nephi 17.55|]].  

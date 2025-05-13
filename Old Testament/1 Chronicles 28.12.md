@@ -5,4 +5,4 @@
 [1 Chronicles 28:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/28.12?lang=eng#p12)
 
 
-[^a]: [[1 Nephi 17.8|1 Ne. 17:8 (8, 18).]]
+[^a]: [[1 Nephi 17.8|1 Ne. 17:8 (8, 18)]][[1 Nephi 17.18|]].  

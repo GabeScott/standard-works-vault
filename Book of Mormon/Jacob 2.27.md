@@ -5,6 +5,6 @@
 [Jacob 2:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p27#p27)
 
 
-[^a]: TG [[Marriage, Husbands]].
-[^b]: [[Jacob 3.5|Jacob 3:5 (5-7)]]; [[D&C 49.16|D&C 49:16]]. TG [[Marriage, Plural]].
-[^c]: TG [[Marriage, Wives]].
+[^a]: [[Marriage, Husbands|TG Marriage, Husbands]].  
+[^b]: [[Jacob 3.5|Jacob 3:5 (5–7)]][[Jacob 3.6|]][[Jacob 3.7|]]; [[D&C 49.16|D&C 49:16]]. [[Marriage, Plural|TG Marriage, Plural]].  
+[^c]: [[Marriage, Wives|TG Marriage, Wives]].  

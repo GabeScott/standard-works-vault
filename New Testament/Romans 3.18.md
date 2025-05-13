@@ -5,4 +5,4 @@
 [Romans 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.18?lang=eng#p18)
 
 
-[^a]: [[D&C 10.56|D&C 10:56 (55-56).]]
+[^a]: [[D&C 10.55|D&C 10:56 (55–56)]][[D&C 10.56|]].  

@@ -5,6 +5,6 @@
 [Exodus 16:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.15?lang=eng#p15)
 
 
-[^a]: OR What is it? (HEB man-hu.)
-[^b]: [[1 Corinthians 10.3|1 Cor. 10:3 (1-6)]]; [[1 Nephi 17.28|1 Ne. 17:28]]; [[Mosiah 7.19|Mosiah 7:19]]. TG [[Jesus Christ, Types of, in Anticipation]].
-[^c]: TG [[Bread]].
+[^a]: OR What is it? (HEB man-hu.)  
+[^b]: [[1 Corinthians 10.1|1 Cor. 10:3 (1–6)]][[1 Corinthians 10.2|]][[1 Corinthians 10.3|]][[1 Corinthians 10.4|]][[1 Corinthians 10.5|]][[1 Corinthians 10.6|]]; [[1 Nephi 17.28|1 Ne. 17:28]]; [[Mosiah 7.19|Mosiah 7:19]]. [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]].  
+[^c]: [[Bread|TG Bread]].  

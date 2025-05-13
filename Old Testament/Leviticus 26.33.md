@@ -5,5 +5,5 @@
 [Leviticus 26:33](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.33?lang=eng#p33)
 
 
-[^a]: TG [[Israel, Scattering of]].
-[^b]: [[2 Kings 22.19|2 Kgs. 22:19.]]
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  
+[^b]: [[2 Kings 22.19|2 Kgs. 22:19]].  

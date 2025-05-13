@@ -5,4 +5,4 @@
 [Luke 1:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.23?lang=eng#p23)
 
 
-[^a]: [[Leviticus 8.33|Lev. 8:33.]]
+[^a]: [[Leviticus 8.33|Lev. 8:33]].  

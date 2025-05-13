@@ -5,5 +5,5 @@
 [Ezekiel 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/4.1?lang=eng#p1)
 
 
-[^a]: IE a clay tablet.
-[^b]: IE engrave or cut in it a representation of the city.
+[^a]: IE a clay tablet.  
+[^b]: IE engrave or cut in it a representation of the city.  

@@ -5,4 +5,4 @@
 [Luke 21:2](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.2?lang=eng#p2)
 
 
-[^a]: [[D&C 64.34|D&C 64:34 (22, 34).]]
+[^a]: [[D&C 64.22|D&C 64:34 (22, 34)]][[D&C 64.34|]].  

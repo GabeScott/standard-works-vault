@@ -5,7 +5,7 @@
 [Philippians 1:27](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.27?lang=eng#p27)
 
 
-[^a]: Philip. 4:1 (1-7).
-[^b]: TG [[Unity]].
-[^c]: TG [[Mind, Minded]].
-[^d]: [[Jude 1.3|Jude 1:3.]]
+[^a]: [[Philippians 4.1|Philip. 4:1 (1–7)]][[Philippians 4.2|]][[Philippians 4.3|]][[Philippians 4.4|]][[Philippians 4.5|]][[Philippians 4.6|]][[Philippians 4.7|]].  
+[^b]: [[Unity|TG Unity]].  
+[^c]: [[Mind, Minded|TG Mind]].  
+[^d]: [[Jude 1.3|Jude 1:3]].  

@@ -5,4 +5,4 @@
 [Psalms 102:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/102.17?lang=eng#p17)
 
 
-[^a]: [[Ezekiel 36.37|Ezek. 36:37.]]
+[^a]: [[Ezekiel 36.37|Ezek. 36:37]].  

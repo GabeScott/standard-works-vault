@@ -5,6 +5,6 @@
 [1 Chronicles 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/9.1?lang=eng#p1)
 
 
-[^a]: TG [[Genealogy and Temple Work]].
-[^b]: [[1 Nephi 5.12|1 Ne. 5:12 (11-14).]]
-[^c]: TG [[Transgressor]].
+[^a]: [[Genealogy and Temple Work|TG Genealogy and Temple Work]].  
+[^b]: [[1 Nephi 5.11|1 Ne. 5:12 (11–14)]][[1 Nephi 5.12|]][[1 Nephi 5.13|]][[1 Nephi 5.14|]].  
+[^c]: [[Transgress, Transgression|TG Transgress]].  

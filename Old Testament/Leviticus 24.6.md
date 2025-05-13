@@ -5,5 +5,5 @@
 [Leviticus 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.6?lang=eng#p6)
 
 
-[^a]: [[Exodus 40.4|Ex. 40:4.]]
-[^b]: [[Hebrews 9.2|Heb. 9:2.]]
+[^a]: [[Exodus 40.4|Ex. 40:4]].  
+[^b]: [[Hebrews 9.2|Heb. 9:2]].  

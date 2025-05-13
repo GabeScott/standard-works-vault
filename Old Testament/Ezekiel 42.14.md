@@ -5,4 +5,4 @@
 [Ezekiel 42:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/42.14?lang=eng#p14)
 
 
-[^a]: [[Ezekiel 44.19|Ezek. 44:19.]]
+[^a]: [[Ezekiel 44.19|Ezek. 44:19]].  

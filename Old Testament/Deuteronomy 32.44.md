@@ -5,5 +5,5 @@
 [Deuteronomy 32:44](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.44?lang=eng#p44)
 
 
-[^a]: TG [[Singing, Sing, Sang, Sung]].
-[^b]: OR Joshua.
+[^a]: [[Singing, Sing, Sang, Sung|TG Singing]].  
+[^b]: OR Joshua.  

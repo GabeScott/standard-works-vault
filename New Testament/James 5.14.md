@@ -5,7 +5,7 @@
 [James 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.14?lang=eng#p14)
 
 
-[^a]: TG [[Sickness, Sick]].
-[^b]: TG [[Elder, Melchizedek Priesthood]]; [[Health]].
-[^c]: TG [[Prayer, Pray]].
-[^d]: [[Exodus 31.11|Ex. 31:11]]. TG [[Administrations to the Sick]]; [[Anointing, Anoint]].
+[^a]: [[Sickness, Sick|TG Sickness]].  
+[^b]: [[Elder, Melchizedek Priesthood|TG Elder, Melchizedek Priesthood]]; [[Heal, Healing|Heal]].  
+[^c]: [[Prayer, Pray|TG Prayer]].  
+[^d]: [[Exodus 31.11|Ex. 31:11]]. [[Administrations to the Sick|TG Administrations to the Sick]]; [[Anointing, Anoint|Anointing]].  

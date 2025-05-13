@@ -5,4 +5,4 @@
 [Proverbs 15:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.7?lang=eng#p7)
 
 
-[^a]: TG [[Communication]].
+[^a]: [[Communication|TG Communication]].  

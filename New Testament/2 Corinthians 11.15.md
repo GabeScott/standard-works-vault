@@ -5,4 +5,4 @@
 [2 Corinthians 11:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.15?lang=eng#p15)
 
 
-[^a]: Philip. 3:19.
+[^a]: [[Philippians 3.19|Philip. 3:19]].  

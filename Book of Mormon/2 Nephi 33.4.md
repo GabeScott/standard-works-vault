@@ -5,5 +5,5 @@
 [2 Nephi 33:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p4#p4)
 
 
-[^a]: [[Ether 8.26|Ether 8:26]]; [[Moroni 7.13|Moro. 7:13 (12-17)]]. TG [[Motivations]].
-[^b]: TG [[Eternal Life]].
+[^a]: [[Ether 8.26|Ether 8:26]]; [[Moroni 7.12|Moro. 7:13 (12–17)]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]]. [[Motivations|TG Motivations]].  
+[^b]: [[Eternal Life|TG Eternal Life]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 4:43](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.43?lang=eng#p43)
 
 
-[^a]: HEB on the plateau.
-[^b]: [[Deuteronomy 3.10|Deut. 3:10.]]
+[^a]: HEB on the plateau.  
+[^b]: [[Deuteronomy 3.10|Deut. 3:10]].  

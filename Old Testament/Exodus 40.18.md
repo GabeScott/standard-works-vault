@@ -5,4 +5,4 @@
 [Exodus 40:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.18?lang=eng#p18)
 
 
-[^a]: HEB its bases.
+[^a]: HEB its bases.  

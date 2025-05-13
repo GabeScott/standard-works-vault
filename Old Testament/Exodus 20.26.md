@@ -5,5 +5,5 @@
 [Exodus 20:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.26?lang=eng#p26)
 
 
-[^a]: IE A ramp was rather to be provided.
-[^b]: OR revealed.
+[^a]: IE A ramp was rather to be provided.  
+[^b]: OR revealed.  

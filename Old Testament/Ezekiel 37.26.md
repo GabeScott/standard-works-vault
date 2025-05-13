@@ -5,7 +5,7 @@
 [Ezekiel 37:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.26?lang=eng#p26)
 
 
-[^a]: [[Ezekiel 34.25|Ezek. 34:25.]]
-[^b]: TG [[New and Everlasting Covenant]].
-[^c]: TG [[Restoration of the Gospel]].
-[^d]: TG [[God, Presence of]]; [[Genealogy and Temple Work]].
+[^a]: [[Ezekiel 34.25|Ezek. 34:25]].  
+[^b]: [[New and Everlasting Covenant|TG New and Everlasting Covenant]].  
+[^c]: [[Restoration of the Gospel|TG Restoration of the Gospel]].  
+[^d]: [[God, Presence of|TG God, Presence of]]; [[Temple|Temple]].  

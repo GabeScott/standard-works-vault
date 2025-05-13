@@ -5,7 +5,7 @@
 [Mosiah 4:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p14#p14)
 
 
-[^a]: [[1 Timothy 5.8|1 Tim. 5:8]]; [[D&C 83.4|D&C 83:4]]. TG [[Marriage, Fatherhood]].
-[^b]: [[Proverbs 13.24|Prov. 13:24.]]
-[^c]: TG [[Contention]].
-[^d]: [[2 Nephi 32.8|2 Ne. 32:8]]; [[Mosiah 2.32|Mosiah 2:32.]]
+[^a]: [[1 Timothy 5.8|1 Tim. 5:8]]; [[D&C 83.4|D&C 83:4]]. [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  
+[^b]: [[Proverbs 13.24|Prov. 13:24]].  
+[^c]: [[Contention|TG Contention]].  
+[^d]: [[2 Nephi 32.8|2 Ne. 32:8]]; [[Mosiah 2.32|Mosiah 2:32]].  

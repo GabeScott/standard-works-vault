@@ -5,4 +5,4 @@
 [Psalms 83:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/83.9?lang=eng#p9)
 
 
-[^a]: [[Judges 4.15|Judg. 4:15.]]
+[^a]: [[Judges 4.15|Judg. 4:15]].  

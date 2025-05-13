@@ -5,4 +5,4 @@
 [Acts 21:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.32?lang=eng#p32)
 
 
-[^a]: [[Acts 23.27|Acts 23:27.]]
+[^a]: [[Acts 23.27|Acts 23:27]].  

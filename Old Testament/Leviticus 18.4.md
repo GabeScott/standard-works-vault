@@ -5,6 +5,6 @@
 [Leviticus 18:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.4?lang=eng#p4)
 
 
-[^a]: TG [[Judgment]].
-[^b]: TG [[Ordinance]].
-[^c]: TG [[Walking with God]].
+[^a]: [[Judgment|TG Judgment]].  
+[^b]: [[Ordinance|TG Ordinance]].  
+[^c]: [[Walking with God|TG Walking with God]].  

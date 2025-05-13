@@ -5,5 +5,5 @@
 [Genesis 26:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.29?lang=eng#p29)
 
 
-[^a]: TG [[Peacemakers]].
-[^b]: [[Genesis 24.31|Gen. 24:31.]]
+[^a]: [[Peacemakers|TG Peacemakers]].  
+[^b]: [[Genesis 24.31|Gen. 24:31]].  

@@ -5,4 +5,4 @@
 [Hebrews 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.7?lang=eng#p7)
 
 
-[^a]: HEB gods; GR angels.
+[^a]: HEB gods; GR angels.  

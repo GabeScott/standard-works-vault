@@ -5,4 +5,4 @@
 [D&C 9:11](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/9.11?lang=eng#p11)
 
 
-[^a]: TG [[Fearful]].
+[^a]: [[Fearful|TG Fearful]].  

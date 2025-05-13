@@ -5,5 +5,5 @@
 [2 Nephi 30:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/30?lang=eng&id=p15#p15)
 
 
-[^a]: [[Joel 2.1|Joel 2:1.]]
-[^b]: TG [[God, Knowledge about]].
+[^a]: [[Joel 2.1|Joel 2:1]].  
+[^b]: [[God, Knowledge about|TG God, Knowledge about]].  

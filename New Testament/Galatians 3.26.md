@@ -5,5 +5,5 @@
 [Galatians 3:26](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.26?lang=eng#p26)
 
 
-[^a]: TG [[Sons and Daughters of God]].
-[^b]: TG [[Baptism, Qualifications for]].
+[^a]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  
+[^b]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  

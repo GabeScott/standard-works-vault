@@ -5,7 +5,7 @@
 [Genesis 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.3?lang=eng#p3)
 
 
-[^a]: TG [[Sabbath]].
-[^b]: [[Exodus 20.11|Ex. 20:11]]; [[Mosiah 13.19|Mosiah 13:19 (16-19)]]; [[D&C 77.12|D&C 77:12]]; [[Moses 3.3|Moses 3:3 (1-3)]]; [[Abraham 5.3|Abr. 5:3 (1-3)]]. TG [[Sacred]].
-[^c]: [[Exodus 31.17|Ex. 31:17.]]
-[^d]: OR created through working.
+[^a]: [[Sabbath|TG Sabbath]].  
+[^b]: [[Exodus 20.11|Ex. 20:11]]; [[Mosiah 13.16|Mosiah 13:19 (16–19)]][[Mosiah 13.17|]][[Mosiah 13.18|]][[Mosiah 13.19|]]; [[D&C 77.12|D&C 77:12]]; [[Moses 3.1|Moses 3:3 (1–3)]][[Moses 3.2|]][[Moses 3.3|]]; [[Abraham 5.1|Abr. 5:3 (1–3)]][[Abraham 5.2|]][[Abraham 5.3|]]. [[Sacred|TG Sacred]].  
+[^c]: [[Exodus 31.17|Ex. 31:17]].  
+[^d]: OR created through working.  

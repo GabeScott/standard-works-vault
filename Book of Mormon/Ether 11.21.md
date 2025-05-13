@@ -5,5 +5,5 @@
 [Ether 11:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p21#p21)
 
 
-[^a]: [[Omni 1.21|Omni 1:21]]; [[Ether 13.21|Ether 13:21 (20-21).]]
-[^b]: [[Deuteronomy 29.28|Deut. 29:28.]]
+[^a]: [[Omni 1.21|Omni 1:21]]; [[Ether 13.20|Ether 13:21 (20–21)]][[Ether 13.21|]].  
+[^b]: [[Deuteronomy 29.28|Deut. 29:28]].  

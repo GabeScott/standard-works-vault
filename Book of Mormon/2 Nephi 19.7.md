@@ -5,6 +5,6 @@
 [2 Nephi 19:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Kingdom of God, on Earth]].
-[^b]: Dan. 2:44.
-[^c]: [[Ezekiel 37.24|Ezek. 37:24.]]
+[^a]: [[Kingdom of God, on Earth|TG Kingdom of God, on Earth]].  
+[^b]: [[Daniel 2.44|Dan. 2:44]].  
+[^c]: [[Ezekiel 37.24|Ezek. 37:24]].  

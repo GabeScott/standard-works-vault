@@ -5,9 +5,9 @@
 [Revelation 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.5?lang=eng#p5)
 
 
-[^a]: [[Revelation 2.26|Rev. 2:26]]; [[D&C 76.60|D&C 76:60]]. TG [[Salvation for the Dead]].
-[^b]: TG [[Remission of Sins]].
-[^c]: GR clothing.
-[^d]: TG [[Book of Life]].
-[^e]: TG [[Record Keeping]].
-[^f]: GR acknowledge, praise.
+[^a]: [[Revelation 2.26|Rev. 2:26]]; [[D&C 76.60|D&C 76:60]]. [[Salvation|TG Salvation]].  
+[^b]: [[Remission of Sins|TG Remission of Sins]].  
+[^c]: GR clothing.  
+[^d]: [[Book of Life|TG Book of Life]].  
+[^e]: [[Record Keeping|TG Record Keeping]].  
+[^f]: GR acknowledge, praise.  

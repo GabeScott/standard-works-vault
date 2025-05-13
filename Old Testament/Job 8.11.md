@@ -5,4 +5,4 @@
 [Job 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/8.11?lang=eng#p11)
 
 
-[^a]: OR reeds.
+[^a]: OR reeds.  

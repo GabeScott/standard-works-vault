@@ -5,4 +5,4 @@
 [Lamentations 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.17?lang=eng#p17)
 
 
-[^a]: [[Zechariah 1.6|Zech. 1:6.]]
+[^a]: [[Zechariah 1.6|Zech. 1:6]].  

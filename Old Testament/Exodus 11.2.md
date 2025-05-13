@@ -5,5 +5,5 @@
 [Exodus 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/11.2?lang=eng#p2)
 
 
-[^a]: HEB ask.
-[^b]: OR jewelry.
+[^a]: HEB ask.  
+[^b]: OR jewelry.  

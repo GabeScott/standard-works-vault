@@ -5,5 +5,5 @@
 [2 Nephi 1:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p8#p8)
 
 
-[^a]: [[3 Nephi 5.20|3 Ne. 5:20.]]
-[^b]: TG [[Nations]].
+[^a]: [[3 Nephi 5.20|3 Ne. 5:20]].  
+[^b]: [[Nations|TG Nations]].  

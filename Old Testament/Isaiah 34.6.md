@@ -5,4 +5,4 @@
 [Isaiah 34:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/34.6?lang=eng#p6)
 
 
-[^a]: [[Jeremiah 46.10|Jer. 46:10.]]
+[^a]: [[Jeremiah 46.10|Jer. 46:10]].  

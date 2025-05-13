@@ -5,4 +5,4 @@
 [Isaiah 45:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.6?lang=eng#p6)
 
 
-[^a]: Mal. 1:11.
+[^a]: [[Malachi 1.11|Mal. 1:11]].  

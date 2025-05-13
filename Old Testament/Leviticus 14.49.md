@@ -5,4 +5,4 @@
 [Leviticus 14:49](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.49?lang=eng#p49)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

@@ -5,5 +5,5 @@
 [Job 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/4.6?lang=eng#p6)
 
 
-[^a]: [[Proverbs 3.26|Prov. 3:26.]]
-[^b]: [[Job 1.1|Job 1:1.]]
+[^a]: [[Proverbs 3.26|Prov. 3:26]].  
+[^b]: [[Job 1.1|Job 1:1]].  

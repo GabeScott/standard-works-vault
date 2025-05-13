@@ -5,6 +5,6 @@
 [Ether 4:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/4?lang=eng&id=p18#p18)
 
 
-[^a]: [[3 Nephi 27.20|3 Ne. 27:20]]; [[Moroni 7.34|Moro. 7:34.]]
-[^b]: [[John 3.5|John 3:5 (3-5)]]. TG [[Baptism, Essential]].
-[^c]: TG [[Holy Ghost, Gifts of]].
+[^a]: [[3 Nephi 27.20|3 Ne. 27:20]]; [[Moroni 7.34|Moro. 7:34]].  
+[^b]: [[John 3.3|John 3:5 (3–5)]][[John 3.4|]][[John 3.5|]]. [[Baptism, Essential|TG Baptism, Essential]].  
+[^c]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  

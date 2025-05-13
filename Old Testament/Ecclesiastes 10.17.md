@@ -5,4 +5,4 @@
 [Ecclesiastes 10:17](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.17?lang=eng#p17)
 
 
-[^a]: TG [[Word of Wisdom]].
+[^a]: [[Word of Wisdom|TG Word of Wisdom]].  

@@ -5,4 +5,4 @@
 [Genesis 31:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.19?lang=eng#p19)
 
 
-[^a]: TG [[Idolatry, Idol]].
+[^a]: [[Idolatry, Idol|TG Idolatry]].  

@@ -5,4 +5,4 @@
 [Matthew 8:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.29?lang=eng#p29)
 
 
-[^a]: GR the appointed hour.
+[^a]: GR the appointed hour.  

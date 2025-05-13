@@ -5,6 +5,6 @@
 [Genesis 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 24.36|Gen. 24:36.]]
-[^b]: TG [[Old Age]].
-[^c]: [[Genesis 17.21|Gen. 17:21.]]
+[^a]: [[Genesis 24.36|Gen. 24:36]].  
+[^b]: [[Old Age|TG Old Age]].  
+[^c]: [[Genesis 17.21|Gen. 17:21]].  

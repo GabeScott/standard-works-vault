@@ -5,4 +5,4 @@
 [Exodus 39:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.34?lang=eng#p34)
 
 
-[^a]: OR screening veil.
+[^a]: OR screening veil.  

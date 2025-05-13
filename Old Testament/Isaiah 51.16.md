@@ -5,4 +5,4 @@
 [Isaiah 51:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.16?lang=eng#p16)
 
 
-[^a]: [[2 Nephi 33.10|2 Ne. 33:10 (10-11)]]; [[Moroni 10.27|Moro. 10:27 (27-29)]]; [[D&C 1.24|D&C 1:24.]]
+[^a]: [[2 Nephi 33.10|2 Ne. 33:10 (10–11)]][[2 Nephi 33.11|]]; [[Moroni 10.27|Moro. 10:27 (27–29)]][[Moroni 10.28|]][[Moroni 10.29|]]; [[D&C 1.24|D&C 1:24]].  

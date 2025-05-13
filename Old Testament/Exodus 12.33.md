@@ -5,4 +5,4 @@
 [Exodus 12:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.33?lang=eng#p33)
 
 
-[^a]: [[Psalms 105.38|Ps. 105:38 (37-38).]]
+[^a]: [[Psalms 105.37|Ps. 105:38 (37–38)]][[Psalms 105.38|]].  

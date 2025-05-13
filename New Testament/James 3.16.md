@@ -5,5 +5,5 @@
 [James 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.16?lang=eng#p16)
 
 
-[^a]: TG [[Envy, Envious]].
-[^b]: TG [[Contention]].
+[^a]: [[Envy, Envious|TG Envy]].  
+[^b]: [[Contention|TG Contention]].  

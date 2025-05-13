@@ -5,4 +5,4 @@
 [1 Nephi 15:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p12#p12)
 
 
-[^a]: [[Genesis 49.22|Gen. 49:22 (22-26)]]; [[1 Nephi 10.12|1 Ne. 10:12 (12-14)]]; [[1 Nephi 19.24|19:24]]. TG [[Israel, Joseph, People of]].
+[^a]: [[Genesis 49.22|Gen. 49:22 (22–26)]][[Genesis 49.23|]][[Genesis 49.24|]][[Genesis 49.25|]][[Genesis 49.26|]]; [[1 Nephi 10.12|1 Ne. 10:12 (12–14)]][[1 Nephi 10.13|]][[1 Nephi 10.14|]]; [[1 Nephi 19.24|19:24]]. [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  

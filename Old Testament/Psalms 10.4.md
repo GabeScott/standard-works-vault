@@ -5,5 +5,5 @@
 [Psalms 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 14.1|Ps. 14:1.]]
-[^b]: [[Alma 30.53|Alma 30:53.]]
+[^a]: [[Psalms 14.1|Ps. 14:1]].  
+[^b]: [[Alma 30.53|Alma 30:53]].  

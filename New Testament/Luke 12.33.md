@@ -5,6 +5,6 @@
 [Luke 12:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.33?lang=eng#p33)
 
 
-[^a]: TG [[Almsgiving]].
-[^b]: TG [[Treasure]].
-[^c]: TG [[Dependability]].
+[^a]: [[Almsgiving|TG Almsgiving]].  
+[^b]: [[Treasure|TG Treasure]].  
+[^c]: [[Dependability|TG Dependability]].  

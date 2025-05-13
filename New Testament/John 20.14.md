@@ -5,4 +5,4 @@
 [John 20:14](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.14?lang=eng#p14)
 
 
-[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^a]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  

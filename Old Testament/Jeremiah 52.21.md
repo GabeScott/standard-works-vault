@@ -5,5 +5,5 @@
 [Jeremiah 52:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.21?lang=eng#p21)
 
 
-[^a]: HEB a line; i.e., its circumference was 12 cubits, about 18 feet, or 5½ meters.
-[^b]: [[1 Kings 7.15|1 Kgs. 7:15.]]
+[^a]: HEB a line; i.e., its circumference was 12 cubits, about 18 feet, or 5½ meters.  
+[^b]: [[1 Kings 7.15|1 Kgs. 7:15]].  

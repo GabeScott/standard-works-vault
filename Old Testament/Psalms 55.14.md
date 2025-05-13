@@ -5,4 +5,4 @@
 [Psalms 55:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/55.14?lang=eng#p14)
 
 
-[^a]: OR fellowship.
+[^a]: OR fellowship.  

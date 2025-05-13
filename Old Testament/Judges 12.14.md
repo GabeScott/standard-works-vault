@@ -5,4 +5,4 @@
 [Judges 12:14](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/12.14?lang=eng#p14)
 
 
-[^a]: HEB grandsons.
+[^a]: HEB grandsons.  

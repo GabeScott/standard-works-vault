@@ -5,4 +5,4 @@
 [Exodus 22:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.30?lang=eng#p30)
 
 
-[^a]: [[Leviticus 22.27|Lev. 22:27.]]
+[^a]: [[Leviticus 22.27|Lev. 22:27]].  

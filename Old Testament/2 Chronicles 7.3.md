@@ -5,4 +5,4 @@
 [2 Chronicles 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.3?lang=eng#p3)
 
 
-[^a]: TG [[Assembly for Worship]].
+[^a]: [[Assembly for Worship|TG Assembly for Worship]].  

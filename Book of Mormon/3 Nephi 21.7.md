@@ -5,4 +5,4 @@
 [3 Nephi 21:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p7#p7)
 
 
-[^a]: [[3 Nephi 5.23|3 Ne. 5:23 (21-26)]]; [[3 Nephi 21.26|21:26.]]
+[^a]: [[3 Nephi 5.21|3 Ne. 5:23 (21–26)]][[3 Nephi 5.22|]][[3 Nephi 5.23|]][[3 Nephi 5.24|]][[3 Nephi 5.25|]][[3 Nephi 5.26|]]; [[3 Nephi 21.26|21:26]].  

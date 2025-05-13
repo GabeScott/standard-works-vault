@@ -5,5 +5,5 @@
 [Ether 8:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p23#p23)
 
 
-[^a]: [[Moses 6.15|Moses 6:15.]]
-[^b]: [[Luke 13.3|Luke 13:3 (1-5).]]
+[^a]: [[Moses 6.15|Moses 6:15]].  
+[^b]: [[Luke 13.1|Luke 13:3 (1–5)]][[Luke 13.2|]][[Luke 13.3|]][[Luke 13.4|]][[Luke 13.5|]].  

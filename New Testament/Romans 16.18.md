@@ -5,5 +5,5 @@
 [Romans 16:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/16.18?lang=eng#p18)
 
 
-[^a]: 2 Pet. 2:3.
-[^b]: GR innocent, guileless.
+[^a]: [[2 Peter 2.3|2 Pet. 2:3]].  
+[^b]: GR innocent, guileless.  

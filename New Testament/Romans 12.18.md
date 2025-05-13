@@ -5,4 +5,4 @@
 [Romans 12:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.18?lang=eng#p18)
 
 
-[^a]: [[Proverbs 3.30|Prov. 3:30]]. TG [[Peace of God]]; [[Peace of God]]makers.
+[^a]: [[Proverbs 3.30|Prov. 3:30]]. [[Peace|TG Peace]]; [[Peacemakers|Peacemakers]].  

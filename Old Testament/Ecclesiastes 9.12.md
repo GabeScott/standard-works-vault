@@ -5,4 +5,4 @@
 [Ecclesiastes 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.12?lang=eng#p12)
 
 
-[^a]: [[Proverbs 7.23|Prov. 7:23 (21-23).]]
+[^a]: [[Proverbs 7.21|Prov. 7:23 (21–23)]][[Proverbs 7.22|]][[Proverbs 7.23|]].  

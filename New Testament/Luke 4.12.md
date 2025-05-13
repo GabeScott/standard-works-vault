@@ -5,4 +5,4 @@
 [Luke 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.12?lang=eng#p12)
 
 
-[^a]: [[Deuteronomy 6.16|Deut. 6:16.]]
+[^a]: [[Deuteronomy 6.16|Deut. 6:16]].  

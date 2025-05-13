@@ -5,6 +5,6 @@
 [Mark 14:33](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.33?lang=eng#p33)
 
 
-[^a]: GR amazed, awestruck, astonished.
-[^b]: GR depressed, dejected, in anguish.
-[^c]: [[Psalms 69.20|Ps. 69:20.]]
+[^a]: GR amazed, awestruck, astonished.  
+[^b]: GR depressed, dejected, in anguish.  
+[^c]: [[Psalms 69.20|Ps. 69:20]].  

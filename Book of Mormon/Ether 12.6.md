@@ -5,8 +5,8 @@
 [Ether 12:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p6#p6)
 
 
-[^a]: [[Hebrews 11.1|Heb. 11:1.]]
-[^b]: [[Romans 8.25|Rom. 8:25 (24-25).]]
-[^c]: [[Alma 32.21|Alma 32:21.]]
-[^d]: [[Leviticus 9.6|Lev. 9:6 (6, 23)]]; [[2 Nephi 1.15|2 Ne. 1:15]]. TG [[Sign Seekers]].
-[^e]: [[3 Nephi 26.11|3 Ne. 26:11]]. TG [[Testament]].
+[^a]: [[Hebrews 11.1|Heb. 11:1]].  
+[^b]: [[Romans 8.24|Rom. 8:25 (24–25)]][[Romans 8.25|]].  
+[^c]: [[Alma 32.21|Alma 32:21]].  
+[^d]: [[Leviticus 9.6|Lev. 9:6 (6, 23)]][[Leviticus 9.23|]]; [[2 Nephi 1.15|2 Ne. 1:15]]. [[Sign Seekers|TG Sign Seekers]].  
+[^e]: [[3 Nephi 26.11|3 Ne. 26:11]]. [[Test, Try, Prove|TG Test]].  

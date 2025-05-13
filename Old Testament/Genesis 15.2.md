@@ -5,4 +5,4 @@
 [Genesis 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 24.2|Gen. 24:2.]]
+[^a]: [[Genesis 24.2|Gen. 24:2]].  

@@ -5,5 +5,5 @@
 [Matthew 16:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.28?lang=eng#p28)
 
 
-[^a]: TG [[Translated Beings]].
-[^b]: TG [[Millennium, Preparing a People for]].
+[^a]: [[Translated Beings|TG Translated Beings]].  
+[^b]: [[Millennium|TG Millennium]].  

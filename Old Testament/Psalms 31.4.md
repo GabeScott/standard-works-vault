@@ -5,5 +5,5 @@
 [Psalms 31:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 9.15|Ps. 9:15]]; [[Psalms 25.15|25:15.]]
-[^b]: OR secretly.
+[^a]: [[Psalms 9.15|Ps. 9:15]]; [[Psalms 25.15|25:15]].  
+[^b]: OR secretly.  

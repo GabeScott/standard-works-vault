@@ -5,5 +5,5 @@
 [Psalms 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.13?lang=eng#p13)
 
 
-[^b]: [[Psalms 119.133|Ps. 119:133.]]
-[^c]: TG [[Transgressor]].
+[^b]: [[Psalms 119.133|Ps. 119:133]].  
+[^c]: [[Transgress, Transgression|TG Transgress]].  

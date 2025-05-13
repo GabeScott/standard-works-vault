@@ -5,6 +5,6 @@
 [Exodus 29:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.2?lang=eng#p2)
 
 
-[^a]: [[Leviticus 2.4|Lev. 2:4.]]
-[^b]: HEB mingled.
-[^c]: OR smeared.
+[^a]: [[Leviticus 2.4|Lev. 2:4]].  
+[^b]: HEB mingled.  
+[^c]: OR smeared.  

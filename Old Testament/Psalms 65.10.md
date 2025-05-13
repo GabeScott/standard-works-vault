@@ -5,4 +5,4 @@
 [Psalms 65:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/65.10?lang=eng#p10)
 
 
-[^a]: OR growth.
+[^a]: OR growth.  

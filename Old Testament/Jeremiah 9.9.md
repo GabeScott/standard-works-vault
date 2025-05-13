@@ -5,5 +5,5 @@
 [Jeremiah 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.9?lang=eng#p9)
 
 
-[^a]: [[Mosiah 12.1|Mosiah 12:1]]; [[D&C 124.50|D&C 124:50.]]
-[^b]: [[Jeremiah 5.9|Jer. 5:9 (9, 29)]]; [[Jeremiah 44.22|44:22.]]
+[^a]: [[Mosiah 12.1|Mosiah 12:1]]; [[D&C 124.50|D&C 124:50]].  
+[^b]: [[Jeremiah 5.9|Jer. 5:9 (9, 29)]][[Jeremiah 5.29|]]; [[Jeremiah 44.22|44:22]].  

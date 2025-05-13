@@ -5,5 +5,5 @@
 [Nehemiah 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/5.14?lang=eng#p14)
 
 
-[^a]: [[Mosiah 27.5|Mosiah 27:5.]]
-[^b]: [[Mosiah 2.14|Mosiah 2:14 (12, 14).]]
+[^a]: [[Mosiah 27.5|Mosiah 27:5]].  
+[^b]: [[Mosiah 2.12|Mosiah 2:14 (12, 14)]][[Mosiah 2.14|]].  

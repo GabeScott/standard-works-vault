@@ -5,4 +5,4 @@
 [2 Nephi 20:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p32#p32)
 
 
-[^a]: [[1 Samuel 21.1|1 Sam. 21:1]]; [[1 Samuel 22.19|22:19]]; [[Nehemiah 11.32|Neh. 11:32.]]
+[^a]: [[1 Samuel 21.1|1 Sam. 21:1]]; [[1 Samuel 22.19|22:19]]; [[Nehemiah 11.32|Neh. 11:32]].  

@@ -5,5 +5,5 @@
 [Daniel 5:16](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.16?lang=eng#p16)
 
 
-[^a]: [[Alma 10.2|Alma 10:2.]]
-[^b]: Dan. 2:26; [[Mosiah 8.13|Mosiah 8:13 (13-18)]]; [[D&C 8.1|D&C 8:1 (1-5).]]
+[^a]: [[Alma 10.2|Alma 10:2]].  
+[^b]: [[Daniel 2.26|Dan. 2:26]]; [[Mosiah 8.13|Mosiah 8:13 (13–18)]][[Mosiah 8.14|]][[Mosiah 8.15|]][[Mosiah 8.16|]][[Mosiah 8.17|]][[Mosiah 8.18|]]; [[D&C 8.1|D&C 8:1 (1–5)]][[D&C 8.2|]][[D&C 8.3|]][[D&C 8.4|]][[D&C 8.5|]].  

@@ -5,5 +5,5 @@
 [Psalms 96:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/96.8?lang=eng#p8)
 
 
-[^a]: [[Moses 4.2|Moses 4:2.]]
-[^b]: [[Psalms 116.19|Ps. 116:19.]]
+[^a]: [[Moses 4.2|Moses 4:2]].  
+[^b]: [[Psalms 116.19|Ps. 116:19]].  

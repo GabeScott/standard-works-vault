@@ -5,5 +5,5 @@
 [1 Nephi 11:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p32#p32)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
-[^b]: [[Mark 15.19|Mark 15:19 (17-20)]]; [[Luke 9.44|Luke 9:44 (44-45).]]
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  
+[^b]: [[Mark 15.17|Mark 15:19 (17–20)]][[Mark 15.18|]][[Mark 15.19|]][[Mark 15.20|]]; [[Luke 9.44|Luke 9:44 (44–45)]][[Luke 9.45|]].  

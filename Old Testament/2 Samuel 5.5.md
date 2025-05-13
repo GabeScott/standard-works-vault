@@ -5,5 +5,5 @@
 [2 Samuel 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.5?lang=eng#p5)
 
 
-[^a]: [[2 Samuel 2.4|2 Sam. 2:4.]]
-[^b]: [[2 Samuel 2.11|2 Sam. 2:11]]; [[1 Chronicles 3.4|1 Chr. 3:4.]]
+[^a]: [[2 Samuel 2.4|2 Sam. 2:4]].  
+[^b]: [[2 Samuel 2.11|2 Sam. 2:11]]; [[1 Chronicles 3.4|1 Chr. 3:4]].  

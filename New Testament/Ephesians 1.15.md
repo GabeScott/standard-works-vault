@@ -5,4 +5,4 @@
 [Ephesians 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.15?lang=eng#p15)
 
 
-[^a]: Col. 1:4 (4-5).
+[^a]: [[Colossians 1.4|Col. 1:4 (4–5)]][[Colossians 1.5|]].  

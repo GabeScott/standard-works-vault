@@ -5,4 +5,4 @@
 [1 Kings 11:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.13?lang=eng#p13)
 
 
-[^a]: [[1 Kings 12.20|1 Kgs. 12:20.]]
+[^a]: [[1 Kings 12.20|1 Kgs. 12:20]].  

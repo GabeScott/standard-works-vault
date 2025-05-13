@@ -5,5 +5,5 @@
 [Isaiah 66:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.12?lang=eng#p12)
 
 
-[^a]: IE abundantly.
-[^b]: [[D&C 35.7|D&C 35:7.]]
+[^a]: IE abundantly.  
+[^b]: [[D&C 35.7|D&C 35:7]].  

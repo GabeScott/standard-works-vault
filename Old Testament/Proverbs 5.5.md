@@ -5,5 +5,5 @@
 [Proverbs 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/5.5?lang=eng#p5)
 
 
-[^a]: TG [[Sexual Immorality]].
-[^b]: TG [[Damnation, Damned]].
+[^a]: [[Sexual Immorality|TG Sexual Immorality]].  
+[^b]: [[Damnation, Damned|TG Damnation]].  

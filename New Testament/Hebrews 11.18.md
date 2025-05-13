@@ -5,5 +5,5 @@
 [Hebrews 11:18](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.18?lang=eng#p18)
 
 
-[^a]: TG [[Seed of Abraham]].
-[^b]: TG [[Abrahamic Covenant]].
+[^a]: [[Seed of Abraham|TG Seed of Abraham]].  
+[^b]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  

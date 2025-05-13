@@ -5,7 +5,7 @@
 [1 Samuel 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/1.11?lang=eng#p11)
 
 
-[^a]: [[Judges 11.30|Judg. 11:30 (30-31).]]
-[^b]: TG [[Vow]].
-[^c]: [[Luke 1.48|Luke 1:48 (48-49).]]
-[^d]: [[Numbers 6.5|Num. 6:5 (1-8)]]; [[Judges 13.5|Judg. 13:5.]]
+[^a]: [[Judges 11.30|Judg. 11:30 (30–31)]][[Judges 11.31|]].  
+[^b]: [[Vow|TG Vow]].  
+[^c]: [[Luke 1.48|Luke 1:48 (48–49)]][[Luke 1.49|]].  
+[^d]: [[Numbers 6.1|Num. 6:5 (1–8)]][[Numbers 6.2|]][[Numbers 6.3|]][[Numbers 6.4|]][[Numbers 6.5|]][[Numbers 6.6|]][[Numbers 6.7|]][[Numbers 6.8|]]; [[Judges 13.5|Judg. 13:5]].  

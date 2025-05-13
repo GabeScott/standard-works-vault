@@ -5,4 +5,4 @@
 [Leviticus 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.16?lang=eng#p16)
 
 
-[^a]: TG [[Gossip]]; [[Honesty]].
+[^a]: [[Gossip|TG Gossip]]; [[Honesty|Honesty]].  

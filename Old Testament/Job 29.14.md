@@ -5,4 +5,4 @@
 [Job 29:14](https://www.churchofjesuschrist.org/study/scriptures/ot/job/29.14?lang=eng#p14)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Righteousness|TG Righteousness]].  

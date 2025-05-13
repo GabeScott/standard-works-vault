@@ -5,5 +5,5 @@
 [Judges 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7.3?lang=eng#p3)
 
 
-[^a]: [[Deuteronomy 20.8|Deut. 20:8.]]
-[^b]: OR Mount Gilboa.
+[^a]: [[Deuteronomy 20.8|Deut. 20:8]].  
+[^b]: OR Mount Gilboa.  

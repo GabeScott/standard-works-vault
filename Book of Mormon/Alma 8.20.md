@@ -5,5 +5,5 @@
 [Alma 8:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 10.7|Alma 10:7 (7-9).]]
-[^b]: [[1 Kings 17.11|1 Kgs. 17:11 (8-13).]]
+[^a]: [[Alma 10.7|Alma 10:7 (7–9)]][[Alma 10.8|]][[Alma 10.9|]].  
+[^b]: [[1 Kings 17.8|1 Kgs. 17:11 (8–13)]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]].  

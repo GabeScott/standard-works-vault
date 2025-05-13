@@ -5,4 +5,4 @@
 [Psalms 22:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.22?lang=eng#p22)
 
 
-[^a]: [[Hebrews 2.12|Heb. 2:12.]]
+[^a]: [[Hebrews 2.12|Heb. 2:12]].  

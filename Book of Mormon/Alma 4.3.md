@@ -5,4 +5,4 @@
 [Alma 4:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Corinthians 15.34|1 Cor. 15:34 (33-34).]]
+[^a]: [[1 Corinthians 15.33|1 Cor. 15:34 (33–34)]][[1 Corinthians 15.34|]].  

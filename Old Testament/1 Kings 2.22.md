@@ -5,5 +5,5 @@
 [1 Kings 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.22?lang=eng#p22)
 
 
-[^a]: [[1 Kings 1.6|1 Kgs. 1:6]]; [[1 Chronicles 3.2|1 Chr. 3:2 (2, 5).]]
-[^b]: [[1 Kings 1.7|1 Kgs. 1:7.]]
+[^a]: [[1 Kings 1.6|1 Kgs. 1:6]]; [[1 Chronicles 3.2|1 Chr. 3:2 (2, 5)]][[1 Chronicles 3.5|]].  
+[^b]: [[1 Kings 1.7|1 Kgs. 1:7]].  

@@ -5,4 +5,4 @@
 [Leviticus 4:26](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.26?lang=eng#p26)
 
 
-[^a]: [[2 Chronicles 29.24|2 Chr. 29:24.]]
+[^a]: [[2 Chronicles 29.24|2 Chr. 29:24]].  

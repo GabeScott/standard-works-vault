@@ -5,4 +5,4 @@
 [Luke 10:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.28?lang=eng#p28)
 
 
-[^a]: [[Leviticus 18.5|Lev. 18:5.]]
+[^a]: [[Leviticus 18.5|Lev. 18:5]].  

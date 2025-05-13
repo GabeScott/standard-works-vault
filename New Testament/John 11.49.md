@@ -5,5 +5,5 @@
 [John 11:49](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.49?lang=eng#p49)
 
 
-[^a]: [[Matthew 26.3|Matt. 26:3 (3-5).]]
-[^b]: TG [[Priesthood, Aaronic]].
+[^a]: [[Matthew 26.3|Matt. 26:3 (3–5)]][[Matthew 26.4|]][[Matthew 26.5|]].  
+[^b]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  

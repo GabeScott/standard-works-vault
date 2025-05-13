@@ -5,4 +5,4 @@
 [Luke 2:30](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.30?lang=eng#p30)
 
 
-[^a]: [[Psalms 67.2|Ps. 67:2.]]
+[^a]: [[Psalms 67.2|Ps. 67:2]].  

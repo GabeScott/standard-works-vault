@@ -5,4 +5,4 @@
 [Jeremiah 38:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/38.6?lang=eng#p6)
 
 
-[^a]: HEB the king.
+[^a]: HEB the king.  

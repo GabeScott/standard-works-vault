@@ -5,4 +5,4 @@
 [Matthew 26:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.12?lang=eng#p12)
 
 
-[^a]: GR to prepare me for my burial.
+[^a]: GR to prepare me for my burial.  

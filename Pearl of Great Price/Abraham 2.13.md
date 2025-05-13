@@ -5,4 +5,4 @@
 [Abraham 2:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/2.13?lang=eng#p13)
 
 
-[^a]: [[Abraham 1.15|Abr. 1:15 (15-17).]]
+[^a]: [[Abraham 1.15|Abr. 1:15 (15–17)]][[Abraham 1.16|]][[Abraham 1.17|]].  

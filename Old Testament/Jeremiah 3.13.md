@@ -5,4 +5,4 @@
 [Jeremiah 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.13?lang=eng#p13)
 
 
-[^a]: TG [[Disobedience, Disobey]].
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  

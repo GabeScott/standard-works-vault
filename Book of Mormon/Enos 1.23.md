@@ -5,7 +5,7 @@
 [Enos 1:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p23#p23)
 
 
-[^a]: [[1 Nephi 16.2|1 Ne. 16:2 (1-3)]]; [[2 Nephi 33.5|2 Ne. 33:5]]; W of M 1:17.
-[^b]: TG [[Preaching, Preach]].
-[^c]: [[Helaman 12.3|Hel. 12:3.]]
-[^d]: [[Jarom 1.12|Jarom 1:12]]; [[Alma 4.19|Alma 4:19]]; [[Alma 31.5|31:5.]]
+[^a]: [[1 Nephi 16.1|1 Ne. 16:2 (1–3)]][[1 Nephi 16.2|]][[1 Nephi 16.3|]]; [[2 Nephi 33.5|2 Ne. 33:5]]; [[Words of Mormon 1.17|W of M 1:17]].  
+[^b]: [[Preaching, Preach|TG Preaching]].  
+[^c]: [[Helaman 12.3|Hel. 12:3]].  
+[^d]: [[Jarom 1.12|Jarom 1:12]]; [[Alma 4.19|Alma 4:19]]; [[Alma 31.5|31:5]].  

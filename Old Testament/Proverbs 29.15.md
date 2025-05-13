@@ -5,8 +5,8 @@
 [Proverbs 29:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.15?lang=eng#p15)
 
 
-[^a]: [[Proverbs 13.24|Prov. 13:24.]]
-[^b]: TG [[Chastening]]; [[Reproof, Reprove]].
-[^c]: TG [[Family, Children, Responsibilities toward]].
-[^d]: TG [[Marriage, Motherhood]].
-[^e]: TG [[Shame]].
+[^a]: [[Proverbs 13.24|Prov. 13:24]].  
+[^b]: [[Chastening|TG Chastening]]; [[Reproof, Reprove|Reproof]].  
+[^c]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  
+[^d]: [[Marriage, Motherhood|TG Marriage, Motherhood]].  
+[^e]: [[Shame|TG Shame]].  

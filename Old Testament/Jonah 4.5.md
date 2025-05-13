@@ -5,4 +5,4 @@
 [Jonah 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/4.5?lang=eng#p5)
 
 
-[^a]: OR shelter.
+[^a]: OR shelter.  

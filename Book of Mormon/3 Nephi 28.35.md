@@ -5,5 +5,5 @@
 [3 Nephi 28:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p35#p35)
 
 
-[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].
-[^b]: [[Helaman 12.2|Hel. 12:2.]]
+[^a]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  
+[^b]: [[Helaman 12.2|Hel. 12:2]].  

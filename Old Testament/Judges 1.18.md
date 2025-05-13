@@ -5,4 +5,4 @@
 [Judges 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/1.18?lang=eng#p18)
 
 
-[^a]: HEB border (also v. 36).
+[^a]: HEB border (also [[Judges 1.36|v. 36]]).  

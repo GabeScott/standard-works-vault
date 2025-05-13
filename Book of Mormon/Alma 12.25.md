@@ -5,5 +5,5 @@
 [Alma 12:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p25#p25)
 
 
-[^a]: [[2 Nephi 2.8|2 Ne. 2:8]]; [[Alma 7.12|Alma 7:12]]; [[Alma 42.23|42:23.]]
-[^b]: TG [[Redemption]].
+[^a]: [[2 Nephi 2.8|2 Ne. 2:8]]; [[Alma 7.12|Alma 7:12]]; [[Alma 42.23|42:23]].  
+[^b]: [[Redemption|TG Redemption]].  

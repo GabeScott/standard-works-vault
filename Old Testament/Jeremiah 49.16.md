@@ -5,4 +5,4 @@
 [Jeremiah 49:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.16?lang=eng#p16)
 
 
-[^a]: Obad. 1:3 (1-4).
+[^a]: [[Obadiah 1.1|Obad. 1:3 (1–4)]][[Obadiah 1.2|]][[Obadiah 1.3|]][[Obadiah 1.4|]].  

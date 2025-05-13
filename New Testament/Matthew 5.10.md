@@ -5,6 +5,6 @@
 [Matthew 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.10?lang=eng#p10)
 
 
-[^a]: TG [[Affliction]]; [[Persecution, Persecute]].
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: [[D&C 6.37|D&C 6:37]]; [[D&C 10.55|10:55.]]
+[^a]: [[Affliction|TG Affliction]]; [[Persecution, Persecute|Persecution]].  
+[^b]: [[Righteousness|TG Righteousness]].  
+[^c]: [[D&C 6.37|D&C 6:37]]; [[D&C 10.55|10:55]].  

@@ -5,5 +5,5 @@
 [1 Thessalonians 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/3.13?lang=eng#p13)
 
 
-[^a]: [[1 Corinthians 1.7|1 Cor. 1:7 (7-8)]]; 1 Thes. 2:19; [[Revelation 1.7|Rev. 1:7]]; [[Revelation 22.12|22:12.]]
-[^b]: TG [[Mission of Latter-day Saints]].
+[^a]: [[1 Corinthians 1.7|1 Cor. 1:7 (7–8)]][[1 Corinthians 1.8|]]; [[1 Thessalonians 2.19|1 Thes. 2:19]]; [[Revelation 1.7|Rev. 1:7]]; [[Revelation 22.12|22:12]].  
+[^b]: [[Saints|TG Saints]].  

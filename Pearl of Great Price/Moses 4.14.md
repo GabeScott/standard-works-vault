@@ -5,5 +5,5 @@
 [Moses 4:14](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 3.8|Gen. 3:8.]]
-[^b]: [[Jonah 1.3|Jonah 1:3.]]
+[^a]: [[Genesis 3.8|Gen. 3:8]].  
+[^b]: [[Jonah 1.3|Jonah 1:3]].  

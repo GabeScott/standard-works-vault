@@ -5,4 +5,4 @@
 [Mark 7:3](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.3?lang=eng#p3)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

@@ -5,5 +5,5 @@
 [Genesis 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.14?lang=eng#p14)
 
 
-[^a]: OR he led forth.
-[^b]: [[Genesis 15.3|Gen. 15:3.]]
+[^a]: OR he led forth.  
+[^b]: [[Genesis 15.3|Gen. 15:3]].  

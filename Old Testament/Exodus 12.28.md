@@ -5,4 +5,4 @@
 [Exodus 12:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.28?lang=eng#p28)
 
 
-[^a]: [[Hebrews 11.28|Heb. 11:28 (24-29).]]
+[^a]: [[Hebrews 11.24|Heb. 11:28 (24–29)]][[Hebrews 11.25|]][[Hebrews 11.26|]][[Hebrews 11.27|]][[Hebrews 11.28|]][[Hebrews 11.29|]].  

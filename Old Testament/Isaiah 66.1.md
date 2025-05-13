@@ -5,4 +5,4 @@
 [Isaiah 66:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.1?lang=eng#p1)
 
 
-[^a]: [[Matthew 5.34|Matt. 5:34]]. TG [[Kingdom of God, in Heaven]].
+[^a]: [[Matthew 5.34|Matt. 5:34]]. [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  

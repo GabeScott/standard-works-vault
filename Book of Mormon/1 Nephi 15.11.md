@@ -5,5 +5,5 @@
 [1 Nephi 15:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p11#p11)
 
 
-[^a]: [[James 1.5|James 1:5 (5-6)]]. TG [[Prayer, Pray]].
-[^b]: [[1 Nephi 2.19|1 Ne. 2:19 (18-21)]]; [[1 Nephi 7.12|7:12 (9-13).]]
+[^a]: [[James 1.5|James 1:5 (5–6)]][[James 1.6|]]. [[Prayer, Pray|TG Prayer]].  
+[^b]: [[1 Nephi 2.18|1 Ne. 2:19 (18–21)]][[1 Nephi 2.19|]][[1 Nephi 2.20|]][[1 Nephi 2.21|]]; [[1 Nephi 7.9|7:12 (9–13)]][[1 Nephi 7.10|]][[1 Nephi 7.11|]][[1 Nephi 7.12|]][[1 Nephi 7.13|]].  

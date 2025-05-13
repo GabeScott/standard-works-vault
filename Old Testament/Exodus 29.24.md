@@ -5,4 +5,4 @@
 [Exodus 29:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.24?lang=eng#p24)
 
 
-[^a]: OR lift them up as an offering.
+[^a]: OR lift them up as an offering.  

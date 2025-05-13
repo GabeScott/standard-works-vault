@@ -5,5 +5,5 @@
 [Alma 15:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/15?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 4.20|Alma 4:20 (7, 16, 18, 20)]]; [[Alma 16.18|16:18.]]
-[^b]: TG [[Teacher]].
+[^a]: [[Alma 4.7|Alma 4:20 (7, 16, 18, 20)]][[Alma 4.16|]][[Alma 4.18|]][[Alma 4.20|]]; [[Alma 16.18|16:18]].  
+[^b]: [[Teacher|TG Teacher]].  

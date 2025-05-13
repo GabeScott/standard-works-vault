@@ -5,5 +5,5 @@
 [Alma 9:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p30#p30)
 
 
-[^a]: 1 Jn. 4:11.
-[^b]: [[Alma 12.22|Alma 12:22.]]
+[^a]: [[1 John 4.11|1 Jn. 4:11]].  
+[^b]: [[Alma 12.22|Alma 12:22]].  

@@ -5,6 +5,6 @@
 [1 Timothy 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/3.4?lang=eng#p4)
 
 
-[^a]: TG [[Marriage, Husbands]].
-[^b]: TG [[Marriage, Fatherhood]].
-[^c]: TG [[Family, Children, Responsibilities toward]]; [[Family, Patriarchal]].
+[^a]: [[Marriage, Husbands|TG Marriage, Husbands]].  
+[^b]: [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  
+[^c]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]]; [[Family, Patriarchal|Family, Patriarchal]].  

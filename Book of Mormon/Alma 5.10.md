@@ -5,4 +5,4 @@
 [Alma 5:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Save]].
+[^a]: [[Save|TG Save]].  

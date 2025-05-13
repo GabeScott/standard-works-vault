@@ -5,5 +5,5 @@
 [Deuteronomy 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.6?lang=eng#p6)
 
 
-[^a]: HEB lower.
-[^b]: OR it is as if he took.
+[^a]: HEB lower.  
+[^b]: OR it is as if he took.  

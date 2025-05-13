@@ -5,4 +5,4 @@
 [Luke 7:49](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.49?lang=eng#p49)
 
 
-[^a]: TG [[Remission of Sins]].
+[^a]: [[Remission of Sins|TG Remission of Sins]].  

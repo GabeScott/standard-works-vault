@@ -5,4 +5,4 @@
 [2 Chronicles 30:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.5?lang=eng#p5)
 
 
-[^a]: OR in such great numbers.
+[^a]: OR in such great numbers.  

@@ -5,4 +5,4 @@
 [Psalms 38:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/38.20?lang=eng#p20)
 
 
-[^a]: [[Psalms 35.12|Ps. 35:12.]]
+[^a]: [[Psalms 35.12|Ps. 35:12]].  

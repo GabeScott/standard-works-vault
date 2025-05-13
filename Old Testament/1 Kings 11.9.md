@@ -5,5 +5,5 @@
 [1 Kings 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.9?lang=eng#p9)
 
 
-[^a]: TG [[Apostasy of Individuals]].
-[^b]: [[1 Kings 3.5|1 Kgs. 3:5]]; [[1 Kings 9.2|9:2]]. TG [[God, Privilege of Seeing]].
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  
+[^b]: [[1 Kings 3.5|1 Kgs. 3:5]]; [[1 Kings 9.2|9:2]]. [[God, Privilege of Seeing|TG God, Privilege of Seeing]].  

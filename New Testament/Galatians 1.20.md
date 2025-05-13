@@ -5,4 +5,4 @@
 [Galatians 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.20?lang=eng#p20)
 
 
-[^a]: TG [[Scriptures, Writing of]].
+[^a]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  

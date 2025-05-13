@@ -5,5 +5,5 @@
 [Isaiah 42:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 64.12|Isa. 64:12.]]
-[^b]: [[Mosiah 12.8|Mosiah 12:8.]]
+[^a]: [[Isaiah 64.12|Isa. 64:12]].  
+[^b]: [[Mosiah 12.8|Mosiah 12:8]].  

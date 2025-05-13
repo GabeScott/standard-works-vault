@@ -5,5 +5,5 @@
 [1 John 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.3?lang=eng#p3)
 
 
-[^a]: [[D&C 50.32|D&C 50:32.]]
-[^b]: TG [[Antichrist]].
+[^a]: [[D&C 50.32|D&C 50:32]].  
+[^b]: [[Antichrist|TG Antichrist]].  

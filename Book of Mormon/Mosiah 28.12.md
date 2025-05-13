@@ -5,4 +5,4 @@
 [Mosiah 28:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/28?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 8.8|Mosiah 8:8.]]
+[^a]: [[Mosiah 8.8|Mosiah 8:8]].  

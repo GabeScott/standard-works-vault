@@ -5,4 +5,4 @@
 [3 Nephi 19:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p30#p30)
 
 
-[^a]: [[Matthew 17.2|Matt. 17:2.]]
+[^a]: [[Matthew 17.2|Matt. 17:2]].  

@@ -5,4 +5,4 @@
 [Mosiah 18:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p20#p20)
 
 
-[^a]: TG [[Preaching, Preach]]; [[Repent, Repentance]].
+[^a]: [[Preaching, Preach|TG Preaching]]; [[Repent, Repentance|Repent]].  

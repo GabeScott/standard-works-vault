@@ -5,4 +5,4 @@
 [Matthew 18:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.10?lang=eng#p10)
 
 
-[^a]: TG [[Children]]; Family, [[Children]], Responsibilities toward.
+[^a]: [[Children|TG Children]]; [[Family, Children, Responsibilities toward|Family, Children, Responsibilities toward]].  

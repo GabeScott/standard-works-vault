@@ -5,4 +5,4 @@
 [1 Chronicles 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/13.14?lang=eng#p14)
 
 
-[^a]: [[1 Chronicles 26.5|1 Chr. 26:5 (4-5).]]
+[^a]: [[1 Chronicles 26.4|1 Chr. 26:5 (4–5)]][[1 Chronicles 26.5|]].  

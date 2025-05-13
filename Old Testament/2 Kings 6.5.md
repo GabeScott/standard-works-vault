@@ -5,4 +5,4 @@
 [2 Kings 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/6.5?lang=eng#p5)
 
 
-[^a]: TG [[Borrow, Borrowing]].
+[^a]: [[Borrow, Borrowing|TG Borrow]].  

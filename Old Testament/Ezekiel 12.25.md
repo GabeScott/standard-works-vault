@@ -5,5 +5,5 @@
 [Ezekiel 12:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.25?lang=eng#p25)
 
 
-[^a]: [[Isaiah 55.11|Isa. 55:11.]]
-[^b]: TG [[Promise]].
+[^a]: [[Isaiah 55.11|Isa. 55:11]].  
+[^b]: [[Promise|TG Promise]].  

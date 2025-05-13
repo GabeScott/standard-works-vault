@@ -5,4 +5,4 @@
 [Romans 9:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.17?lang=eng#p17)
 
 
-[^a]: [[Exodus 9.16|Ex. 9:16 (15-17).]]
+[^a]: [[Exodus 9.15|Ex. 9:16 (15–17)]][[Exodus 9.16|]][[Exodus 9.17|]].  

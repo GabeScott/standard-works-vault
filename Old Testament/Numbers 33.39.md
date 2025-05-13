@@ -5,4 +5,4 @@
 [Numbers 33:39](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.39?lang=eng#p39)
 
 
-[^a]: [[Exodus 7.7|Ex. 7:7.]]
+[^a]: [[Exodus 7.7|Ex. 7:7]].  

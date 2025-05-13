@@ -5,4 +5,4 @@
 [Joshua 9:27](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.27?lang=eng#p27)
 
 
-[^a]: [[Deuteronomy 31.11|Deut. 31:11 (9-13).]]
+[^a]: [[Deuteronomy 31.9|Deut. 31:11 (9–13)]][[Deuteronomy 31.10|]][[Deuteronomy 31.11|]][[Deuteronomy 31.12|]][[Deuteronomy 31.13|]].  

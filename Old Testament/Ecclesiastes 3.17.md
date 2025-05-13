@@ -5,4 +5,4 @@
 [Ecclesiastes 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.17?lang=eng#p17)
 
 
-[^a]: TG [[Jesus Christ, Judge]]; [[Judgment, the Last]].
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]]; [[Judgment, the Last|Judgment, the Last]].  

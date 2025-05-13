@@ -5,5 +5,5 @@
 [Galatians 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.9?lang=eng#p9)
 
 
-[^a]: TG [[False Doctrine]].
-[^b]: [[2 Nephi 28.15|2 Ne. 28:15.]]
+[^a]: [[False Doctrine|TG False Doctrine]].  
+[^b]: [[2 Nephi 28.15|2 Ne. 28:15]].  

@@ -5,4 +5,4 @@
 [Acts 12:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/12.9?lang=eng#p9)
 
 
-[^a]: OR knew.
+[^a]: OR knew.  

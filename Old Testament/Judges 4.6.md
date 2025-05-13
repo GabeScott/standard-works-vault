@@ -5,4 +5,4 @@
 [Judges 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.6?lang=eng#p6)
 
 
-[^a]: [[Hebrews 11.32|Heb. 11:32.]]
+[^a]: [[Hebrews 11.32|Heb. 11:32]].  

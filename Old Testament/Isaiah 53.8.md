@@ -5,5 +5,5 @@
 [Isaiah 53:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.8?lang=eng#p8)
 
 
-[^a]: [[Mosiah 15.10|Mosiah 15:10.]]
-[^b]: TG [[Remission of Sins]]; [[Transgressor]].
+[^a]: [[Mosiah 15.10|Mosiah 15:10]].  
+[^b]: [[Remission of Sins|TG Remission of Sins]]; [[Transgress, Transgression|Transgress]].  

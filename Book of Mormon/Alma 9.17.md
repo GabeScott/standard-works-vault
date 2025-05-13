@@ -5,5 +5,5 @@
 [Alma 9:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p17#p17)
 
 
-[^a]: [[Enos 1.13|Enos 1:13.]]
-[^b]: [[Psalms 81.7|Ps. 81:7]]; [[Alma 38.5|Alma 38:5]]; [[D&C 3.8|D&C 3:8.]]
+[^a]: [[Enos 1.13|Enos 1:13]].  
+[^b]: [[Psalms 81.7|Ps. 81:7]]; [[Alma 38.5|Alma 38:5]]; [[D&C 3.8|D&C 3:8]].  

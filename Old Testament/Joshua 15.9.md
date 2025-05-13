@@ -5,4 +5,4 @@
 [Joshua 15:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.9?lang=eng#p9)
 
 
-[^a]: HEB inclined.
+[^a]: HEB inclined.  

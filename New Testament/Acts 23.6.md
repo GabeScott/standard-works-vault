@@ -5,6 +5,6 @@
 [Acts 23:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.6?lang=eng#p6)
 
 
-[^a]: [[Acts 26.5|Acts 26:5]]; Philip. 3:5.
-[^b]: [[Acts 28.20|Acts 28:20.]]
-[^c]: [[Acts 24.21|Acts 24:21.]]
+[^a]: [[Acts 26.5|Acts 26:5]]; [[Philippians 3.5|Philip. 3:5]].  
+[^b]: [[Acts 28.20|Acts 28:20]].  
+[^c]: [[Acts 24.21|Acts 24:21]].  

@@ -5,4 +5,4 @@
 [Genesis 47:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.21?lang=eng#p21)
 
 
-[^a]: Samaritan and Septuagint: he made them slaves, or serfs.
+[^a]: Samaritan and Septuagint: he made them slaves, or serfs.  

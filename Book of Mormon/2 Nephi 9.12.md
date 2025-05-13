@@ -5,11 +5,11 @@
 [2 Nephi 9:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Death, Spiritual, First]].
-[^b]: [[D&C 76.84|D&C 76:84.]]
-[^c]: [[D&C 138.18|D&C 138:18.]]
-[^d]: TG [[Bondage, Spiritual]]; [[Spirits in Prison]].
-[^e]: TG [[Spirits, Disembodied]].
-[^f]: TG [[Body, Sanctity of]].
-[^g]: TG [[Spirit Body]].
-[^h]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Death, Spiritual, First|TG Death, Spiritual, First]].  
+[^b]: [[D&C 76.84|D&C 76:84]].  
+[^c]: [[D&C 138.18|D&C 138:18]].  
+[^d]: [[Bondage, Spiritual|TG Bondage, Spiritual]]; [[Spirits in Prison|Spirits in Prison]].  
+[^e]: [[Spirits, Disembodied|TG Spirits, Disembodied]].  
+[^f]: [[Body, Sanctity of|TG Body, Sanctity of]].  
+[^g]: [[Spirit Body|TG Spirit Body]].  
+[^h]: [[Resurrection|TG Resurrection]].  

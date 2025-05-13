@@ -5,5 +5,5 @@
 [Exodus 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 34.18|Ex. 34:18]]; [[Exodus 40.2|40:2.]]
-[^b]: [[Exodus 13.4|Ex. 13:4.]]
+[^a]: [[Exodus 34.18|Ex. 34:18]]; [[Exodus 40.2|40:2]].  
+[^b]: [[Exodus 13.4|Ex. 13:4]].  

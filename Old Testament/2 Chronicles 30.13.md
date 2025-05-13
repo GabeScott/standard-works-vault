@@ -5,4 +5,4 @@
 [2 Chronicles 30:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.13?lang=eng#p13)
 
 
-[^a]: TG [[Bread, Unleavened]]; [[Passover]].
+[^a]: [[Bread, Unleavened|TG Bread, Unleavened]]; [[Passover|Passover]].  

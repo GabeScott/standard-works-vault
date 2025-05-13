@@ -5,4 +5,4 @@
 [Ezekiel 44:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.10?lang=eng#p10)
 
 
-[^a]: OR guilt.
+[^a]: OR guilt.  

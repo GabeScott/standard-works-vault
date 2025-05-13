@@ -5,4 +5,4 @@
 [Daniel 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.3?lang=eng#p3)
 
 
-[^a]: TG [[Kingdom of God, on Earth]].
+[^a]: [[Kingdom of God, on Earth|TG Kingdom of God, on Earth]].  

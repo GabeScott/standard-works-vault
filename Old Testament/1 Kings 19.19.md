@@ -5,4 +5,4 @@
 [1 Kings 19:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/19.19?lang=eng#p19)
 
 
-[^a]: [[2 Kings 2.8|2 Kgs. 2:8.]]
+[^a]: [[2 Kings 2.8|2 Kgs. 2:8]].  

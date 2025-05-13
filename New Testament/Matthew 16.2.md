@@ -5,4 +5,4 @@
 [Matthew 16:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.2?lang=eng#p2)
 
 
-[^a]: [[Proverbs 26.5|Prov. 26:5.]]
+[^a]: [[Proverbs 26.5|Prov. 26:5]].  

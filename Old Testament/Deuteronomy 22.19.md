@@ -5,5 +5,5 @@
 [Deuteronomy 22:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.19?lang=eng#p19)
 
 
-[^a]: OR fine.
-[^b]: TG [[Name of the Lord]].
+[^a]: OR fine.  
+[^b]: [[Name|TG Name]].  

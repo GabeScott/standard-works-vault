@@ -5,4 +5,4 @@
 [Deuteronomy 14:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.17?lang=eng#p17)
 
 
-[^a]: HEB vulture.
+[^a]: HEB vulture.  

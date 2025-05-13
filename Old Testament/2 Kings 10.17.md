@@ -5,4 +5,4 @@
 [2 Kings 10:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.17?lang=eng#p17)
 
 
-[^a]: [[2 Kings 9.8|2 Kgs. 9:8.]]
+[^a]: [[2 Kings 9.8|2 Kgs. 9:8]].  

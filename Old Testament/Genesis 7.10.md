@@ -5,4 +5,4 @@
 [Genesis 7:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/7.10?lang=eng#p10)
 
 
-[^a]: TG [[Flood, Noah’s]].
+[^a]: [[Flood|TG Flood]].  

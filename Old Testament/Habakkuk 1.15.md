@@ -5,5 +5,5 @@
 [Habakkuk 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/1.15?lang=eng#p15)
 
 
-[^a]: OR hook.
-[^b]: OR net.
+[^a]: OR hook.  
+[^b]: OR net.  

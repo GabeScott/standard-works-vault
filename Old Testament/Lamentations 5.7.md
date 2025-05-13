@@ -5,5 +5,5 @@
 [Lamentations 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/5.7?lang=eng#p7)
 
 
-[^a]: TG [[Marriage, Fatherhood]].
-[^b]: [[Jeremiah 31.29|Jer. 31:29]]; [[Ezekiel 18.2|Ezek. 18:2]]; [[Mosiah 13.13|Mosiah 13:13.]]
+[^a]: [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  
+[^b]: [[Jeremiah 31.29|Jer. 31:29]]; [[Ezekiel 18.2|Ezek. 18:2]]; [[Mosiah 13.13|Mosiah 13:13]].  

@@ -5,4 +5,4 @@
 [1 John 4:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.13?lang=eng#p13)
 
 
-[^a]: 1 Jn. 3:24.
+[^a]: [[1 John 3.24|1 Jn. 3:24]].  

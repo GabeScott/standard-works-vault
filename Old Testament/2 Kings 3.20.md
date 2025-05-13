@@ -5,4 +5,4 @@
 [2 Kings 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/3.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 29.39|Ex. 29:39 (39-40)]]; [[Mosiah 2.3|Mosiah 2:3.]]
+[^a]: [[Exodus 29.39|Ex. 29:39 (39–40)]][[Exodus 29.40|]]; [[Mosiah 2.3|Mosiah 2:3]].  

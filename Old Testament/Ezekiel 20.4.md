@@ -5,4 +5,4 @@
 [Ezekiel 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.4?lang=eng#p4)
 
 
-[^a]: [[Ezekiel 16.2|Ezek. 16:2.]]
+[^a]: [[Ezekiel 16.2|Ezek. 16:2]].  

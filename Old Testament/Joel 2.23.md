@@ -5,6 +5,6 @@
 [Joel 2:23](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.23?lang=eng#p23)
 
 
-[^a]: [[Psalms 149.2|Ps. 149:2]]; [[D&C 84.56|D&C 84:56.]]
-[^b]: [[Leviticus 26.4|Lev. 26:4 (3-4).]]
-[^c]: [[Deuteronomy 11.14|Deut. 11:14]]; [[Zechariah 10.1|Zech. 10:1.]]
+[^a]: [[Psalms 149.2|Ps. 149:2]]; [[D&C 84.56|D&C 84:56]].  
+[^b]: [[Leviticus 26.3|Lev. 26:4 (3–4)]][[Leviticus 26.4|]].  
+[^c]: [[Deuteronomy 11.14|Deut. 11:14]]; [[Zechariah 10.1|Zech. 10:1]].  

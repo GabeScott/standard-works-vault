@@ -5,6 +5,6 @@
 [Matthew 12:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.18?lang=eng#p18)
 
 
-[^a]: GR son.
-[^b]: TG [[Jesus Christ, Authority of]].
-[^c]: TG [[Witness of the Father]].
+[^a]: GR son.  
+[^b]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^c]: [[Witness of the Father|TG Witness of the Father]].  

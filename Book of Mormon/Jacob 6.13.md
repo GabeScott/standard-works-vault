@@ -5,5 +5,5 @@
 [Jacob 6:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/6?lang=eng&id=p13#p13)
 
 
-[^a]: [[Moroni 10.34|Moro. 10:34.]]
-[^b]: [[Alma 40.14|Alma 40:14.]]
+[^a]: [[Moroni 10.34|Moro. 10:34]].  
+[^b]: [[Alma 40.14|Alma 40:14]].  

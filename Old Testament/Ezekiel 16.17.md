@@ -5,4 +5,4 @@
 [Ezekiel 16:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.17?lang=eng#p17)
 
 
-[^a]: TG [[Idolatry, Idol]].
+[^a]: [[Idolatry, Idol|TG Idolatry]].  

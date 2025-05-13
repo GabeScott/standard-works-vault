@@ -5,6 +5,6 @@
 [2 Nephi 3:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p11#p11)
 
 
-[^a]: [[1 Nephi 21.8|1 Ne. 21:8]]; [[3 Nephi 21.11|3 Ne. 21:11 (8-11)]]; [[Mormon 8.16|Morm. 8:16 (16, 25)]]. TG [[Prophets, Mission of]].
-[^b]: [[D&C 5.4|D&C 5:4 (3-4).]]
-[^c]: TG [[Scriptures to Come Forth]].
+[^a]: [[1 Nephi 21.8|1 Ne. 21:8]]; [[3 Nephi 21.8|3 Ne. 21:11 (8–11)]][[3 Nephi 21.9|]][[3 Nephi 21.10|]][[3 Nephi 21.11|]]; [[Mormon 8.16|Morm. 8:16 (16, 25)]][[Mormon 8.25|]]. [[Prophets, Mission of|TG Prophets, Mission of]].  
+[^b]: [[D&C 5.3|D&C 5:4 (3–4)]][[D&C 5.4|]].  
+[^c]: [[Scriptures to Come Forth|TG Scriptures to Come Forth]].  

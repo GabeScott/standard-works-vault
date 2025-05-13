@@ -5,4 +5,4 @@
 [Leviticus 7:24](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.24?lang=eng#p24)
 
 
-[^a]: [[Ezekiel 4.14|Ezek. 4:14.]]
+[^a]: [[Ezekiel 4.14|Ezek. 4:14]].  

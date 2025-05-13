@@ -5,4 +5,4 @@
 [John 4:50](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.50?lang=eng#p50)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Heal, Healing|TG Heal]].  

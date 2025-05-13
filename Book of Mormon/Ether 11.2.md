@@ -5,4 +5,4 @@
 [Ether 11:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Prophets, Rejection of]].
+[^a]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

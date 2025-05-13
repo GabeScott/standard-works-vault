@@ -5,4 +5,4 @@
 [2 Nephi 18:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p7#p7)
 
 
-[^a]: [[Isaiah 10.12|Isa. 10:12.]]
+[^a]: [[Isaiah 10.12|Isa. 10:12]].  

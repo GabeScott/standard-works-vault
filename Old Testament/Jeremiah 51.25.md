@@ -5,4 +5,4 @@
 [Jeremiah 51:25](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.25?lang=eng#p25)
 
 
-[^a]: IE Babylon.
+[^a]: IE Babylon.  

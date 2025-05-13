@@ -5,4 +5,4 @@
 [Moses 1:16](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.16?lang=eng#p16)
 
 
-[^a]: [[Moses 1.6|Moses 1:6]]. TG [[God, Body of, Corporeal Nature]].
+[^a]: [[Moses 1.6|Moses 1:6]]. [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  

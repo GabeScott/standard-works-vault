@@ -5,5 +5,5 @@
 [Leviticus 17:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/17.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 14.8|Ezek. 14:8.]]
-[^b]: TG [[Blood, Eating of]].
+[^a]: [[Ezekiel 14.8|Ezek. 14:8]].  
+[^b]: [[Blood, Eating of|TG Blood, Eating of]].  

@@ -5,5 +5,5 @@
 [Alma 12:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 11.45|Alma 11:45 (41-45).]]
-[^b]: TG [[Judgment, the Last]].
+[^a]: [[Alma 11.41|Alma 11:45 (41–45)]][[Alma 11.42|]][[Alma 11.43|]][[Alma 11.44|]][[Alma 11.45|]].  
+[^b]: [[Judgment, the Last|TG Judgment, the Last]].  

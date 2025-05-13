@@ -5,5 +5,5 @@
 [1 Peter 1:23](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.23?lang=eng#p23)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]].
-[^b]: TG [[Steadfastness, Steadfast]].
+[^a]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  
+[^b]: [[Steadfastness, Steadfast|TG Steadfastness]].  

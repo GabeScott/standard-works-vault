@@ -5,5 +5,5 @@
 [Alma 46:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 48.13|Alma 48:13.]]
-[^b]: TG [[Citizenship]].
+[^a]: [[Alma 48.13|Alma 48:13]].  
+[^b]: [[Citizenship|TG Citizenship]].  

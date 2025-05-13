@@ -5,4 +5,4 @@
 [Acts 7:42](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.42?lang=eng#p42)
 
 
-[^a]: [[Psalms 81.12|Ps. 81:12]]; [[Romans 1.24|Rom. 1:24.]]
+[^a]: [[Psalms 81.12|Ps. 81:12]]; [[Romans 1.24|Rom. 1:24]].  

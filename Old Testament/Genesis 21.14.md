@@ -5,5 +5,5 @@
 [Genesis 21:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 25.6|Gen. 25:6.]]
-[^b]: [[Genesis 21.31|Gen. 21:31.]]
+[^a]: [[Genesis 25.6|Gen. 25:6]].  
+[^b]: [[Genesis 21.31|Gen. 21:31]].  

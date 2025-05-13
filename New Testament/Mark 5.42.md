@@ -5,4 +5,4 @@
 [Mark 5:42](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.42?lang=eng#p42)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Heal, Healing|TG Heal]].  

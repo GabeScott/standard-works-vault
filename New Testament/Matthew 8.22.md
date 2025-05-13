@@ -5,5 +5,5 @@
 [Matthew 8:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.22?lang=eng#p22)
 
 
-[^a]: TG [[Commitment]].
-[^b]: TG [[Death]].
+[^a]: [[Commitment|TG Commitment]].  
+[^b]: [[Death|TG Death]].  

@@ -5,5 +5,5 @@
 [Leviticus 17:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/17.14?lang=eng#p14)
 
 
-[^a]: TG [[Blood, Eating of]].
-[^b]: [[1 Corinthians 15.50|1 Cor. 15:50.]]
+[^a]: [[Blood, Eating of|TG Blood, Eating of]].  
+[^b]: [[1 Corinthians 15.50|1 Cor. 15:50]].  

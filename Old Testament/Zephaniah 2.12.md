@@ -5,4 +5,4 @@
 [Zephaniah 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.12?lang=eng#p12)
 
 
-[^a]: [[Ezekiel 30.5|Ezek. 30:5 (4-5).]]
+[^a]: [[Ezekiel 30.4|Ezek. 30:5 (4–5)]][[Ezekiel 30.5|]].  

@@ -5,4 +5,4 @@
 [Numbers 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/9.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 13.21|Ex. 13:21]]; [[Exodus 14.19|14:19 (19, 24)]]; [[Exodus 40.38|40:38]]; [[Numbers 10.34|Num. 10:34]]; [[2 Chronicles 5.14|2 Chr. 5:14 (13-14).]]
+[^a]: [[Exodus 13.21|Ex. 13:21]]; [[Exodus 14.19|14:19 (19, 24)]][[Exodus 14.24|]]; [[Exodus 40.38|40:38]]; [[Numbers 10.34|Num. 10:34]]; [[2 Chronicles 5.13|2 Chr. 5:14 (13–14)]][[2 Chronicles 5.14|]].  

@@ -5,4 +5,4 @@
 [2 Corinthians 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.1?lang=eng#p1)
 
 
-[^a]: [[D&C 21.1|D&C 21:1.]]
+[^a]: [[D&C 21.1|D&C 21:1]].  

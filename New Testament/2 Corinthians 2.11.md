@@ -5,4 +5,4 @@
 [2 Corinthians 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/2.11?lang=eng#p11)
 
 
-[^a]: 2 Pet. 2:20 (20-22).
+[^a]: [[2 Peter 2.20|2 Pet. 2:20 (20–22)]][[2 Peter 2.21|]][[2 Peter 2.22|]].  

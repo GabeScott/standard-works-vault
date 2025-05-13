@@ -5,5 +5,5 @@
 [2 Kings 19:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.21?lang=eng#p21)
 
 
-[^a]: Lam. 2:13.
-[^b]: TG [[Laughter, Laugh]].
+[^a]: [[Lamentations 2.13|Lam. 2:13]].  
+[^b]: [[Laughter, Laugh|TG Laughter]].  

@@ -5,5 +5,5 @@
 [Mosiah 18:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p26#p26)
 
 
-[^a]: TG [[Israel, Blessings of]]; [[Reward]]; [[Wages]].
-[^b]: [[Nehemiah 10.28|Neh. 10:28 (28-31)]]. TG [[God, Knowledge about]].
+[^a]: [[Blessing|TG Blessing]]; [[Reward|Reward]]; [[Wages|Wages]].  
+[^b]: [[Nehemiah 10.28|Neh. 10:28 (28–31)]][[Nehemiah 10.29|]][[Nehemiah 10.30|]][[Nehemiah 10.31|]]. [[God, Knowledge about|TG God, Knowledge about]].  

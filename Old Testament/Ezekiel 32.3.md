@@ -5,4 +5,4 @@
 [Ezekiel 32:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/32.3?lang=eng#p3)
 
 
-[^a]: [[Ezekiel 12.13|Ezek. 12:13.]]
+[^a]: [[Ezekiel 12.13|Ezek. 12:13]].  

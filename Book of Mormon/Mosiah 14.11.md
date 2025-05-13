@@ -5,4 +5,4 @@
 [Mosiah 14:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/14?lang=eng&id=p11#p11)
 
 
-[^a]: [[Leviticus 16.22|Lev. 16:22 (21-22)]]; [[1 Peter 3.18|1 Pet. 3:18]]; [[D&C 19.16|D&C 19:16 (16-19).]]
+[^a]: [[Leviticus 16.21|Lev. 16:22 (21–22)]][[Leviticus 16.22|]]; [[1 Peter 3.18|1 Pet. 3:18]]; [[D&C 19.16|D&C 19:16 (16–19)]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]].  

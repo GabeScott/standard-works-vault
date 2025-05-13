@@ -5,4 +5,4 @@
 [Psalms 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/5.10?lang=eng#p10)
 
 
-[^a]: [[Mosiah 15.26|Mosiah 15:26 (26-27)]]; [[Helaman 8.25|Hel. 8:25.]]
+[^a]: [[Mosiah 15.26|Mosiah 15:26 (26–27)]][[Mosiah 15.27|]]; [[Helaman 8.25|Hel. 8:25]].  

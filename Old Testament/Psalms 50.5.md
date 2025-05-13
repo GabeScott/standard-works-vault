@@ -5,6 +5,6 @@
 [Psalms 50:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.5?lang=eng#p5)
 
 
-[^a]: TG [[Mission of Latter-day Saints]].
-[^b]: TG [[Covenants]].
-[^c]: TG [[Self-Sacrifice]].
+[^a]: [[Saints|TG Saints]].  
+[^b]: [[Covenants|TG Covenants]].  
+[^c]: [[Sacrifice|TG Sacrifice]].  

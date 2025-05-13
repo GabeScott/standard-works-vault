@@ -5,6 +5,6 @@
 [2 Thessalonians 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.16?lang=eng#p16)
 
 
-[^a]: 1 Jn. 4:10.
-[^b]: [[2 Corinthians 1.4|2 Cor. 1:4]]; Philip. 3:10.
-[^c]: TG [[Grace]].
+[^a]: [[1 John 4.10|1 Jn. 4:10]].  
+[^b]: [[2 Corinthians 1.4|2 Cor. 1:4]]; [[Philippians 3.10|Philip. 3:10]].  
+[^c]: [[Grace|TG Grace]].  

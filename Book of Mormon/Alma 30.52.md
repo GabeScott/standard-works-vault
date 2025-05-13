@@ -5,5 +5,5 @@
 [Alma 30:52](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p52#p52)
 
 
-[^a]: [[2 Chronicles 13.20|2 Chr. 13:20.]]
-[^b]: [[Alma 30.42|Alma 30:42 (41-42).]]
+[^a]: [[2 Chronicles 13.20|2 Chr. 13:20]].  
+[^b]: [[Alma 30.41|Alma 30:42 (41–42)]][[Alma 30.42|]].  

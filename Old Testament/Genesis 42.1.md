@@ -5,4 +5,4 @@
 [Genesis 42:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.1?lang=eng#p1)
 
 
-[^a]: [[Acts 7.12|Acts 7:12.]]
+[^a]: [[Acts 7.12|Acts 7:12]].  

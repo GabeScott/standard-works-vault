@@ -5,5 +5,5 @@
 [2 Thessalonians 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.8?lang=eng#p8)
 
 
-[^a]: GR Lawless one.
-[^b]: TG [[Jesus Christ, Second Coming]].
+[^a]: GR Lawless one.  
+[^b]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  

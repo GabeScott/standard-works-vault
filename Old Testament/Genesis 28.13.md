@@ -5,6 +5,6 @@
 [Genesis 28:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.13?lang=eng#p13)
 
 
-[^b]: OR beside him.
-[^c]: TG [[Jesus Christ, Jehovah]].
-[^d]: TG [[Promised Lands]].
+[^b]: OR beside him.  
+[^c]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^d]: [[Promised Lands|TG Promised Lands]].  

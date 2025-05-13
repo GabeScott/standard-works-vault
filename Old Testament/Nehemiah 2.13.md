@@ -5,7 +5,7 @@
 [Nehemiah 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/2.13?lang=eng#p13)
 
 
-[^a]: IE the name of a gate in the wall of Jerusalem, approx. modern Jaffa gate.
-[^b]: [[Nehemiah 3.13|Neh. 3:13.]]
-[^c]: OR fountain of the jackals—a well located near Jerusalem.
-[^d]: IE another gate in the wall of Jerusalem at approx. junction of Hinnom and Tyropoeon valleys. Neh. 3:13; 12:31.
+[^a]: IE the name of a gate in the wall of Jerusalem, approx. modern Jaffa gate.  
+[^b]: [[Nehemiah 3.13|Neh. 3:13]].  
+[^c]: OR fountain of the jackals—a well located near Jerusalem.  
+[^d]: IE another gate in the wall of Jerusalem at approx. junction of Hinnom and Tyropoeon valleys. [[Nehemiah 3.13|Neh. 3:13]]; [[Nehemiah 12.31|12:31]].  

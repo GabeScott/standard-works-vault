@@ -5,5 +5,5 @@
 [Job 27:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/27.6?lang=eng#p6)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: [[Alma 29.5|Alma 29:5.]]
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Alma 29.5|Alma 29:5]].  

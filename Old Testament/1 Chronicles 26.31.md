@@ -5,4 +5,4 @@
 [1 Chronicles 26:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/26.31?lang=eng#p31)
 
 
-[^a]: [[1 Chronicles 24.23|1 Chr. 24:23.]]
+[^a]: [[1 Chronicles 24.23|1 Chr. 24:23]].  

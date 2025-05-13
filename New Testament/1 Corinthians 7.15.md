@@ -5,4 +5,4 @@
 [1 Corinthians 7:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.15?lang=eng#p15)
 
 
-[^a]: GR in.
+[^a]: GR in.  

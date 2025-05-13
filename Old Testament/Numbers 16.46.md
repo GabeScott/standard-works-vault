@@ -5,4 +5,4 @@
 [Numbers 16:46](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.46?lang=eng#p46)
 
 
-[^a]: TG [[Plague]].
+[^a]: [[Plague|TG Plague]].  

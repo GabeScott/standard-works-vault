@@ -5,5 +5,5 @@
 [Jeremiah 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.10?lang=eng#p10)
 
 
-[^a]: TG [[Abstain, Abstinence]]; [[Self-Mastery]].
-[^b]: TG [[Apostasy of Israel]].
+[^a]: [[Abstain, Abstinence|TG Abstain]]; [[Self-Mastery|Self-Mastery]].  
+[^b]: [[Apostasy of Israel|TG Apostasy of Israel]].  

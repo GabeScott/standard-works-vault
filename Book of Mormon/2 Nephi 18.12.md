@@ -5,4 +5,4 @@
 [2 Nephi 18:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p12#p12)
 
 
-[^a]: [[Isaiah 31.1|Isa. 31:1 (1-3).]]
+[^a]: [[Isaiah 31.1|Isa. 31:1 (1–3)]][[Isaiah 31.2|]][[Isaiah 31.3|]].  

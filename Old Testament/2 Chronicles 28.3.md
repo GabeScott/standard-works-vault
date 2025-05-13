@@ -5,4 +5,4 @@
 [2 Chronicles 28:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.3?lang=eng#p3)
 
 
-[^a]: [[2 Kings 21.6|2 Kgs. 21:6]]; [[2 Chronicles 33.6|2 Chr. 33:6]]; [[Ezekiel 20.26|Ezek. 20:26.]]
+[^a]: [[2 Kings 21.6|2 Kgs. 21:6]]; [[2 Chronicles 33.6|2 Chr. 33:6]]; [[Ezekiel 20.26|Ezek. 20:26]].  

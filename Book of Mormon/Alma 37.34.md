@@ -5,4 +5,4 @@
 [Alma 37:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p34#p34)
 
 
-[^a]: [[Matthew 11.29|Matt. 11:29 (28-30).]]
+[^a]: [[Matthew 11.28|Matt. 11:29 (28–30)]][[Matthew 11.29|]][[Matthew 11.30|]].  

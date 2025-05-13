@@ -5,6 +5,6 @@
 [Ephesians 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.10?lang=eng#p10)
 
 
-[^a]: TG [[Dispensations]]; [[Last Days]]; [[Restoration of the Gospel]].
-[^b]: TG [[Israel, Gathering of]].
-[^c]: TG [[Jesus Christ, Power of]].
+[^a]: [[Dispensations|TG Dispensations]]; [[Last Days|Last Days]]; [[Restoration of the Gospel|Restoration of the Gospel]].  
+[^b]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^c]: [[Jesus Christ, Power of|TG Jesus Christ, Power of]].  

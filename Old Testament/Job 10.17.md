@@ -5,4 +5,4 @@
 [Job 10:17](https://www.churchofjesuschrist.org/study/scriptures/ot/job/10.17?lang=eng#p17)
 
 
-[^a]: [[Psalms 55.19|Ps. 55:19.]]
+[^a]: [[Psalms 55.19|Ps. 55:19]].  

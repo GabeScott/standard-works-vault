@@ -5,4 +5,4 @@
 [Proverbs 20:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.15?lang=eng#p15)
 
 
-[^a]: [[Job 28.18|Job 28:18 (12-19).]]
+[^a]: [[Job 28.12|Job 28:18 (12–19)]][[Job 28.13|]][[Job 28.14|]][[Job 28.15|]][[Job 28.16|]][[Job 28.17|]][[Job 28.18|]][[Job 28.19|]].  

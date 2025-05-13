@@ -5,4 +5,4 @@
 [1 Kings 20:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.12?lang=eng#p12)
 
 
-[^a]: HEB booths, shelters.
+[^a]: HEB booths, shelters.  

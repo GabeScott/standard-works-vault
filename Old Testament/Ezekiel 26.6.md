@@ -5,4 +5,4 @@
 [Ezekiel 26:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.6?lang=eng#p6)
 
 
-[^a]: [[1 Nephi 21.26|1 Ne. 21:26 (25-26)]]; [[Mosiah 11.22|Mosiah 11:22 (20-22)]]; [[D&C 43.25|D&C 43:25.]]
+[^a]: [[1 Nephi 21.25|1 Ne. 21:26 (25–26)]][[1 Nephi 21.26|]]; [[Mosiah 11.20|Mosiah 11:22 (20–22)]][[Mosiah 11.21|]][[Mosiah 11.22|]]; [[D&C 43.25|D&C 43:25]].  

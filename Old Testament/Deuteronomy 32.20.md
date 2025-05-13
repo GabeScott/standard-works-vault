@@ -5,6 +5,6 @@
 [Deuteronomy 32:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.20?lang=eng#p20)
 
 
-[^a]: [[Isaiah 8.17|Isa. 8:17.]]
-[^b]: HEB perverse.
-[^c]: OR faithfulness. TG [[Faith]].
+[^a]: [[Isaiah 8.17|Isa. 8:17]].  
+[^b]: HEB perverse.  
+[^c]: OR faithfulness. [[Faith|TG Faith]].  

@@ -5,6 +5,6 @@
 [Psalms 132:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/132.11?lang=eng#p11)
 
 
-[^a]: [[Luke 1.55|Luke 1:55 (54-55)]]; [[Galatians 3.16|Gal. 3:16.]]
-[^b]: TG [[Jesus Christ, Davidic Descent of]].
-[^c]: TG [[Jesus Christ, Millennial Reign]].
+[^a]: [[Luke 1.54|Luke 1:55 (54–55)]][[Luke 1.55|]]; [[Galatians 3.16|Gal. 3:16]].  
+[^b]: [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  
+[^c]: [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]].  

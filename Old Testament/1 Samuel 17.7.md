@@ -5,4 +5,4 @@
 [1 Samuel 17:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.7?lang=eng#p7)
 
 
-[^a]: [[2 Samuel 21.19|2 Sam. 21:19.]]
+[^a]: [[2 Samuel 21.19|2 Sam. 21:19]].  

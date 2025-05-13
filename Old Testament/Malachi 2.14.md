@@ -5,4 +5,4 @@
 [Malachi 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 54.6|Isa. 54:6]]. TG [[Marriage, Marry]].
+[^a]: [[Isaiah 54.6|Isa. 54:6]]. [[Marriage, Marry|TG Marriage, Marry]].  

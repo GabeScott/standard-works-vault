@@ -5,6 +5,6 @@
 [Lamentations 4:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/4.10?lang=eng#p10)
 
 
-[^a]: TG [[Woman, Women]].
-[^b]: [[Leviticus 26.29|Lev. 26:29]]; [[Deuteronomy 28.57|Deut. 28:57 (56-57).]]
-[^c]: [[Jeremiah 19.9|Jer. 19:9.]]
+[^a]: [[Woman, Women|TG Woman]].  
+[^b]: [[Leviticus 26.29|Lev. 26:29]]; [[Deuteronomy 28.56|Deut. 28:57 (56–57)]][[Deuteronomy 28.57|]].  
+[^c]: [[Jeremiah 19.9|Jer. 19:9]].  

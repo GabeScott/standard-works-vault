@@ -5,7 +5,7 @@
 [Deuteronomy 33:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.17?lang=eng#p17)
 
 
-[^a]: [[D&C 133.32|D&C 133:32 (32-34).]]
-[^b]: HEB the wild ox.
-[^c]: [[D&C 58.45|D&C 58:45 (44-45).]]
-[^d]: TG [[Israel, Joseph, People of]].
+[^a]: [[D&C 133.32|D&C 133:32 (32–34)]][[D&C 133.33|]][[D&C 133.34|]].  
+[^b]: HEB the wild ox.  
+[^c]: [[D&C 58.44|D&C 58:45 (44–45)]][[D&C 58.45|]].  
+[^d]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  

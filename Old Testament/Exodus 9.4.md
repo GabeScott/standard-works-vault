@@ -5,4 +5,4 @@
 [Exodus 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.4?lang=eng#p4)
 
 
-[^a]: OR segregate, distinguish between.
+[^a]: OR segregate, distinguish between.  

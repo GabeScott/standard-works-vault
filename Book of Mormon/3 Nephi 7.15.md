@@ -5,4 +5,4 @@
 [3 Nephi 7:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p15#p15)
 
 
-[^a]: [[3 Nephi 1.2|3 Ne. 1:2 (2-3, 10)]]; [[3 Nephi 11.18|11:18.]]
+[^a]: [[3 Nephi 1.2|3 Ne. 1:2 (2–3, 10)]][[3 Nephi 1.3|]][[3 Nephi 1.10|]]; [[3 Nephi 11.18|11:18]].  

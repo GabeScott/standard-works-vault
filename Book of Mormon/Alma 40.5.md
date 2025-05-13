@@ -5,5 +5,5 @@
 [Alma 40:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p5#p5)
 
 
-[^a]: 1 Thes. 4:16; [[Mosiah 26.25|Mosiah 26:25 (24-25)]]; [[D&C 43.18|D&C 43:18]]; [[D&C 76.85|76:85.]]
-[^b]: TG [[God, Omniscience of]].
+[^a]: [[1 Thessalonians 4.16|1 Thes. 4:16]]; [[Mosiah 26.24|Mosiah 26:25 (24–25)]][[Mosiah 26.25|]]; [[D&C 43.18|D&C 43:18]]; [[D&C 76.85|76:85]].  
+[^b]: [[God, Omniscience of|TG God, Omniscience of]].  

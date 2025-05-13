@@ -5,4 +5,4 @@
 [Romans 6:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.20?lang=eng#p20)
 
 
-[^a]: GR unrestricted by.
+[^a]: GR unrestricted by.  

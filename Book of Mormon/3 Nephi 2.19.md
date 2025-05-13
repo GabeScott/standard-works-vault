@@ -5,4 +5,4 @@
 [3 Nephi 2:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/2?lang=eng&id=p19#p19)
 
 
-[^a]: [[Alma 60.29|Alma 60:29]]; [[Helaman 13.5|Hel. 13:5]]; [[3 Nephi 3.3|3 Ne. 3:3.]]
+[^a]: [[Alma 60.29|Alma 60:29]]; [[Helaman 13.5|Hel. 13:5]]; [[3 Nephi 3.3|3 Ne. 3:3]].  

@@ -5,4 +5,4 @@
 [Leviticus 4:23](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.23?lang=eng#p23)
 
 
-[^a]: [[2 Kings 12.16|2 Kgs. 12:16.]]
+[^a]: [[2 Kings 12.16|2 Kgs. 12:16]].  

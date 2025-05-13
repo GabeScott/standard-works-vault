@@ -5,4 +5,4 @@
 [Matthew 25:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.25?lang=eng#p25)
 
 
-[^a]: [[D&C 60.2|D&C 60:2 (2-3, 13).]]
+[^a]: [[D&C 60.2|D&C 60:2 (2–3, 13)]][[D&C 60.3|]][[D&C 60.13|]].  

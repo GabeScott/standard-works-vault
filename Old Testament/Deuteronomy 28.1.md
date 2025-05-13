@@ -5,5 +5,5 @@
 [Deuteronomy 28:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.1?lang=eng#p1)
 
 
-[^a]: TG [[Obedience, Obedient, Obey]].
-[^b]: [[Deuteronomy 26.19|Deut. 26:19.]]
+[^a]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^b]: [[Deuteronomy 26.19|Deut. 26:19]].  

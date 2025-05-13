@@ -5,4 +5,4 @@
 [John 4:46](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.46?lang=eng#p46)
 
 
-[^a]: [[Luke 4.23|Luke 4:23 (23-24).]]
+[^a]: [[Luke 4.23|Luke 4:23 (23–24)]][[Luke 4.24|]].  

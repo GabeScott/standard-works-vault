@@ -5,4 +5,4 @@
 [Alma 60:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p10#p10)
 
 
-[^a]: [[Exodus 3.9|Ex. 3:9]]; [[Psalms 9.12|Ps. 9:12.]]
+[^a]: [[Exodus 3.9|Ex. 3:9]]; [[Psalms 9.12|Ps. 9:12]].  

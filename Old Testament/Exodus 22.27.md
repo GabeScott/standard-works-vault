@@ -5,5 +5,5 @@
 [Exodus 22:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.27?lang=eng#p27)
 
 
-[^a]: OR only covering.
-[^b]: OR compassionate. TG [[Grace]].
+[^a]: OR only covering.  
+[^b]: OR compassionate. [[Grace|TG Grace]].  

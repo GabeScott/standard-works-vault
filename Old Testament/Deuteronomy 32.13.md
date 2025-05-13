@@ -5,4 +5,4 @@
 [Deuteronomy 32:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.13?lang=eng#p13)
 
 
-[^a]: [[Deuteronomy 33.29|Deut. 33:29]]; [[Isaiah 58.14|Isa. 58:14]]; Hab. 3:19.
+[^a]: [[Deuteronomy 33.29|Deut. 33:29]]; [[Isaiah 58.14|Isa. 58:14]]; [[Habakkuk 3.19|Hab. 3:19]].  

@@ -5,4 +5,4 @@
 [Leviticus 4:22](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.22?lang=eng#p22)
 
 
-[^a]: OR president or prince. [[D&C 63.55|D&C 63:55]].
+[^a]: OR president or prince. [[D&C 63.55|D&C 63:55]].  

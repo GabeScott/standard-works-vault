@@ -5,4 +5,4 @@
 [Proverbs 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.3?lang=eng#p3)
 
 
-[^a]: TG [[Edification, Edify]]; [[Teachable]].
+[^a]: [[Edification, Edify|TG Edification]]; [[Teachable|Teachable]].  

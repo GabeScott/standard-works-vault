@@ -5,4 +5,4 @@
 [Hebrews 12:26](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.26?lang=eng#p26)
 
 
-[^a]: TG [[Last Days]].
+[^a]: [[Last Days|TG Last Days]].  

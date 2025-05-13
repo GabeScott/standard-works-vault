@@ -5,7 +5,7 @@
 [Alma 37:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p33#p33)
 
 
-[^a]: TG [[Mission of Early Saints]]; [[Preaching, Preach]].
-[^b]: TG [[Meek, Meekness]].
-[^c]: TG [[Perseverance]]; [[Self-Mastery]].
-[^d]: TG [[Temptation]].
+[^a]: [[Mission of Early Saints|TG Mission of Early Saints]]; [[Preaching, Preach|Preaching]].  
+[^b]: [[Meek, Meekness|TG Meek]].  
+[^c]: [[Perseverance|TG Perseverance]]; [[Self-Mastery|Self-Mastery]].  
+[^d]: [[Temptation|TG Temptation]].  

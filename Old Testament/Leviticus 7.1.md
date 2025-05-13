@@ -5,4 +5,4 @@
 [Leviticus 7:1](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.1?lang=eng#p1)
 
 
-[^a]: HEB teaching concerning.
+[^a]: HEB teaching concerning.  

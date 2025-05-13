@@ -5,4 +5,4 @@
 [Psalms 31:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.19?lang=eng#p19)
 
 
-[^a]: TG [[Reward]].
+[^a]: [[Reward|TG Reward]].  

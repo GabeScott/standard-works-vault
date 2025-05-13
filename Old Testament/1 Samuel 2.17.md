@@ -5,4 +5,4 @@
 [1 Samuel 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.17?lang=eng#p17)
 
 
-[^a]: Mal. 2:8.
+[^a]: [[Malachi 2.8|Mal. 2:8]].  

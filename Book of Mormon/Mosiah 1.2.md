@@ -5,6 +5,6 @@
 [Mosiah 1:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p2#p2)
 
 
-[^a]: [[1 Nephi 1.1|1 Ne. 1:1]]; [[D&C 68.25|D&C 68:25 (25, 28).]]
-[^b]: [[Enos 1.1|Enos 1:1]]; [[Mosiah 4.15|Mosiah 4:15 (14-15).]]
-[^c]: [[Mormon 9.32|Morm. 9:32.]]
+[^a]: [[1 Nephi 1.1|1 Ne. 1:1]]; [[D&C 68.25|D&C 68:25 (25, 28)]][[D&C 68.28|]].  
+[^b]: [[Enos 1.1|Enos 1:1]]; [[Mosiah 4.14|Mosiah 4:15 (14–15)]][[Mosiah 4.15|]].  
+[^c]: [[Mormon 9.32|Morm. 9:32]].  

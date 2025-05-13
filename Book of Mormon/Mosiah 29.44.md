@@ -5,4 +5,4 @@
 [Mosiah 29:44](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p44#p44)
 
 
-[^a]: [[Alma 17.6|Alma 17:6.]]
+[^a]: [[Alma 17.6|Alma 17:6]].  

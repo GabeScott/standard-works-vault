@@ -5,4 +5,4 @@
 [Exodus 20:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.22?lang=eng#p22)
 
 
-[^a]: TG [[God, Manifestations of]].
+[^a]: [[God, Manifestations of|TG God, Manifestations of]].  

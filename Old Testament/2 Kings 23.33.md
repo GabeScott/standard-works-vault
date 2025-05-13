@@ -5,4 +5,4 @@
 [2 Kings 23:33](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.33?lang=eng#p33)
 
 
-[^a]: [[2 Kings 25.6|2 Kgs. 25:6]]; [[Ezekiel 19.4|Ezek. 19:4.]]
+[^a]: [[2 Kings 25.6|2 Kgs. 25:6]]; [[Ezekiel 19.4|Ezek. 19:4]].  

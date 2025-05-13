@@ -5,5 +5,5 @@
 [Acts 21:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.25?lang=eng#p25)
 
 
-[^a]: [[Acts 15.20|Acts 15:20 (19-20).]]
-[^b]: TG [[Fornication]].
+[^a]: [[Acts 15.19|Acts 15:20 (19–20)]][[Acts 15.20|]].  
+[^b]: [[Fornication|TG Fornication]].  

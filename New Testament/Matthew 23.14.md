@@ -5,5 +5,5 @@
 [Matthew 23:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.14?lang=eng#p14)
 
 
-[^a]: TG [[Injustice]].
-[^b]: TG [[Damnation, Damned]].
+[^a]: [[Injustice|TG Injustice]].  
+[^b]: [[Damnation, Damned|TG Damnation]].  

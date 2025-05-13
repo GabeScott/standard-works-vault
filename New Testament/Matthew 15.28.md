@@ -5,4 +5,4 @@
 [Matthew 15:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.28?lang=eng#p28)
 
 
-[^a]: [[James 5.15|James 5:15 (14-15).]]
+[^a]: [[James 5.14|James 5:15 (14–15)]][[James 5.15|]].  

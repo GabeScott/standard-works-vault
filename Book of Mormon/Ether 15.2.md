@@ -5,4 +5,4 @@
 [Ether 15:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/15?lang=eng&id=p2#p2)
 
 
-[^a]: [[Ether 1.43|Ether 1:43.]]
+[^a]: [[Ether 1.43|Ether 1:43]].  

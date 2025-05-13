@@ -5,5 +5,5 @@
 [Proverbs 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/2.5?lang=eng#p5)
 
 
-[^a]: [[Alma 36.7|Alma 36:7.]]
-[^b]: TG [[Knowledge]].
+[^a]: [[Alma 36.7|Alma 36:7]].  
+[^b]: [[Knowledge|TG Knowledge]].  

@@ -5,5 +5,5 @@
 [Exodus 20:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.16?lang=eng#p16)
 
 
-[^a]: TG [[Gossip]]; [[Honesty]]; [[Lying, Liar, Lie]]; [[Slander]].
-[^b]: TG [[Neighbor]].
+[^a]: [[Gossip|TG Gossip]]; [[Honesty|Honesty]]; [[Lying, Liar, Lie|Lying]]; [[Slander|Slander]].  
+[^b]: [[Neighbor|TG Neighbor]].  

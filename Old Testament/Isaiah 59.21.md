@@ -5,4 +5,4 @@
 [Isaiah 59:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.21?lang=eng#p21)
 
 
-[^a]: [[Romans 11.27|Rom. 11:27]]; [[Hebrews 10.16|Heb. 10:16 (16-17)]]; [[D&C 49.9|D&C 49:9 (5-9).]]
+[^a]: [[Romans 11.27|Rom. 11:27]]; [[Hebrews 10.16|Heb. 10:16 (16–17)]][[Hebrews 10.17|]]; [[D&C 49.5|D&C 49:9 (5–9)]][[D&C 49.6|]][[D&C 49.7|]][[D&C 49.8|]][[D&C 49.9|]].  

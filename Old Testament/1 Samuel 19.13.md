@@ -5,4 +5,4 @@
 [1 Samuel 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/19.13?lang=eng#p13)
 
 
-[^a]: [[Judges 17.5|Judg. 17:5.]]
+[^a]: [[Judges 17.5|Judg. 17:5]].  

@@ -5,5 +5,5 @@
 [Alma 14:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/14?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 15.2|Alma 15:2.]]
-[^b]: [[Jeremiah 36.23|Jer. 36:23 (21-28).]]
+[^a]: [[Alma 15.2|Alma 15:2]].  
+[^b]: [[Jeremiah 36.21|Jer. 36:23 (21–28)]][[Jeremiah 36.22|]][[Jeremiah 36.23|]][[Jeremiah 36.24|]][[Jeremiah 36.25|]][[Jeremiah 36.26|]][[Jeremiah 36.27|]][[Jeremiah 36.28|]].  

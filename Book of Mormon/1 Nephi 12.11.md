@@ -5,4 +5,4 @@
 [1 Nephi 12:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/12?lang=eng&id=p11#p11)
 
 
-[^a]: [[2 Nephi 26.9|2 Ne. 26:9 (9-10)]]; [[3 Nephi 27.32|3 Ne. 27:32 (30-32).]]
+[^a]: [[2 Nephi 26.9|2 Ne. 26:9 (9–10)]][[2 Nephi 26.10|]]; [[3 Nephi 27.30|3 Ne. 27:32 (30–32)]][[3 Nephi 27.31|]][[3 Nephi 27.32|]].  

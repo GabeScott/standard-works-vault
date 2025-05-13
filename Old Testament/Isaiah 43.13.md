@@ -5,4 +5,4 @@
 [Isaiah 43:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.13?lang=eng#p13)
 
 
-[^a]: HEB turn it back.
+[^a]: HEB turn it back.  

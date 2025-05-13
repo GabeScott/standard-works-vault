@@ -5,5 +5,5 @@
 [Acts 20:1](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.1?lang=eng#p1)
 
 
-[^a]: TG [[Rioting and Reveling]].
-[^b]: OR greeted, bade farewell, expressed good wishes.
+[^a]: [[Rioting and Reveling|TG Rioting and Reveling]].  
+[^b]: OR greeted, bade farewell, expressed good wishes.  

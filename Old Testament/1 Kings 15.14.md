@@ -5,4 +5,4 @@
 [1 Kings 15:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.14?lang=eng#p14)
 
 
-[^a]: [[Mosiah 29.13|Mosiah 29:13.]]
+[^a]: [[Mosiah 29.13|Mosiah 29:13]].  

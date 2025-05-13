@@ -5,4 +5,4 @@
 [Omni 1:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p28#p28)
 
 
-[^a]: [[Mosiah 9.2|Mosiah 9:2 (1-4).]]
+[^a]: [[Mosiah 9.1|Mosiah 9:2 (1–4)]][[Mosiah 9.2|]][[Mosiah 9.3|]][[Mosiah 9.4|]].  

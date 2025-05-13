@@ -5,4 +5,4 @@
 [Proverbs 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.17?lang=eng#p17)
 
 
-[^a]: TG [[Haughtiness, Haughty]]; [[Pride]].
+[^a]: [[Haughtiness, Haughty|TG Haughtiness]]; [[Pride|Pride]].  

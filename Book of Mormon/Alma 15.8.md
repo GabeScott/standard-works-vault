@@ -5,4 +5,4 @@
 [Alma 15:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/15?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Administrations to the Sick]]; [[Health]].
+[^a]: [[Administrations to the Sick|TG Administrations to the Sick]]; [[Heal, Healing|Heal]].  

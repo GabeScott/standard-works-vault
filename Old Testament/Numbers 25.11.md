@@ -5,4 +5,4 @@
 [Numbers 25:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/25.11?lang=eng#p11)
 
 
-[^a]: [[Exodus 20.5|Ex. 20:5]]; [[Deuteronomy 32.16|Deut. 32:16 (16, 21)]]; [[Mosiah 13.13|Mosiah 13:13.]]
+[^a]: [[Exodus 20.5|Ex. 20:5]]; [[Deuteronomy 32.16|Deut. 32:16 (16, 21)]][[Deuteronomy 32.21|]]; [[Mosiah 13.13|Mosiah 13:13]].  

@@ -5,6 +5,6 @@
 [Exodus 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.6?lang=eng#p6)
 
 
-[^a]: HEB before God; i.e., God’s representatives in judicial matters.
-[^b]: [[Exodus 22.8|Ex. 22:8 (8-9).]]
-[^c]: [[Deuteronomy 15.17|Deut. 15:17.]]
+[^a]: HEB before God; i.e., God’s representatives in judicial matters.  
+[^b]: [[Exodus 22.8|Ex. 22:8 (8–9)]][[Exodus 22.9|]].  
+[^c]: [[Deuteronomy 15.17|Deut. 15:17]].  

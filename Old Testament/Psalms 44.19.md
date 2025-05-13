@@ -5,5 +5,5 @@
 [Psalms 44:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/44.19?lang=eng#p19)
 
 
-[^a]: HEB jackals.
-[^b]: [[Job 3.5|Job 3:5.]]
+[^a]: HEB jackals.  
+[^b]: [[Job 3.5|Job 3:5]].  

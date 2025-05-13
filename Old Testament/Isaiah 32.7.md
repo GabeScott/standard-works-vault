@@ -5,4 +5,4 @@
 [Isaiah 32:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/32.7?lang=eng#p7)
 
 
-[^a]: TG [[Slander]].
+[^a]: [[Slander|TG Slander]].  

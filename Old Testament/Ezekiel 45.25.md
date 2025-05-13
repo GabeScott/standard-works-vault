@@ -5,4 +5,4 @@
 [Ezekiel 45:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.25?lang=eng#p25)
 
 
-[^a]: [[Leviticus 23.34|Lev. 23:34.]]
+[^a]: [[Leviticus 23.34|Lev. 23:34]].  

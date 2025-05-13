@@ -5,4 +5,4 @@
 [Job 30:29](https://www.churchofjesuschrist.org/study/scriptures/ot/job/30.29?lang=eng#p29)
 
 
-[^a]: HEB ostriches.
+[^a]: HEB ostriches.  

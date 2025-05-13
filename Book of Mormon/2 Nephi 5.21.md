@@ -5,8 +5,8 @@
 [2 Nephi 5:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Curse]].
-[^b]: [[Genesis 24.16|Gen. 24:16]]; [[1 Nephi 13.15|1 Ne. 13:15]]; 4 Ne. 1:10; [[Mormon 9.6|Morm. 9:6.]]
-[^c]: TG [[Marriage, Temporal]].
-[^d]: [[2 Nephi 30.6|2 Ne. 30:6]]; [[3 Nephi 2.15|3 Ne. 2:15 (14-16).]]
-[^e]: [[2 Nephi 26.33|2 Ne. 26:33]]; [[Moses 7.8|Moses 7:8.]]
+[^a]: [[Curse|TG Curse]].  
+[^b]: [[Genesis 24.16|Gen. 24:16]]; [[1 Nephi 13.15|1 Ne. 13:15]]; [[4 Nephi 1.10|4 Ne. 1:10]]; [[Mormon 9.6|Morm. 9:6]].  
+[^c]: [[Marriage, Temporal|TG Marriage, Temporal]].  
+[^d]: [[2 Nephi 30.6|2 Ne. 30:6]]; [[3 Nephi 2.14|3 Ne. 2:15 (14–16)]][[3 Nephi 2.15|]][[3 Nephi 2.16|]].  
+[^e]: [[2 Nephi 26.33|2 Ne. 26:33]]; [[Moses 7.8|Moses 7:8]].  

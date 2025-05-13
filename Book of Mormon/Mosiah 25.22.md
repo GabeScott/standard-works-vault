@@ -5,4 +5,4 @@
 [Mosiah 25:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/25?lang=eng&id=p22#p22)
 
 
-[^a]: [[Mosiah 18.17|Mosiah 18:17]]; [[Mosiah 26.4|26:4.]]
+[^a]: [[Mosiah 18.17|Mosiah 18:17]]; [[Mosiah 26.4|26:4]].  

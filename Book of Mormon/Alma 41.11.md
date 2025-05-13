@@ -5,9 +5,9 @@
 [Alma 41:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/41?lang=eng&id=p11#p11)
 
 
-[^a]: [[Mosiah 3.19|Mosiah 3:19]]. TG [[Man, Natural, Not Spiritually Reborn]].
-[^b]: TG [[Carnal Mind]]; [[Fall of Man]].
-[^c]: [[Acts 8.23|Acts 8:23]]; [[Mormon 8.31|Morm. 8:31.]]
-[^d]: TG [[Bondage, Spiritual]].
-[^e]: [[Ephesians 2.12|Eph. 2:12]]; [[Mosiah 27.31|Mosiah 27:31.]]
-[^f]: [[Helaman 13.38|Hel. 13:38.]]
+[^a]: [[Mosiah 3.19|Mosiah 3:19]]. [[Man, Natural, Not Spiritually Reborn|TG Man, Natural, Not Spiritually Reborn]].  
+[^b]: [[Carnal Mind|TG Carnal Mind]]; [[Fall of Man|Fall of Man]].  
+[^c]: [[Acts 8.23|Acts 8:23]]; [[Mormon 8.31|Morm. 8:31]].  
+[^d]: [[Bondage, Spiritual|TG Bondage, Spiritual]].  
+[^e]: [[Ephesians 2.12|Eph. 2:12]]; [[Mosiah 27.31|Mosiah 27:31]].  
+[^f]: [[Helaman 13.38|Hel. 13:38]].  

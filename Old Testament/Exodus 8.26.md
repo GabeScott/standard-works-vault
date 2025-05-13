@@ -5,5 +5,5 @@
 [Exodus 8:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.26?lang=eng#p26)
 
 
-[^a]: OR would not be right.
-[^b]: OR things abominable to.
+[^a]: OR would not be right.  
+[^b]: OR things abominable to.  

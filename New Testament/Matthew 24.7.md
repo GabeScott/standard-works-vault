@@ -5,5 +5,5 @@
 [Matthew 24:7](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.7?lang=eng#p7)
 
 
-[^a]: TG [[Last Days]]; [[Nations]].
-[^b]: TG [[Drought]].
+[^a]: [[Last Days|TG Last Days]]; [[Nations|Nations]].  
+[^b]: [[Drought|TG Drought]].  

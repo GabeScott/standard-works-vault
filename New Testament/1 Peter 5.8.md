@@ -5,6 +5,6 @@
 [1 Peter 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/5.8?lang=eng#p8)
 
 
-[^a]: TG [[Levity]].
-[^b]: TG [[Watch, Watchfulness]].
-[^c]: TG [[Devil, Church of]].
+[^a]: [[Levity|TG Levity]].  
+[^b]: [[Watch, Watchfulness|TG Watch]].  
+[^c]: [[Devil|TG Devil]].  

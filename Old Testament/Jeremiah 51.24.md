@@ -5,4 +5,4 @@
 [Jeremiah 51:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.24?lang=eng#p24)
 
 
-[^a]: [[1 Nephi 14.3|1 Ne. 14:3.]]
+[^a]: [[1 Nephi 14.3|1 Ne. 14:3]].  

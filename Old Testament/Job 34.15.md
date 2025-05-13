@@ -5,4 +5,4 @@
 [Job 34:15](https://www.churchofjesuschrist.org/study/scriptures/ot/job/34.15?lang=eng#p15)
 
 
-[^a]: TG [[Death]]; [[Man, Physical Creation of]].
+[^a]: [[Death|TG Death]]; [[Man, Physical Creation of|Man, Physical Creation of]].  

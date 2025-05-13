@@ -5,4 +5,4 @@
 [Numbers 18:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.1?lang=eng#p1)
 
 
-[^a]: IE bear any guilt incurred in failure to bear the full responsibility thereof.
+[^a]: IE bear any guilt incurred in failure to bear the full responsibility thereof.  

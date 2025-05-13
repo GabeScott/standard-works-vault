@@ -5,6 +5,6 @@
 [Isaiah 28:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.16?lang=eng#p16)
 
 
-[^a]: [[Helaman 5.12|Hel. 5:12.]]
-[^b]: [[Psalms 87.1|Ps. 87:1]]; [[1 Peter 2.6|1 Pet. 2:6 (6-8)]]. TG [[Jesus Christ, Prophecies about]].
-[^c]: TG [[Cornerstone]].
+[^a]: [[Helaman 5.12|Hel. 5:12]].  
+[^b]: [[Psalms 87.1|Ps. 87:1]]; [[1 Peter 2.6|1 Pet. 2:6 (6–8)]][[1 Peter 2.7|]][[1 Peter 2.8|]]. [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^c]: [[Cornerstone|TG Cornerstone]].  

@@ -5,5 +5,5 @@
 [Psalms 122:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/122.6?lang=eng#p6)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: [[Jarom 1.9|Jarom 1:9]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Alma 37.13|Alma 37:13.]]
+[^a]: [[Peace|TG Peace]].  
+[^b]: [[Jarom 1.9|Jarom 1:9]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Alma 37.13|Alma 37:13]].  

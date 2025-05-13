@@ -5,4 +5,4 @@
 [Jeremiah 50:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.6?lang=eng#p6)
 
 
-[^a]: [[2 Nephi 28.12|2 Ne. 28:12 (9-16).]]
+[^a]: [[2 Nephi 28.9|2 Ne. 28:12 (9–16)]][[2 Nephi 28.10|]][[2 Nephi 28.11|]][[2 Nephi 28.12|]][[2 Nephi 28.13|]][[2 Nephi 28.14|]][[2 Nephi 28.15|]][[2 Nephi 28.16|]].  

@@ -5,4 +5,4 @@
 [Jeremiah 25:32](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.32?lang=eng#p32)
 
 
-[^a]: OR storm.
+[^a]: OR storm.  

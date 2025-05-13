@@ -5,4 +5,4 @@
 [Ezekiel 37:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.5?lang=eng#p5)
 
 
-[^a]: TG [[Breath of Life]].
+[^a]: [[Breath of Life|TG Breath of Life]].  

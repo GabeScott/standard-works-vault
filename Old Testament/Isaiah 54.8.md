@@ -5,8 +5,8 @@
 [Isaiah 54:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 60.10|Isa. 60:10.]]
-[^b]: [[Ezekiel 39.29|Ezek. 39:29.]]
-[^c]: [[Isaiah 8.17|Isa. 8:17]]; [[Isaiah 64.7|64:7.]]
-[^d]: TG [[Kindness]].
-[^e]: TG [[God, Mercy of]].
+[^a]: [[Isaiah 60.10|Isa. 60:10]].  
+[^b]: [[Ezekiel 39.29|Ezek. 39:29]].  
+[^c]: [[Isaiah 8.17|Isa. 8:17]]; [[Isaiah 64.7|64:7]].  
+[^d]: [[Kindness|TG Kindness]].  
+[^e]: [[God, Mercy of|TG God, Mercy of]].  

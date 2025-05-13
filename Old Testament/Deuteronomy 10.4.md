@@ -5,4 +5,4 @@
 [Deuteronomy 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.4?lang=eng#p4)
 
 
-[^a]: TG [[Scriptures, Writing of]].
+[^a]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  

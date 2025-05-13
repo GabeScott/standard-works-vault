@@ -5,6 +5,6 @@
 [1 Chronicles 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.4?lang=eng#p4)
 
 
-[^a]: [[2 Chronicles 29.25|2 Chr. 29:25.]]
-[^b]: TG [[Record Keeping]].
-[^c]: TG [[Thanksgiving]].
+[^a]: [[2 Chronicles 29.25|2 Chr. 29:25]].  
+[^b]: [[Record Keeping|TG Record Keeping]].  
+[^c]: [[Thanksgiving|TG Thanksgiving]].  

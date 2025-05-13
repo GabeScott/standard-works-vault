@@ -5,5 +5,5 @@
 [Judges 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/13.4?lang=eng#p4)
 
 
-[^a]: TG [[Word of Wisdom]].
-[^b]: TG [[Uncleanness, Unclean]].
+[^a]: [[Word of Wisdom|TG Word of Wisdom]].  
+[^b]: [[Uncleanness, Unclean|TG Uncleanness]].  

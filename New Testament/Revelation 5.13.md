@@ -5,5 +5,5 @@
 [Revelation 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/5.13?lang=eng#p13)
 
 
-[^a]: [[D&C 88.104|D&C 88:104.]]
-[^b]: TG [[Jesus Christ, Power of]].
+[^a]: [[D&C 88.104|D&C 88:104]].  
+[^b]: [[Jesus Christ, Power of|TG Jesus Christ, Power of]].  

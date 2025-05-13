@@ -5,5 +5,5 @@
 [1 Peter 4:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.19?lang=eng#p19)
 
 
-[^a]: TG [[God, Will of]].
-[^b]: TG [[Refuge]].
+[^a]: [[God, Will of|TG God, Will of]].  
+[^b]: [[Refuge|TG Refuge]].  

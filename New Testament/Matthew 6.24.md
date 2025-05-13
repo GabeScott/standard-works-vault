@@ -5,8 +5,8 @@
 [Matthew 6:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.24?lang=eng#p24)
 
 
-[^a]: TG [[Loyalty]].
-[^b]: TG [[Service]].
-[^c]: [[Alma 5.39|Alma 5:39 (39-42).]]
-[^d]: TG [[Hate]].
-[^e]: TG [[Idolatry, Idol]]; [[Treasure]]; [[Worldliness]].
+[^a]: [[Loyalty|TG Loyalty]].  
+[^b]: [[Service|TG Service]].  
+[^c]: [[Alma 5.39|Alma 5:39 (39–42)]][[Alma 5.40|]][[Alma 5.41|]][[Alma 5.42|]].  
+[^d]: [[Hate|TG Hate]].  
+[^e]: [[Idolatry, Idol|TG Idolatry]]; [[Treasure|Treasure]]; [[Worldliness|Worldliness]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 28:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.13?lang=eng#p13)
 
 
-[^a]: TG [[Offense, Offend, Offender]].
+[^a]: [[Offense, Offend, Offender|TG Offense]].  

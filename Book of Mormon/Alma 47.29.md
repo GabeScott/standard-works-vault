@@ -5,5 +5,5 @@
 [Alma 47:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/47?lang=eng&id=p29#p29)
 
 
-[^a]: [[Alma 55.5|Alma 55:5.]]
-[^b]: [[Alma 43.11|Alma 43:11]]; [[Alma 62.17|62:17.]]
+[^a]: [[Alma 55.5|Alma 55:5]].  
+[^b]: [[Alma 43.11|Alma 43:11]]; [[Alma 62.17|62:17]].  

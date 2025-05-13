@@ -5,4 +5,4 @@
 [Alma 28:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/28?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 27.22|Alma 27:22]]; [[Alma 30.19|30:19 (1, 19).]]
+[^a]: [[Alma 27.22|Alma 27:22]]; [[Alma 30.1|30:19 (1, 19)]][[Alma 30.19|]].  

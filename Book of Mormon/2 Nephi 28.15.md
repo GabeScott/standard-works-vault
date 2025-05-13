@@ -5,9 +5,9 @@
 [2 Nephi 28:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p15#p15)
 
 
-[^a]: [[Proverbs 3.7|Prov. 3:7 (5-7)]]; [[2 Nephi 15.21|2 Ne. 15:21.]]
-[^b]: TG [[Pride]].
-[^c]: TG [[Hardheartedness, Harden, Hardness]].
-[^d]: [[Matthew 5.19|Matt. 5:19.]]
-[^e]: [[Mosiah 11.2|Mosiah 11:2.]]
-[^f]: [[3 Nephi 29.5|3 Ne. 29:5 (4-7)]]; [[Mormon 9.26|Morm. 9:26.]]
+[^a]: [[Proverbs 3.5|Prov. 3:7 (5–7)]][[Proverbs 3.6|]][[Proverbs 3.7|]]; [[2 Nephi 15.21|2 Ne. 15:21]].  
+[^b]: [[Pride|TG Pride]].  
+[^c]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  
+[^d]: [[Matthew 5.19|Matt. 5:19]].  
+[^e]: [[Mosiah 11.2|Mosiah 11:2]].  
+[^f]: [[3 Nephi 29.4|3 Ne. 29:5 (4–7)]][[3 Nephi 29.5|]][[3 Nephi 29.6|]][[3 Nephi 29.7|]]; [[Mormon 9.26|Morm. 9:26]].  

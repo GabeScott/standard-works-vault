@@ -5,4 +5,4 @@
 [2 Nephi 2:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[God, Foreknowledge of]]; [[God, Intelligence of]]; [[God, Omniscience of]].
+[^a]: [[God, Foreknowledge of|TG God, Foreknowledge of]]; [[God, Intelligence of|God, Intelligence of]]; [[God, Omniscience of|God, Omniscience of]].  

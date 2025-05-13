@@ -5,5 +5,5 @@
 [John 14:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.11?lang=eng#p11)
 
 
-[^a]: [[D&C 50.43|D&C 50:43.]]
-[^b]: TG [[Jesus Christ, Relationships with the Father]].
+[^a]: [[D&C 50.43|D&C 50:43]].  
+[^b]: [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  

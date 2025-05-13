@@ -5,4 +5,4 @@
 [Luke 22:63](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.63?lang=eng#p63)
 
 
-[^a]: TG [[Jesus Christ, Trials of]]; [[Mocking, Mock, Mocker, Mockery]].
+[^a]: [[Jesus Christ, Trials of|TG Jesus Christ, Trials of]]; [[Mocking, Mock, Mocker, Mockery|Mocking]].  

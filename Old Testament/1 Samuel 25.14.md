@@ -5,5 +5,5 @@
 [1 Samuel 25:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.14?lang=eng#p14)
 
 
-[^a]: HEB bless or greet.
-[^b]: HEB swooped upon (as a bird attacking).
+[^a]: HEB bless or greet.  
+[^b]: HEB swooped upon (as a bird attacking).  

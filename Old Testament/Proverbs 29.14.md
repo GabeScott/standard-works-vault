@@ -5,4 +5,4 @@
 [Proverbs 29:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.14?lang=eng#p14)
 
 
-[^a]: TG [[Kings, Earthly]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  

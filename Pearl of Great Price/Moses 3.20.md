@@ -5,4 +5,4 @@
 [Moses 3:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.20?lang=eng#p20)
 
 
-[^a]: TG [[Language]].
+[^a]: [[Language|TG Language]].  

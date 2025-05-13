@@ -5,4 +5,4 @@
 [Joshua 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.12?lang=eng#p12)
 
 
-[^a]: [[Joshua 14.14|Josh. 14:14.]]
+[^a]: [[Joshua 14.14|Josh. 14:14]].  

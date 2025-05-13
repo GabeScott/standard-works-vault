@@ -5,4 +5,4 @@
 [Isaiah 54:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.11?lang=eng#p11)
 
 
-[^a]: TG [[Rock]].
+[^a]: [[Rock|TG Rock]].  

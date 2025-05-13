@@ -5,4 +5,4 @@
 [Leviticus 13:59](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.59?lang=eng#p59)
 
 
-[^a]: [[Leviticus 14.55|Lev. 14:55 (54-57).]]
+[^a]: [[Leviticus 14.54|Lev. 14:55 (54–57)]][[Leviticus 14.55|]][[Leviticus 14.56|]][[Leviticus 14.57|]].  

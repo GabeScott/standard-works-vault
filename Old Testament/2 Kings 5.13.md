@@ -5,4 +5,4 @@
 [2 Kings 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/5.13?lang=eng#p13)
 
 
-[^a]: [[1 Nephi 16.29|1 Ne. 16:29]]; [[Alma 37.7|Alma 37:7 (6-8), 41]]; [[D&C 64.33|D&C 64:33.]]
+[^a]: [[1 Nephi 16.29|1 Ne. 16:29]]; [[Alma 37.6|Alma 37:7 (6–8)]][[Alma 37.7|]][[Alma 37.8|]], [[Alma 37.41|41]]; [[D&C 64.33|D&C 64:33]].  

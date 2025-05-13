@@ -5,4 +5,4 @@
 [Joshua 18:19](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/18.19?lang=eng#p19)
 
 
-[^a]: IE the Dead Sea.
+[^a]: IE the Dead Sea.  

@@ -5,7 +5,7 @@
 [Acts 13:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.2?lang=eng#p2)
 
 
-[^a]: [[Luke 5.35|Luke 5:35]]. TG [[Fast, Fasting]].
-[^b]: TG [[Holy Ghost, Gifts of]].
-[^c]: TG [[Setting Apart]].
-[^d]: TG [[Called of God]].
+[^a]: [[Luke 5.35|Luke 5:35]]. [[Fast, Fasting|TG Fast, Fasting]].  
+[^b]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  
+[^c]: [[Setting Apart|TG Setting Apart]].  
+[^d]: [[Called of God|TG Called of God]].  

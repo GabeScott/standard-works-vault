@@ -5,4 +5,4 @@
 [Matthew 13:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.20?lang=eng#p20)
 
 
-[^a]: [[Zechariah 7.12|Zech. 7:12.]]
+[^a]: [[Zechariah 7.12|Zech. 7:12]].  

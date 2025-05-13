@@ -5,4 +5,4 @@
 [Psalms 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.12?lang=eng#p12)
 
 
-[^a]: HEB afflicted, humbled. TG [[Contrite Heart]]; [[Humility, Humble]].
+[^a]: HEB afflicted, humbled. [[Contrite Heart|TG Contrite Heart]]; [[Humility, Humble|Humility]].  

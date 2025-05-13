@@ -5,4 +5,4 @@
 [Romans 11:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.5?lang=eng#p5)
 
 
-[^a]: TG [[Election, Elect]].
+[^a]: [[Election, Elect|TG Election]].  

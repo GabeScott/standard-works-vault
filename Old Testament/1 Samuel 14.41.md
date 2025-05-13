@@ -5,4 +5,4 @@
 [1 Samuel 14:41](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.41?lang=eng#p41)
 
 
-[^a]: IE Bring forth right.
+[^a]: IE Bring forth right.  

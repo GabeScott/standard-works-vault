@@ -5,10 +5,10 @@
 [Articles of Faith 1:10](https://www.churchofjesuschrist.org/study/scriptures/pgp/a-of-f/1.10?lang=eng#p10)
 
 
-[^a]: [[Isaiah 49.22|Isa. 49:22 (20-22)]]; [[Isaiah 60.4|60:4]]; [[1 Nephi 19.16|1 Ne. 19:16 (16-17)]]. TG [[Israel, Gathering of]].
-[^b]: TG [[Israel, Ten Lost Tribes of]].
-[^c]: [[Ether 13.6|Ether 13:6 (2-11)]]; [[D&C 42.9|D&C 42:9]]; [[D&C 45.66|45:66 (66-67)]]; [[D&C 84.2|84:2 (2-5)]]; [[Moses 7.62|Moses 7:62]]. TG [[Jerusalem, New]]; [[Zion, Sion]].
-[^d]: [[Micah 4.7|Micah 4:7]]. TG [[Jesus Christ, Millennial Reign]].
-[^e]: TG [[Earth, Cleansing of]]; [[Earth, Renewal of]]; [[Eden]].
-[^f]: IE a condition like the Garden of Eden; see Isa. 11:1-9; 35; 51:1-3; 65:17-25; [[Ezekiel 36.35|Ezek. 36:35 (1-38)]]; 2 Ne. 8:1-3. TG [[Paradise, Paradisiacal]].
-[^g]: TG [[Telestial Glory]].
+[^a]: [[Isaiah 49.20|Isa. 49:22 (20–22)]][[Isaiah 49.21|]][[Isaiah 49.22|]]; [[Isaiah 60.4|60:4]]; [[1 Nephi 19.16|1 Ne. 19:16 (16–17)]][[1 Nephi 19.17|]]. [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^b]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  
+[^c]: [[Ether 13.2|Ether 13:6 (2–11)]][[Ether 13.3|]][[Ether 13.4|]][[Ether 13.5|]][[Ether 13.6|]][[Ether 13.7|]][[Ether 13.8|]][[Ether 13.9|]][[Ether 13.10|]][[Ether 13.11|]]; [[D&C 42.9|D&C 42:9]]; [[D&C 45.66|45:66 (66–67)]][[D&C 45.67|]]; [[D&C 84.2|84:2 (2–5)]][[D&C 84.3|]][[D&C 84.4|]][[D&C 84.5|]]; [[Moses 7.62|Moses 7:62]]. [[Jerusalem, New|TG Jerusalem, New]]; [[Zion, Sion|Zion]].  
+[^d]: [[Micah 4.7|Micah 4:7]]. [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]].  
+[^e]: [[Earth, Cleansing of|TG Earth, Cleansing of]]; [[Earth, Renewal of|Earth, Renewal of]]; [[Eden|Eden]].  
+[^f]: IE a condition like the Garden of Eden; see [[Isaiah 11.1|Isa. 11:1–9]][[Isaiah 11.2|]][[Isaiah 11.3|]][[Isaiah 11.4|]][[Isaiah 11.5|]][[Isaiah 11.6|]][[Isaiah 11.7|]][[Isaiah 11.8|]][[Isaiah 11.9|]]; [[Isaiah 35.1|35]][[Isaiah 35.2|]][[Isaiah 35.3|]][[Isaiah 35.4|]][[Isaiah 35.5|]][[Isaiah 35.6|]][[Isaiah 35.7|]][[Isaiah 35.8|]][[Isaiah 35.9|]][[Isaiah 35.10|]]; [[Isaiah 51.1|51:1–3]][[Isaiah 51.2|]][[Isaiah 51.3|]]; [[Isaiah 65.17|65:17–25]][[Isaiah 65.18|]][[Isaiah 65.19|]][[Isaiah 65.20|]][[Isaiah 65.21|]][[Isaiah 65.22|]][[Isaiah 65.23|]][[Isaiah 65.24|]][[Isaiah 65.25|]]; [[Ezekiel 36.1|Ezek. 36:35 (1–38)]][[Ezekiel 36.2|]][[Ezekiel 36.3|]][[Ezekiel 36.4|]][[Ezekiel 36.5|]][[Ezekiel 36.6|]][[Ezekiel 36.7|]][[Ezekiel 36.8|]][[Ezekiel 36.9|]][[Ezekiel 36.10|]][[Ezekiel 36.11|]][[Ezekiel 36.12|]][[Ezekiel 36.13|]][[Ezekiel 36.14|]][[Ezekiel 36.15|]][[Ezekiel 36.16|]][[Ezekiel 36.17|]][[Ezekiel 36.18|]][[Ezekiel 36.19|]][[Ezekiel 36.20|]][[Ezekiel 36.21|]][[Ezekiel 36.22|]][[Ezekiel 36.23|]][[Ezekiel 36.24|]][[Ezekiel 36.25|]][[Ezekiel 36.26|]][[Ezekiel 36.27|]][[Ezekiel 36.28|]][[Ezekiel 36.29|]][[Ezekiel 36.30|]][[Ezekiel 36.31|]][[Ezekiel 36.32|]][[Ezekiel 36.33|]][[Ezekiel 36.34|]][[Ezekiel 36.35|]][[Ezekiel 36.36|]][[Ezekiel 36.37|]][[Ezekiel 36.38|]]; [[2 Nephi 8.1|2 Ne. 8:1–3]][[2 Nephi 8.2|]][[2 Nephi 8.3|]]. [[Paradise, Paradisiacal|TG Paradise]].  
+[^g]: [[Glory|TG Glory]].  

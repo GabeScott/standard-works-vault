@@ -5,4 +5,4 @@
 [Jacob 5:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Israel, Bondage of, in Other Lands]].
+[^a]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  

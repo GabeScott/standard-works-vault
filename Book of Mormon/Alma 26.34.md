@@ -5,4 +5,4 @@
 [Alma 26:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p34#p34)
 
 
-[^a]: [[Alma 24.22|Alma 24:22.]]
+[^a]: [[Alma 24.22|Alma 24:22]].  

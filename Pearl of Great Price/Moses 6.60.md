@@ -5,7 +5,7 @@
 [Moses 6:60](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.60?lang=eng#p60)
 
 
-[^a]: [[Moroni 8.25|Moro. 8:25.]]
-[^b]: TG [[Justification, Justify]].
-[^c]: TG [[Blood, Shedding of]]; [[Blood, Symbolism of]].
-[^d]: TG [[Sanctification, Sanctify]].
+[^a]: [[Moroni 8.25|Moro. 8:25]].  
+[^b]: [[Justification, Justify|TG Justification]].  
+[^c]: [[Blood, Shedding of|TG Blood, Shedding of]]; [[Blood, Symbolism of|Blood, Symbolism of]].  
+[^d]: [[Sanctification, Sanctify|TG Sanctification]].  

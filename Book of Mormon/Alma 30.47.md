@@ -5,5 +5,5 @@
 [Alma 30:47](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p47#p47)
 
 
-[^a]: [[1 Nephi 4.13|1 Ne. 4:13.]]
-[^b]: [[Mosiah 27.16|Mosiah 27:16.]]
+[^a]: [[1 Nephi 4.13|1 Ne. 4:13]].  
+[^b]: [[Mosiah 27.16|Mosiah 27:16]].  

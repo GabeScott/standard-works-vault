@@ -5,5 +5,5 @@
 [Genesis 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.16?lang=eng#p16)
 
 
-[^a]: [[Moses 5.41|Moses 5:41]]; [[Moses 6.49|6:49.]]
-[^b]: TG [[Eden]].
+[^a]: [[Moses 5.41|Moses 5:41]]; [[Moses 6.49|6:49]].  
+[^b]: [[Eden|TG Eden]].  

@@ -5,7 +5,7 @@
 [Mosiah 4:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Remission of Sins]].
-[^b]: TG [[Conscience]].
-[^c]: TG [[Faith]].
-[^d]: [[Nehemiah 8.12|Neh. 8:12.]]
+[^a]: [[Remission of Sins|TG Remission of Sins]].  
+[^b]: [[Conscience|TG Conscience]].  
+[^c]: [[Faith|TG Faith]].  
+[^d]: [[Nehemiah 8.12|Neh. 8:12]].  

@@ -5,4 +5,4 @@
 [Revelation 16:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.2?lang=eng#p2)
 
 
-[^a]: GR bad, evil.
+[^a]: GR bad, evil.  

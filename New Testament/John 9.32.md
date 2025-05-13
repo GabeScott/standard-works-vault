@@ -5,4 +5,4 @@
 [John 9:32](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.32?lang=eng#p32)
 
 
-[^a]: JST John 9:32 … blind, except he be of God.
+[^a]: JST John 9:32 … blind, except he be of God.  

@@ -5,5 +5,5 @@
 [Jeremiah 20:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 31.13|Ps. 31:13.]]
-[^b]: OR familiar friends.
+[^a]: [[Psalms 31.13|Ps. 31:13]].  
+[^b]: OR familiar friends.  

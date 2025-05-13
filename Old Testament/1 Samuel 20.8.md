@@ -5,4 +5,4 @@
 [1 Samuel 20:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/20.8?lang=eng#p8)
 
 
-[^a]: [[2 Samuel 21.7|2 Sam. 21:7.]]
+[^a]: [[2 Samuel 21.7|2 Sam. 21:7]].  

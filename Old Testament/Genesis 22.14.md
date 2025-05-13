@@ -5,5 +5,5 @@
 [Genesis 22:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.14?lang=eng#p14)
 
 
-[^a]: IE The Lord will see, or provide (v. 8). TG [[Jesus Christ, Jehovah]].
-[^b]: OR In a mount the Lord shall be manifest (seen).
+[^a]: IE The Lord will see, or provide ([[Genesis 22.8|v. 8]]). [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^b]: OR In a mount the Lord shall be manifest (seen).  

@@ -5,5 +5,5 @@
 [Mosiah 8:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/8?lang=eng&id=p2#p2)
 
 
-[^a]: [[Mosiah 7.13|Mosiah 7:13.]]
-[^b]: [[Mosiah 7.3|Mosiah 7:3.]]
+[^a]: [[Mosiah 7.13|Mosiah 7:13]].  
+[^b]: [[Mosiah 7.3|Mosiah 7:3]].  

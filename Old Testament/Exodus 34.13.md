@@ -5,6 +5,6 @@
 [Exodus 34:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.13?lang=eng#p13)
 
 
-[^a]: [[Deuteronomy 7.5|Deut. 7:5]]; [[Deuteronomy 12.3|12:3.]]
-[^b]: [[Hosea 8.11|Hosea 8:11.]]
-[^c]: HEB asherim, or cultic deities. 1 Kgs. 16:33; [[2 Kings 17.10|2 Kgs. 17:10 (10-12).]]
+[^a]: [[Deuteronomy 7.5|Deut. 7:5]]; [[Deuteronomy 12.3|12:3]].  
+[^b]: [[Hosea 8.11|Hosea 8:11]].  
+[^c]: HEB asherim, or cultic deities. [[1 Kings 16.33|1 Kgs. 16:33]]; [[2 Kings 17.10|2 Kgs. 17:10 (10–12)]][[2 Kings 17.11|]][[2 Kings 17.12|]].  

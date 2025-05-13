@@ -5,4 +5,4 @@
 [Jeremiah 4:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.27?lang=eng#p27)
 
 
-[^a]: [[Jeremiah 5.10|Jer. 5:10.]]
+[^a]: [[Jeremiah 5.10|Jer. 5:10]].  

@@ -5,5 +5,5 @@
 [Luke 8:44](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.44?lang=eng#p44)
 
 
-[^a]: [[Acts 5.15|Acts 5:15]]; [[Acts 19.12|19:12 (11-12).]]
-[^b]: GR ceased.
+[^a]: [[Acts 5.15|Acts 5:15]]; [[Acts 19.11|19:12 (11–12)]][[Acts 19.12|]].  
+[^b]: GR ceased.  

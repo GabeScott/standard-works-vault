@@ -5,4 +5,4 @@
 [1 Corinthians 6:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/6.13?lang=eng#p13)
 
 
-[^a]: GR sexual immorality. TG [[Chastity, Chaste]]; [[Fornication]].
+[^a]: GR sexual immorality. [[Chastity, Chaste|TG Chastity]]; [[Fornication|Fornication]].  

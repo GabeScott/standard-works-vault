@@ -5,5 +5,5 @@
 [Genesis 25:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 23.16|Gen. 23:16.]]
-[^b]: [[Genesis 49.31|Gen. 49:31]]; [[Genesis 50.13|50:13.]]
+[^a]: [[Genesis 23.16|Gen. 23:16]].  
+[^b]: [[Genesis 49.31|Gen. 49:31]]; [[Genesis 50.13|50:13]].  

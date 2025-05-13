@@ -5,5 +5,5 @@
 [Joel 2:31](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.31?lang=eng#p31)
 
 
-[^a]: [[Revelation 6.12|Rev. 6:12.]]
-[^b]: TG [[Day of the Lord]].
+[^a]: [[Revelation 6.12|Rev. 6:12]].  
+[^b]: [[Day of the Lord|TG Day of the Lord]].  

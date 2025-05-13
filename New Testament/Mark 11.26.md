@@ -5,4 +5,4 @@
 [Mark 11:26](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/11.26?lang=eng#p26)
 
 
-[^a]: [[D&C 64.9|D&C 64:9 (7-10).]]
+[^a]: [[D&C 64.7|D&C 64:9 (7–10)]][[D&C 64.8|]][[D&C 64.9|]][[D&C 64.10|]].  

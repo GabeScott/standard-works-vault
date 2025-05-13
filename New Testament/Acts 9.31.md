@@ -5,5 +5,5 @@
 [Acts 9:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.31?lang=eng#p31)
 
 
-[^a]: TG [[Edification, Edify]].
-[^b]: TG [[Holy Ghost, Comforter]]; Holy Ghost, [[Holy Ghost, Comforter]]er; [[Holy Ghost, Gifts of]].
+[^a]: [[Edification, Edify|TG Edification]].  
+[^b]: [[Comfort|TG Comfort]]; [[Holy Ghost, Comforter|Holy Ghost, Comforter]]; [[Holy Ghost, Gifts of|Holy Ghost, Gifts of]].  

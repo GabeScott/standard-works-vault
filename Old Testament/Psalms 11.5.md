@@ -5,4 +5,4 @@
 [Psalms 11:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/11.5?lang=eng#p5)
 
 
-[^a]: TG [[Testament]].
+[^a]: [[Test, Try, Prove|TG Test]].  

@@ -5,5 +5,5 @@
 [Titus 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/3.7?lang=eng#p7)
 
 
-[^a]: TG [[Justification, Justify]].
-[^b]: [[D&C 70.8|D&C 70:8.]]
+[^a]: [[Justification, Justify|TG Justification]].  
+[^b]: [[D&C 70.8|D&C 70:8]].  

@@ -5,6 +5,6 @@
 [Mark 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.15?lang=eng#p15)
 
 
-[^a]: GR authority. TG [[Priesthood, History of]]; [[Priesthood, History of]], Power of.
-[^b]: TG [[Sickness, Sick]].
-[^c]: TG [[Devil, Church of]].
+[^a]: GR authority. [[Priesthood|TG Priesthood]]; [[Priesthood, Power of|Priesthood, Power of]].  
+[^b]: [[Sickness, Sick|TG Sickness]].  
+[^c]: [[Devil|TG Devil]].  

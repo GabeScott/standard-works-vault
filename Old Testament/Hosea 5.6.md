@@ -5,4 +5,4 @@
 [Hosea 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/5.6?lang=eng#p6)
 
 
-[^a]: [[D&C 101.7|D&C 101:7 (7-8).]]
+[^a]: [[D&C 101.7|D&C 101:7 (7–8)]][[D&C 101.8|]].  

@@ -5,4 +5,4 @@
 [Mark 5:19](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.19?lang=eng#p19)
 
 
-[^a]: TG [[Compassion]].
+[^a]: [[Compassion|TG Compassion]].  

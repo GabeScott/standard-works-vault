@@ -5,7 +5,7 @@
 [Alma 26:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p36#p36)
 
 
-[^a]: [[Romans 3.27|Rom. 3:27.]]
-[^b]: [[Genesis 49.22|Gen. 49:22 (22-26)]]; [[Ezekiel 17.22|Ezek. 17:22]]; [[Jacob 2.25|Jacob 2:25.]]
-[^c]: [[Jacob 5.25|Jacob 5:25 (25, 40-45).]]
-[^d]: [[Jacob 7.26|Jacob 7:26.]]
+[^a]: [[Romans 3.27|Rom. 3:27]].  
+[^b]: [[Genesis 49.22|Gen. 49:22 (22–26)]][[Genesis 49.23|]][[Genesis 49.24|]][[Genesis 49.25|]][[Genesis 49.26|]]; [[Ezekiel 17.22|Ezek. 17:22]]; [[Jacob 2.25|Jacob 2:25]].  
+[^c]: [[Jacob 5.25|Jacob 5:25 (25, 40–45)]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]].  
+[^d]: [[Jacob 7.26|Jacob 7:26]].  

@@ -5,5 +5,5 @@
 [John 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.2?lang=eng#p2)
 
 
-[^a]: TG [[Miracle]].
-[^b]: [[Exodus 8.19|Ex. 8:19]]; [[Luke 11.20|Luke 11:20]]; [[Acts 2.22|Acts 2:22]]; [[Acts 10.38|10:38.]]
+[^a]: [[Miracle|TG Miracle]].  
+[^b]: [[Exodus 8.19|Ex. 8:19]]; [[Luke 11.20|Luke 11:20]]; [[Acts 2.22|Acts 2:22]]; [[Acts 10.38|10:38]].  

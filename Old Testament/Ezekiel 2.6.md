@@ -5,6 +5,6 @@
 [Ezekiel 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/2.6?lang=eng#p6)
 
 
-[^a]: [[Jeremiah 1.8|Jer. 1:8.]]
-[^b]: TG [[Peer Influence]].
-[^c]: OR sit.
+[^a]: [[Jeremiah 1.8|Jer. 1:8]].  
+[^b]: [[Peer Influence|TG Peer Influence]].  
+[^c]: OR sit.  

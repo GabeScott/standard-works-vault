@@ -5,5 +5,5 @@
 [Joshua 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/7.13?lang=eng#p13)
 
 
-[^a]: [[Joshua 3.5|Josh. 3:5.]]
-[^b]: [[Helaman 3.35|Hel. 3:35]]; [[D&C 88.68|D&C 88:68.]]
+[^a]: [[Joshua 3.5|Josh. 3:5]].  
+[^b]: [[Helaman 3.35|Hel. 3:35]]; [[D&C 88.68|D&C 88:68]].  

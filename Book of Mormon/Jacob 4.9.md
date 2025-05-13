@@ -5,7 +5,7 @@
 [Jacob 4:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/4?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mormon 9.17|Morm. 9:17]]; [[Moses 1.32|Moses 1:32.]]
-[^b]: TG [[Man, Physical Creation of]].
-[^c]: TG [[Creation, Create]]; [[God, Creator]]; [[Jesus Christ, Creator]].
-[^d]: [[Helaman 12.16|Hel. 12:16 (8-17).]]
+[^a]: [[Mormon 9.17|Morm. 9:17]]; [[Moses 1.32|Moses 1:32]].  
+[^b]: [[Man, Physical Creation of|TG Man, Physical Creation of]].  
+[^c]: [[Creation, Create|TG Creation]]; [[God, Creator|God, Creator]]; [[Jesus Christ, Creator|Jesus Christ, Creator]].  
+[^d]: [[Helaman 12.8|Hel. 12:16 (8–17)]][[Helaman 12.9|]][[Helaman 12.10|]][[Helaman 12.11|]][[Helaman 12.12|]][[Helaman 12.13|]][[Helaman 12.14|]][[Helaman 12.15|]][[Helaman 12.16|]][[Helaman 12.17|]].  

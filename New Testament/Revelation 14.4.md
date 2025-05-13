@@ -5,5 +5,5 @@
 [Revelation 14:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.4?lang=eng#p4)
 
 
-[^a]: TG [[Woman, Women]].
-[^b]: GR purchased, ransomed, redeemed. Jude 1:24; [[D&C 43.29|D&C 43:29]]; [[D&C 77.5|77:5.]]
+[^a]: [[Woman, Women|TG Woman]].  
+[^b]: GR purchased, ransomed, redeemed. [[Jude 1.24|Jude 1:24]]; [[D&C 43.29|D&C 43:29]]; [[D&C 77.5|77:5]].  

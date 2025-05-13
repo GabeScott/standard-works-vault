@@ -5,6 +5,6 @@
 [Acts 26:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.10?lang=eng#p10)
 
 
-[^a]: Acts 9:1, 13 (13-14), 21; [[Acts 22.4|22:4 (4-5).]]
-[^b]: TG [[Martyrdom]].
-[^c]: GR vote.
+[^a]: [[Acts 9.13|Acts 9:1, 13 (13–14)]][[Acts 9.14|]], [[Acts 9.21|21]]; [[Acts 22.4|22:4 (4–5)]][[Acts 22.5|]].  
+[^b]: [[Martyrdom|TG Martyrdom]].  
+[^c]: GR vote.  

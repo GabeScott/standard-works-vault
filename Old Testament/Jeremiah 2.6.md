@@ -5,4 +5,4 @@
 [Jeremiah 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 107.4|Ps. 107:4.]]
+[^a]: [[Psalms 107.4|Ps. 107:4]].  

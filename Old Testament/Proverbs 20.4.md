@@ -5,5 +5,5 @@
 [Proverbs 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.4?lang=eng#p4)
 
 
-[^a]: TG [[Apathy]]; [[Idleness, Idle, Idler]].
-[^b]: HEB winter; i.e., after the autumn harvest.
+[^a]: [[Apathy|TG Apathy]]; [[Idleness, Idle, Idler|Idleness]].  
+[^b]: HEB winter; i.e., after the autumn harvest.  

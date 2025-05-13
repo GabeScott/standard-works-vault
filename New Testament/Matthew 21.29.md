@@ -5,4 +5,4 @@
 [Matthew 21:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.29?lang=eng#p29)
 
 
-[^a]: GR I don’t desire to go.
+[^a]: GR I don’t desire to go.  

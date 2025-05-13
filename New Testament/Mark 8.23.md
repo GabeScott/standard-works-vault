@@ -5,5 +5,5 @@
 [Mark 8:23](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/8.23?lang=eng#p23)
 
 
-[^a]: TG [[Administrations to the Sick]]; [[Hands, Laying on of]].
-[^b]: OR anything.
+[^a]: [[Administrations to the Sick|TG Administrations to the Sick]]; [[Hands, Laying on of|Hands, Laying on of]].  
+[^b]: OR anything.  

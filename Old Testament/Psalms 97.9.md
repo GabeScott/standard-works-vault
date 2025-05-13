@@ -5,4 +5,4 @@
 [Psalms 97:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/97.9?lang=eng#p9)
 
 
-[^a]: [[Psalms 83.18|Ps. 83:18.]]
+[^a]: [[Psalms 83.18|Ps. 83:18]].  

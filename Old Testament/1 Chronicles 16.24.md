@@ -5,5 +5,5 @@
 [1 Chronicles 16:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.24?lang=eng#p24)
 
 
-[^a]: TG [[Preaching, Preach]].
-[^b]: [[D&C 65.4|D&C 65:4.]]
+[^a]: [[Preaching, Preach|TG Preaching]].  
+[^b]: [[D&C 65.4|D&C 65:4]].  

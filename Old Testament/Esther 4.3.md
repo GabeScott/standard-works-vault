@@ -5,4 +5,4 @@
 [Esther 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/4.3?lang=eng#p3)
 
 
-[^a]: [[Esther 9.31|Esth. 9:31.]]
+[^a]: [[Esther 9.31|Esth. 9:31]].  

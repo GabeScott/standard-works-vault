@@ -5,4 +5,4 @@
 [Leviticus 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.12?lang=eng#p12)
 
 
-[^a]: TG [[Self-Sacrifice]].
+[^a]: [[Sacrifice|TG Sacrifice]].  

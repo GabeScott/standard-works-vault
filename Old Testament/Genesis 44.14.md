@@ -5,4 +5,4 @@
 [Genesis 44:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/44.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 37.7|Gen. 37:7 (7, 9-10)]]; [[Genesis 42.6|42:6]]; [[Genesis 43.26|43:26 (26-28).]]
+[^a]: [[Genesis 37.7|Gen. 37:7 (7, 9–10)]][[Genesis 37.9|]][[Genesis 37.10|]]; [[Genesis 42.6|42:6]]; [[Genesis 43.26|43:26 (26–28)]][[Genesis 43.27|]][[Genesis 43.28|]].  

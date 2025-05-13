@@ -5,6 +5,6 @@
 [Helaman 15:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p3#p3)
 
 
-[^a]: W of M 1:11.
-[^b]: [[Jacob 5.25|Jacob 5:25.]]
-[^c]: [[Proverbs 3.12|Prov. 3:12]]; [[Hebrews 12.6|Heb. 12:6 (5-11)]]; [[D&C 95.1|D&C 95:1.]]
+[^a]: [[Words of Mormon 1.11|W of M 1:11]].  
+[^b]: [[Jacob 5.25|Jacob 5:25]].  
+[^c]: [[Proverbs 3.12|Prov. 3:12]]; [[Hebrews 12.5|Heb. 12:6 (5–11)]][[Hebrews 12.6|]][[Hebrews 12.7|]][[Hebrews 12.8|]][[Hebrews 12.9|]][[Hebrews 12.10|]][[Hebrews 12.11|]]; [[D&C 95.1|D&C 95:1]].  

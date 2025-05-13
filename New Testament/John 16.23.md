@@ -5,5 +5,5 @@
 [John 16:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.23?lang=eng#p23)
 
 
-[^a]: JST John 16:23 … nothing but it shall be done unto you. Verily, verily, I say …
-[^b]: TG [[Prayer, Pray]].
+[^a]: JST John 16:23 … nothing but it shall be done unto you. Verily, verily, I say …  
+[^b]: [[Prayer, Pray|TG Prayer]].  

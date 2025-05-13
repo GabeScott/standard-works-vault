@@ -5,5 +5,5 @@
 [Leviticus 25:28](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.28?lang=eng#p28)
 
 
-[^a]: HEB release; i.e., be released.
-[^b]: [[Leviticus 27.24|Lev. 27:24.]]
+[^a]: HEB release; i.e., be released.  
+[^b]: [[Leviticus 27.24|Lev. 27:24]].  

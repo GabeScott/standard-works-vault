@@ -5,4 +5,4 @@
 [Mosiah 28:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/28?lang=eng&id=p13#p13)
 
 
-[^a]: [[Exodus 28.30|Ex. 28:30]]; [[Mosiah 21.28|Mosiah 21:28 (27-28)]]; [[Abraham 3.1|Abr. 3:1]]; JS—H 1:35.
+[^a]: [[Exodus 28.30|Ex. 28:30]]; [[Mosiah 21.27|Mosiah 21:28 (27–28)]][[Mosiah 21.28|]]; [[Abraham 3.1|Abr. 3:1]]; [[Joseph Smith History 1.35|JS—H 1:35]].  

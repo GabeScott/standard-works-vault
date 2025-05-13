@@ -5,5 +5,5 @@
 [Psalms 76:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/76.11?lang=eng#p11)
 
 
-[^a]: TG [[Vow]].
-[^b]: [[Psalms 68.29|Ps. 68:29.]]
+[^a]: [[Vow|TG Vow]].  
+[^b]: [[Psalms 68.29|Ps. 68:29]].  

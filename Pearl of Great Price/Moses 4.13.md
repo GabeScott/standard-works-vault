@@ -5,5 +5,5 @@
 [Moses 4:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 2.25|Gen. 2:25]]; [[2 Nephi 9.14|2 Ne. 9:14.]]
-[^b]: TG [[Apparel]].
+[^a]: [[Genesis 2.25|Gen. 2:25]]; [[2 Nephi 9.14|2 Ne. 9:14]].  
+[^b]: [[Apparel|TG Apparel]].  

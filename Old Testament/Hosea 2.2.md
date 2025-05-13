@@ -5,4 +5,4 @@
 [Hosea 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 50.1|Isa. 50:1.]]
+[^a]: [[Isaiah 50.1|Isa. 50:1]].  

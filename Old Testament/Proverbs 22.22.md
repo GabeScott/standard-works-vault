@@ -5,4 +5,4 @@
 [Proverbs 22:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.22?lang=eng#p22)
 
 
-[^a]: [[Zechariah 7.10|Zech. 7:10.]]
+[^a]: [[Zechariah 7.10|Zech. 7:10]].  

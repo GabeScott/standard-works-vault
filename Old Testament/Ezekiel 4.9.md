@@ -5,4 +5,4 @@
 [Ezekiel 4:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/4.9?lang=eng#p9)
 
 
-[^a]: OR spelt (a type of wheat).
+[^a]: OR spelt (a type of wheat).  

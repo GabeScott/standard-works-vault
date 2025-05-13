@@ -5,4 +5,4 @@
 [Hosea 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/11.9?lang=eng#p9)
 
 
-[^a]: OR come in anger.
+[^a]: OR come in anger.  

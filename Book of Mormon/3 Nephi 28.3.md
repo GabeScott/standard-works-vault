@@ -5,6 +5,6 @@
 [3 Nephi 28:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p3#p3)
 
 
-[^a]: 4 Ne. 1:14.
-[^b]: TG [[Election, Elect]].
-[^c]: TG [[Restoration of the Gospel]].
+[^a]: [[4 Nephi 1.14|4 Ne. 1:14]].  
+[^b]: [[Election, Elect|TG Election]].  
+[^c]: [[Rest|TG Rest]].  

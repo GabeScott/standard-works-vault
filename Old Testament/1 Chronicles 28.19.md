@@ -5,4 +5,4 @@
 [1 Chronicles 28:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/28.19?lang=eng#p19)
 
 
-[^a]: [[Numbers 8.4|Num. 8:4]]; [[Acts 7.44|Acts 7:44.]]
+[^a]: [[Numbers 8.4|Num. 8:4]]; [[Acts 7.44|Acts 7:44]].  

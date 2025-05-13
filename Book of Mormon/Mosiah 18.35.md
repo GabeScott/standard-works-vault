@@ -5,4 +5,4 @@
 [Mosiah 18:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p35#p35)
 
 
-[^a]: [[Mosiah 23.10|Mosiah 23:10.]]
+[^a]: [[Mosiah 23.10|Mosiah 23:10]].  

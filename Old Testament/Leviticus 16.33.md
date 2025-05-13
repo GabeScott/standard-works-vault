@@ -5,4 +5,4 @@
 [Leviticus 16:33](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.33?lang=eng#p33)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Church|TG Church]].  

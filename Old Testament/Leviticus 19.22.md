@@ -5,4 +5,4 @@
 [Leviticus 19:22](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.22?lang=eng#p22)
 
 
-[^a]: TG [[Forgive, Forgiveness]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]].  

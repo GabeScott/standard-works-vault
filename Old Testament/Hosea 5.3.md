@@ -5,4 +5,4 @@
 [Hosea 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/5.3?lang=eng#p3)
 
 
-[^a]: [[Hosea 9.1|Hosea 9:1.]]
+[^a]: [[Hosea 9.1|Hosea 9:1]].  

@@ -5,4 +5,4 @@
 [Ezekiel 38:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.21?lang=eng#p21)
 
 
-[^a]: [[Isaiah 9.19|Isa. 9:19.]]
+[^a]: [[Isaiah 9.19|Isa. 9:19]].  

@@ -5,4 +5,4 @@
 [Mosiah 13:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p13#p13)
 
 
-[^a]: [[Exodus 20.5|Ex. 20:5.]]
+[^a]: [[Exodus 20.5|Ex. 20:5]].  

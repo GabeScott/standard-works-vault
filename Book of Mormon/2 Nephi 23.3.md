@@ -5,4 +5,4 @@
 [2 Nephi 23:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p3#p3)
 
 
-[^a]: [[Joel 3.11|Joel 3:11.]]
+[^a]: [[Joel 3.11|Joel 3:11]].  

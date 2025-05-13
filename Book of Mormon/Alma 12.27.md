@@ -5,5 +5,5 @@
 [Alma 12:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p27#p27)
 
 
-[^a]: [[Job 7.1|Job 7:1]]; [[Hebrews 9.27|Heb. 9:27]]; [[D&C 42.48|D&C 42:48]]; [[D&C 121.25|121:25.]]
-[^b]: TG [[Judgment, the Last]].
+[^a]: [[Job 7.1|Job 7:1]]; [[Hebrews 9.27|Heb. 9:27]]; [[D&C 42.48|D&C 42:48]]; [[D&C 121.25|121:25]].  
+[^b]: [[Judgment, the Last|TG Judgment, the Last]].  

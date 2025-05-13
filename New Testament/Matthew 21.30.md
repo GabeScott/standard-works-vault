@@ -5,5 +5,5 @@
 [Matthew 21:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.30?lang=eng#p30)
 
 
-[^a]: TG [[Hypocrisy, Hypocrite]].
-[^b]: [[D&C 41.5|D&C 41:5.]]
+[^a]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  
+[^b]: [[D&C 41.5|D&C 41:5]].  

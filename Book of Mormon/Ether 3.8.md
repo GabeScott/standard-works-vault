@@ -5,4 +5,4 @@
 [Ether 3:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p8#p8)
 
 
-[^a]: [[Moses 1.11|Moses 1:11.]]
+[^a]: [[Moses 1.11|Moses 1:11]].  

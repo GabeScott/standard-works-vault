@@ -5,4 +5,4 @@
 [1 Samuel 12:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 32.30|Ex. 32:30.]]
+[^a]: [[Exodus 32.30|Ex. 32:30]].  

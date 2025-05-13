@@ -5,7 +5,7 @@
 [2 Kings 25:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.13?lang=eng#p13)
 
 
-[^a]: [[1 Kings 7.15|1 Kgs. 7:15.]]
-[^b]: [[1 Kings 7.27|1 Kgs. 7:27.]]
-[^c]: [[Jeremiah 27.19|Jer. 27:19.]]
-[^d]: [[Jeremiah 20.5|Jer. 20:5.]]
+[^a]: [[1 Kings 7.15|1 Kgs. 7:15]].  
+[^b]: [[1 Kings 7.27|1 Kgs. 7:27]].  
+[^c]: [[Jeremiah 27.19|Jer. 27:19]].  
+[^d]: [[Jeremiah 20.5|Jer. 20:5]].  

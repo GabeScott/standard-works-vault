@@ -5,7 +5,7 @@
 [Alma 44:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 43.45|Alma 43:45 (9, 45)]]; [[Alma 46.12|46:12 (12-20).]]
-[^b]: TG [[Ordinance]].
-[^c]: [[Genesis 2.24|Gen. 2:24 (23-24).]]
-[^d]: TG [[Liberty]].
+[^a]: [[Alma 43.9|Alma 43:45 (9, 45)]][[Alma 43.45|]]; [[Alma 46.12|46:12 (12–20)]][[Alma 46.13|]][[Alma 46.14|]][[Alma 46.15|]][[Alma 46.16|]][[Alma 46.17|]][[Alma 46.18|]][[Alma 46.19|]][[Alma 46.20|]].  
+[^b]: [[Ordinance|TG Ordinance]].  
+[^c]: [[Genesis 2.23|Gen. 2:24 (23–24)]][[Genesis 2.24|]].  
+[^d]: [[Liberty|TG Liberty]].  

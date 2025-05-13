@@ -5,7 +5,7 @@
 [Mark 7:22](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.22?lang=eng#p22)
 
 
-[^a]: TG [[Stealing, Stolen]].
-[^b]: TG [[Covet, Covetousness]].
-[^c]: TG [[Wickedness, Wicked]].
-[^d]: TG [[Deceit, Deceive]]; [[Fraud]].
+[^a]: [[Stealing, Stolen|TG Stealing]].  
+[^b]: [[Covet, Covetousness|TG Covet]].  
+[^c]: [[Wickedness, Wicked|TG Wickedness]].  
+[^d]: [[Deceit, Deceive|TG Deceit]]; [[Fraud|Fraud]].  

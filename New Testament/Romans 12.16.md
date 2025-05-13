@@ -5,5 +5,5 @@
 [Romans 12:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.16?lang=eng#p16)
 
 
-[^a]: GR conforming willingly with the humble. 3 Ne. 12:5.
-[^b]: [[Proverbs 26.12|Prov. 26:12]]. TG [[Pride]].
+[^a]: GR conforming willingly with the humble. [[3 Nephi 12.5|3 Ne. 12:5]].  
+[^b]: [[Proverbs 26.12|Prov. 26:12]]. [[Pride|TG Pride]].  

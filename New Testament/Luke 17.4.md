@@ -5,4 +5,4 @@
 [Luke 17:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.4?lang=eng#p4)
 
 
-[^a]: TG [[Repent, Repentance]].
+[^a]: [[Repent, Repentance|TG Repent]].  

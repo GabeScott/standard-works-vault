@@ -5,7 +5,7 @@
 [3 Nephi 18:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Church Organization]].
-[^b]: [[Moroni 4.1|Moro. 4:1.]]
-[^c]: [[Matthew 14.19|Matt. 14:19 (19-21)]]; [[3 Nephi 20.6|3 Ne. 20:6 (6-7).]]
-[^d]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Church Organization|TG Church Organization]].  
+[^b]: [[Moroni 4.1|Moro. 4:1]].  
+[^c]: [[Matthew 14.19|Matt. 14:19 (19–21)]][[Matthew 14.20|]][[Matthew 14.21|]]; [[3 Nephi 20.6|3 Ne. 20:6 (6–7)]][[3 Nephi 20.7|]].  
+[^d]: [[Church|TG Church]].  

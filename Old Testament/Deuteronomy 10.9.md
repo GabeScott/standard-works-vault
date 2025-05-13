@@ -5,6 +5,6 @@
 [Deuteronomy 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.9?lang=eng#p9)
 
 
-[^a]: [[Deuteronomy 12.19|Deut. 12:19.]]
-[^b]: OR portion.
-[^c]: [[Numbers 18.20|Num. 18:20 (20-24).]]
+[^a]: [[Deuteronomy 12.19|Deut. 12:19]].  
+[^b]: OR portion.  
+[^c]: [[Numbers 18.20|Num. 18:20 (20–24)]][[Numbers 18.21|]][[Numbers 18.22|]][[Numbers 18.23|]][[Numbers 18.24|]].  

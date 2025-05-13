@@ -5,6 +5,6 @@
 [Isaiah 10:27](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.27?lang=eng#p27)
 
 
-[^a]: [[Isaiah 9.4|Isa. 9:4 (3-4).]]
-[^b]: TG [[Bondage, Physical]].
-[^c]: TG [[Jesus Christ, Messiah]].
+[^a]: [[Isaiah 9.3|Isa. 9:4 (3–4)]][[Isaiah 9.4|]].  
+[^b]: [[Bondage, Physical|TG Bondage, Physical]].  
+[^c]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  

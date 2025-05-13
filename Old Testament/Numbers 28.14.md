@@ -5,4 +5,4 @@
 [Numbers 28:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 35.14|Gen. 35:14.]]
+[^a]: [[Genesis 35.14|Gen. 35:14]].  

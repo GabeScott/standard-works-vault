@@ -5,4 +5,4 @@
 [1 Kings 22:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.4?lang=eng#p4)
 
 
-[^a]: [[2 Kings 3.7|2 Kgs. 3:7.]]
+[^a]: [[2 Kings 3.7|2 Kgs. 3:7]].  

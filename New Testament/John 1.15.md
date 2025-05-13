@@ -5,4 +5,4 @@
 [John 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.15?lang=eng#p15)
 
 
-[^a]: [[John 5.33|John 5:33.]]
+[^a]: [[John 5.33|John 5:33]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 18:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/18.10?lang=eng#p10)
 
 
-[^a]: IE an emblem of military might.
+[^a]: IE an emblem of military might.  

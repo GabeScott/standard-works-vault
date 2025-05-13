@@ -5,4 +5,4 @@
 [1 Samuel 30:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/30.24?lang=eng#p24)
 
 
-[^a]: IE shall divide it equally.
+[^a]: IE shall divide it equally.  

@@ -5,6 +5,6 @@
 [1 Kings 11:36](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.36?lang=eng#p36)
 
 
-[^a]: Septuagint: two tribes.
-[^b]: [[1 Kings 12.17|1 Kgs. 12:17.]]
-[^c]: [[Deuteronomy 12.5|Deut. 12:5.]]
+[^a]: Septuagint: two tribes.  
+[^b]: [[1 Kings 12.17|1 Kgs. 12:17]].  
+[^c]: [[Deuteronomy 12.5|Deut. 12:5]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 11:24](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.24?lang=eng#p24)
 
 
-[^a]: [[Genesis 15.18|Gen. 15:18.]]
-[^b]: HEB be your territory.
+[^a]: [[Genesis 15.18|Gen. 15:18]].  
+[^b]: HEB be your territory.  

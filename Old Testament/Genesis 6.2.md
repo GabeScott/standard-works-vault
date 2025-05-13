@@ -5,6 +5,6 @@
 [Genesis 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.2?lang=eng#p2)
 
 
-[^a]: TG [[Sons and Daughters of God]].
-[^b]: TG [[Marriage, Temporal]].
-[^c]: TG [[Marriage, Interfaith]]; [[Marriage, Marry]].
+[^a]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  
+[^b]: [[Marriage, Temporal|TG Marriage, Temporal]].  
+[^c]: [[Marriage, Interfaith|TG Marriage, Interfaith]]; [[Marriage, Marry|Marriage, Marry]].  

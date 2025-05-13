@@ -5,6 +5,6 @@
 [Ezekiel 37:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 1.3|Ezek. 1:3.]]
-[^b]: [[1 Kings 18.12|1 Kgs. 18:12]]; [[Luke 4.1|Luke 4:1.]]
-[^c]: TG [[God, Spirit of]].
+[^a]: [[Ezekiel 1.3|Ezek. 1:3]].  
+[^b]: [[1 Kings 18.12|1 Kgs. 18:12]]; [[Luke 4.1|Luke 4:1]].  
+[^c]: [[God, Spirit of|TG God, Spirit of]].  

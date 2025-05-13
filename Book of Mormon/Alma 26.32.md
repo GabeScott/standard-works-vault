@@ -5,5 +5,5 @@
 [Alma 26:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p32#p32)
 
 
-[^a]: [[Alma 24.23|Alma 24:23 (20-24).]]
-[^b]: [[Alma 24.15|Alma 24:15]]; [[Alma 25.14|25:14.]]
+[^a]: [[Alma 24.20|Alma 24:23 (20–24)]][[Alma 24.21|]][[Alma 24.22|]][[Alma 24.23|]][[Alma 24.24|]].  
+[^b]: [[Alma 24.15|Alma 24:15]]; [[Alma 25.14|25:14]].  

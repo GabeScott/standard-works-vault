@@ -5,6 +5,6 @@
 [Revelation 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/5.9?lang=eng#p9)
 
 
-[^a]: TG [[Singing, Sing, Sang, Sung]].
-[^b]: TG [[Jesus Christ, Redeemer]]; [[Redemption]].
-[^c]: [[Revelation 7.9|Rev. 7:9.]]
+[^a]: [[Singing, Sing, Sang, Sung|TG Singing]].  
+[^b]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]]; [[Redemption|Redemption]].  
+[^c]: [[Revelation 7.9|Rev. 7:9]].  

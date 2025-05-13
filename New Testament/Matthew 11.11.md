@@ -5,6 +5,6 @@
 [Matthew 11:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.11?lang=eng#p11)
 
 
-[^a]: TG [[Woman, Women]].
-[^b]: [[John 5.35|John 5:35 (32-35).]]
-[^c]: GR but he who is less important. Luke 7:28; [[D&C 50.26|D&C 50:26.]]
+[^a]: [[Woman, Women|TG Woman]].  
+[^b]: [[John 5.32|John 5:35 (32–35)]][[John 5.33|]][[John 5.34|]][[John 5.35|]].  
+[^c]: GR but he who is less important. [[Luke 7.28|Luke 7:28]]; [[D&C 50.26|D&C 50:26]].  

@@ -5,4 +5,4 @@
 [Acts 17:34](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.34?lang=eng#p34)
 
 
-[^a]: [[Acts 17.19|Acts 17:19 (19, 22).]]
+[^a]: [[Acts 17.19|Acts 17:19 (19, 22)]][[Acts 17.22|]].  

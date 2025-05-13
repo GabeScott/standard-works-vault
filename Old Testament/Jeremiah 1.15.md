@@ -5,4 +5,4 @@
 [Jeremiah 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.15?lang=eng#p15)
 
 
-[^a]: [[Jeremiah 39.3|Jer. 39:3.]]
+[^a]: [[Jeremiah 39.3|Jer. 39:3]].  

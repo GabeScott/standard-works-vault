@@ -5,4 +5,4 @@
 [Judges 11:21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.21?lang=eng#p21)
 
 
-[^a]: [[Numbers 21.24|Num. 21:24 (24-25).]]
+[^a]: [[Numbers 21.24|Num. 21:24 (24–25)]][[Numbers 21.25|]].  

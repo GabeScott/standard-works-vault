@@ -5,4 +5,4 @@
 [Deuteronomy 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.10?lang=eng#p10)
 
 
-[^a]: [[Deuteronomy 4.43|Deut. 4:43.]]
+[^a]: [[Deuteronomy 4.43|Deut. 4:43]].  

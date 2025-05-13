@@ -5,4 +5,4 @@
 [1 Kings 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.3?lang=eng#p3)
 
 
-[^a]: [[2 Kings 9.9|2 Kgs. 9:9.]]
+[^a]: [[2 Kings 9.9|2 Kgs. 9:9]].  

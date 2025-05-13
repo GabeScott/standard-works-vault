@@ -5,4 +5,4 @@
 [Matthew 10:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.26?lang=eng#p26)
 
 
-[^a]: [[Mormon 5.8|Morm. 5:8.]]
+[^a]: [[Mormon 5.8|Morm. 5:8]].  

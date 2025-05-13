@@ -5,5 +5,5 @@
 [Zechariah 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/2.11?lang=eng#p11)
 
 
-[^a]: [[Isaiah 55.5|Isa. 55:5]]; [[Zechariah 8.22|Zech. 8:22]]; [[D&C 45.69|D&C 45:69 (66-69)]]; [[D&C 49.10|49:10]]; [[D&C 97.19|97:19 (18-21).]]
-[^b]: [[D&C 1.36|D&C 1:36.]]
+[^a]: [[Isaiah 55.5|Isa. 55:5]]; [[Zechariah 8.22|Zech. 8:22]]; [[D&C 45.66|D&C 45:69 (66–69)]][[D&C 45.67|]][[D&C 45.68|]][[D&C 45.69|]]; [[D&C 49.10|49:10]]; [[D&C 97.18|97:19 (18–21)]][[D&C 97.19|]][[D&C 97.20|]][[D&C 97.21|]].  
+[^b]: [[D&C 1.36|D&C 1:36]].  

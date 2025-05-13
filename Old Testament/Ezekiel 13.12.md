@@ -5,4 +5,4 @@
 [Ezekiel 13:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.12?lang=eng#p12)
 
 
-[^a]: OR plaster.
+[^a]: OR plaster.  

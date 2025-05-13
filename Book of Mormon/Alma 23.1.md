@@ -5,4 +5,4 @@
 [Alma 23:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/23?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 22.27|Alma 22:27.]]
+[^a]: [[Alma 22.27|Alma 22:27]].  

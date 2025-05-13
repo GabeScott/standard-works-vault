@@ -5,4 +5,4 @@
 [1 Nephi 17:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 22.29|Alma 22:29 (29-33).]]
+[^a]: [[Alma 22.29|Alma 22:29 (29–33)]][[Alma 22.30|]][[Alma 22.31|]][[Alma 22.32|]][[Alma 22.33|]].  

@@ -5,4 +5,4 @@
 [Isaiah 48:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.21?lang=eng#p21)
 
 
-[^a]: [[Exodus 17.6|Ex. 17:6]]; [[Numbers 20.11|Num. 20:11.]]
+[^a]: [[Exodus 17.6|Ex. 17:6]]; [[Numbers 20.11|Num. 20:11]].  

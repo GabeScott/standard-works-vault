@@ -5,4 +5,4 @@
 [Psalms 45:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/45.1?lang=eng#p1)
 
 
-[^a]: HEB stirred over.
+[^a]: HEB stirred over.  

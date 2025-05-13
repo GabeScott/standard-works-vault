@@ -5,4 +5,4 @@
 [Isaiah 28:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.22?lang=eng#p22)
 
 
-[^a]: Dan. 9:27. TG [[World, End of]].
+[^a]: [[Daniel 9.27|Dan. 9:27]]. [[World, End of|TG World, End of]].  

@@ -5,4 +5,4 @@
 [Lamentations 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.20?lang=eng#p20)
 
 
-[^a]: [[Jeremiah 19.9|Jer. 19:9]]; [[Ezekiel 5.10|Ezek. 5:10.]]
+[^a]: [[Jeremiah 19.9|Jer. 19:9]]; [[Ezekiel 5.10|Ezek. 5:10]].  

@@ -5,5 +5,5 @@
 [Job 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/job/22.3?lang=eng#p3)
 
 
-[^a]: [[Mosiah 2.21|Mosiah 2:21 (20-22).]]
-[^b]: [[2 Samuel 22.33|2 Sam. 22:33.]]
+[^a]: [[Mosiah 2.20|Mosiah 2:21 (20–22)]][[Mosiah 2.21|]][[Mosiah 2.22|]].  
+[^b]: [[2 Samuel 22.33|2 Sam. 22:33]].  

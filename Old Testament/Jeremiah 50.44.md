@@ -5,4 +5,4 @@
 [Jeremiah 50:44](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.44?lang=eng#p44)
 
 
-[^a]: [[Isaiah 44.28|Isa. 44:28.]]
+[^a]: [[Isaiah 44.28|Isa. 44:28]].  

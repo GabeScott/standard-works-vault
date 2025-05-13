@@ -5,5 +5,5 @@
 [Isaiah 45:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.18?lang=eng#p18)
 
 
-[^a]: TG [[Jesus Christ, Creator]].
-[^b]: TG [[Earth, Purpose of]].
+[^a]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  
+[^b]: [[Earth, Purpose of|TG Earth, Purpose of]].  

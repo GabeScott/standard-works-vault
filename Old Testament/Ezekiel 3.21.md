@@ -5,4 +5,4 @@
 [Ezekiel 3:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.21?lang=eng#p21)
 
 
-[^a]: [[D&C 1.4|D&C 1:4.]]
+[^a]: [[D&C 1.4|D&C 1:4]].  

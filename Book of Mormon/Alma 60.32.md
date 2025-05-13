@@ -5,4 +5,4 @@
 [Alma 60:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p32#p32)
 
 
-[^a]: [[Alma 17.15|Alma 17:15.]]
+[^a]: [[Alma 17.15|Alma 17:15]].  

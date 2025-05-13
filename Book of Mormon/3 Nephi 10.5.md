@@ -5,4 +5,4 @@
 [3 Nephi 10:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/10?lang=eng&id=p5#p5)
 
 
-[^a]: [[Matthew 23.37|Matt. 23:37]]; [[D&C 43.24|D&C 43:24 (24-25).]]
+[^a]: [[Matthew 23.37|Matt. 23:37]]; [[D&C 43.24|D&C 43:24 (24–25)]][[D&C 43.25|]].  

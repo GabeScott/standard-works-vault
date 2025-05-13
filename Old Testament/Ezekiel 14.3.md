@@ -5,6 +5,6 @@
 [Ezekiel 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.3?lang=eng#p3)
 
 
-[^a]: TG [[Wickedness, Wicked]].
-[^b]: [[Ezekiel 20.3|Ezek. 20:3]]; [[Ezekiel 36.37|36:37.]]
-[^c]: [[2 Kings 3.13|2 Kgs. 3:13]]; [[2 Corinthians 6.14|2 Cor. 6:14 (14-16).]]
+[^a]: [[Wickedness, Wicked|TG Wickedness]].  
+[^b]: [[Ezekiel 20.3|Ezek. 20:3]]; [[Ezekiel 36.37|36:37]].  
+[^c]: [[2 Kings 3.13|2 Kgs. 3:13]]; [[2 Corinthians 6.14|2 Cor. 6:14 (14–16)]][[2 Corinthians 6.15|]][[2 Corinthians 6.16|]].  

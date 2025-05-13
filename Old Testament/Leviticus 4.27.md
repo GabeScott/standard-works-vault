@@ -5,4 +5,4 @@
 [Leviticus 4:27](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.27?lang=eng#p27)
 
 
-[^a]: [[Ezekiel 45.20|Ezek. 45:20.]]
+[^a]: [[Ezekiel 45.20|Ezek. 45:20]].  

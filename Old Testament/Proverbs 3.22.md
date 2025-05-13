@@ -5,4 +5,4 @@
 [Proverbs 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.22?lang=eng#p22)
 
 
-[^a]: [[Proverbs 1.9|Prov. 1:9.]]
+[^a]: [[Proverbs 1.9|Prov. 1:9]].  

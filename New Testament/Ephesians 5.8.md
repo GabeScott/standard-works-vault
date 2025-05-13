@@ -5,5 +5,5 @@
 [Ephesians 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.8?lang=eng#p8)
 
 
-[^a]: TG [[Children of Light]].
-[^b]: [[Romans 12.2|Rom. 12:2.]]
+[^a]: [[Children of Light|TG Children of Light]].  
+[^b]: [[Romans 12.2|Rom. 12:2]].  

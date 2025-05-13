@@ -5,5 +5,5 @@
 [John 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/2.11?lang=eng#p11)
 
 
-[^a]: [[John 4.54|John 4:54.]]
-[^b]: TG [[Miracle]].
+[^a]: [[John 4.54|John 4:54]].  
+[^b]: [[Miracle|TG Miracle]].  

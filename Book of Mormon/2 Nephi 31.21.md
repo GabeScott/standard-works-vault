@@ -5,9 +5,9 @@
 [2 Nephi 31:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p21#p21)
 
 
-[^a]: [[Exodus 33.13|Ex. 33:13 (12-13)]]; [[Acts 4.12|Acts 4:12]]; [[2 Nephi 9.41|2 Ne. 9:41]]; [[Alma 37.46|Alma 37:46]]; [[D&C 132.22|D&C 132:22 (22, 25).]]
-[^b]: [[2 Nephi 25.20|2 Ne. 25:20]]; [[Mosiah 3.17|Mosiah 3:17.]]
-[^c]: TG [[Jesus Christ, Taking the Name of]].
-[^d]: [[Matthew 7.28|Matt. 7:28]]; [[John 7.16|John 7:16.]]
-[^e]: TG [[Godhead]].
-[^f]: [[Deuteronomy 6.4|Deut. 6:4]]; [[Galatians 3.20|Gal. 3:20]]; [[1 Nephi 13.41|1 Ne. 13:41]]; [[3 Nephi 28.10|3 Ne. 28:10]]; [[Mormon 7.7|Morm. 7:7]]. TG [[Unity]].
+[^a]: [[Exodus 33.12|Ex. 33:13 (12–13)]][[Exodus 33.13|]]; [[Acts 4.12|Acts 4:12]]; [[2 Nephi 9.41|2 Ne. 9:41]]; [[Alma 37.46|Alma 37:46]]; [[D&C 132.22|D&C 132:22 (22, 25)]][[D&C 132.25|]].  
+[^b]: [[2 Nephi 25.20|2 Ne. 25:20]]; [[Mosiah 3.17|Mosiah 3:17]].  
+[^c]: [[Jesus Christ, Taking the Name of|TG Jesus Christ, Taking the Name of]].  
+[^d]: [[Matthew 7.28|Matt. 7:28]]; [[John 7.16|John 7:16]].  
+[^e]: [[Godhead|TG Godhead]].  
+[^f]: [[Deuteronomy 6.4|Deut. 6:4]]; [[Galatians 3.20|Gal. 3:20]]; [[1 Nephi 13.41|1 Ne. 13:41]]; [[3 Nephi 28.10|3 Ne. 28:10]]; [[Mormon 7.7|Morm. 7:7]]. [[Unity|TG Unity]].  

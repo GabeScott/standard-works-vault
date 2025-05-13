@@ -5,5 +5,5 @@
 [Ether 4:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/4?lang=eng&id=p15#p15)
 
 
-[^a]: [[2 Nephi 27.10|2 Ne. 27:10.]]
-[^b]: [[Genesis 4.26|Gen. 4:26]]; [[Moroni 2.2|Moro. 2:2.]]
+[^a]: [[2 Nephi 27.10|2 Ne. 27:10]].  
+[^b]: [[Genesis 4.26|Gen. 4:26]]; [[Moroni 2.2|Moro. 2:2]].  

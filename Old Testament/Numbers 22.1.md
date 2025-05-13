@@ -5,5 +5,5 @@
 [Numbers 22:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/22.1?lang=eng#p1)
 
 
-[^a]: OR encamped.
-[^b]: IE across the Jordan from Jericho.
+[^a]: OR encamped.  
+[^b]: IE across the Jordan from Jericho.  

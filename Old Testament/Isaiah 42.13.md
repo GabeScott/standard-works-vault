@@ -5,5 +5,5 @@
 [Isaiah 42:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.13?lang=eng#p13)
 
 
-[^a]: OR zeal, ardor.
-[^b]: [[Isaiah 31.4|Isa. 31:4.]]
+[^a]: OR zeal, ardor.  
+[^b]: [[Isaiah 31.4|Isa. 31:4]].  

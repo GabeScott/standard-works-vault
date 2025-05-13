@@ -5,4 +5,4 @@
 [Helaman 15:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p16#p16)
 
 
-[^a]: [[Enos 1.13|Enos 1:13.]]
+[^a]: [[Enos 1.13|Enos 1:13]].  

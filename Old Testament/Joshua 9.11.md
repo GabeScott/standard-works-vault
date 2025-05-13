@@ -5,4 +5,4 @@
 [Joshua 9:11](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.11?lang=eng#p11)
 
 
-[^a]: HEB bread, or provisions (also v. 14).
+[^a]: HEB bread, or provisions (also [[Joshua 9.14|v. 14]]).  

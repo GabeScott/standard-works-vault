@@ -5,4 +5,4 @@
 [Jeremiah 36:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.16?lang=eng#p16)
 
 
-[^a]: [[Mosiah 4.1|Mosiah 4:1 (1-2).]]
+[^a]: [[Mosiah 4.1|Mosiah 4:1 (1–2)]][[Mosiah 4.2|]].  

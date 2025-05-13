@@ -5,4 +5,4 @@
 [Genesis 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.11?lang=eng#p11)
 
 
-[^a]: [[Abraham 2.22|Abr. 2:22.]]
+[^a]: [[Abraham 2.22|Abr. 2:22]].  

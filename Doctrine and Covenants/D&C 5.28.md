@@ -5,4 +5,4 @@
 [D&C 5:28](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.28?lang=eng#p28)
 
 
-[^a]: [[Ether 4.7|Ether 4:7.]]
+[^a]: [[Ether 4.7|Ether 4:7]].  

@@ -5,4 +5,4 @@
 [Acts 24:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.26?lang=eng#p26)
 
 
-[^a]: TG [[Bribe, Bribery]]; [[Selfishness]].
+[^a]: [[Bribe, Bribery|TG Bribe]]; [[Selfishness|Selfishness]].  

@@ -5,5 +5,5 @@
 [1 Corinthians 4:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.9?lang=eng#p9)
 
 
-[^a]: GR last apostles. Rom. 1:1; [[1 Nephi 11.34|1 Ne. 11:34 (33-34).]]
-[^b]: [[D&C 42.48|D&C 42:48.]]
+[^a]: GR last apostles. [[Romans 1.1|Rom. 1:1]]; [[1 Nephi 11.33|1 Ne. 11:34 (33–34)]][[1 Nephi 11.34|]].  
+[^b]: [[D&C 42.48|D&C 42:48]].  

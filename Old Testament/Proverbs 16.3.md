@@ -5,5 +5,5 @@
 [Proverbs 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 55.22|Ps. 55:22]]; [[Matthew 6.25|Matt. 6:25]]; Philip. 4:6.
-[^b]: TG [[Motivations]].
+[^a]: [[Psalms 55.22|Ps. 55:22]]; [[Matthew 6.25|Matt. 6:25]]; [[Philippians 4.6|Philip. 4:6]].  
+[^b]: [[Motivations|TG Motivations]].  

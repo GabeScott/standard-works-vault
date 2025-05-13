@@ -5,4 +5,4 @@
 [2 Chronicles 25:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/25.8?lang=eng#p8)
 
 
-[^a]: [[D&C 60.4|D&C 60:4.]]
+[^a]: [[D&C 60.4|D&C 60:4]].  

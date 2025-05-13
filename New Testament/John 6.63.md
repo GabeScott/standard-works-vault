@@ -5,4 +5,4 @@
 [John 6:63](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.63?lang=eng#p63)
 
 
-[^a]: [[2 Corinthians 3.6|2 Cor. 3:6.]]
+[^a]: [[2 Corinthians 3.6|2 Cor. 3:6]].  

@@ -5,5 +5,5 @@
 [2 Chronicles 9:26](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/9.26?lang=eng#p26)
 
 
-[^a]: [[1 Kings 4.21|1 Kgs. 4:21.]]
-[^b]: IE the Euphrates.
+[^a]: [[1 Kings 4.21|1 Kgs. 4:21]].  
+[^b]: IE the Euphrates.  

@@ -5,5 +5,5 @@
 [Moses 6:39](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.39?lang=eng#p39)
 
 
-[^a]: [[Luke 7.16|Luke 7:16]]; [[Alma 19.25|Alma 19:25 (24-27).]]
-[^b]: TG [[God, Privilege of Seeing]]; [[Walking with God]].
+[^a]: [[Luke 7.16|Luke 7:16]]; [[Alma 19.24|Alma 19:25 (24–27)]][[Alma 19.25|]][[Alma 19.26|]][[Alma 19.27|]].  
+[^b]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]]; [[Walking with God|Walking with God]].  

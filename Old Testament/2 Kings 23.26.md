@@ -5,4 +5,4 @@
 [2 Kings 23:26](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.26?lang=eng#p26)
 
 
-[^a]: [[2 Kings 21.11|2 Kgs. 21:11.]]
+[^a]: [[2 Kings 21.11|2 Kgs. 21:11]].  

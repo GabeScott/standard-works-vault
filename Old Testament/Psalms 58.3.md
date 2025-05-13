@@ -5,5 +5,5 @@
 [Psalms 58:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/58.3?lang=eng#p3)
 
 
-[^a]: [[Isaiah 48.8|Isa. 48:8.]]
-[^b]: TG [[Conceived in Sin]].
+[^a]: [[Isaiah 48.8|Isa. 48:8]].  
+[^b]: [[Conceived in Sin|TG Conceived in Sin]].  

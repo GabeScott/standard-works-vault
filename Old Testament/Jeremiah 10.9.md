@@ -5,5 +5,5 @@
 [Jeremiah 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.9?lang=eng#p9)
 
 
-[^a]: [[Psalms 115.4|Ps. 115:4.]]
-[^b]: [[D&C 124.84|D&C 124:84.]]
+[^a]: [[Psalms 115.4|Ps. 115:4]].  
+[^b]: [[D&C 124.84|D&C 124:84]].  

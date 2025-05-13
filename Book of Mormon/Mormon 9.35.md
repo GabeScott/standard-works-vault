@@ -5,4 +5,4 @@
 [Mormon 9:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p35#p35)
 
 
-[^a]: [[2 Nephi 26.15|2 Ne. 26:15.]]
+[^a]: [[2 Nephi 26.15|2 Ne. 26:15]].  

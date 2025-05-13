@@ -5,4 +5,4 @@
 [Psalms 107:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.14?lang=eng#p14)
 
 
-[^a]: [[Job 3.5|Job 3:5.]]
+[^a]: [[Job 3.5|Job 3:5]].  

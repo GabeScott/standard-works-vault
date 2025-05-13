@@ -5,4 +5,4 @@
 [Jeremiah 39:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/39.18?lang=eng#p18)
 
 
-[^a]: [[Jeremiah 21.9|Jer. 21:9]]; [[Jeremiah 45.5|45:5.]]
+[^a]: [[Jeremiah 21.9|Jer. 21:9]]; [[Jeremiah 45.5|45:5]].  

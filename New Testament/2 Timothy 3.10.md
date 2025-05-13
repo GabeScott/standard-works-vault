@@ -5,4 +5,4 @@
 [2 Timothy 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.10?lang=eng#p10)
 
 
-[^a]: GR followed closely, conformed to.
+[^a]: GR followed closely, conformed to.  

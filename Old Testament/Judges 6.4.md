@@ -5,4 +5,4 @@
 [Judges 6:4](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.4?lang=eng#p4)
 
 
-[^a]: OR produce.
+[^a]: OR produce.  

@@ -5,4 +5,4 @@
 [Job 32:19](https://www.churchofjesuschrist.org/study/scriptures/ot/job/32.19?lang=eng#p19)
 
 
-[^a]: HEB wineskins.
+[^a]: HEB wineskins.  

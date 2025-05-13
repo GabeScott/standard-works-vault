@@ -5,6 +5,6 @@
 [James 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.8?lang=eng#p8)
 
 
-[^a]: TG [[Patience, Patient, Patiently]].
-[^b]: [[2 Nephi 31.20|2 Ne. 31:20 (17-21).]]
-[^c]: [[D&C 106.4|D&C 106:4.]]
+[^a]: [[Patience, Patient, Patiently|TG Patience]].  
+[^b]: [[2 Nephi 31.17|2 Ne. 31:20 (17–21)]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].  
+[^c]: [[D&C 106.4|D&C 106:4]].  

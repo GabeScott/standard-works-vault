@@ -5,6 +5,6 @@
 [Galatians 5:16](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.16?lang=eng#p16)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: TG [[Guidance, Divine]].
-[^c]: TG [[Chastity, Chaste]]; [[Lust]].
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Guidance, Divine|TG Guidance, Divine]].  
+[^c]: [[Chastity, Chaste|TG Chastity]]; [[Lust|Lust]].  

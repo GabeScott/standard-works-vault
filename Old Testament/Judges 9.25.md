@@ -5,4 +5,4 @@
 [Judges 9:25](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.25?lang=eng#p25)
 
 
-[^a]: [[Joshua 8.13|Josh. 8:13.]]
+[^a]: [[Joshua 8.13|Josh. 8:13]].  

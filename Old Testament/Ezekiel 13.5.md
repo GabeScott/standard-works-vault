@@ -5,4 +5,4 @@
 [Ezekiel 13:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.5?lang=eng#p5)
 
 
-[^a]: IE breaks in the wall.
+[^a]: IE breaks in the wall.  

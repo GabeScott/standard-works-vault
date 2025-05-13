@@ -5,4 +5,4 @@
 [Job 38:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/38.6?lang=eng#p6)
 
 
-[^a]: TG [[Cornerstone]].
+[^a]: [[Cornerstone|TG Cornerstone]].  

@@ -5,5 +5,5 @@
 [Luke 6:36](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.36?lang=eng#p36)
 
 
-[^a]: TG [[Mercy, Merciful]].
-[^b]: TG [[God, Mercy of]].
+[^a]: [[Mercy, Merciful|TG Mercy]].  
+[^b]: [[God, Mercy of|TG God, Mercy of]].  

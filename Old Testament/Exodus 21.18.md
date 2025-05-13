@@ -5,4 +5,4 @@
 [Exodus 21:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.18?lang=eng#p18)
 
 
-[^a]: OR is laid up in bed.
+[^a]: OR is laid up in bed.  

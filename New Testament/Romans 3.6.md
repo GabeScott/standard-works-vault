@@ -5,5 +5,5 @@
 [Romans 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.6?lang=eng#p6)
 
 
-[^a]: GR May it not be!
-[^b]: TG [[Jesus Christ, Judge]].
+[^a]: GR May it not be!  
+[^b]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

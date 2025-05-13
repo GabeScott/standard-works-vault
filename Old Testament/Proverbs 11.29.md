@@ -5,4 +5,4 @@
 [Proverbs 11:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.29?lang=eng#p29)
 
 
-[^a]: TG [[Marriage, Fatherhood]].
+[^a]: [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  

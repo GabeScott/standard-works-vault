@@ -5,5 +5,5 @@
 [1 Corinthians 15:44](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.44?lang=eng#p44)
 
 
-[^a]: [[D&C 29.43|D&C 29:43.]]
-[^b]: [[Alma 11.45|Alma 11:45]]; [[D&C 88.27|D&C 88:27.]]
+[^a]: [[D&C 29.43|D&C 29:43]].  
+[^b]: [[Alma 11.45|Alma 11:45]]; [[D&C 88.27|D&C 88:27]].  

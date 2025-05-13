@@ -5,4 +5,4 @@
 [Genesis 31:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.10?lang=eng#p10)
 
 
-[^a]: HEB flock.
+[^a]: HEB flock.  

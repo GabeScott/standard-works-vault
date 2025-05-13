@@ -5,4 +5,4 @@
 [Exodus 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/5.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 1.12|Ex. 1:12.]]
+[^a]: [[Exodus 1.12|Ex. 1:12]].  

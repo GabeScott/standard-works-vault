@@ -5,4 +5,4 @@
 [1 Kings 19:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/19.20?lang=eng#p20)
 
 
-[^a]: [[Luke 9.61|Luke 9:61.]]
+[^a]: [[Luke 9.61|Luke 9:61]].  

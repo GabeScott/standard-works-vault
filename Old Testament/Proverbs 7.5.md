@@ -5,4 +5,4 @@
 [Proverbs 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/7.5?lang=eng#p5)
 
 
-[^a]: [[2 Nephi 28.22|2 Ne. 28:22 (20-23).]]
+[^a]: [[2 Nephi 28.20|2 Ne. 28:22 (20–23)]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.23|]].  

@@ -5,4 +5,4 @@
 [Philippians 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.12?lang=eng#p12)
 
 
-[^a]: GR come.
+[^a]: GR come.  

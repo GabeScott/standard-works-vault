@@ -5,4 +5,4 @@
 [Nehemiah 6:8](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/6.8?lang=eng#p8)
 
 
-[^a]: [[Alma 55.1|Alma 55:1.]]
+[^a]: [[Alma 55.1|Alma 55:1]].  

@@ -5,5 +5,5 @@
 [Philippians 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.5?lang=eng#p5)
 
 
-[^a]: [[2 Corinthians 11.22|2 Cor. 11:22.]]
-[^b]: [[Acts 23.6|Acts 23:6.]]
+[^a]: [[2 Corinthians 11.22|2 Cor. 11:22]].  
+[^b]: [[Acts 23.6|Acts 23:6]].  

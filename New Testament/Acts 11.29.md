@@ -5,4 +5,4 @@
 [Acts 11:29](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/11.29?lang=eng#p29)
 
 
-[^a]: TG [[Almsgiving]]; [[Welfare]].
+[^a]: [[Almsgiving|TG Almsgiving]]; [[Welfare|Welfare]].  

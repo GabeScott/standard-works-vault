@@ -5,5 +5,5 @@
 [Isaiah 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.8?lang=eng#p8)
 
 
-[^a]: TG [[Vineyard of the Lord]].
-[^b]: IE a watchman’s hut.
+[^a]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  
+[^b]: IE a watchman’s hut.  

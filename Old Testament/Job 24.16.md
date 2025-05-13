@@ -5,4 +5,4 @@
 [Job 24:16](https://www.churchofjesuschrist.org/study/scriptures/ot/job/24.16?lang=eng#p16)
 
 
-[^a]: [[D&C 10.21|D&C 10:21.]]
+[^a]: [[D&C 10.21|D&C 10:21]].  

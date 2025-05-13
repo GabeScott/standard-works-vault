@@ -5,5 +5,5 @@
 [Deuteronomy 24:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.13?lang=eng#p13)
 
 
-[^a]: [[Exodus 22.26|Ex. 22:26]]; [[Ezekiel 18.7|Ezek. 18:7.]]
-[^b]: OR garment (also v. 17).
+[^a]: [[Exodus 22.26|Ex. 22:26]]; [[Ezekiel 18.7|Ezek. 18:7]].  
+[^b]: OR garment (also [[Deuteronomy 24.17|v. 17]]).  

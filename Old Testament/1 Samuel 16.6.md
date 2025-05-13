@@ -5,4 +5,4 @@
 [1 Samuel 16:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/16.6?lang=eng#p6)
 
 
-[^a]: [[1 Samuel 17.13|1 Sam. 17:13]]; [[1 Chronicles 2.13|1 Chr. 2:13]]; [[2 Chronicles 11.18|2 Chr. 11:18.]]
+[^a]: [[1 Samuel 17.13|1 Sam. 17:13]]; [[1 Chronicles 2.13|1 Chr. 2:13]]; [[2 Chronicles 11.18|2 Chr. 11:18]].  

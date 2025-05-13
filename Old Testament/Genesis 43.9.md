@@ -5,4 +5,4 @@
 [Genesis 43:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.9?lang=eng#p9)
 
 
-[^a]: [[Genesis 44.32|Gen. 44:32.]]
+[^a]: [[Genesis 44.32|Gen. 44:32]].  

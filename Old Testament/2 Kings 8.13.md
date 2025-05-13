@@ -5,4 +5,4 @@
 [2 Kings 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/8.13?lang=eng#p13)
 
 
-[^a]: [[1 Kings 19.15|1 Kgs. 19:15.]]
+[^a]: [[1 Kings 19.15|1 Kgs. 19:15]].  

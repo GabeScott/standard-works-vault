@@ -5,5 +5,5 @@
 [Ruth 1:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/1.20?lang=eng#p20)
 
 
-[^a]: IE Pleasant.
-[^b]: IE a name given to Naomi by herself, which means “bitter,” or “very sad.”
+[^a]: IE Pleasant.  
+[^b]: IE a name given to Naomi by herself, which means “bitter,” or “very sad.”  

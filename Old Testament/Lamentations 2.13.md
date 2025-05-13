@@ -5,4 +5,4 @@
 [Lamentations 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.13?lang=eng#p13)
 
 
-[^a]: [[2 Kings 19.21|2 Kgs. 19:21.]]
+[^a]: [[2 Kings 19.21|2 Kgs. 19:21]].  

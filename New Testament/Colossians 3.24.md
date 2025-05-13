@@ -5,7 +5,7 @@
 [Colossians 3:24](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.24?lang=eng#p24)
 
 
-[^a]: [[Ephesians 6.8|Eph. 6:8.]]
-[^b]: TG [[Reward]].
-[^c]: TG [[Inheritance]].
-[^d]: [[1 Corinthians 7.22|1 Cor. 7:22.]]
+[^a]: [[Ephesians 6.8|Eph. 6:8]].  
+[^b]: [[Reward|TG Reward]].  
+[^c]: [[Inheritance|TG Inheritance]].  
+[^d]: [[1 Corinthians 7.22|1 Cor. 7:22]].  

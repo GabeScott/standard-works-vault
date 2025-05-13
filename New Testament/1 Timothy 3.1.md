@@ -5,5 +5,5 @@
 [1 Timothy 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/3.1?lang=eng#p1)
 
 
-[^a]: [[1 Timothy 1.15|1 Tim. 1:15.]]
-[^b]: TG [[Bishop]].
+[^a]: [[1 Timothy 1.15|1 Tim. 1:15]].  
+[^b]: [[Bishop|TG Bishop]].  

@@ -5,4 +5,4 @@
 [2 Kings 19:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.23?lang=eng#p23)
 
 
-[^a]: [[Isaiah 10.13|Isa. 10:13 (12-14).]]
+[^a]: [[Isaiah 10.12|Isa. 10:13 (12–14)]][[Isaiah 10.13|]][[Isaiah 10.14|]].  

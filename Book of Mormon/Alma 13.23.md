@@ -5,5 +5,5 @@
 [Alma 13:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p23#p23)
 
 
-[^a]: [[2 Nephi 25.7|2 Ne. 25:7 (7-8)]]; [[2 Nephi 31.3|31:3]]; [[2 Nephi 32.7|32:7]]; [[Jacob 4.13|Jacob 4:13]]; [[Ether 12.39|Ether 12:39.]]
-[^b]: [[Jacob 7.26|Jacob 7:26.]]
+[^a]: [[2 Nephi 25.7|2 Ne. 25:7 (7–8)]][[2 Nephi 25.8|]]; [[2 Nephi 31.3|31:3]]; [[2 Nephi 32.7|32:7]]; [[Jacob 4.13|Jacob 4:13]]; [[Ether 12.39|Ether 12:39]].  
+[^b]: [[Jacob 7.26|Jacob 7:26]].  

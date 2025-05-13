@@ -5,4 +5,4 @@
 [Moses 1:40](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.40?lang=eng#p40)
 
 
-[^a]: [[Nehemiah 13.1|Neh. 13:1 (1-3)]]; 2 Tim. 3:16; [[2 Nephi 29.11|2 Ne. 29:11 (11-12).]]
+[^a]: [[Nehemiah 13.1|Neh. 13:1 (1–3)]][[Nehemiah 13.2|]][[Nehemiah 13.3|]]; [[2 Timothy 3.16|2 Tim. 3:16]]; [[2 Nephi 29.11|2 Ne. 29:11 (11–12)]][[2 Nephi 29.12|]].  

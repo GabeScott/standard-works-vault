@@ -5,4 +5,4 @@
 [Mosiah 9:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/9?lang=eng&id=p18#p18)
 
 
-[^a]: [[Exodus 2.24|Ex. 2:24 (23-24)]]; [[Psalms 4.1|Ps. 4:1 (1, 3)]]; Dan. 10:12; [[D&C 35.3|D&C 35:3]]; [[Abraham 1.15|Abr. 1:15 (15-16).]]
+[^a]: [[Exodus 2.23|Ex. 2:24 (23–24)]][[Exodus 2.24|]]; [[Psalms 4.1|Ps. 4:1 (1, 3)]][[Psalms 4.3|]]; [[Daniel 10.12|Dan. 10:12]]; [[D&C 35.3|D&C 35:3]]; [[Abraham 1.15|Abr. 1:15 (15–16)]][[Abraham 1.16|]].  

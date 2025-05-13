@@ -5,5 +5,5 @@
 [Mosiah 15:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p29#p29)
 
 
-[^a]: [[Isaiah 52.8|Isa. 52:8 (8-10)]]; [[Mosiah 12.22|Mosiah 12:22 (22-24).]]
-[^b]: TG [[Watchman, Watchmen]].
+[^a]: [[Isaiah 52.8|Isa. 52:8 (8–10)]][[Isaiah 52.9|]][[Isaiah 52.10|]]; [[Mosiah 12.22|Mosiah 12:22 (22–24)]][[Mosiah 12.23|]][[Mosiah 12.24|]].  
+[^b]: [[Watchman, Watchmen|TG Watchman]].  

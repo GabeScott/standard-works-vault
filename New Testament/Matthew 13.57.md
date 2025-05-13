@@ -5,4 +5,4 @@
 [Matthew 13:57](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.57?lang=eng#p57)
 
 
-[^a]: TG [[Prophets, Rejection of]].
+[^a]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

@@ -5,6 +5,6 @@
 [Ephesians 4:30](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.30?lang=eng#p30)
 
 
-[^a]: [[Genesis 6.6|Gen. 6:6.]]
-[^b]: TG [[God, Spirit of]].
-[^c]: TG [[Sealing, Sealed]].
+[^a]: [[Genesis 6.6|Gen. 6:6]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]].  
+[^c]: [[Sealing, Sealed|TG Sealing]].  

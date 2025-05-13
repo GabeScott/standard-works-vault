@@ -5,5 +5,5 @@
 [2 Nephi 31:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p1#p1)
 
 
-[^a]: [[2 Nephi 25.4|2 Ne. 25:4 (1-4).]]
-[^b]: [[2 Nephi 11.1|2 Ne. 11:1.]]
+[^a]: [[2 Nephi 25.1|2 Ne. 25:4 (1–4)]][[2 Nephi 25.2|]][[2 Nephi 25.3|]][[2 Nephi 25.4|]].  
+[^b]: [[2 Nephi 11.1|2 Ne. 11:1]].  

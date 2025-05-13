@@ -5,5 +5,5 @@
 [Helaman 12:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p26#p26)
 
 
-[^a]: Dan. 12:2 (2-3); [[D&C 19.7|D&C 19:7.]]
-[^b]: TG [[Damnation, Damned]].
+[^a]: [[Daniel 12.2|Dan. 12:2 (2–3)]][[Daniel 12.3|]]; [[D&C 19.7|D&C 19:7]].  
+[^b]: [[Damnation, Damned|TG Damnation]].  

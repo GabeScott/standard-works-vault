@@ -5,6 +5,6 @@
 [Genesis 22:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.12?lang=eng#p12)
 
 
-[^a]: [[D&C 132.36|D&C 132:36.]]
-[^b]: [[James 2.23|James 2:23 (21-23).]]
-[^c]: TG [[Loyalty]].
+[^a]: [[D&C 132.36|D&C 132:36]].  
+[^b]: [[James 2.21|James 2:23 (21–23)]][[James 2.22|]][[James 2.23|]].  
+[^c]: [[Loyalty|TG Loyalty]].  

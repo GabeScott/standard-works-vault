@@ -5,4 +5,4 @@
 [Alma 56:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 24.18|Alma 24:18 (17-19)]]; [[Alma 53.13|53:13 (13-15).]]
+[^a]: [[Alma 24.17|Alma 24:18 (17–19)]][[Alma 24.18|]][[Alma 24.19|]]; [[Alma 53.13|53:13 (13–15)]][[Alma 53.14|]][[Alma 53.15|]].  

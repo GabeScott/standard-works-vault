@@ -5,5 +5,5 @@
 [Ecclesiastes 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.10?lang=eng#p10)
 
 
-[^a]: OR business, work, occupation, task.
-[^b]: [[D&C 122.7|D&C 122:7 (5-7).]]
+[^a]: OR business, work, occupation, task.  
+[^b]: [[D&C 122.5|D&C 122:7 (5–7)]][[D&C 122.6|]][[D&C 122.7|]].  

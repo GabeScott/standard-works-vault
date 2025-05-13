@@ -5,4 +5,4 @@
 [Philippians 4:5](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.5?lang=eng#p5)
 
 
-[^a]: GR gentleness. TG [[Modesty]]; [[Temperance, Temperate]].
+[^a]: GR gentleness. [[Modesty|TG Modesty]]; [[Temperance, Temperate|Temperance]].  

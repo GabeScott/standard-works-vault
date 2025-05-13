@@ -5,5 +5,5 @@
 [Genesis 27:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.27?lang=eng#p27)
 
 
-[^a]: [[Genesis 48.10|Gen. 48:10.]]
-[^b]: [[Hebrews 11.20|Heb. 11:20.]]
+[^a]: [[Genesis 48.10|Gen. 48:10]].  
+[^b]: [[Hebrews 11.20|Heb. 11:20]].  

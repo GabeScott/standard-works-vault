@@ -5,4 +5,4 @@
 [1 Samuel 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.4?lang=eng#p4)
 
 
-[^a]: [[1 Samuel 13.23|1 Sam. 13:23.]]
+[^a]: [[1 Samuel 13.23|1 Sam. 13:23]].  

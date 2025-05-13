@@ -5,4 +5,4 @@
 [1 Samuel 23:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/23.16?lang=eng#p16)
 
 
-[^a]: [[1 Samuel 20.42|1 Sam. 20:42 (41-42).]]
+[^a]: [[1 Samuel 20.41|1 Sam. 20:42 (41–42)]][[1 Samuel 20.42|]].  

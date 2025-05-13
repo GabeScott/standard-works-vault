@@ -5,4 +5,4 @@
 [Alma 50:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 22.32|Alma 22:32.]]
+[^a]: [[Alma 22.32|Alma 22:32]].  

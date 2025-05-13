@@ -5,5 +5,5 @@
 [2 Nephi 9:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p38#p38)
 
 
-[^a]: [[Ezekiel 18.24|Ezek. 18:24]]. TG [[Sin]].
-[^b]: [[Alma 40.11|Alma 40:11.]]
+[^a]: [[Ezekiel 18.24|Ezek. 18:24]]. [[Sin|TG Sin]].  
+[^b]: [[Alma 40.11|Alma 40:11]].  

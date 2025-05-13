@@ -5,4 +5,4 @@
 [Ezekiel 31:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/31.14?lang=eng#p14)
 
 
-[^a]: HEB the earth underneath; i.e., the grave.
+[^a]: HEB the earth underneath; i.e., the grave.  

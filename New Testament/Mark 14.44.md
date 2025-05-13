@@ -5,4 +5,4 @@
 [Mark 14:44](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.44?lang=eng#p44)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  

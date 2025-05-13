@@ -5,6 +5,6 @@
 [James 2:23](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.23?lang=eng#p23)
 
 
-[^a]: [[Genesis 22.12|Gen. 22:12]]. TG [[Faith]].
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: [[Isaiah 41.8|Isa. 41:8]]. TG [[Friendship, Friend]].
+[^a]: [[Genesis 22.12|Gen. 22:12]]. [[Faith|TG Faith]].  
+[^b]: [[Righteousness|TG Righteousness]].  
+[^c]: [[Isaiah 41.8|Isa. 41:8]]. [[Friendship, Friend|TG Friendship]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 8:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.4?lang=eng#p4)
 
 
-[^a]: OR Your clothing did not wear out.
+[^a]: OR Your clothing did not wear out.  

@@ -5,5 +5,5 @@
 [Mosiah 2:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p19#p19)
 
 
-[^a]: [[1 Chronicles 16.8|1 Chr. 16:8]]. TG [[Thanksgiving]].
-[^b]: TG [[Kingdom of God, in Heaven]].
+[^a]: [[1 Chronicles 16.8|1 Chr. 16:8]]. [[Thanksgiving|TG Thanksgiving]].  
+[^b]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  

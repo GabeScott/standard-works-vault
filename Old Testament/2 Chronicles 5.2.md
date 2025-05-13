@@ -5,5 +5,5 @@
 [2 Chronicles 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/5.2?lang=eng#p2)
 
 
-[^a]: [[1 Kings 8.1|1 Kgs. 8:1 (1-11).]]
-[^b]: TG [[Ark of the Covenant]].
+[^a]: [[1 Kings 8.1|1 Kgs. 8:1 (1–11)]][[1 Kings 8.2|]][[1 Kings 8.3|]][[1 Kings 8.4|]][[1 Kings 8.5|]][[1 Kings 8.6|]][[1 Kings 8.7|]][[1 Kings 8.8|]][[1 Kings 8.9|]][[1 Kings 8.10|]][[1 Kings 8.11|]].  
+[^b]: [[Ark of the Covenant|TG Ark of the Covenant]].  

@@ -5,7 +5,7 @@
 [2 Nephi 29:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Jesus Christ, Creator]]; [[Man, Physical Creation of]]; [[Nations]].
-[^b]: [[Isaiah 51.5|Isa. 51:5]]; [[1 Nephi 22.4|1 Ne. 22:4]]; [[2 Nephi 10.8|2 Ne. 10:8 (8, 20)]]; [[D&C 133.8|D&C 133:8.]]
-[^c]: [[Deuteronomy 10.14|Deut. 10:14]]; [[1 Nephi 11.6|1 Ne. 11:6]]; [[D&C 55.1|D&C 55:1]]; [[Moses 6.44|Moses 6:44.]]
-[^d]: [[D&C 5.6|D&C 5:6.]]
+[^a]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]]; [[Man, Physical Creation of|Man, Physical Creation of]]; [[Nations|Nations]].  
+[^b]: [[Isaiah 51.5|Isa. 51:5]]; [[1 Nephi 22.4|1 Ne. 22:4]]; [[2 Nephi 10.8|2 Ne. 10:8 (8, 20)]][[2 Nephi 10.20|]]; [[D&C 133.8|D&C 133:8]].  
+[^c]: [[Deuteronomy 10.14|Deut. 10:14]]; [[1 Nephi 11.6|1 Ne. 11:6]]; [[D&C 55.1|D&C 55:1]]; [[Moses 6.44|Moses 6:44]].  
+[^d]: [[D&C 5.6|D&C 5:6]].  

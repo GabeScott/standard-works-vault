@@ -5,4 +5,4 @@
 [Alma 45:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p23#p23)
 
 
-[^a]: [[3 Nephi 11.29|3 Ne. 11:29 (28-29).]]
+[^a]: [[3 Nephi 11.28|3 Ne. 11:29 (28–29)]][[3 Nephi 11.29|]].  

@@ -5,6 +5,6 @@
 [Luke 11:34](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.34?lang=eng#p34)
 
 
-[^a]: [[D&C 88.68|D&C 88:68 (67-68).]]
-[^b]: [[Mormon 8.15|Morm. 8:15 (13-15)]]; JS—H 1:46.
-[^c]: TG [[Darkness, Spiritual]].
+[^a]: [[D&C 88.67|D&C 88:68 (67–68)]][[D&C 88.68|]].  
+[^b]: [[Mormon 8.13|Morm. 8:15 (13–15)]][[Mormon 8.14|]][[Mormon 8.15|]]; [[Joseph Smith History 1.46|JS—H 1:46]].  
+[^c]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  

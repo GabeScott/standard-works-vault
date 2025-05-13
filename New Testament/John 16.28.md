@@ -5,6 +5,6 @@
 [John 16:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.28?lang=eng#p28)
 
 
-[^a]: [[John 8.42|John 8:42]]; [[John 17.8|17:8]]; [[Galatians 4.4|Gal. 4:4.]]
-[^b]: [[John 8.14|John 8:14.]]
-[^c]: TG [[Man, Antemortal Existence of]].
+[^a]: [[John 8.42|John 8:42]]; [[John 17.8|17:8]]; [[Galatians 4.4|Gal. 4:4]].  
+[^b]: [[John 8.14|John 8:14]].  
+[^c]: [[Man, Antemortal Existence of|TG Man, Antemortal Existence of]].  

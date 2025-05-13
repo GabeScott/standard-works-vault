@@ -5,5 +5,5 @@
 [Helaman 13:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p33#p33)
 
 
-[^a]: [[Mormon 2.10|Morm. 2:10 (10-15).]]
-[^b]: [[Matthew 23.37|Matt. 23:37.]]
+[^a]: [[Mormon 2.10|Morm. 2:10 (10–15)]][[Mormon 2.11|]][[Mormon 2.12|]][[Mormon 2.13|]][[Mormon 2.14|]][[Mormon 2.15|]].  
+[^b]: [[Matthew 23.37|Matt. 23:37]].  

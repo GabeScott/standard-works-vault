@@ -5,4 +5,4 @@
 [Haggai 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/1.4?lang=eng#p4)
 
 
-[^a]: HEB paneled.
+[^a]: HEB paneled.  

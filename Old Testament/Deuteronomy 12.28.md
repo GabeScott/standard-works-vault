@@ -5,4 +5,4 @@
 [Deuteronomy 12:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.28?lang=eng#p28)
 
 
-[^a]: [[2 Nephi 13.10|2 Ne. 13:10.]]
+[^a]: [[2 Nephi 13.10|2 Ne. 13:10]].  

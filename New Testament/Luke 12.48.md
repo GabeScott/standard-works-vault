@@ -5,8 +5,8 @@
 [Luke 12:48](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.48?lang=eng#p48)
 
 
-[^a]: [[Romans 2.12|Rom. 2:12.]]
-[^b]: [[Deuteronomy 25.2|Deut. 25:2.]]
-[^c]: TG [[Talents]].
-[^d]: TG [[Stewardship, Steward]].
-[^e]: TG [[Accountability]]; [[Duty]]; [[Judgment]].
+[^a]: [[Romans 2.12|Rom. 2:12]].  
+[^b]: [[Deuteronomy 25.2|Deut. 25:2]].  
+[^c]: [[Talents|TG Talents]].  
+[^d]: [[Stewardship, Steward|TG Stewardship]].  
+[^e]: [[Accountability|TG Accountability]]; [[Duty|Duty]]; [[Judgment|Judgment]].  

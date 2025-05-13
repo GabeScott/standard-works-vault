@@ -5,5 +5,5 @@
 [Ephesians 4:25](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.25?lang=eng#p25)
 
 
-[^a]: TG [[Lying, Liar, Lie]].
-[^b]: TG [[Honesty]]; [[Truth]].
+[^a]: [[Lying, Liar, Lie|TG Lying]].  
+[^b]: [[Honesty|TG Honesty]]; [[Truth|Truth]].  

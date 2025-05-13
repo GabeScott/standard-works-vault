@@ -5,5 +5,5 @@
 [Isaiah 52:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.12?lang=eng#p12)
 
 
-[^a]: TG [[Haste, Hasten, Hasty]].
-[^b]: OR rearguard. D&C 49:27.
+[^a]: [[Haste, Hasten, Hasty|TG Haste]].  
+[^b]: OR rearguard. [[D&C 49.27|D&C 49:27]].  

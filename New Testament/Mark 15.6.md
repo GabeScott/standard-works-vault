@@ -5,4 +5,4 @@
 [Mark 15:6](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.6?lang=eng#p6)
 
 
-[^a]: GR usually released.
+[^a]: GR usually released.  

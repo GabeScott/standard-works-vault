@@ -5,6 +5,6 @@
 [Colossians 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/col/4.10?lang=eng#p10)
 
 
-[^a]: [[Acts 19.29|Acts 19:29]]; [[Acts 20.4|20:4]]; [[Acts 27.2|27:2.]]
-[^b]: [[Acts 15.37|Acts 15:37 (37-39)]]; 2 Tim. 4:11.
-[^c]: GR cousin, kinsman.
+[^a]: [[Acts 19.29|Acts 19:29]]; [[Acts 20.4|20:4]]; [[Acts 27.2|27:2]].  
+[^b]: [[Acts 15.37|Acts 15:37 (37–39)]][[Acts 15.38|]][[Acts 15.39|]]; [[2 Timothy 4.11|2 Tim. 4:11]].  
+[^c]: GR cousin, kinsman.  

@@ -5,4 +5,4 @@
 [1 Corinthians 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.1?lang=eng#p1)
 
 
-[^a]: TG [[God, Knowledge about]]; [[Mysteries of Godliness]].
+[^a]: [[God, Knowledge about|TG God, Knowledge about]]; [[Mysteries of Godliness|Mysteries of Godliness]].  

@@ -5,5 +5,5 @@
 [Colossians 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/col/2.18?lang=eng#p18)
 
 
-[^a]: [[Matthew 24.4|Matt. 24:4 (4-5)]]; [[Mosiah 26.6|Mosiah 26:6]]; [[D&C 123.12|D&C 123:12.]]
-[^b]: TG [[Humility, Humble]].
+[^a]: [[Matthew 24.4|Matt. 24:4 (4–5)]][[Matthew 24.5|]]; [[Mosiah 26.6|Mosiah 26:6]]; [[D&C 123.12|D&C 123:12]].  
+[^b]: [[Humility, Humble|TG Humility]].  

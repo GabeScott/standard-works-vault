@@ -5,4 +5,4 @@
 [Mark 14:27](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.27?lang=eng#p27)
 
 
-[^a]: [[Zechariah 13.7|Zech. 13:7.]]
+[^a]: [[Zechariah 13.7|Zech. 13:7]].  

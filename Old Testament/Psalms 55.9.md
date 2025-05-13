@@ -5,4 +5,4 @@
 [Psalms 55:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/55.9?lang=eng#p9)
 
 
-[^a]: TG [[Strife]].
+[^a]: [[Strife|TG Strife]].  

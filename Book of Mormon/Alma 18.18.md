@@ -5,5 +5,5 @@
 [Alma 18:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p18#p18)
 
 
-[^a]: TG [[Discernment, Spiritual]].
-[^b]: TG [[God, Omniscience of]].
+[^a]: [[Discernment, Spiritual|TG Discernment, Spiritual]].  
+[^b]: [[God, Omniscience of|TG God, Omniscience of]].  

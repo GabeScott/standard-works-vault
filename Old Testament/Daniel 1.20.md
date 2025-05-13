@@ -5,4 +5,4 @@
 [Daniel 1:20](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/1.20?lang=eng#p20)
 
 
-[^a]: TG [[Sorcery]]; [[Superstitions]].
+[^a]: [[Sorcery|TG Sorcery]]; [[Superstitions|Superstitions]].  

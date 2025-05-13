@@ -5,5 +5,5 @@
 [Ezekiel 19:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/19.10?lang=eng#p10)
 
 
-[^a]: TG [[Vineyard of the Lord]].
-[^b]: HEB in thy likeness.
+[^a]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  
+[^b]: HEB in thy likeness.  

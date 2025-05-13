@@ -5,7 +5,7 @@
 [Isaiah 66:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.16?lang=eng#p16)
 
 
-[^a]: [[Deuteronomy 32.41|Deut. 32:41]]; [[Isaiah 27.1|Isa. 27:1]]. TG [[War]].
-[^b]: HEB the Lord will judge all flesh.
-[^c]: [[Jeremiah 25.31|Jer. 25:31]]; [[Ezekiel 38.22|Ezek. 38:22]]; [[Joel 3.2|Joel 3:2.]]
-[^d]: [[Jeremiah 25.33|Jer. 25:33.]]
+[^a]: [[Deuteronomy 32.41|Deut. 32:41]]; [[Isaiah 27.1|Isa. 27:1]]. [[War|TG War]].  
+[^b]: HEB the Lord will judge all flesh.  
+[^c]: [[Jeremiah 25.31|Jer. 25:31]]; [[Ezekiel 38.22|Ezek. 38:22]]; [[Joel 3.2|Joel 3:2]].  
+[^d]: [[Jeremiah 25.33|Jer. 25:33]].  

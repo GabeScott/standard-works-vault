@@ -5,4 +5,4 @@
 [3 Nephi 11:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p26#p26)
 
 
-[^a]: [[Moses 6.52|Moses 6:52]]. TG [[Baptism, Immersion]]; [[Jesus Christ, Types of, in Memory]].
+[^a]: [[Moses 6.52|Moses 6:52]]. [[Baptism, Immersion|TG Baptism, Immersion]]; [[Jesus Christ, Types of, in Memory|Jesus Christ, Types of, in Memory]].  

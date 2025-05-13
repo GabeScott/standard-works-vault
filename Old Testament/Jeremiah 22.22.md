@@ -5,4 +5,4 @@
 [Jeremiah 22:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.22?lang=eng#p22)
 
 
-[^a]: Lam. 1:2.
+[^a]: [[Lamentations 1.2|Lam. 1:2]].  

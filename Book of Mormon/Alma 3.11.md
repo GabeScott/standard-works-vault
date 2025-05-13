@@ -5,5 +5,5 @@
 [Alma 3:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 17.9|Alma 17:9 (9-11).]]
-[^b]: [[Alma 2.11|Alma 2:11.]]
+[^a]: [[Alma 17.9|Alma 17:9 (9–11)]][[Alma 17.10|]][[Alma 17.11|]].  
+[^b]: [[Alma 2.11|Alma 2:11]].  

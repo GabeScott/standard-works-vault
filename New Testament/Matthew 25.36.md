@@ -5,5 +5,5 @@
 [Matthew 25:36](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.36?lang=eng#p36)
 
 
-[^a]: GR took care of, cared for.
-[^b]: [[Hebrews 13.3|Heb. 13:3.]]
+[^a]: GR took care of, cared for.  
+[^b]: [[Hebrews 13.3|Heb. 13:3]].  

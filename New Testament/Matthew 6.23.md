@@ -5,4 +5,4 @@
 [Matthew 6:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.23?lang=eng#p23)
 
 
-[^a]: TG [[Darkness, Spiritual]].
+[^a]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  

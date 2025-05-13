@@ -5,4 +5,4 @@
 [Jeremiah 26:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.2?lang=eng#p2)
 
 
-[^a]: [[D&C 28.3|D&C 28:3.]]
+[^a]: [[D&C 28.3|D&C 28:3]].  

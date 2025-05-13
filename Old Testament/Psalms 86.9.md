@@ -5,6 +5,6 @@
 [Psalms 86:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/86.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 66.18|Isa. 66:18 (18-19).]]
-[^b]: [[D&C 88.104|D&C 88:104.]]
-[^c]: [[Psalms 65.2|Ps. 65:2.]]
+[^a]: [[Isaiah 66.18|Isa. 66:18 (18–19)]][[Isaiah 66.19|]].  
+[^b]: [[D&C 88.104|D&C 88:104]].  
+[^c]: [[Psalms 65.2|Ps. 65:2]].  

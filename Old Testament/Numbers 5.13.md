@@ -5,5 +5,5 @@
 [Numbers 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/5.13?lang=eng#p13)
 
 
-[^a]: HEB secret.
-[^b]: HEB apprehended, caught in the act.
+[^a]: HEB secret.  
+[^b]: HEB apprehended, caught in the act.  

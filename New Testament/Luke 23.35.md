@@ -5,5 +5,5 @@
 [Luke 23:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.35?lang=eng#p35)
 
 
-[^a]: [[Psalms 22.7|Ps. 22:7.]]
-[^b]: TG [[Jesus Christ, Relationships with the Father]].
+[^a]: [[Psalms 22.7|Ps. 22:7]].  
+[^b]: [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  

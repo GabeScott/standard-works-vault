@@ -5,4 +5,4 @@
 [Lamentations 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.6?lang=eng#p6)
 
 
-[^a]: [[Isaiah 1.13|Isa. 1:13 (13-14).]]
+[^a]: [[Isaiah 1.13|Isa. 1:13 (13–14)]][[Isaiah 1.14|]].  

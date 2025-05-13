@@ -5,4 +5,4 @@
 [Matthew 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.1?lang=eng#p1)
 
 
-[^a]: TG [[Jesus Christ, Davidic Descent of]].
+[^a]: [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  

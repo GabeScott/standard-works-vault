@@ -5,4 +5,4 @@
 [Philemon 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/philem/1.18?lang=eng#p18)
 
 
-[^a]: GR something, anything.
+[^a]: GR something, anything.  

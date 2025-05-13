@@ -5,5 +5,5 @@
 [John 9:3](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.3?lang=eng#p3)
 
 
-[^a]: TG [[God, Works of]].
-[^b]: [[John 11.4|John 11:4.]]
+[^a]: [[God, Works of|TG God, Works of]].  
+[^b]: [[John 11.4|John 11:4]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 4:23](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.23?lang=eng#p23)
 
 
-[^a]: [[2 Kings 17.38|2 Kgs. 17:38.]]
-[^b]: TG [[Covenants]]; [[Obedience, Obedient, Obey]].
+[^a]: [[2 Kings 17.38|2 Kgs. 17:38]].  
+[^b]: [[Covenants|TG Covenants]]; [[Obedience, Obedient, Obey|Obedience]].  

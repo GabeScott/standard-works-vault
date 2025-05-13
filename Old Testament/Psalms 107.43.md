@@ -5,4 +5,4 @@
 [Psalms 107:43](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.43?lang=eng#p43)
 
 
-[^a]: [[Hosea 14.9|Hosea 14:9 (8-9).]]
+[^a]: [[Hosea 14.8|Hosea 14:9 (8–9)]][[Hosea 14.9|]].  

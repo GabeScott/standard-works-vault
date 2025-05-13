@@ -5,6 +5,6 @@
 [Hosea 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.13?lang=eng#p13)
 
 
-[^a]: TG [[Sorrow]].
-[^b]: [[Isaiah 13.8|Isa. 13:8.]]
-[^c]: [[Isaiah 37.3|Isa. 37:3.]]
+[^a]: [[Sorrow|TG Sorrow]].  
+[^b]: [[Isaiah 13.8|Isa. 13:8]].  
+[^c]: [[Isaiah 37.3|Isa. 37:3]].  

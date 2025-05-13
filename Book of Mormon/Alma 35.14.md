@@ -5,6 +5,6 @@
 [Alma 35:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/35?lang=eng&id=p14#p14)
 
 
-[^a]: [[Alma 31.7|Alma 31:7.]]
-[^b]: [[Alma 35.6|Alma 35:6.]]
-[^c]: [[Alma 30.59|Alma 30:59.]]
+[^a]: [[Alma 31.7|Alma 31:7]].  
+[^b]: [[Alma 35.6|Alma 35:6]].  
+[^c]: [[Alma 30.59|Alma 30:59]].  

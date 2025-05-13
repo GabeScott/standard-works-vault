@@ -5,4 +5,4 @@
 [Exodus 23:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.1?lang=eng#p1)
 
 
-[^a]: TG [[Slander]].
+[^a]: [[Slander|TG Slander]].  

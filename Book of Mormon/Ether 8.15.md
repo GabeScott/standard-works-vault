@@ -5,5 +5,5 @@
 [Ether 8:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p15#p15)
 
 
-[^a]: [[Ether 9.1|Ether 9:1.]]
-[^b]: [[Genesis 4.7|Gen. 4:7 (7-8)]]; [[Moses 5.25|Moses 5:25.]]
+[^a]: [[Ether 9.1|Ether 9:1]].  
+[^b]: [[Genesis 4.7|Gen. 4:7 (7–8)]][[Genesis 4.8|]]; [[Moses 5.25|Moses 5:25]].  

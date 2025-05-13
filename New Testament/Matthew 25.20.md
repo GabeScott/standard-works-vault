@@ -5,4 +5,4 @@
 [Matthew 25:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.20?lang=eng#p20)
 
 
-[^a]: GR entrustedst.
+[^a]: GR entrustedst.  

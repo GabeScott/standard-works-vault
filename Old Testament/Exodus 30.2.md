@@ -5,4 +5,4 @@
 [Exodus 30:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.2?lang=eng#p2)
 
 
-[^a]: IE of one piece with the altar.
+[^a]: IE of one piece with the altar.  

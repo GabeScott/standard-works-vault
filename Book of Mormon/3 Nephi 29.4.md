@@ -5,5 +5,5 @@
 [3 Nephi 29:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/29?lang=eng&id=p4#p4)
 
 
-[^a]: [[3 Nephi 20.20|3 Ne. 20:20.]]
-[^b]: TG [[God, Justice of]].
+[^a]: [[3 Nephi 20.20|3 Ne. 20:20]].  
+[^b]: [[Justice|TG Justice]].  

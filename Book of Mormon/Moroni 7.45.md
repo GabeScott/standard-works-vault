@@ -5,7 +5,7 @@
 [Moroni 7:45](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p45#p45)
 
 
-[^a]: [[1 Corinthians 13.4|1 Cor. 13:4 (1-13).]]
-[^b]: TG [[Kindness]].
-[^c]: TG [[Envy, Envious]].
-[^d]: TG [[Provoking, Provoke]].
+[^a]: [[1 Corinthians 13.1|1 Cor. 13:4 (1–13)]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]].  
+[^b]: [[Kindness|TG Kindness]].  
+[^c]: [[Envy, Envious|TG Envy]].  
+[^d]: [[Provoking, Provoke|TG Provoking]].  

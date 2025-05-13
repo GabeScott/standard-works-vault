@@ -5,6 +5,6 @@
 [1 Peter 2:25](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.25?lang=eng#p25)
 
 
-[^a]: TG [[Sheep]].
-[^b]: TG [[Jesus Christ, Good Shepherd]]; [[Shepherd]].
-[^c]: TG [[Bishop]].
+[^a]: [[Sheep|TG Sheep]].  
+[^b]: [[Jesus Christ, Good Shepherd|TG Jesus Christ, Good Shepherd]]; [[Shepherd|Shepherd]].  
+[^c]: [[Bishop|TG Bishop]].  

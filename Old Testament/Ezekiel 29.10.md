@@ -5,5 +5,5 @@
 [Ezekiel 29:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.10?lang=eng#p10)
 
 
-[^a]: HEB from Migdol to Syene.
-[^b]: HEB Cush.
+[^a]: HEB from Migdol to Syene.  
+[^b]: HEB Cush.  

@@ -5,5 +5,5 @@
 [Ezra 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/8.22?lang=eng#p22)
 
 
-[^a]: [[Romans 8.28|Rom. 8:28]]; [[D&C 6.13|D&C 6:13]]; [[D&C 90.24|90:24.]]
-[^b]: [[1 Nephi 17.3|1 Ne. 17:3 (1-3)]]; [[2 Nephi 1.5|2 Ne. 1:5 (5-6)]]; [[Ether 12.41|Ether 12:41]]; [[D&C 88.63|D&C 88:63.]]
+[^a]: [[Romans 8.28|Rom. 8:28]]; [[D&C 6.13|D&C 6:13]]; [[D&C 90.24|90:24]].  
+[^b]: [[1 Nephi 17.1|1 Ne. 17:3 (1–3)]][[1 Nephi 17.2|]][[1 Nephi 17.3|]]; [[2 Nephi 1.5|2 Ne. 1:5 (5–6)]][[2 Nephi 1.6|]]; [[Ether 12.41|Ether 12:41]]; [[D&C 88.63|D&C 88:63]].  

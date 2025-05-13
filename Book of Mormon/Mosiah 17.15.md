@@ -5,5 +5,5 @@
 [Mosiah 17:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/17?lang=eng&id=p15#p15)
 
 
-[^a]: [[Mosiah 13.10|Mosiah 13:10]]; [[Alma 25.12|Alma 25:12 (7-12).]]
-[^b]: [[Alma 25.5|Alma 25:5.]]
+[^a]: [[Mosiah 13.10|Mosiah 13:10]]; [[Alma 25.7|Alma 25:12 (7–12)]][[Alma 25.8|]][[Alma 25.9|]][[Alma 25.10|]][[Alma 25.11|]][[Alma 25.12|]].  
+[^b]: [[Alma 25.5|Alma 25:5]].  

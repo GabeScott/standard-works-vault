@@ -5,4 +5,4 @@
 [1 Corinthians 15:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.15?lang=eng#p15)
 
 
-[^a]: [[Acts 4.33|Acts 4:33.]]
+[^a]: [[Acts 4.33|Acts 4:33]].  

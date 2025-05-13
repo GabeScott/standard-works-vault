@@ -5,6 +5,6 @@
 [Alma 45:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p14#p14)
 
 
-[^a]: [[Moroni 9.24|Moro. 9:24.]]
-[^b]: [[1 Nephi 13.30|1 Ne. 13:30]]; [[D&C 3.17|D&C 3:17.]]
-[^c]: [[Moroni 1.2|Moro. 1:2 (1-3).]]
+[^a]: [[Moroni 9.24|Moro. 9:24]].  
+[^b]: [[1 Nephi 13.30|1 Ne. 13:30]]; [[D&C 3.17|D&C 3:17]].  
+[^c]: [[Moroni 1.1|Moro. 1:2 (1–3)]][[Moroni 1.2|]][[Moroni 1.3|]].  

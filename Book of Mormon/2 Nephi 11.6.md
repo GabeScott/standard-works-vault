@@ -5,4 +5,4 @@
 [2 Nephi 11:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/11?lang=eng&id=p6#p6)
 
 
-[^a]: [[Mosiah 3.15|Mosiah 3:15.]]
+[^a]: [[Mosiah 3.15|Mosiah 3:15]].  

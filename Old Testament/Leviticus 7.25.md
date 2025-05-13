@@ -5,4 +5,4 @@
 [Leviticus 7:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.25?lang=eng#p25)
 
 
-[^a]: [[Leviticus 3.17|Lev. 3:17.]]
+[^a]: [[Leviticus 3.17|Lev. 3:17]].  

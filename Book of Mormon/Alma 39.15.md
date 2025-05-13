@@ -5,4 +5,4 @@
 [Alma 39:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Jesus Christ, Mission of]].
+[^a]: [[Jesus Christ, Mission of|TG Jesus Christ, Mission of]].  

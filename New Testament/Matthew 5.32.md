@@ -5,6 +5,6 @@
 [Matthew 5:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.32?lang=eng#p32)
 
 
-[^a]: [[Ezekiel 44.22|Ezek. 44:22.]]
-[^b]: [[D&C 42.74|D&C 42:74.]]
-[^c]: [[1 Corinthians 7.10|1 Cor. 7:10 (10-11)]]. TG [[Fornication]].
+[^a]: [[Ezekiel 44.22|Ezek. 44:22]].  
+[^b]: [[D&C 42.74|D&C 42:74]].  
+[^c]: [[1 Corinthians 7.10|1 Cor. 7:10 (10–11)]][[1 Corinthians 7.11|]]. [[Fornication|TG Fornication]].  

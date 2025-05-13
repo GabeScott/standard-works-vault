@@ -5,4 +5,4 @@
 [Alma 35:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/35?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Priestcraft]].
+[^a]: [[Priestcraft|TG Priestcraft]].  

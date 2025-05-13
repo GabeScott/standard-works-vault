@@ -5,4 +5,4 @@
 [Psalms 98:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/98.4?lang=eng#p4)
 
 
-[^a]: HEB burst into song.
+[^a]: HEB burst into song.  

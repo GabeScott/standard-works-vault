@@ -5,4 +5,4 @@
 [2 Samuel 19:28](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.28?lang=eng#p28)
 
 
-[^a]: [[2 Samuel 9.7|2 Sam. 9:7 (7, 10, 13).]]
+[^a]: [[2 Samuel 9.7|2 Sam. 9:7 (7, 10, 13)]][[2 Samuel 9.10|]][[2 Samuel 9.13|]].  

@@ -5,4 +5,4 @@
 [Mark 14:7](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.7?lang=eng#p7)
 
 
-[^a]: TG [[Poor]].
+[^a]: [[Poor|TG Poor]].  

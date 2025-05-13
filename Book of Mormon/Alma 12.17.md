@@ -5,4 +5,4 @@
 [Alma 12:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p17#p17)
 
 
-[^a]: [[Revelation 19.20|Rev. 19:20]]; [[Revelation 21.8|21:8]]; [[Mosiah 3.27|Mosiah 3:27]]; [[Alma 14.14|Alma 14:14.]]
+[^a]: [[Revelation 19.20|Rev. 19:20]]; [[Revelation 21.8|21:8]]; [[Mosiah 3.27|Mosiah 3:27]]; [[Alma 14.14|Alma 14:14]].  

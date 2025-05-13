@@ -5,4 +5,4 @@
 [Zechariah 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/2.13?lang=eng#p13)
 
 
-[^a]: [[D&C 101.89|D&C 101:89.]]
+[^a]: [[D&C 101.89|D&C 101:89]].  

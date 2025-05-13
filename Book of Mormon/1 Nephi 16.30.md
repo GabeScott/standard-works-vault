@@ -5,4 +5,4 @@
 [1 Nephi 16:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p30#p30)
 
 
-[^a]: TG [[Guidance, Divine]].
+[^a]: [[Guidance, Divine|TG Guidance, Divine]].  

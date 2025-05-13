@@ -5,4 +5,4 @@
 [Isaiah 26:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.3?lang=eng#p3)
 
 
-[^a]: TG [[Contentment]]; [[Peace of God]].
+[^a]: [[Contentment|TG Contentment]]; [[Peace of God|Peace of God]].  

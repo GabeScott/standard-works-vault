@@ -5,4 +5,4 @@
 [Acts 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.9?lang=eng#p9)
 
 
-[^a]: [[Acts 4.16|Acts 4:16.]]
+[^a]: [[Acts 4.16|Acts 4:16]].  

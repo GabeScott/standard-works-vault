@@ -5,4 +5,4 @@
 [1 Nephi 16:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p9#p9)
 
 
-[^a]: [[Omni 1.16|Omni 1:16.]]
+[^a]: [[Omni 1.16|Omni 1:16]].  

@@ -5,7 +5,7 @@
 [James 1:21](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.21?lang=eng#p21)
 
 
-[^a]: TG [[Filthiness, Filthy]].
-[^b]: GR overabundance of malice, trouble, evil.
-[^c]: TG [[Meek, Meekness]].
-[^d]: GR implanted, ingrafted.
+[^a]: [[Filthiness, Filthy|TG Filthiness]].  
+[^b]: GR overabundance of malice, trouble, evil.  
+[^c]: [[Meek, Meekness|TG Meek]].  
+[^d]: GR implanted, ingrafted.  

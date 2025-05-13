@@ -5,5 +5,5 @@
 [Deuteronomy 18:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.5?lang=eng#p5)
 
 
-[^a]: [[D&C 107.6|D&C 107:6.]]
-[^b]: TG [[Name of the Lord]].
+[^a]: [[D&C 107.6|D&C 107:6]].  
+[^b]: [[Name|TG Name]].  

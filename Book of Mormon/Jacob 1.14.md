@@ -5,7 +5,7 @@
 [Jacob 1:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/1?lang=eng&id=p14#p14)
 
 
-[^a]: W of M 1:16.
-[^b]: [[Mosiah 25.12|Mosiah 25:12]]; [[Alma 2.11|Alma 2:11.]]
-[^c]: [[2 Nephi 4.11|2 Ne. 4:11.]]
-[^d]: [[2 Nephi 5.9|2 Ne. 5:9.]]
+[^a]: [[Words of Mormon 1.16|W of M 1:16]].  
+[^b]: [[Mosiah 25.12|Mosiah 25:12]]; [[Alma 2.11|Alma 2:11]].  
+[^c]: [[2 Nephi 4.11|2 Ne. 4:11]].  
+[^d]: [[2 Nephi 5.9|2 Ne. 5:9]].  

@@ -5,5 +5,5 @@
 [Isaiah 60:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.19?lang=eng#p19)
 
 
-[^a]: [[Revelation 21.23|Rev. 21:23]]; [[Revelation 22.5|22:5.]]
-[^b]: TG [[Jesus Christ, Light of the World]]; [[Light]]; [[Light of Christ]].
+[^a]: [[Revelation 21.23|Rev. 21:23]]; [[Revelation 22.5|22:5]].  
+[^b]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]]; [[Light [noun]|Light [noun]]]; [[Light of Christ|Light of Christ]].  

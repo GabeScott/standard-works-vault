@@ -5,5 +5,5 @@
 [Alma 26:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p15#p15)
 
 
-[^a]: [[Proverbs 20.20|Prov. 20:20.]]
-[^b]: TG [[Light]].
+[^a]: [[Proverbs 20.20|Prov. 20:20]].  
+[^b]: [[Light [noun]|TG Light [noun]]].  

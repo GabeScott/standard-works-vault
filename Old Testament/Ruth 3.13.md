@@ -5,4 +5,4 @@
 [Ruth 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/3.13?lang=eng#p13)
 
 
-[^a]: [[Matthew 22.24|Matt. 22:24.]]
+[^a]: [[Matthew 22.24|Matt. 22:24]].  

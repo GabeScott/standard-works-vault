@@ -5,4 +5,4 @@
 [Alma 40:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p19#p19)
 
 
-[^a]: [[Mosiah 15.26|Mosiah 15:26.]]
+[^a]: [[Mosiah 15.26|Mosiah 15:26]].  

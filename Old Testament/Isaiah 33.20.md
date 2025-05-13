@@ -5,5 +5,5 @@
 [Isaiah 33:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.20?lang=eng#p20)
 
 
-[^a]: [[Isaiah 2.3|Isa. 2:3 (2-4).]]
-[^b]: TG [[Stake]].
+[^a]: [[Isaiah 2.2|Isa. 2:3 (2–4)]][[Isaiah 2.3|]][[Isaiah 2.4|]].  
+[^b]: [[Stake|TG Stake]].  

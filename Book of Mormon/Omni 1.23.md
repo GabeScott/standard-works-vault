@@ -5,5 +5,5 @@
 [Omni 1:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p23#p23)
 
 
-[^a]: W of M 1:3.
-[^b]: [[Mosiah 2.11|Mosiah 2:11.]]
+[^a]: [[Words of Mormon 1.3|W of M 1:3]].  
+[^b]: [[Mosiah 2.11|Mosiah 2:11]].  

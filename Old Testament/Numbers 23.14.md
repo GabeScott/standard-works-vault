@@ -5,5 +5,5 @@
 [Numbers 23:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/23.14?lang=eng#p14)
 
 
-[^a]: HEB a lookout point.
-[^b]: HEB the summit.
+[^a]: HEB a lookout point.  
+[^b]: HEB the summit.  

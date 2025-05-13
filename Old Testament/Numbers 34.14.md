@@ -5,4 +5,4 @@
 [Numbers 34:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/34.14?lang=eng#p14)
 
 
-[^a]: OR houses, clans.
+[^a]: OR houses, clans.  

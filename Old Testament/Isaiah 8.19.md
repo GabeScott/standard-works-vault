@@ -5,6 +5,6 @@
 [Isaiah 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.19?lang=eng#p19)
 
 
-[^a]: TG [[Sorcery]]; [[Spirits, Evil or Unclean]].
-[^b]: IE sorcerers, soothsayers. TG [[Superstitions]].
-[^c]: OR on behalf of.
+[^a]: [[Sorcery|TG Sorcery]]; [[Spirits, Evil or Unclean|Spirits, Evil or Unclean]].  
+[^b]: IE sorcerers, soothsayers. [[Superstitions|TG Superstitions]].  
+[^c]: OR on behalf of.  

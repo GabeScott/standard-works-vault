@@ -5,4 +5,4 @@
 [2 Samuel 12:30](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.30?lang=eng#p30)
 
 
-[^a]: [[Psalms 21.3|Ps. 21:3.]]
+[^a]: [[Psalms 21.3|Ps. 21:3]].  

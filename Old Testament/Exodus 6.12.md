@@ -5,4 +5,4 @@
 [Exodus 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.12?lang=eng#p12)
 
 
-[^a]: IE of impaired speech. Ex. 4:10.
+[^a]: IE of impaired speech. [[Exodus 4.10|Ex. 4:10]].  

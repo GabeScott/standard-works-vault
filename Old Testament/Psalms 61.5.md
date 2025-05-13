@@ -5,4 +5,4 @@
 [Psalms 61:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/61.5?lang=eng#p5)
 
 
-[^a]: TG [[Vow]].
+[^a]: [[Vow|TG Vow]].  

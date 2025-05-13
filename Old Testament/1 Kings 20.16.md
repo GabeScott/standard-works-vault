@@ -5,4 +5,4 @@
 [1 Kings 20:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.16?lang=eng#p16)
 
 
-[^a]: HEB booths, tents.
+[^a]: HEB booths, tents.  

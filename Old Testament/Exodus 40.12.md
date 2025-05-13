@@ -5,4 +5,4 @@
 [Exodus 40:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.12?lang=eng#p12)
 
 
-[^a]: HEB tent of meeting.
+[^a]: HEB tent of meeting.  

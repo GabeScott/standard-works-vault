@@ -5,7 +5,7 @@
 [John 17:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.26?lang=eng#p26)
 
 
-[^a]: TG [[Preaching, Preach]].
-[^b]: TG [[Name of the Lord]].
-[^c]: TG [[God, Love of]].
-[^d]: TG [[Jesus Christ, Relationships with the Father]].
+[^a]: [[Preaching, Preach|TG Preaching]].  
+[^b]: [[Name|TG Name]].  
+[^c]: [[God, Love of|TG God, Love of]].  
+[^d]: [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  

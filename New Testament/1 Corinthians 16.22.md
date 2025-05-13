@@ -5,4 +5,4 @@
 [1 Corinthians 16:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.22?lang=eng#p22)
 
 
-[^a]: Aramaic, meaning “The Lord will come!” or “Come, O Lord!”
+[^a]: Aramaic, meaning “The Lord will come!” or “Come, O Lord!”  

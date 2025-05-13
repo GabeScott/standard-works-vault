@@ -5,4 +5,4 @@
 [Psalms 119:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.28?lang=eng#p28)
 
 
-[^a]: [[Jacob 6.7|Jacob 6:7.]]
+[^a]: [[Jacob 6.7|Jacob 6:7]].  

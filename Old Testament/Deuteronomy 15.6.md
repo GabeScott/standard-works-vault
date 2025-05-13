@@ -5,4 +5,4 @@
 [Deuteronomy 15:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.6?lang=eng#p6)
 
 
-[^a]: TG [[Borrow, Borrowing]].
+[^a]: [[Borrow, Borrowing|TG Borrow]].  

@@ -5,5 +5,5 @@
 [Leviticus 26:42](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.42?lang=eng#p42)
 
 
-[^a]: TG [[Covenants]].
-[^b]: [[D&C 84.34|D&C 84:34]]; [[D&C 132.30|132:30 (30-32).]]
+[^a]: [[Covenants|TG Covenants]].  
+[^b]: [[D&C 84.34|D&C 84:34]]; [[D&C 132.30|132:30 (30–32)]][[D&C 132.31|]][[D&C 132.32|]].  

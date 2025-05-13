@@ -5,4 +5,4 @@
 [1 Nephi 11:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Joy]].
+[^a]: [[Joy|TG Joy]].  

@@ -5,4 +5,4 @@
 [Alma 55:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/55?lang=eng&id=p19#p19)
 
 
-[^a]: [[Alma 48.16|Alma 48:16]]; [[Alma 55.30|55:30 (30-32).]]
+[^a]: [[Alma 48.16|Alma 48:16]]; [[Alma 55.30|55:30 (30–32)]][[Alma 55.31|]][[Alma 55.32|]].  

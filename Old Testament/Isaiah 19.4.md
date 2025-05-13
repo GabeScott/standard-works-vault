@@ -5,5 +5,5 @@
 [Isaiah 19:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.4?lang=eng#p4)
 
 
-[^a]: OR hard masters.
-[^b]: [[Isaiah 20.4|Isa. 20:4.]]
+[^a]: OR hard masters.  
+[^b]: [[Isaiah 20.4|Isa. 20:4]].  

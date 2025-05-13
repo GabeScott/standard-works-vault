@@ -5,6 +5,6 @@
 [2 Nephi 1:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p24#p24)
 
 
-[^a]: [[1 Nephi 18.3|1 Ne. 18:3.]]
-[^b]: [[1 Nephi 16.32|1 Ne. 16:32.]]
-[^c]: [[1 Nephi 16.37|1 Ne. 16:37.]]
+[^a]: [[1 Nephi 18.3|1 Ne. 18:3]].  
+[^b]: [[1 Nephi 16.32|1 Ne. 16:32]].  
+[^c]: [[1 Nephi 16.37|1 Ne. 16:37]].  

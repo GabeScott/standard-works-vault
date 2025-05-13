@@ -5,4 +5,4 @@
 [Proverbs 16:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.5?lang=eng#p5)
 
 
-[^a]: [[D&C 42.40|D&C 42:40.]]
+[^a]: [[D&C 42.40|D&C 42:40]].  

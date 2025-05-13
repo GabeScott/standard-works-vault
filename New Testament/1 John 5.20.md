@@ -5,4 +5,4 @@
 [1 John 5:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.20?lang=eng#p20)
 
 
-[^a]: 1 Jn. 1:2.
+[^a]: [[1 John 1.2|1 Jn. 1:2]].  

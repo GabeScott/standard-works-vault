@@ -5,4 +5,4 @@
 [Acts 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.8?lang=eng#p8)
 
 
-[^a]: TG [[Teaching with the Spirit]].
+[^a]: [[Teaching with the Spirit|TG Teaching with the Spirit]].  

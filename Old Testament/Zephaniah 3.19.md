@@ -5,5 +5,5 @@
 [Zephaniah 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.19?lang=eng#p19)
 
 
-[^a]: OR is lame.
-[^b]: TG [[Israel, Gathering of]].
+[^a]: OR is lame.  
+[^b]: [[Israel, Gathering of|TG Israel, Gathering of]].  

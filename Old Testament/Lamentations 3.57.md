@@ -5,4 +5,4 @@
 [Lamentations 3:57](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/3.57?lang=eng#p57)
 
 
-[^a]: [[D&C 88.63|D&C 88:63 (62-63).]]
+[^a]: [[D&C 88.62|D&C 88:63 (62–63)]][[D&C 88.63|]].  

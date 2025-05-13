@@ -5,6 +5,6 @@
 [Alma 31:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 31.32|Alma 31:32]]; [[Alma 35.14|35:14.]]
-[^b]: [[Alma 39.1|Alma 39:1.]]
-[^c]: [[Alma 30.59|Alma 30:59]]; [[Alma 38.3|38:3.]]
+[^a]: [[Alma 31.32|Alma 31:32]]; [[Alma 35.14|35:14]].  
+[^b]: [[Alma 39.1|Alma 39:1]].  
+[^c]: [[Alma 30.59|Alma 30:59]]; [[Alma 38.3|38:3]].  

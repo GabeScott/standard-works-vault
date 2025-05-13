@@ -5,8 +5,8 @@
 [Joshua 24:15](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.15?lang=eng#p15)
 
 
-[^a]: TG [[Agency]]; [[Commitment]].
-[^b]: TG [[Procrastination, Procrastinate]].
-[^c]: TG [[Service]].
-[^d]: TG [[Family, Children, Responsibilities toward]].
-[^e]: TG [[Example, Ensample]]; [[Loyalty]]; [[Objectives]]; [[Service]]; [[Sustaining Church Leaders]].
+[^a]: [[Agency|TG Agency]]; [[Commitment|Commitment]].  
+[^b]: [[Procrastination, Procrastinate|TG Procrastination]].  
+[^c]: [[Service|TG Service]].  
+[^d]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  
+[^e]: [[Example, Ensample|TG Example]]; [[Loyalty|Loyalty]]; [[Objectives|Objectives]]; [[Service|Service]]; [[Sustaining Church Leaders|Sustaining Church Leaders]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 28:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/28.3?lang=eng#p3)
 
 
-[^a]: [[2 Nephi 13.2|2 Ne. 13:2 (1-2).]]
+[^a]: [[2 Nephi 13.1|2 Ne. 13:2 (1–2)]][[2 Nephi 13.2|]].  

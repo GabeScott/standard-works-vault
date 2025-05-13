@@ -5,5 +5,5 @@
 [Ezekiel 1:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.26?lang=eng#p26)
 
 
-[^a]: [[Ezekiel 10.1|Ezek. 10:1.]]
-[^b]: TG [[Jesus Christ, Appearances, Antemortal]].
+[^a]: [[Ezekiel 10.1|Ezek. 10:1]].  
+[^b]: [[Jesus Christ, Appearances, Antemortal|TG Jesus Christ, Appearances, Antemortal]].  

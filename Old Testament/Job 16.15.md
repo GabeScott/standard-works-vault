@@ -5,4 +5,4 @@
 [Job 16:15](https://www.churchofjesuschrist.org/study/scriptures/ot/job/16.15?lang=eng#p15)
 
 
-[^a]: OR cast my strength.
+[^a]: OR cast my strength.  

@@ -5,6 +5,6 @@
 [Luke 8:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.10?lang=eng#p10)
 
 
-[^a]: [[Alma 26.22|Alma 26:22.]]
-[^b]: [[Psalms 78.2|Ps. 78:2]]; [[Mark 4.11|Mark 4:11 (11-12).]]
-[^c]: [[Isaiah 6.9|Isa. 6:9.]]
+[^a]: [[Alma 26.22|Alma 26:22]].  
+[^b]: [[Psalms 78.2|Ps. 78:2]]; [[Mark 4.11|Mark 4:11 (11–12)]][[Mark 4.12|]].  
+[^c]: [[Isaiah 6.9|Isa. 6:9]].  

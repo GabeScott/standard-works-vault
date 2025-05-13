@@ -5,4 +5,4 @@
 [Luke 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.9?lang=eng#p9)
 
 
-[^a]: [[Leviticus 7.35|Lev. 7:35.]]
+[^a]: [[Leviticus 7.35|Lev. 7:35]].  

@@ -5,4 +5,4 @@
 [Ezekiel 30:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/30.11?lang=eng#p11)
 
 
-[^a]: [[Ezekiel 28.7|Ezek. 28:7.]]
+[^a]: [[Ezekiel 28.7|Ezek. 28:7]].  

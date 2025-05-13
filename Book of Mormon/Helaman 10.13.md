@@ -5,4 +5,4 @@
 [Helaman 10:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/10?lang=eng&id=p13#p13)
 
 
-[^a]: [[Mark 6.6|Mark 6:6 (4-6).]]
+[^a]: [[Mark 6.4|Mark 6:6 (4–6)]][[Mark 6.5|]][[Mark 6.6|]].  

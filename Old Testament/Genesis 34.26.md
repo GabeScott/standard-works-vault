@@ -5,4 +5,4 @@
 [Genesis 34:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/34.26?lang=eng#p26)
 
 
-[^a]: [[Genesis 49.6|Gen. 49:6.]]
+[^a]: [[Genesis 49.6|Gen. 49:6]].  

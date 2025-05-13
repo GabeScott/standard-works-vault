@@ -5,4 +5,4 @@
 [Ezekiel 43:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.3?lang=eng#p3)
 
 
-[^a]: [[Ezekiel 1.1|Ezek. 1:1.]]
+[^a]: [[Ezekiel 1.1|Ezek. 1:1]].  

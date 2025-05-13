@@ -5,4 +5,4 @@
 [1 Corinthians 11:30](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.30?lang=eng#p30)
 
 
-[^a]: TG [[Sickness, Sick]].
+[^a]: [[Sickness, Sick|TG Sickness]].  

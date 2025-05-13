@@ -5,5 +5,5 @@
 [2 Timothy 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.4?lang=eng#p4)
 
 
-[^a]: TG [[Truth]].
-[^b]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Truth|TG Truth]].  
+[^b]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

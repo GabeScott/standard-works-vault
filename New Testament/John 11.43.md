@@ -5,4 +5,4 @@
 [John 11:43](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.43?lang=eng#p43)
 
 
-[^a]: TG [[God, Power of]].
+[^a]: [[God, Power of|TG God, Power of]].  

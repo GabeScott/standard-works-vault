@@ -5,4 +5,4 @@
 [Isaiah 24:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.14?lang=eng#p14)
 
 
-[^a]: IE The righteous remnant.
+[^a]: IE The righteous remnant.  

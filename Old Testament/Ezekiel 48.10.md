@@ -5,4 +5,4 @@
 [Ezekiel 48:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 45.3|Ezek. 45:3.]]
+[^a]: [[Ezekiel 45.3|Ezek. 45:3]].  

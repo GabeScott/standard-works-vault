@@ -5,6 +5,6 @@
 [3 Nephi 1:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p22#p22)
 
 
-[^a]: [[Moses 5.13|Moses 5:13.]]
-[^b]: TG [[Signs]].
-[^c]: [[Helaman 16.6|Hel. 16:6.]]
+[^a]: [[Moses 5.13|Moses 5:13]].  
+[^b]: [[Signs|TG Signs]].  
+[^c]: [[Helaman 16.6|Hel. 16:6]].  

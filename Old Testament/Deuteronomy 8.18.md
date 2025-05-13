@@ -5,4 +5,4 @@
 [Deuteronomy 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.18?lang=eng#p18)
 
 
-[^a]: TG [[Treasure]].
+[^a]: [[Treasure|TG Treasure]].  

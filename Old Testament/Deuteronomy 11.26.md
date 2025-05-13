@@ -5,5 +5,5 @@
 [Deuteronomy 11:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.26?lang=eng#p26)
 
 
-[^a]: TG [[Agency]]; [[Israel, Blessings of]].
-[^b]: TG [[Curse]].
+[^a]: [[Agency|TG Agency]]; [[Blessing|Blessing]].  
+[^b]: [[Curse|TG Curse]].  

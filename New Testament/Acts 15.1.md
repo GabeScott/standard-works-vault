@@ -5,4 +5,4 @@
 [Acts 15:1](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.1?lang=eng#p1)
 
 
-[^a]: TG [[Circumcision]].
+[^a]: [[Circumcision|TG Circumcision]].  

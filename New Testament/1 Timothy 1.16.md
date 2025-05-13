@@ -5,6 +5,6 @@
 [1 Timothy 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.16?lang=eng#p16)
 
 
-[^a]: TG [[God, Mercy of]].
-[^b]: TG [[Forbear, Forbearance]].
-[^c]: TG [[Example, Ensample]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  
+[^b]: [[Forbear, Forbearance|TG Forbear]].  
+[^c]: [[Example, Ensample|TG Example]].  

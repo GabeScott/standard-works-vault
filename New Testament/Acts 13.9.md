@@ -5,4 +5,4 @@
 [Acts 13:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.9?lang=eng#p9)
 
 
-[^a]: TG [[Holy Ghost, Gifts of]].
+[^a]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  

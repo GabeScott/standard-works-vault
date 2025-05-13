@@ -5,4 +5,4 @@
 [1 Nephi 18:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p15#p15)
 
 
-[^a]: [[Helaman 12.3|Hel. 12:3.]]
+[^a]: [[Helaman 12.3|Hel. 12:3]].  

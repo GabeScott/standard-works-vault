@@ -5,4 +5,4 @@
 [Amos 7:17](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.17?lang=eng#p17)
 
 
-[^a]: TG [[Israel, Ten Lost Tribes of]].
+[^a]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  

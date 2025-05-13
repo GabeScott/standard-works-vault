@@ -5,4 +5,4 @@
 [Acts 27:27](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.27?lang=eng#p27)
 
 
-[^a]: IE the Adriatic Sea.
+[^a]: IE the Adriatic Sea.  

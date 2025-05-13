@@ -5,4 +5,4 @@
 [Job 22:26](https://www.churchofjesuschrist.org/study/scriptures/ot/job/22.26?lang=eng#p26)
 
 
-[^a]: [[Job 11.15|Job 11:15 (13-16, 18).]]
+[^a]: [[Job 11.13|Job 11:15 (13–16, 18)]][[Job 11.14|]][[Job 11.15|]][[Job 11.16|]][[Job 11.18|]].  

@@ -5,5 +5,5 @@
 [Jeremiah 30:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.24?lang=eng#p24)
 
 
-[^a]: [[Ezekiel 38.16|Ezek. 38:16.]]
-[^b]: HEB fully understand this. See 2 Ne. 25:8.
+[^a]: [[Ezekiel 38.16|Ezek. 38:16]].  
+[^b]: HEB fully understand this. See [[2 Nephi 25.8|2 Ne. 25:8]].  

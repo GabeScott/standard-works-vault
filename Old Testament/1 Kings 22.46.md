@@ -5,4 +5,4 @@
 [1 Kings 22:46](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.46?lang=eng#p46)
 
 
-[^a]: IE cultic male prostitutes.
+[^a]: IE cultic male prostitutes.  

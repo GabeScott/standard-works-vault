@@ -5,5 +5,5 @@
 [Ezekiel 14:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.8?lang=eng#p8)
 
 
-[^a]: [[Leviticus 17.10|Lev. 17:10.]]
-[^b]: [[Numbers 26.10|Num. 26:10.]]
+[^a]: [[Leviticus 17.10|Lev. 17:10]].  
+[^b]: [[Numbers 26.10|Num. 26:10]].  

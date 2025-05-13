@@ -5,5 +5,5 @@
 [Acts 10:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.28?lang=eng#p28)
 
 
-[^a]: [[2 Nephi 26.33|2 Ne. 26:33]]; [[Helaman 3.28|Hel. 3:28 (27-30).]]
-[^b]: TG [[Uncleanness, Unclean]].
+[^a]: [[2 Nephi 26.33|2 Ne. 26:33]]; [[Helaman 3.27|Hel. 3:28 (27–30)]][[Helaman 3.28|]][[Helaman 3.29|]][[Helaman 3.30|]].  
+[^b]: [[Uncleanness, Unclean|TG Uncleanness]].  

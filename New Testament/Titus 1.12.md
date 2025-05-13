@@ -5,4 +5,4 @@
 [Titus 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.12?lang=eng#p12)
 
 
-[^a]: GR lazy gluttons.
+[^a]: GR lazy gluttons.  

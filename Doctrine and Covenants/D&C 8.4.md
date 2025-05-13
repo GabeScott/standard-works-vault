@@ -5,6 +5,6 @@
 [D&C 8:4](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/8.4?lang=eng#p4)
 
 
-[^a]: 2 Tim. 1:6.
-[^b]: TG [[Deliver, Deliverance]].
-[^c]: [[Exodus 23.22|Ex. 23:22 (20-23)]]; [[D&C 105.15|D&C 105:15]]; [[D&C 136.40|136:40.]]
+[^a]: [[2 Timothy 1.6|2 Tim. 1:6]].  
+[^b]: [[Deliver, Deliverance|TG Deliver]].  
+[^c]: [[Exodus 23.20|Ex. 23:22 (20–23)]][[Exodus 23.21|]][[Exodus 23.22|]][[Exodus 23.23|]]; [[D&C 105.15|D&C 105:15]]; [[D&C 136.40|136:40]].  

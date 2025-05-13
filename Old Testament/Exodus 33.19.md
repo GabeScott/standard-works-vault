@@ -5,6 +5,6 @@
 [Exodus 33:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.19?lang=eng#p19)
 
 
-[^a]: [[Exodus 34.6|Ex. 34:6 (5-7)]]; [[Jeremiah 31.14|Jer. 31:14.]]
-[^b]: [[Exodus 34.5|Ex. 34:5.]]
-[^c]: [[D&C 64.10|D&C 64:10 (9-11)]]. TG [[Compassion]].
+[^a]: [[Exodus 34.5|Ex. 34:6 (5–7)]][[Exodus 34.6|]][[Exodus 34.7|]]; [[Jeremiah 31.14|Jer. 31:14]].  
+[^b]: [[Exodus 34.5|Ex. 34:5]].  
+[^c]: [[D&C 64.9|D&C 64:10 (9–11)]][[D&C 64.10|]][[D&C 64.11|]]. [[Compassion|TG Compassion]].  

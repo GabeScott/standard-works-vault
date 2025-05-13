@@ -5,4 +5,4 @@
 [John 12:29](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.29?lang=eng#p29)
 
 
-[^a]: TG [[Angels]].
+[^a]: [[Angels|TG Angels]].  

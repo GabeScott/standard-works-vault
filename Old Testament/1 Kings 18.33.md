@@ -5,4 +5,4 @@
 [1 Kings 18:33](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.33?lang=eng#p33)
 
 
-[^a]: HEB jars.
+[^a]: HEB jars.  

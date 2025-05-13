@@ -5,6 +5,6 @@
 [Alma 23:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/23?lang=eng&id=p6#p6)
 
 
-[^a]: [[Exodus 8.19|Ex. 8:19]]; [[1 Nephi 19.22|1 Ne. 19:22]]; [[D&C 84.3|D&C 84:3]]; [[D&C 121.12|121:12.]]
-[^b]: TG [[Commitment]]; [[Conversion, Convert]].
-[^c]: [[Alma 27.27|Alma 27:27.]]
+[^a]: [[Exodus 8.19|Ex. 8:19]]; [[1 Nephi 19.22|1 Ne. 19:22]]; [[D&C 84.3|D&C 84:3]]; [[D&C 121.12|121:12]].  
+[^b]: [[Commitment|TG Commitment]]; [[Conversion, Convert|Conversion]].  
+[^c]: [[Alma 27.27|Alma 27:27]].  

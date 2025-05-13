@@ -5,4 +5,4 @@
 [Leviticus 25:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.25?lang=eng#p25)
 
 
-[^a]: [[Ruth 4.4|Ruth 4:4.]]
+[^a]: [[Ruth 4.4|Ruth 4:4]].  

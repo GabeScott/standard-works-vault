@@ -5,7 +5,7 @@
 [Exodus 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.15?lang=eng#p15)
 
 
-[^a]: [[Acts 7.32|Acts 7:32.]]
-[^b]: [[Psalms 135.13|Ps. 135:13]]; [[D&C 19.10|D&C 19:10]]; [[Moses 1.3|Moses 1:3]]; [[Moses 7.35|7:35]]. TG [[Name of the Lord]].
-[^c]: OR thus shall I be remembered …
-[^d]: [[Hosea 12.5|Hosea 12:5 (3-5).]]
+[^a]: [[Acts 7.32|Acts 7:32]].  
+[^b]: [[Psalms 135.13|Ps. 135:13]]; [[D&C 19.10|D&C 19:10]]; [[Moses 1.3|Moses 1:3]]; [[Moses 7.35|7:35]]. [[Name|TG Name]].  
+[^c]: OR thus shall I be remembered …  
+[^d]: [[Hosea 12.3|Hosea 12:5 (3–5)]][[Hosea 12.4|]][[Hosea 12.5|]].  

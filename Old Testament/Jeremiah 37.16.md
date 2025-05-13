@@ -5,4 +5,4 @@
 [Jeremiah 37:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/37.16?lang=eng#p16)
 
 
-[^a]: OR cells.
+[^a]: OR cells.  

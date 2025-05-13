@@ -5,5 +5,5 @@
 [Mormon 9:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p5#p5)
 
 
-[^a]: [[Exodus 32.25|Ex. 32:25]]; [[2 Nephi 9.14|2 Ne. 9:14.]]
-[^b]: TG [[Holiness]].
+[^a]: [[Exodus 32.25|Ex. 32:25]]; [[2 Nephi 9.14|2 Ne. 9:14]].  
+[^b]: [[Holiness|TG Holiness]].  

@@ -5,4 +5,4 @@
 [Joshua 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/11.1?lang=eng#p1)
 
 
-[^a]: [[Joshua 12.19|Josh. 12:19 (19-20).]]
+[^a]: [[Joshua 12.19|Josh. 12:19 (19–20)]][[Joshua 12.20|]].  

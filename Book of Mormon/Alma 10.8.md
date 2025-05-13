@@ -5,4 +5,4 @@
 [Alma 10:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 8.19|Alma 8:19 (19-21).]]
+[^a]: [[Alma 8.19|Alma 8:19 (19–21)]][[Alma 8.20|]][[Alma 8.21|]].  

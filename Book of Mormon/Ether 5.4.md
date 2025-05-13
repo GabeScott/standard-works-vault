@@ -5,5 +5,5 @@
 [Ether 5:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/5?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 27.12|2 Ne. 27:12 (12-14)]]; [[D&C 14.8|D&C 14:8]]; [[D&C 17.1|17:1.]]
-[^b]: [[2 Nephi 25.18|2 Ne. 25:18]]; [[2 Nephi 29.11|29:11.]]
+[^a]: [[2 Nephi 27.12|2 Ne. 27:12 (12–14)]][[2 Nephi 27.13|]][[2 Nephi 27.14|]]; [[D&C 14.8|D&C 14:8]]; [[D&C 17.1|17:1]].  
+[^b]: [[2 Nephi 25.18|2 Ne. 25:18]]; [[2 Nephi 29.11|29:11]].  

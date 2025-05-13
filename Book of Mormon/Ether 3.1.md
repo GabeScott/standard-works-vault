@@ -5,7 +5,7 @@
 [Ether 3:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p1#p1)
 
 
-[^a]: [[Exodus 24.13|Ex. 24:13 (12-13)]]; [[Deuteronomy 10.1|Deut. 10:1]]; [[1 Nephi 11.1|1 Ne. 11:1.]]
-[^b]: [[Ether 4.1|Ether 4:1.]]
-[^c]: TG [[Skill]].
-[^d]: [[Revelation 21.21|Rev. 21:21.]]
+[^a]: [[Exodus 24.12|Ex. 24:13 (12–13)]][[Exodus 24.13|]]; [[Deuteronomy 10.1|Deut. 10:1]]; [[1 Nephi 11.1|1 Ne. 11:1]].  
+[^b]: [[Ether 4.1|Ether 4:1]].  
+[^c]: [[Skill|TG Skill]].  
+[^d]: [[Revelation 21.21|Rev. 21:21]].  

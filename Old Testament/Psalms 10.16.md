@@ -5,4 +5,4 @@
 [Psalms 10:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.16?lang=eng#p16)
 
 
-[^a]: TG [[Kingdom of God, in Heaven]].
+[^a]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  

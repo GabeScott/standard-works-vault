@@ -5,4 +5,4 @@
 [Exodus 36:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.5?lang=eng#p5)
 
 
-[^a]: TG [[Generosity]].
+[^a]: [[Generosity|TG Generosity]].  

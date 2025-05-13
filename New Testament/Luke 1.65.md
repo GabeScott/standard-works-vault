@@ -5,4 +5,4 @@
 [Luke 1:65](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.65?lang=eng#p65)
 
 
-[^a]: GR discussed.
+[^a]: GR discussed.  

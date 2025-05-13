@@ -5,4 +5,4 @@
 [Hosea 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/7.9?lang=eng#p9)
 
 
-[^a]: TG [[Stranger]].
+[^a]: [[Stranger|TG Stranger]].  

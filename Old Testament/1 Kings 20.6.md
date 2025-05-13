@@ -5,4 +5,4 @@
 [1 Kings 20:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.6?lang=eng#p6)
 
 
-[^a]: Greek, Vulgate, and Syriac: their.
+[^a]: Greek, Vulgate, and Syriac: their.  

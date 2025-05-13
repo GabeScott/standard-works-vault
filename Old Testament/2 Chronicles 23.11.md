@@ -5,4 +5,4 @@
 [2 Chronicles 23:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/23.11?lang=eng#p11)
 
 
-[^a]: IE divine charge; see Deut. 17:14-20.
+[^a]: IE divine charge; see [[Deuteronomy 17.14|Deut. 17:14–20]][[Deuteronomy 17.15|]][[Deuteronomy 17.16|]][[Deuteronomy 17.17|]][[Deuteronomy 17.18|]][[Deuteronomy 17.19|]][[Deuteronomy 17.20|]].  

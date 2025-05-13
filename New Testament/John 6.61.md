@@ -5,5 +5,5 @@
 [John 6:61](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.61?lang=eng#p61)
 
 
-[^a]: [[John 2.25|John 2:25.]]
-[^b]: TG [[Offense, Offend, Offender]].
+[^a]: [[John 2.25|John 2:25]].  
+[^b]: [[Offense, Offend, Offender|TG Offense]].  

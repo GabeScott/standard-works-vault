@@ -5,4 +5,4 @@
 [Moses 7:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.6?lang=eng#p6)
 
 
-[^a]: [[Abraham 1.21|Abr. 1:21.]]
+[^a]: [[Abraham 1.21|Abr. 1:21]].  

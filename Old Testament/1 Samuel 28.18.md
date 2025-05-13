@@ -5,4 +5,4 @@
 [1 Samuel 28:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/28.18?lang=eng#p18)
 
 
-[^a]: [[D&C 58.32|D&C 58:32.]]
+[^a]: [[D&C 58.32|D&C 58:32]].  

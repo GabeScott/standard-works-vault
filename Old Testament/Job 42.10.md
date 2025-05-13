@@ -5,5 +5,5 @@
 [Job 42:10](https://www.churchofjesuschrist.org/study/scriptures/ot/job/42.10?lang=eng#p10)
 
 
-[^a]: [[Matthew 5.44|Matt. 5:44.]]
-[^b]: TG [[Friendship, Friend]].
+[^a]: [[Matthew 5.44|Matt. 5:44]].  
+[^b]: [[Friendship, Friend|TG Friendship]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/12.1?lang=eng#p1)
 
 
-[^a]: OR confined.
+[^a]: OR confined.  

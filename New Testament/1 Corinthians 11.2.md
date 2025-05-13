@@ -5,5 +5,5 @@
 [1 Corinthians 11:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.2?lang=eng#p2)
 
 
-[^a]: GR because.
-[^b]: GR precepts, doctrines, traditions. TG [[Ordinance]].
+[^a]: GR because.  
+[^b]: GR precepts, doctrines, traditions. [[Ordinance|TG Ordinance]].  

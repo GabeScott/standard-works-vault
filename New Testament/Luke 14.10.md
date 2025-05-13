@@ -5,6 +5,6 @@
 [Luke 14:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.10?lang=eng#p10)
 
 
-[^a]: TG [[Humility, Humble]].
-[^b]: [[Proverbs 25.7|Prov. 25:7 (6-8).]]
-[^c]: GR honor, glory, respect.
+[^a]: [[Humility, Humble|TG Humility]].  
+[^b]: [[Proverbs 25.6|Prov. 25:7 (6–8)]][[Proverbs 25.7|]][[Proverbs 25.8|]].  
+[^c]: GR honor, glory, respect.  

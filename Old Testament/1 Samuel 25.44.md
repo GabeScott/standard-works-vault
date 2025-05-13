@@ -5,4 +5,4 @@
 [1 Samuel 25:44](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.44?lang=eng#p44)
 
 
-[^a]: [[2 Samuel 3.15|2 Sam. 3:15.]]
+[^a]: [[2 Samuel 3.15|2 Sam. 3:15]].  

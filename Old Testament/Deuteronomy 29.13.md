@@ -5,4 +5,4 @@
 [Deuteronomy 29:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.13?lang=eng#p13)
 
 
-[^a]: [[Exodus 6.7|Ex. 6:7.]]
+[^a]: [[Exodus 6.7|Ex. 6:7]].  

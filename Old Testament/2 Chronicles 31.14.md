@@ -5,4 +5,4 @@
 [2 Chronicles 31:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/31.14?lang=eng#p14)
 
 
-[^a]: OR contributions.
+[^a]: OR contributions.  

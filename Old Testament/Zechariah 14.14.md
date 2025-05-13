@@ -5,4 +5,4 @@
 [Zechariah 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.14?lang=eng#p14)
 
 
-[^a]: HEB nations or Gentiles.
+[^a]: HEB nations or Gentiles.  

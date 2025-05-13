@@ -5,6 +5,6 @@
 [Exodus 29:40](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.40?lang=eng#p40)
 
 
-[^a]: OR measure.
-[^b]: [[Ezekiel 45.24|Ezek. 45:24.]]
-[^c]: [[Ezekiel 45.17|Ezek. 45:17.]]
+[^a]: OR measure.  
+[^b]: [[Ezekiel 45.24|Ezek. 45:24]].  
+[^c]: [[Ezekiel 45.17|Ezek. 45:17]].  

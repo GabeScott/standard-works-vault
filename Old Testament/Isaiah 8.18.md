@@ -5,4 +5,4 @@
 [Isaiah 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.18?lang=eng#p18)
 
 
-[^a]: IE The names of Isaiah and his sons mean respectively: “Jehovah saves”; “He hastens the prey”; and “A remnant shall return.” Isa. 7:3; 8:3. TG [[Blood, Symbolism of]].
+[^a]: IE The names of Isaiah and his sons mean respectively: “Jehovah saves”; “He hastens the prey”; and “A remnant shall return.” [[Isaiah 7.3|Isa. 7:3]]; [[Isaiah 8.3|8:3]]. [[Symbolism|TG Symbolism]].  

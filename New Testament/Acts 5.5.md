@@ -5,4 +5,4 @@
 [Acts 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.5?lang=eng#p5)
 
 
-[^a]: [[Leviticus 10.2|Lev. 10:2.]]
+[^a]: [[Leviticus 10.2|Lev. 10:2]].  

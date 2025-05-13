@@ -5,4 +5,4 @@
 [Proverbs 30:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 57.4|Ps. 57:4.]]
+[^a]: [[Psalms 57.4|Ps. 57:4]].  

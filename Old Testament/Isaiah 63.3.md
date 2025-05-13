@@ -5,5 +5,5 @@
 [Isaiah 63:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.3?lang=eng#p3)
 
 
-[^a]: [[Revelation 14.19|Rev. 14:19 (17-20)]]; [[Revelation 19.15|19:15]]; [[D&C 88.106|D&C 88:106.]]
-[^b]: [[Leviticus 8.30|Lev. 8:30]]; [[D&C 133.51|D&C 133:51.]]
+[^a]: [[Revelation 14.17|Rev. 14:19 (17–20)]][[Revelation 14.18|]][[Revelation 14.19|]][[Revelation 14.20|]]; [[Revelation 19.15|19:15]]; [[D&C 88.106|D&C 88:106]].  
+[^b]: [[Leviticus 8.30|Lev. 8:30]]; [[D&C 133.51|D&C 133:51]].  

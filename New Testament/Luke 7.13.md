@@ -5,4 +5,4 @@
 [Luke 7:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.13?lang=eng#p13)
 
 
-[^a]: TG [[Compassion]]; [[Mercy, Merciful]].
+[^a]: [[Compassion|TG Compassion]]; [[Mercy, Merciful|Mercy]].  

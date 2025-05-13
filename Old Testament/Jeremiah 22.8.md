@@ -5,4 +5,4 @@
 [Jeremiah 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.8?lang=eng#p8)
 
 
-[^a]: [[1 Kings 9.8|1 Kgs. 9:8.]]
+[^a]: [[1 Kings 9.8|1 Kgs. 9:8]].  

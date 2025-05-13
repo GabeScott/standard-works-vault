@@ -5,5 +5,5 @@
 [Colossians 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/col/4.6?lang=eng#p6)
 
 
-[^a]: TG [[Communication]].
-[^b]: TG [[Salt]].
+[^a]: [[Communication|TG Communication]].  
+[^b]: [[Salt|TG Salt]].  

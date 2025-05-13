@@ -5,5 +5,5 @@
 [2 Corinthians 8:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.8?lang=eng#p8)
 
 
-[^a]: [[D&C 63.22|D&C 63:22.]]
-[^b]: TG [[Sincere, Sincerity]].
+[^a]: [[D&C 63.22|D&C 63:22]].  
+[^b]: [[Sincere, Sincerity|TG Sincere]].  

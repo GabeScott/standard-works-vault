@@ -5,4 +5,4 @@
 [Matthew 21:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.28?lang=eng#p28)
 
 
-[^a]: [[Jacob 5.71|Jacob 5:71 (70-71).]]
+[^a]: [[Jacob 5.70|Jacob 5:71 (70–71)]][[Jacob 5.71|]].  

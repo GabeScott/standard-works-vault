@@ -5,6 +5,6 @@
 [Revelation 22:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.3?lang=eng#p3)
 
 
-[^a]: TG [[Curse]]; Earth, [[Curse]] of.
-[^b]: [[Jeremiah 3.17|Jer. 3:17]]; [[Joel 3.21|Joel 3:21 (18-21)]]; [[Zechariah 2.10|Zech. 2:10 (10-12).]]
-[^c]: TG [[Jesus Christ, Lamb of God]].
+[^a]: [[Curse|TG Curse]]; [[Earth, Curse of|Earth, Curse of]].  
+[^b]: [[Jeremiah 3.17|Jer. 3:17]]; [[Joel 3.18|Joel 3:21 (18–21)]][[Joel 3.19|]][[Joel 3.20|]][[Joel 3.21|]]; [[Zechariah 2.10|Zech. 2:10 (10–12)]][[Zechariah 2.11|]][[Zechariah 2.12|]].  
+[^c]: [[Jesus Christ, Lamb of God|TG Jesus Christ, Lamb of God]].  

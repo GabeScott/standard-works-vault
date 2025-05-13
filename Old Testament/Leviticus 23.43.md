@@ -5,4 +5,4 @@
 [Leviticus 23:43](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.43?lang=eng#p43)
 
 
-[^a]: [[Nehemiah 8.14|Neh. 8:14.]]
+[^a]: [[Nehemiah 8.14|Neh. 8:14]].  

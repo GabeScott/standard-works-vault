@@ -5,4 +5,4 @@
 [Nehemiah 12:45](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/12.45?lang=eng#p45)
 
 
-[^a]: OR guard, watch.
+[^a]: OR guard, watch.  

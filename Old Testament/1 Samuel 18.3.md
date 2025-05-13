@@ -5,4 +5,4 @@
 [1 Samuel 18:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/18.3?lang=eng#p3)
 
 
-[^a]: [[2 Samuel 9.1|2 Sam. 9:1.]]
+[^a]: [[2 Samuel 9.1|2 Sam. 9:1]].  

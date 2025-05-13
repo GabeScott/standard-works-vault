@@ -5,4 +5,4 @@
 [Nehemiah 9:31](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.31?lang=eng#p31)
 
 
-[^a]: TG [[God, Mercy of]]; [[Mercy, Merciful]].
+[^a]: [[God, Mercy of|TG God, Mercy of]]; [[Mercy, Merciful|Mercy]].  

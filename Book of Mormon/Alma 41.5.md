@@ -5,4 +5,4 @@
 [Alma 41:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/41?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Happiness, Happy]].
+[^a]: [[Happiness, Happy|TG Happiness]].  

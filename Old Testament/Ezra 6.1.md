@@ -5,4 +5,4 @@
 [Ezra 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.1?lang=eng#p1)
 
 
-[^a]: OR books, archives.
+[^a]: OR books, archives.  

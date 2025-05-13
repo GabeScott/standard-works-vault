@@ -5,5 +5,5 @@
 [1 Samuel 6:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.19?lang=eng#p19)
 
 
-[^a]: [[Numbers 1.51|Num. 1:51]]; [[2 Samuel 6.7|2 Sam. 6:7.]]
-[^b]: [[Exodus 19.21|Ex. 19:21.]]
+[^a]: [[Numbers 1.51|Num. 1:51]]; [[2 Samuel 6.7|2 Sam. 6:7]].  
+[^b]: [[Exodus 19.21|Ex. 19:21]].  

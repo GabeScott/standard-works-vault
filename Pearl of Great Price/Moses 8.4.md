@@ -5,5 +5,5 @@
 [Moses 8:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.4?lang=eng#p4)
 
 
-[^a]: TG [[Famine]].
-[^b]: TG [[Curse]].
+[^a]: [[Famine|TG Famine]].  
+[^b]: [[Curse|TG Curse]].  

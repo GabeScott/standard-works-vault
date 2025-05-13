@@ -5,4 +5,4 @@
 [Deuteronomy 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.18?lang=eng#p18)
 
 
-[^a]: HEB all the men of valor.
+[^a]: HEB all the men of valor.  

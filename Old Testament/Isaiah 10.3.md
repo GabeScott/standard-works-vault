@@ -5,4 +5,4 @@
 [Isaiah 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.3?lang=eng#p3)
 
 
-[^a]: IE punishment. Hosea 9:7; [[Luke 19.44|Luke 19:44.]]
+[^a]: IE punishment. [[Hosea 9.7|Hosea 9:7]]; [[Luke 19.44|Luke 19:44]].  

@@ -5,6 +5,6 @@
 [1 Kings 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.15?lang=eng#p15)
 
 
-[^a]: [[1 Kings 5.13|1 Kgs. 5:13.]]
-[^b]: [[2 Samuel 5.9|2 Sam. 5:9]]; [[1 Kings 11.27|1 Kgs. 11:27]]; [[2 Kings 12.20|2 Kgs. 12:20]]; [[2 Chronicles 32.5|2 Chr. 32:5.]]
-[^c]: [[1 Kings 3.1|1 Kgs. 3:1.]]
+[^a]: [[1 Kings 5.13|1 Kgs. 5:13]].  
+[^b]: [[2 Samuel 5.9|2 Sam. 5:9]]; [[1 Kings 11.27|1 Kgs. 11:27]]; [[2 Kings 12.20|2 Kgs. 12:20]]; [[2 Chronicles 32.5|2 Chr. 32:5]].  
+[^c]: [[1 Kings 3.1|1 Kgs. 3:1]].  

@@ -5,4 +5,4 @@
 [Exodus 30:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.27?lang=eng#p27)
 
 
-[^a]: OR its utensils.
+[^a]: OR its utensils.  

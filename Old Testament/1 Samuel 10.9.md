@@ -5,4 +5,4 @@
 [1 Samuel 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.9?lang=eng#p9)
 
 
-[^a]: TG [[Man, New, Spiritually Reborn]].
+[^a]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  

@@ -5,4 +5,4 @@
 [Genesis 9:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 5.32|Gen. 5:32]]; [[Moses 8.12|Moses 8:12.]]
+[^a]: [[Genesis 5.32|Gen. 5:32]]; [[Moses 8.12|Moses 8:12]].  

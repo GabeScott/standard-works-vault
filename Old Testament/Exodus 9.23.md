@@ -5,4 +5,4 @@
 [Exodus 9:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.23?lang=eng#p23)
 
 
-[^a]: [[Psalms 105.32|Ps. 105:32.]]
+[^a]: [[Psalms 105.32|Ps. 105:32]].  

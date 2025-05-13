@@ -5,4 +5,4 @@
 [1 Nephi 2:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/2?lang=eng&id=p9#p9)
 
 
-[^a]: IE fount, or source, like the Gulf of Akaba, which empties into the Red Sea.
+[^a]: IE fount, or source, like the Gulf of Akaba, which empties into the Red Sea.  

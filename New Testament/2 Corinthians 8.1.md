@@ -5,4 +5,4 @@
 [2 Corinthians 8:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.1?lang=eng#p1)
 
 
-[^a]: GR we make known (or declare) to you the grace.
+[^a]: GR we make known (or declare) to you the grace.  

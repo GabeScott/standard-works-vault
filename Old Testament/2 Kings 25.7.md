@@ -5,6 +5,6 @@
 [2 Kings 25:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.7?lang=eng#p7)
 
 
-[^a]: [[Helaman 8.21|Hel. 8:21.]]
-[^b]: TG [[Israel, Scattering of]].
-[^c]: TG [[Israel, Bondage of, in Other Lands]].
+[^a]: [[Helaman 8.21|Hel. 8:21]].  
+[^b]: [[Israel, Scattering of|TG Israel, Scattering of]].  
+[^c]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  

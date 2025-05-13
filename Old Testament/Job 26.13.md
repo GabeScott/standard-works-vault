@@ -5,7 +5,7 @@
 [Job 26:13](https://www.churchofjesuschrist.org/study/scriptures/ot/job/26.13?lang=eng#p13)
 
 
-[^a]: [[1 Nephi 19.12|1 Ne. 19:12.]]
-[^b]: TG [[Jesus Christ, Creator]].
-[^c]: TG [[Man, a Spirit Child of Heavenly Father]].
-[^d]: [[Isaiah 27.1|Isa. 27:1.]]
+[^a]: [[1 Nephi 19.12|1 Ne. 19:12]].  
+[^b]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  
+[^c]: [[Heaven|TG Heaven]].  
+[^d]: [[Isaiah 27.1|Isa. 27:1]].  

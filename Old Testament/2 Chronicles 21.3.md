@@ -5,4 +5,4 @@
 [2 Chronicles 21:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.3?lang=eng#p3)
 
 
-[^a]: OR fortified.
+[^a]: OR fortified.  

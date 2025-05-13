@@ -5,7 +5,7 @@
 [Hebrews 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.10?lang=eng#p10)
 
 
-[^a]: GR it was fitting, suitable, proper for Him.
-[^b]: Col. 1:16 (13-19).
-[^c]: TG [[Jesus Christ, Messiah]].
-[^d]: TG [[Perfection, Perfect, Perfectly]].
+[^a]: GR it was fitting, suitable, proper for Him.  
+[^b]: [[Colossians 1.13|Col. 1:16 (13–19)]][[Colossians 1.14|]][[Colossians 1.15|]][[Colossians 1.16|]][[Colossians 1.17|]][[Colossians 1.18|]][[Colossians 1.19|]].  
+[^c]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  
+[^d]: [[Perfection, Perfect, Perfectly|TG Perfection]].  

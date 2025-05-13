@@ -5,4 +5,4 @@
 [Exodus 30:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.18?lang=eng#p18)
 
 
-[^a]: OR for washings.
+[^a]: OR for washings.  

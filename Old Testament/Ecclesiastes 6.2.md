@@ -5,4 +5,4 @@
 [Ecclesiastes 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/6.2?lang=eng#p2)
 
 
-[^a]: OR affliction, sadness.
+[^a]: OR affliction, sadness.  

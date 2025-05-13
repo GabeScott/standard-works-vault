@@ -5,4 +5,4 @@
 [Judges 15:18](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/15.18?lang=eng#p18)
 
 
-[^a]: OR very thirsty.
+[^a]: OR very thirsty.  

@@ -5,4 +5,4 @@
 [3 Nephi 20:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p8#p8)
 
 
-[^a]: [[John 6.51|John 6:51 (50-58)]]; [[1 Corinthians 11.24|1 Cor. 11:24 (20-26)]]; [[3 Nephi 18.7|3 Ne. 18:7]]; [[Moroni 4.3|Moro. 4:3.]]
+[^a]: [[John 6.50|John 6:51 (50–58)]][[John 6.51|]][[John 6.52|]][[John 6.53|]][[John 6.54|]][[John 6.55|]][[John 6.56|]][[John 6.57|]][[John 6.58|]]; [[1 Corinthians 11.20|1 Cor. 11:24 (20–26)]][[1 Corinthians 11.21|]][[1 Corinthians 11.22|]][[1 Corinthians 11.23|]][[1 Corinthians 11.24|]][[1 Corinthians 11.25|]][[1 Corinthians 11.26|]]; [[3 Nephi 18.7|3 Ne. 18:7]]; [[Moroni 4.3|Moro. 4:3]].  

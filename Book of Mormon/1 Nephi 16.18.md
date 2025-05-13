@@ -5,4 +5,4 @@
 [1 Nephi 16:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p18#p18)
 
 
-[^a]: [[2 Samuel 22.35|2 Sam. 22:35]]; [[Psalms 18.34|Ps. 18:34.]]
+[^a]: [[2 Samuel 22.35|2 Sam. 22:35]]; [[Psalms 18.34|Ps. 18:34]].  

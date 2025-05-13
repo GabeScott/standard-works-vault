@@ -5,5 +5,5 @@
 [Revelation 22:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.6?lang=eng#p6)
 
 
-[^a]: [[D&C 68.34|D&C 68:34.]]
-[^b]: [[Revelation 1.1|Rev. 1:1 (1-6)]]; [[D&C 88.79|D&C 88:79.]]
+[^a]: [[D&C 68.34|D&C 68:34]].  
+[^b]: [[Revelation 1.1|Rev. 1:1 (1–6)]][[Revelation 1.2|]][[Revelation 1.3|]][[Revelation 1.4|]][[Revelation 1.5|]][[Revelation 1.6|]]; [[D&C 88.79|D&C 88:79]].  

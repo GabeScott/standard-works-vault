@@ -5,4 +5,4 @@
 [Revelation 13:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/13.2?lang=eng#p2)
 
 
-[^a]: [[Luke 4.6|Luke 4:6.]]
+[^a]: [[Luke 4.6|Luke 4:6]].  

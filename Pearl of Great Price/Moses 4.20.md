@@ -5,4 +5,4 @@
 [Moses 4:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 3.14|Gen. 3:14 (13-16).]]
+[^a]: [[Genesis 3.13|Gen. 3:14 (13–16)]][[Genesis 3.14|]][[Genesis 3.15|]][[Genesis 3.16|]].  

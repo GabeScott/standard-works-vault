@@ -5,6 +5,6 @@
 [1 Nephi 17:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p30#p30)
 
 
-[^a]: [[Exodus 13.18|Ex. 13:18 (18, 20).]]
-[^b]: [[D&C 18.18|D&C 18:18]]; [[D&C 88.64|88:64 (64-65).]]
-[^c]: [[Exodus 32.8|Ex. 32:8]]; [[Numbers 14.11|Num. 14:11 (11-12)]]; [[Ezekiel 20.13|Ezek. 20:13 (13-16)]]; [[D&C 84.24|D&C 84:24 (23-25).]]
+[^a]: [[Exodus 13.18|Ex. 13:18 (18, 20)]][[Exodus 13.20|]].  
+[^b]: [[D&C 18.18|D&C 18:18]]; [[D&C 88.64|88:64 (64–65)]][[D&C 88.65|]].  
+[^c]: [[Exodus 32.8|Ex. 32:8]]; [[Numbers 14.11|Num. 14:11 (11–12)]][[Numbers 14.12|]]; [[Ezekiel 20.13|Ezek. 20:13 (13–16)]][[Ezekiel 20.14|]][[Ezekiel 20.15|]][[Ezekiel 20.16|]]; [[D&C 84.23|D&C 84:24 (23–25)]][[D&C 84.24|]][[D&C 84.25|]].  

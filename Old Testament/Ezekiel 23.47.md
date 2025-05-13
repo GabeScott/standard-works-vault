@@ -5,4 +5,4 @@
 [Ezekiel 23:47](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.47?lang=eng#p47)
 
 
-[^a]: [[Ezekiel 24.21|Ezek. 24:21.]]
+[^a]: [[Ezekiel 24.21|Ezek. 24:21]].  

@@ -5,4 +5,4 @@
 [1 Samuel 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/3.15?lang=eng#p15)
 
 
-[^a]: [[D&C 60.2|D&C 60:2 (2-3).]]
+[^a]: [[D&C 60.2|D&C 60:2 (2–3)]][[D&C 60.3|]].  

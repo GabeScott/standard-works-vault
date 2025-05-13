@@ -5,4 +5,4 @@
 [Psalms 72:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/72.8?lang=eng#p8)
 
 
-[^a]: [[Zechariah 9.10|Zech. 9:10.]]
+[^a]: [[Zechariah 9.10|Zech. 9:10]].  

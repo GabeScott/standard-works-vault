@@ -5,7 +5,7 @@
 [Helaman 10:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/10?lang=eng&id=p4#p4)
 
 
-[^a]: [[Acts 23.11|Acts 23:11.]]
-[^b]: [[Acts 20.31|Acts 20:31]]. TG [[Dedication, Dedicate]]; [[Dependability]]; [[Priesthood, Magnifying Callings within]]; [[Steadfastness, Steadfast]].
-[^c]: TG [[Self-Sacrifice]].
-[^d]: [[Mosiah 24.15|Mosiah 24:15]]; [[3 Nephi 11.11|3 Ne. 11:11.]]
+[^a]: [[Acts 23.11|Acts 23:11]].  
+[^b]: [[Acts 20.31|Acts 20:31]]. [[Dedication, Dedicate|TG Dedication]]; [[Dependability|Dependability]]; [[Priesthood, Magnifying Callings within|Priesthood, Magnifying Callings within]]; [[Steadfastness, Steadfast|Steadfastness]].  
+[^c]: [[Self-Sacrifice|TG Self-Sacrifice]].  
+[^d]: [[Mosiah 24.15|Mosiah 24:15]]; [[3 Nephi 11.11|3 Ne. 11:11]].  

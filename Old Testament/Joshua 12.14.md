@@ -5,4 +5,4 @@
 [Joshua 12:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/12.14?lang=eng#p14)
 
 
-[^a]: [[Numbers 21.3|Num. 21:3 (1-3).]]
+[^a]: [[Numbers 21.1|Num. 21:3 (1–3)]][[Numbers 21.2|]][[Numbers 21.3|]].  

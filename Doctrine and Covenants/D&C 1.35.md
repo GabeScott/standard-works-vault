@@ -5,7 +5,7 @@
 [D&C 1:35](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.35?lang=eng#p35)
 
 
-[^a]: [[Deuteronomy 1.17|Deut. 1:17]]; [[Deuteronomy 10.17|10:17]]; [[Proverbs 24.23|Prov. 24:23]]; [[Acts 10.34|Acts 10:34]]; Col. 3:25; [[Alma 1.30|Alma 1:30]]; [[Alma 16.14|16:14]]; [[D&C 38.16|D&C 38:16]]; [[Moses 5.21|Moses 5:21 (20-21).]]
-[^b]: TG [[Last Days]].
-[^c]: [[Revelation 6.4|Rev. 6:4]]. TG [[Peace of God]]; [[War]].
-[^d]: TG [[Devil, Church of]].
+[^a]: [[Deuteronomy 1.17|Deut. 1:17]]; [[Deuteronomy 10.17|10:17]]; [[Proverbs 24.23|Prov. 24:23]]; [[Acts 10.34|Acts 10:34]]; [[Colossians 3.25|Col. 3:25]]; [[Alma 1.30|Alma 1:30]]; [[Alma 16.14|16:14]]; [[D&C 38.16|D&C 38:16]]; [[Moses 5.20|Moses 5:21 (20–21)]][[Moses 5.21|]].  
+[^b]: [[Last Days|TG Last Days]].  
+[^c]: [[Revelation 6.4|Rev. 6:4]]. [[Peace|TG Peace]]; [[War|War]].  
+[^d]: [[Devil|TG Devil]].  

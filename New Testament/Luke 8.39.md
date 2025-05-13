@@ -5,4 +5,4 @@
 [Luke 8:39](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.39?lang=eng#p39)
 
 
-[^a]: [[Mark 5.20|Mark 5:20.]]
+[^a]: [[Mark 5.20|Mark 5:20]].  

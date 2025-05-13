@@ -5,4 +5,4 @@
 [Psalms 122:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/122.4?lang=eng#p4)
 
 
-[^a]: OR as a testimony for.
+[^a]: OR as a testimony for.  

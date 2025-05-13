@@ -5,5 +5,5 @@
 [Luke 16:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.8?lang=eng#p8)
 
 
-[^a]: TG [[Children of Light]].
-[^b]: TG [[Light]].
+[^a]: [[Children of Light|TG Children of Light]].  
+[^b]: [[Light [noun]|TG Light [noun]]].  

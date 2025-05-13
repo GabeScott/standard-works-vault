@@ -5,11 +5,11 @@
 [2 Nephi 31:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Jesus Christ, Exemplar]].
-[^b]: TG [[Hypocrisy, Hypocrite]].
-[^c]: TG [[Integrity]]; [[Sincere, Sincerity]].
-[^d]: TG [[Agency]]; [[Commitment]].
-[^e]: TG [[Jesus Christ, Taking the Name of]].
-[^f]: [[Galatians 3.27|Gal. 3:27 (26-27).]]
-[^g]: TG [[Holy Ghost, Baptism of]].
-[^h]: [[2 Nephi 32.2|2 Ne. 32:2 (2-3)]]. TG [[Holy Ghost, Gifts of]].
+[^a]: [[Jesus Christ, Exemplar|TG Jesus Christ, Exemplar]].  
+[^b]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  
+[^c]: [[Integrity|TG Integrity]]; [[Sincere, Sincerity|Sincere]].  
+[^d]: [[Agency|TG Agency]]; [[Commitment|Commitment]].  
+[^e]: [[Jesus Christ, Taking the Name of|TG Jesus Christ, Taking the Name of]].  
+[^f]: [[Galatians 3.26|Gal. 3:27 (26–27)]][[Galatians 3.27|]].  
+[^g]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  
+[^h]: [[2 Nephi 32.2|2 Ne. 32:2 (2–3)]][[2 Nephi 32.3|]]. [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  

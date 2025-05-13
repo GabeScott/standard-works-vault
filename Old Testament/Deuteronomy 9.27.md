@@ -5,4 +5,4 @@
 [Deuteronomy 9:27](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.27?lang=eng#p27)
 
 
-[^a]: TG [[Stubbornness, Stubborn]].
+[^a]: [[Stubbornness, Stubborn|TG Stubbornness]].  

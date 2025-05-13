@@ -5,5 +5,5 @@
 [Moses 5:17](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.17?lang=eng#p17)
 
 
-[^a]: [[Hebrews 11.4|Heb. 11:4.]]
-[^b]: [[D&C 138.40|D&C 138:40.]]
+[^a]: [[Hebrews 11.4|Heb. 11:4]].  
+[^b]: [[D&C 138.40|D&C 138:40]].  

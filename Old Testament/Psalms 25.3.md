@@ -5,4 +5,4 @@
 [Psalms 25:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.3?lang=eng#p3)
 
 
-[^a]: TG [[Worthiness, Worthy]].
+[^a]: [[Worthiness, Worthy|TG Worthiness]].  

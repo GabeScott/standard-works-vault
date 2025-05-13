@@ -5,4 +5,4 @@
 [Nehemiah 3:25](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/3.25?lang=eng#p25)
 
 
-[^a]: OR the upper tower that stands out from the king’s house.
+[^a]: OR the upper tower that stands out from the king’s house.  

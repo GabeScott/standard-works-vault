@@ -5,4 +5,4 @@
 [Ezekiel 14:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.17?lang=eng#p17)
 
 
-[^a]: [[Leviticus 26.25|Lev. 26:25.]]
+[^a]: [[Leviticus 26.25|Lev. 26:25]].  

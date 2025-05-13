@@ -5,6 +5,6 @@
 [Alma 19:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Antemortal]].
-[^b]: TG [[Jesus Christ, Birth of]].
-[^c]: [[1 Nephi 11.18|1 Ne. 11:18 (13-21).]]
+[^a]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Antemortal|Jesus Christ, Appearances, Antemortal]].  
+[^b]: [[Jesus Christ, Birth of|TG Jesus Christ, Birth of]].  
+[^c]: [[1 Nephi 11.13|1 Ne. 11:18 (13–21)]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]].  

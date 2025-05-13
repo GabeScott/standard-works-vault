@@ -5,5 +5,5 @@
 [Judges 18:19](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.19?lang=eng#p19)
 
 
-[^a]: [[Job 21.5|Job 21:5.]]
-[^b]: [[Judges 17.5|Judg. 17:5.]]
+[^a]: [[Job 21.5|Job 21:5]].  
+[^b]: [[Judges 17.5|Judg. 17:5]].  

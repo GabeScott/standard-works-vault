@@ -5,4 +5,4 @@
 [1 Nephi 16:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p11#p11)
 
 
-[^a]: [[1 Nephi 8.1|1 Ne. 8:1]]; [[1 Nephi 18.6|18:6]]; [[Ether 1.41|Ether 1:41]]; [[Ether 2.3|2:3.]]
+[^a]: [[1 Nephi 8.1|1 Ne. 8:1]]; [[1 Nephi 18.6|18:6]]; [[Ether 1.41|Ether 1:41]]; [[Ether 2.3|2:3]].  

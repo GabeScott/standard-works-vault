@@ -5,7 +5,7 @@
 [3 Nephi 26:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/26?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Day of the Lord]].
-[^b]: [[Psalms 72.19|Ps. 72:19]]. TG [[Jesus Christ, Glory of]].
-[^c]: [[Amos 9.13|Amos 9:13]]; 2 Pet. 3:10 (10, 12); [[Mormon 9.2|Morm. 9:2]]. TG [[Earth, Cleansing of]]; [[Earth, Destiny of]]; [[World, End of]].
-[^d]: [[Mormon 5.23|Morm. 5:23.]]
+[^a]: [[Day of the Lord|TG Day of the Lord]].  
+[^b]: [[Psalms 72.19|Ps. 72:19]]. [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  
+[^c]: [[Amos 9.13|Amos 9:13]]; [[2 Peter 3.10|2 Pet. 3:10 (10, 12)]][[2 Peter 3.12|]]; [[Mormon 9.2|Morm. 9:2]]. [[Earth, Cleansing of|TG Earth, Cleansing of]]; [[Earth, Destiny of|Earth, Destiny of]]; [[World, End of|World, End of]].  
+[^d]: [[Mormon 5.23|Morm. 5:23]].  

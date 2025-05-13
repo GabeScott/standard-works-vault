@@ -5,4 +5,4 @@
 [2 Nephi 16:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/16?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Cleanse]]; [[Remission of Sins]].
+[^a]: [[Cleanse|TG Cleanse]]; [[Remission of Sins|Remission of Sins]].  

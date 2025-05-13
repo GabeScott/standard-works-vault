@@ -5,4 +5,4 @@
 [Ezekiel 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/10.4?lang=eng#p4)
 
 
-[^a]: TG [[God, Manifestations of]].
+[^a]: [[God, Manifestations of|TG God, Manifestations of]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 2:23](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.23?lang=eng#p23)
 
 
-[^a]: HEB villages.
-[^b]: IE Crete, from which early Philistines (Caphtorim) migrated to Canaan.
+[^a]: HEB villages.  
+[^b]: IE Crete, from which early Philistines (Caphtorim) migrated to Canaan.  

@@ -5,6 +5,6 @@
 [Deuteronomy 28:51](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.51?lang=eng#p51)
 
 
-[^a]: [[Jeremiah 5.17|Jer. 5:17.]]
-[^b]: [[Isaiah 1.7|Isa. 1:7.]]
-[^c]: HEB cattle.
+[^a]: [[Jeremiah 5.17|Jer. 5:17]].  
+[^b]: [[Isaiah 1.7|Isa. 1:7]].  
+[^c]: HEB cattle.  

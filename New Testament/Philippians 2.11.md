@@ -5,4 +5,4 @@
 [Philippians 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.11?lang=eng#p11)
 
 
-[^a]: TG [[Jesus Christ, Messiah]].
+[^a]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  

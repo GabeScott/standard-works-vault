@@ -5,5 +5,5 @@
 [Ecclesiastes 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/8.17?lang=eng#p17)
 
 
-[^a]: [[Ecclesiastes 3.11|Eccl. 3:11.]]
-[^b]: [[2 Nephi 9.28|2 Ne. 9:28]]; [[D&C 76.9|D&C 76:9.]]
+[^a]: [[Ecclesiastes 3.11|Eccl. 3:11]].  
+[^b]: [[2 Nephi 9.28|2 Ne. 9:28]]; [[D&C 76.9|D&C 76:9]].  

@@ -5,5 +5,5 @@
 [Abraham 3:18](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.18?lang=eng#p18)
 
 
-[^a]: TG [[Spirit Body]]; [[Spirit Creation]].
-[^b]: Gnolaum is a transliteration of a Hebrew word meaning eternal.
+[^a]: [[Spirit Body|TG Spirit Body]]; [[Spirit Creation|Spirit Creation]].  
+[^b]: Gnolaum is a transliteration of a Hebrew word meaning eternal.  

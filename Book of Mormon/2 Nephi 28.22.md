@@ -5,6 +5,6 @@
 [2 Nephi 28:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p22#p22)
 
 
-[^a]: TG [[Flatter, Flattery]].
-[^b]: Mal. 2:17.
-[^c]: [[2 Nephi 9.45|2 Ne. 9:45]]; [[Alma 36.18|Alma 36:18]]. TG [[Bondage, Spiritual]].
+[^a]: [[Flatter, Flattery|TG Flatter]].  
+[^b]: [[Malachi 2.17|Mal. 2:17]].  
+[^c]: [[2 Nephi 9.45|2 Ne. 9:45]]; [[Alma 36.18|Alma 36:18]]. [[Bondage, Spiritual|TG Bondage, Spiritual]].  

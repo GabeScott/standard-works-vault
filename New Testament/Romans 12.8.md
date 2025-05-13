@@ -5,4 +5,4 @@
 [Romans 12:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.8?lang=eng#p8)
 
 
-[^a]: TG [[Cheerful, Cheerfulness]].
+[^a]: [[Cheerful, Cheerfulness|TG Cheerful]].  

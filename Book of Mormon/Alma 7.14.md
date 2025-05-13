@@ -5,4 +5,4 @@
 [Alma 7:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

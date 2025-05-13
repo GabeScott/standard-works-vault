@@ -5,4 +5,4 @@
 [Esther 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/5.11?lang=eng#p11)
 
 
-[^a]: [[Esther 3.1|Esth. 3:1.]]
+[^a]: [[Esther 3.1|Esth. 3:1]].  

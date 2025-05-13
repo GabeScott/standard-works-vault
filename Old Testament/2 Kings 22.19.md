@@ -5,6 +5,6 @@
 [2 Kings 22:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/22.19?lang=eng#p19)
 
 
-[^a]: [[Alma 32.14|Alma 32:14 (14-15).]]
-[^b]: [[Leviticus 26.33|Lev. 26:33 (31-35).]]
-[^c]: TG [[Curse]].
+[^a]: [[Alma 32.14|Alma 32:14 (14–15)]][[Alma 32.15|]].  
+[^b]: [[Leviticus 26.31|Lev. 26:33 (31–35)]][[Leviticus 26.32|]][[Leviticus 26.33|]][[Leviticus 26.34|]][[Leviticus 26.35|]].  
+[^c]: [[Curse|TG Curse]].  

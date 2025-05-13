@@ -5,4 +5,4 @@
 [Isaiah 30:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 31.1|Isa. 31:1.]]
+[^a]: [[Isaiah 31.1|Isa. 31:1]].  

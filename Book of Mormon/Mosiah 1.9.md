@@ -5,4 +5,4 @@
 [Mosiah 1:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[Old Age]].
+[^a]: [[Old Age|TG Old Age]].  

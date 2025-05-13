@@ -5,4 +5,4 @@
 [Jacob 2:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[Warn, Warnings]].
+[^a]: [[Warn, Warnings|TG Warn]].  

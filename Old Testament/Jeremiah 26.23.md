@@ -5,4 +5,4 @@
 [Jeremiah 26:23](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.23?lang=eng#p23)
 
 
-[^a]: [[1 Nephi 3.18|1 Ne. 3:18 (17-18).]]
+[^a]: [[1 Nephi 3.17|1 Ne. 3:18 (17–18)]][[1 Nephi 3.18|]].  

@@ -5,7 +5,7 @@
 [Mosiah 29:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p13#p13)
 
 
-[^a]: Mosiah 23:8, 13.
-[^b]: [[1 Kings 15.14|1 Kgs. 15:14 (11-14).]]
-[^c]: [[Exodus 18.21|Ex. 18:21]]; [[Nehemiah 7.2|Neh. 7:2.]]
-[^d]: [[Omni 1.25|Omni 1:25]]; W of M 1:18 (17-18).
+[^a]: [[Mosiah 23.8|Mosiah 23:8, 13]][[Mosiah 23.13|]].  
+[^b]: [[1 Kings 15.11|1 Kgs. 15:14 (11–14)]][[1 Kings 15.12|]][[1 Kings 15.13|]][[1 Kings 15.14|]].  
+[^c]: [[Exodus 18.21|Ex. 18:21]]; [[Nehemiah 7.2|Neh. 7:2]].  
+[^d]: [[Omni 1.25|Omni 1:25]]; [[Words of Mormon 1.17|W of M 1:18 (17–18)]][[Words of Mormon 1.18|]].  

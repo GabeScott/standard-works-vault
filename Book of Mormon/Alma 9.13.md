@@ -5,4 +5,4 @@
 [Alma 9:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p13#p13)
 
 
-[^a]: [[2 Nephi 1.20|2 Ne. 1:20]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Alma 37.13|Alma 37:13.]]
+[^a]: [[2 Nephi 1.20|2 Ne. 1:20]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Alma 37.13|Alma 37:13]].  

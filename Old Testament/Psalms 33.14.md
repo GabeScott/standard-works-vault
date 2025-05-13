@@ -5,4 +5,4 @@
 [Psalms 33:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 63.15|Isa. 63:15.]]
+[^a]: [[Isaiah 63.15|Isa. 63:15]].  

@@ -5,6 +5,6 @@
 [Ether 6:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/6?lang=eng&id=p12#p12)
 
 
-[^a]: [[Ether 7.16|Ether 7:16.]]
-[^b]: [[Alma 22.30|Alma 22:30 (29-34)]]; [[Ether 7.6|Ether 7:6.]]
-[^c]: [[Ether 7.27|Ether 7:27]]; [[Ether 10.2|10:2.]]
+[^a]: [[Ether 7.16|Ether 7:16]].  
+[^b]: [[Alma 22.29|Alma 22:30 (29–34)]][[Alma 22.30|]][[Alma 22.31|]][[Alma 22.32|]][[Alma 22.33|]][[Alma 22.34|]]; [[Ether 7.6|Ether 7:6]].  
+[^c]: [[Ether 7.27|Ether 7:27]]; [[Ether 10.2|10:2]].  

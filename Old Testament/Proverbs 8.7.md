@@ -5,5 +5,5 @@
 [Proverbs 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.7?lang=eng#p7)
 
 
-[^a]: TG [[Communication]].
-[^b]: TG [[Truth]].
+[^a]: [[Communication|TG Communication]].  
+[^b]: [[Truth|TG Truth]].  

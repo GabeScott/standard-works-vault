@@ -5,4 +5,4 @@
 [Ezekiel 16:51](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.51?lang=eng#p51)
 
 
-[^a]: [[Jeremiah 3.11|Jer. 3:11.]]
+[^a]: [[Jeremiah 3.11|Jer. 3:11]].  

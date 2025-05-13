@@ -5,4 +5,4 @@
 [Helaman 14:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Redemption]].
+[^a]: [[Redemption|TG Redemption]].  

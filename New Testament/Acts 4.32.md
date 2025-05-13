@@ -5,7 +5,7 @@
 [Acts 4:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.32?lang=eng#p32)
 
 
-[^a]: [[1 Corinthians 1.10|1 Cor. 1:10 (10-13)]]; [[3 Nephi 11.28|3 Ne. 11:28 (28-30)]]; [[Moses 7.18|Moses 7:18]]. TG [[Unity]].
-[^b]: GR any.
-[^c]: [[D&C 49.20|D&C 49:20.]]
-[^d]: TG [[Consecration]].
+[^a]: [[1 Corinthians 1.10|1 Cor. 1:10 (10–13)]][[1 Corinthians 1.11|]][[1 Corinthians 1.12|]][[1 Corinthians 1.13|]]; [[3 Nephi 11.28|3 Ne. 11:28 (28–30)]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]; [[Moses 7.18|Moses 7:18]]. [[Unity|TG Unity]].  
+[^b]: GR any.  
+[^c]: [[D&C 49.20|D&C 49:20]].  
+[^d]: [[Consecration|TG Consecration]].  

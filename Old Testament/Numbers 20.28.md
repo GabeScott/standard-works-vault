@@ -5,4 +5,4 @@
 [Numbers 20:28](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.28?lang=eng#p28)
 
 
-[^a]: [[Numbers 33.38|Num. 33:38 (37-39)]]; [[Deuteronomy 10.6|Deut. 10:6]]; [[Deuteronomy 32.50|32:50.]]
+[^a]: [[Numbers 33.37|Num. 33:38 (37–39)]][[Numbers 33.38|]][[Numbers 33.39|]]; [[Deuteronomy 10.6|Deut. 10:6]]; [[Deuteronomy 32.50|32:50]].  

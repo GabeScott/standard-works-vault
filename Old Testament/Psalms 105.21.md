@@ -5,4 +5,4 @@
 [Psalms 105:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.21?lang=eng#p21)
 
 
-[^a]: [[Genesis 41.40|Gen. 41:40.]]
+[^a]: [[Genesis 41.40|Gen. 41:40]].  

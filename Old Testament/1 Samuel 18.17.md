@@ -5,4 +5,4 @@
 [1 Samuel 18:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/18.17?lang=eng#p17)
 
 
-[^a]: [[1 Samuel 14.49|1 Sam. 14:49.]]
+[^a]: [[1 Samuel 14.49|1 Sam. 14:49]].  

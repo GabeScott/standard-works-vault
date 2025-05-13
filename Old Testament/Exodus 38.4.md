@@ -5,4 +5,4 @@
 [Exodus 38:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/38.4?lang=eng#p4)
 
 
-[^a]: OR its rim or border.
+[^a]: OR its rim or border.  

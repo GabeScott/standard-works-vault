@@ -5,4 +5,4 @@
 [Nehemiah 12:31](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/12.31?lang=eng#p31)
 
 
-[^a]: [[Nehemiah 2.13|Neh. 2:13.]]
+[^a]: [[Nehemiah 2.13|Neh. 2:13]].  

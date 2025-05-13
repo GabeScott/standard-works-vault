@@ -5,5 +5,5 @@
 [Colossians 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.15?lang=eng#p15)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: TG [[Thanksgiving]].
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: [[Thanksgiving|TG Thanksgiving]].  

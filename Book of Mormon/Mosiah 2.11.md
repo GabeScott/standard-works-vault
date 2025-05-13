@@ -5,5 +5,5 @@
 [Mosiah 2:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Setting Apart]].
-[^b]: [[Omni 1.23|Omni 1:23 (23-24)]]. TG [[Serve]]; [[Service]].
+[^a]: [[Setting Apart|TG Setting Apart]].  
+[^b]: [[Omni 1.23|Omni 1:23 (23–24)]][[Omni 1.24|]]. [[Serve|TG Serve]]; [[Service|Service]].  

@@ -5,5 +5,5 @@
 [Leviticus 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/1.7?lang=eng#p7)
 
 
-[^a]: [[D&C 68.15|D&C 68:15]]; [[D&C 84.30|84:30]]; [[D&C 132.59|132:59.]]
-[^b]: TG [[Order]].
+[^a]: [[D&C 68.15|D&C 68:15]]; [[D&C 84.30|84:30]]; [[D&C 132.59|132:59]].  
+[^b]: [[Order|TG Order]].  

@@ -5,5 +5,5 @@
 [Daniel 7:24](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.24?lang=eng#p24)
 
 
-[^a]: [[Revelation 17.12|Rev. 17:12.]]
-[^b]: Dan. 7:7.
+[^a]: [[Revelation 17.12|Rev. 17:12]].  
+[^b]: [[Daniel 7.7|Dan. 7:7]].  

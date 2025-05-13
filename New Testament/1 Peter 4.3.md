@@ -5,7 +5,7 @@
 [1 Peter 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.3?lang=eng#p3)
 
 
-[^a]: TG [[Temperance, Temperate]].
-[^b]: TG [[Rioting and Reveling]].
-[^c]: TG [[Devil, Church of]].
-[^d]: TG [[Idolatry, Idol]].
+[^a]: [[Temperance, Temperate|TG Temperance]].  
+[^b]: [[Rioting and Reveling|TG Rioting and Reveling]].  
+[^c]: [[Devil, Church of|TG Devil, Church of]].  
+[^d]: [[Idolatry, Idol|TG Idolatry]].  

@@ -5,5 +5,5 @@
 [Exodus 21:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.28?lang=eng#p28)
 
 
-[^a]: TG [[Blood, Shedding of]].
-[^b]: OR clear, innocent.
+[^a]: [[Blood, Shedding of|TG Blood, Shedding of]].  
+[^b]: OR clear, innocent.  

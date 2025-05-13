@@ -5,4 +5,4 @@
 [Leviticus 11:42](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.42?lang=eng#p42)
 
 
-[^a]: OR every millipede (or that which has numerous legs).
+[^a]: OR every millipede (or that which has numerous legs).  

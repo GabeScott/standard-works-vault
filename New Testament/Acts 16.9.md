@@ -5,4 +5,4 @@
 [Acts 16:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.9?lang=eng#p9)
 
 
-[^a]: [[2 Corinthians 2.12|2 Cor. 2:12]]. TG [[Vision]].
+[^a]: [[2 Corinthians 2.12|2 Cor. 2:12]]. [[Vision|TG Vision]].  

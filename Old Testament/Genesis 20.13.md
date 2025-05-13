@@ -5,5 +5,5 @@
 [Genesis 20:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 12.1|Gen. 12:1]]; [[Abraham 2.3|Abr. 2:3.]]
-[^b]: TG [[Kindness]].
+[^a]: [[Genesis 12.1|Gen. 12:1]]; [[Abraham 2.3|Abr. 2:3]].  
+[^b]: [[Kindness|TG Kindness]].  

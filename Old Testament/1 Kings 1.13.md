@@ -5,4 +5,4 @@
 [1 Kings 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/1.13?lang=eng#p13)
 
 
-[^a]: [[1 Chronicles 22.9|1 Chr. 22:9.]]
+[^a]: [[1 Chronicles 22.9|1 Chr. 22:9]].  

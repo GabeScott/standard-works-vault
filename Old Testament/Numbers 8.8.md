@@ -5,4 +5,4 @@
 [Numbers 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/8.8?lang=eng#p8)
 
 
-[^a]: HEB meal or cereal.
+[^a]: HEB meal or cereal.  

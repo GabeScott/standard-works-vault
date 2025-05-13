@@ -5,4 +5,4 @@
 [3 Nephi 13:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p2#p2)
 
 
-[^a]: [[D&C 121.35|D&C 121:35 (34-35).]]
+[^a]: [[D&C 121.34|D&C 121:35 (34–35)]][[D&C 121.35|]].  

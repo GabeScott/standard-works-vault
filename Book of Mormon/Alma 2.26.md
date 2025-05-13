@@ -5,5 +5,5 @@
 [Alma 2:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p26#p26)
 
 
-[^a]: [[Alma 6.4|Alma 6:4.]]
-[^b]: [[Omni 1.14|Omni 1:14 (14, 18).]]
+[^a]: [[Alma 6.4|Alma 6:4]].  
+[^b]: [[Omni 1.14|Omni 1:14 (14, 18)]][[Omni 1.18|]].  

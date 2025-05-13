@@ -5,6 +5,6 @@
 [Zephaniah 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.4?lang=eng#p4)
 
 
-[^a]: OR wanton.
-[^b]: TG [[Sacrilege]].
-[^c]: HEB torah.
+[^a]: OR wanton.  
+[^b]: [[Sacrilege|TG Sacrilege]].  
+[^c]: HEB torah.  

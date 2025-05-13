@@ -5,6 +5,6 @@
 [2 Chronicles 20:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/20.16?lang=eng#p16)
 
 
-[^a]: HEB ascent.
-[^b]: OR wadi, valley.
-[^c]: OR east of.
+[^a]: HEB ascent.  
+[^b]: OR wadi, valley.  
+[^c]: OR east of.  

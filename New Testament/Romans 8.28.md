@@ -5,4 +5,4 @@
 [Romans 8:28](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.28?lang=eng#p28)
 
 
-[^a]: [[Ezra 8.22|Ezra 8:22]]; [[Alma 36.3|Alma 36:3]]; [[D&C 90.24|D&C 90:24]]; [[D&C 100.15|100:15.]]
+[^a]: [[Ezra 8.22|Ezra 8:22]]; [[Alma 36.3|Alma 36:3]]; [[D&C 90.24|D&C 90:24]]; [[D&C 100.15|100:15]].  

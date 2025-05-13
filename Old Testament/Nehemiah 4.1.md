@@ -5,4 +5,4 @@
 [Nehemiah 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/4.1?lang=eng#p1)
 
 
-[^a]: [[Nehemiah 2.10|Neh. 2:10 (10, 18-20).]]
+[^a]: [[Nehemiah 2.10|Neh. 2:10 (10, 18–20)]][[Nehemiah 2.18|]][[Nehemiah 2.19|]][[Nehemiah 2.20|]].  

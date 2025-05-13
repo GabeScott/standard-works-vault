@@ -5,4 +5,4 @@
 [Joel 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/1.17?lang=eng#p17)
 
 
-[^a]: OR storehouses.
+[^a]: OR storehouses.  

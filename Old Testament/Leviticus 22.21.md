@@ -5,5 +5,5 @@
 [Leviticus 22:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.21?lang=eng#p21)
 
 
-[^a]: [[Ecclesiastes 5.4|Eccl. 5:4 (4-5).]]
-[^b]: IE it must be whole, or without blemish, to be acceptable.
+[^a]: [[Ecclesiastes 5.4|Eccl. 5:4 (4–5)]][[Ecclesiastes 5.5|]].  
+[^b]: IE it must be whole, or without blemish, to be acceptable.  

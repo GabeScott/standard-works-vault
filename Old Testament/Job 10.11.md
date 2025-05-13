@@ -5,4 +5,4 @@
 [Job 10:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/10.11?lang=eng#p11)
 
 
-[^a]: HEB covered, protected.
+[^a]: HEB covered, protected.  

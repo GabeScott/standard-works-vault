@@ -5,4 +5,4 @@
 [John 8:52](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.52?lang=eng#p52)
 
 
-[^a]: [[D&C 42.46|D&C 42:46 (46-47).]]
+[^a]: [[D&C 42.46|D&C 42:46 (46–47)]][[D&C 42.47|]].  

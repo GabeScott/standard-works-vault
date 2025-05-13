@@ -5,6 +5,6 @@
 [Alma 9:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p22#p22)
 
 
-[^a]: [[2 Nephi 1.4|2 Ne. 1:4.]]
-[^b]: TG [[Protection, Divine]].
-[^c]: [[Mosiah 27.16|Mosiah 27:16.]]
+[^a]: [[2 Nephi 1.4|2 Ne. 1:4]].  
+[^b]: [[Protection, Divine|TG Protection, Divine]].  
+[^c]: [[Mosiah 27.16|Mosiah 27:16]].  

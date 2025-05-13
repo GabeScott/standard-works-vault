@@ -5,4 +5,4 @@
 [Luke 23:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.19?lang=eng#p19)
 
 
-[^a]: [[John 18.40|John 18:40.]]
+[^a]: [[John 18.40|John 18:40]].  

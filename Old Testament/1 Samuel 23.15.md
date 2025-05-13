@@ -5,4 +5,4 @@
 [1 Samuel 23:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/23.15?lang=eng#p15)
 
 
-[^a]: OR forest (also vv. 16, 18-19).
+[^a]: OR forest (also [[1 Samuel 23.16|vv. 16, 18–19]][[1 Samuel 23.18|]][[1 Samuel 23.19|]]).  

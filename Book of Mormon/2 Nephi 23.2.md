@@ -5,4 +5,4 @@
 [2 Nephi 23:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p2#p2)
 
 
-[^a]: IE wave the hand, give a signal.
+[^a]: IE wave the hand, give a signal.  

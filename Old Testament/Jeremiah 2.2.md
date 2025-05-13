@@ -5,4 +5,4 @@
 [Jeremiah 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.2?lang=eng#p2)
 
 
-[^a]: [[1 Nephi 17.26|1 Ne. 17:26 (26-29).]]
+[^a]: [[1 Nephi 17.26|1 Ne. 17:26 (26–29)]][[1 Nephi 17.27|]][[1 Nephi 17.28|]][[1 Nephi 17.29|]].  

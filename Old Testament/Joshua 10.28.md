@@ -5,4 +5,4 @@
 [Joshua 10:28](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.28?lang=eng#p28)
 
 
-[^a]: [[Joshua 12.16|Josh. 12:16.]]
+[^a]: [[Joshua 12.16|Josh. 12:16]].  

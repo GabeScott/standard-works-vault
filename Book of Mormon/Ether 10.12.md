@@ -5,4 +5,4 @@
 [Ether 10:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p12#p12)
 
 
-[^a]: [[Ether 9.17|Ether 9:17 (17-18).]]
+[^a]: [[Ether 9.17|Ether 9:17 (17–18)]][[Ether 9.18|]].  

@@ -5,4 +5,4 @@
 [Ezekiel 26:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.14?lang=eng#p14)
 
 
-[^a]: [[Ezekiel 26.4|Ezek. 26:4.]]
+[^a]: [[Ezekiel 26.4|Ezek. 26:4]].  

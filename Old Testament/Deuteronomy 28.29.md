@@ -5,6 +5,6 @@
 [Deuteronomy 28:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.29?lang=eng#p29)
 
 
-[^a]: [[Isaiah 59.10|Isa. 59:10 (9-10)]]; [[D&C 95.6|D&C 95:6.]]
-[^b]: [[Omni 1.6|Omni 1:6.]]
-[^c]: HEB robbed continually.
+[^a]: [[Isaiah 59.9|Isa. 59:10 (9–10)]][[Isaiah 59.10|]]; [[D&C 95.6|D&C 95:6]].  
+[^b]: [[Omni 1.6|Omni 1:6]].  
+[^c]: HEB robbed continually.  

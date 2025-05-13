@@ -5,4 +5,4 @@
 [1 Kings 21:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/21.21?lang=eng#p21)
 
 
-[^a]: [[2 Kings 9.8|2 Kgs. 9:8.]]
+[^a]: [[2 Kings 9.8|2 Kgs. 9:8]].  

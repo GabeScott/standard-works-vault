@@ -5,5 +5,5 @@
 [1 Nephi 1:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p18#p18)
 
 
-[^a]: [[2 Nephi 25.9|2 Ne. 25:9]]; [[D&C 5.20|D&C 5:20.]]
-[^b]: TG [[Prophets, Mission of]]; [[Prophets, Rejection of]].
+[^a]: [[2 Nephi 25.9|2 Ne. 25:9]]; [[D&C 5.20|D&C 5:20]].  
+[^b]: [[Prophets, Mission of|TG Prophets, Mission of]]; [[Prophets, Rejection of|Prophets, Rejection of]].  

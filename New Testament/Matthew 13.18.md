@@ -5,4 +5,4 @@
 [Matthew 13:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.18?lang=eng#p18)
 
 
-[^a]: GR Learn, Understand.
+[^a]: GR Learn, Understand.  

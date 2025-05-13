@@ -5,4 +5,4 @@
 [Exodus 30:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.15?lang=eng#p15)
 
 
-[^a]: [[Numbers 31.50|Num. 31:50.]]
+[^a]: [[Numbers 31.50|Num. 31:50]].  

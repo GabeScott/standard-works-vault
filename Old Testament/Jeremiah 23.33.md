@@ -5,4 +5,4 @@
 [Jeremiah 23:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.33?lang=eng#p33)
 
 
-[^a]: OR prophecy.
+[^a]: OR prophecy.  

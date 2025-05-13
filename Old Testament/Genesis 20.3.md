@@ -5,4 +5,4 @@
 [Genesis 20:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 105.14|Ps. 105:14.]]
+[^a]: [[Psalms 105.14|Ps. 105:14]].  

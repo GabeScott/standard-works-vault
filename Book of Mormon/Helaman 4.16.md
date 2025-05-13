@@ -5,4 +5,4 @@
 [Helaman 4:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p16#p16)
 
 
-[^a]: [[Alma 62.43|Alma 62:43.]]
+[^a]: [[Alma 62.43|Alma 62:43]].  

@@ -5,4 +5,4 @@
 [Psalms 77:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/77.12?lang=eng#p12)
 
 
-[^a]: TG [[Meditation, Meditate]].
+[^a]: [[Meditation, Meditate|TG Meditation]].  

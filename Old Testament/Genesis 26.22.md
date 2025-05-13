@@ -5,7 +5,7 @@
 [Genesis 26:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.22?lang=eng#p22)
 
 
-[^a]: TG [[Patience, Patient, Patiently]].
-[^b]: [[Proverbs 15.1|Prov. 15:1.]]
-[^c]: IE Broad open places.
-[^d]: [[Genesis 17.6|Gen. 17:6]]; [[Genesis 28.3|28:3]]; [[Genesis 41.52|41:52]]; [[Exodus 1.7|Ex. 1:7]]; [[Mosiah 25.24|Mosiah 25:24]]; [[Alma 62.51|Alma 62:51 (50-51).]]
+[^a]: [[Patience, Patient, Patiently|TG Patience]].  
+[^b]: [[Proverbs 15.1|Prov. 15:1]].  
+[^c]: IE Broad open places.  
+[^d]: [[Genesis 17.6|Gen. 17:6]]; [[Genesis 28.3|28:3]]; [[Genesis 41.52|41:52]]; [[Exodus 1.7|Ex. 1:7]]; [[Mosiah 25.24|Mosiah 25:24]]; [[Alma 62.50|Alma 62:51 (50–51)]][[Alma 62.51|]].  

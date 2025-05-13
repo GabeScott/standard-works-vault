@@ -5,5 +5,5 @@
 [1 John 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.8?lang=eng#p8)
 
 
-[^a]: [[Moses 6.59|Moses 6:59 (59-60).]]
-[^b]: TG [[Blood, Symbolism of]].
+[^a]: [[Moses 6.59|Moses 6:59 (59–60)]][[Moses 6.60|]].  
+[^b]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  

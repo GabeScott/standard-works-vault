@@ -5,4 +5,4 @@
 [Alma 1:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p20#p20)
 
 
-[^a]: [[Isaiah 55.1|Isa. 55:1 (1-2).]]
+[^a]: [[Isaiah 55.1|Isa. 55:1 (1–2)]][[Isaiah 55.2|]].  

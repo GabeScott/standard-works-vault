@@ -5,5 +5,5 @@
 [Numbers 33:40](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.40?lang=eng#p40)
 
 
-[^a]: HEB the king of Arad. Num. 21:1 (1-3).
-[^b]: HEB Negev.
+[^a]: HEB the king of Arad. [[Numbers 21.1|Num. 21:1 (1–3)]][[Numbers 21.2|]][[Numbers 21.3|]].  
+[^b]: HEB Negev.  

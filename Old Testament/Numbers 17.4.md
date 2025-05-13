@@ -5,5 +5,5 @@
 [Numbers 17:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/17.4?lang=eng#p4)
 
 
-[^a]: HEB tent of meeting.
-[^b]: [[Exodus 25.22|Ex. 25:22.]]
+[^a]: HEB tent of meeting.  
+[^b]: [[Exodus 25.22|Ex. 25:22]].  

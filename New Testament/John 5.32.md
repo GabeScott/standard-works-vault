@@ -5,5 +5,5 @@
 [John 5:32](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.32?lang=eng#p32)
 
 
-[^a]: TG [[Holy Ghost, Source of Testimony]].
-[^b]: TG [[Witness, Witnesses]].
+[^a]: [[Holy Ghost, Source of Testimony|TG Holy Ghost, Source of Testimony]].  
+[^b]: [[Witness, Witnesses|TG Witness]].  

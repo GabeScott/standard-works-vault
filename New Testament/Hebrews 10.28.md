@@ -5,4 +5,4 @@
 [Hebrews 10:28](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.28?lang=eng#p28)
 
 
-[^a]: GR rejected, violated.
+[^a]: GR rejected, violated.  

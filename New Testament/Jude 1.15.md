@@ -5,5 +5,5 @@
 [Jude 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.15?lang=eng#p15)
 
 
-[^a]: TG [[Jesus Christ, Authority of]].
-[^b]: TG [[Accountability]]; [[Jesus Christ, Judge]].
+[^a]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^b]: [[Accountability|TG Accountability]]; [[Jesus Christ, Judge|Jesus Christ, Judge]].  

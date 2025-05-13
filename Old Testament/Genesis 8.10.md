@@ -5,4 +5,4 @@
 [Genesis 8:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.10?lang=eng#p10)
 
 
-[^a]: OR waited another.
+[^a]: OR waited another.  

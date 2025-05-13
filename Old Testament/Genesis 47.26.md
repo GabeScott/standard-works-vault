@@ -5,4 +5,4 @@
 [Genesis 47:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.26?lang=eng#p26)
 
 
-[^a]: [[Genesis 47.22|Gen. 47:22.]]
+[^a]: [[Genesis 47.22|Gen. 47:22]].  

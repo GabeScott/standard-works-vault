@@ -5,4 +5,4 @@
 [Joshua 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3.4?lang=eng#p4)
 
 
-[^a]: [[1 Nephi 16.10|1 Ne. 16:10.]]
+[^a]: [[1 Nephi 16.10|1 Ne. 16:10]].  

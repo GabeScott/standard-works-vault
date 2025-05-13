@@ -5,8 +5,8 @@
 [Exodus 32:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.13?lang=eng#p13)
 
 
-[^a]: [[2 Kings 13.23|2 Kgs. 13:23.]]
-[^b]: [[Genesis 22.16|Gen. 22:16 (15-19).]]
-[^c]: [[D&C 27.10|D&C 27:10]]; [[Abraham 1.2|Abr. 1:2.]]
-[^d]: TG [[Seed of Abraham]].
-[^e]: TG [[Promised Lands]].
+[^a]: [[2 Kings 13.23|2 Kgs. 13:23]].  
+[^b]: [[Genesis 22.15|Gen. 22:16 (15–19)]][[Genesis 22.16|]][[Genesis 22.17|]][[Genesis 22.18|]][[Genesis 22.19|]].  
+[^c]: [[D&C 27.10|D&C 27:10]]; [[Abraham 1.2|Abr. 1:2]].  
+[^d]: [[Seed of Abraham|TG Seed of Abraham]].  
+[^e]: [[Promised Lands|TG Promised Lands]].  

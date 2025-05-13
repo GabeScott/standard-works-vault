@@ -5,4 +5,4 @@
 [Proverbs 23:31](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.31?lang=eng#p31)
 
 
-[^a]: TG [[Drunkenness]].
+[^a]: [[Drunkenness|TG Drunkenness]].  

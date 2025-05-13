@@ -5,4 +5,4 @@
 [Acts 20:35](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.35?lang=eng#p35)
 
 
-[^a]: TG [[Almsgiving]]; [[Generosity]].
+[^a]: [[Almsgiving|TG Almsgiving]]; [[Generosity|Generosity]].  

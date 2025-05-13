@@ -5,4 +5,4 @@
 [Daniel 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.6?lang=eng#p6)
 
 
-[^a]: Dan. 2:2.
+[^a]: [[Daniel 2.2|Dan. 2:2]].  

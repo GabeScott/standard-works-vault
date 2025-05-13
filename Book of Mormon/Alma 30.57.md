@@ -5,4 +5,4 @@
 [Alma 30:57](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p57#p57)
 
 
-[^a]: [[John 5.14|John 5:14.]]
+[^a]: [[John 5.14|John 5:14]].  

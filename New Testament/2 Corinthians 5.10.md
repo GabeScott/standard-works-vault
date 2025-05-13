@@ -5,6 +5,6 @@
 [2 Corinthians 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.10?lang=eng#p10)
 
 
-[^a]: TG [[Jesus Christ, Judge]].
-[^b]: TG [[Accountability]].
-[^c]: TG [[Good Works]].
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  
+[^b]: [[Accountability|TG Accountability]].  
+[^c]: [[Good Works|TG Good Works]].  

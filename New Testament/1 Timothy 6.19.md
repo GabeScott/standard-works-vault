@@ -5,7 +5,7 @@
 [1 Timothy 6:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.19?lang=eng#p19)
 
 
-[^a]: [[D&C 14.3|D&C 14:3.]]
-[^b]: [[D&C 4.4|D&C 4:4.]]
-[^c]: GR for the future.
-[^d]: [[D&C 11.3|D&C 11:3.]]
+[^a]: [[D&C 14.3|D&C 14:3]].  
+[^b]: [[D&C 4.4|D&C 4:4]].  
+[^c]: GR for the future.  
+[^d]: [[D&C 11.3|D&C 11:3]].  

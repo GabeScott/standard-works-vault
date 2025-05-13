@@ -5,5 +5,5 @@
 [Alma 9:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p20#p20)
 
 
-[^a]: [[2 Samuel 7.23|2 Sam. 7:23]]; [[Abraham 2.9|Abr. 2:9.]]
-[^b]: TG [[Prophets, Mission of]].
+[^a]: [[2 Samuel 7.23|2 Sam. 7:23]]; [[Abraham 2.9|Abr. 2:9]].  
+[^b]: [[Prophets, Mission of|TG Prophets, Mission of]].  

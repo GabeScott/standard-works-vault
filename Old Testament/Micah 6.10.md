@@ -5,4 +5,4 @@
 [Micah 6:10](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.10?lang=eng#p10)
 
 
-[^a]: TG [[Treasure]].
+[^a]: [[Treasure|TG Treasure]].  

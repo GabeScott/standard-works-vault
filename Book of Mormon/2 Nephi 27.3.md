@@ -5,5 +5,5 @@
 [2 Nephi 27:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p3#p3)
 
 
-[^a]: [[Isaiah 29.7|Isa. 29:7 (7-8).]]
-[^b]: [[1 Nephi 22.14|1 Ne. 22:14]]. TG [[Protection, Divine]].
+[^a]: [[Isaiah 29.7|Isa. 29:7 (7–8)]][[Isaiah 29.8|]].  
+[^b]: [[1 Nephi 22.14|1 Ne. 22:14]]. [[Protection, Divine|TG Protection, Divine]].  

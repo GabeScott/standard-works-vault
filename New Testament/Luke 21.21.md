@@ -5,4 +5,4 @@
 [Luke 21:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.21?lang=eng#p21)
 
 
-[^a]: GR districts or regions.
+[^a]: GR districts or regions.  

@@ -5,5 +5,5 @@
 [Numbers 15:30](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.30?lang=eng#p30)
 
 
-[^a]: TG [[Accountability]].
-[^b]: TG [[Excommunication]].
+[^a]: [[Accountability|TG Accountability]].  
+[^b]: [[Excommunication|TG Excommunication]].  

@@ -5,4 +5,4 @@
 [Acts 28:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.25?lang=eng#p25)
 
 
-[^a]: TG [[Holy Ghost, Mission of]].
+[^a]: [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  

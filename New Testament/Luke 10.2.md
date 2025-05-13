@@ -5,4 +5,4 @@
 [Luke 10:2](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.2?lang=eng#p2)
 
 
-[^a]: [[Matthew 9.37|Matt. 9:37.]]
+[^a]: [[Matthew 9.37|Matt. 9:37]].  

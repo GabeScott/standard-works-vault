@@ -5,4 +5,4 @@
 [Proverbs 19:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.29?lang=eng#p29)
 
 
-[^a]: IE flogging. Prov. 10:13.
+[^a]: IE flogging. [[Proverbs 10.13|Prov. 10:13]].  

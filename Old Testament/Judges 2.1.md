@@ -5,5 +5,5 @@
 [Judges 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 31.16|Deut. 31:16.]]
-[^b]: TG [[Abrahamic Covenant]]; [[Covenants]].
+[^a]: [[Deuteronomy 31.16|Deut. 31:16]].  
+[^b]: [[Abrahamic Covenant|TG Abrahamic Covenant]]; [[Covenants|Covenants]].  

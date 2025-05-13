@@ -5,4 +5,4 @@
 [Zechariah 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/4.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 37.17|Ex. 37:17]]; [[Revelation 1.20|Rev. 1:20.]]
+[^a]: [[Exodus 37.17|Ex. 37:17]]; [[Revelation 1.20|Rev. 1:20]].  

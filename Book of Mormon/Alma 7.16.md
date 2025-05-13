@@ -5,4 +5,4 @@
 [Alma 7:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p16#p16)
 
 
-[^a]: [[Ether 12.4|Ether 12:4]]; [[Moroni 7.3|Moro. 7:3.]]
+[^a]: [[Ether 12.4|Ether 12:4]]; [[Moroni 7.3|Moro. 7:3]].  

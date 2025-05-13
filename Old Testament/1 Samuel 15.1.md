@@ -5,4 +5,4 @@
 [1 Samuel 15:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.1?lang=eng#p1)
 
 
-[^a]: TG [[Anointing, Anoint]].
+[^a]: [[Anointing, Anoint|TG Anointing]].  

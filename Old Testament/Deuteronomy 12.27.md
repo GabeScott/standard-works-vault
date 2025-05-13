@@ -5,5 +5,5 @@
 [Deuteronomy 12:27](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.27?lang=eng#p27)
 
 
-[^a]: [[Leviticus 1.13|Lev. 1:13 (11, 13).]]
-[^b]: TG [[Flesh and Blood]].
+[^a]: [[Leviticus 1.11|Lev. 1:13 (11, 13)]][[Leviticus 1.13|]].  
+[^b]: [[Flesh and Blood|TG Flesh and Blood]].  

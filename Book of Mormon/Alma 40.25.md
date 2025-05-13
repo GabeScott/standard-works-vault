@@ -5,4 +5,4 @@
 [Alma 40:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p25#p25)
 
 
-[^a]: Dan. 12:3; [[Matthew 13.43|Matt. 13:43.]]
+[^a]: [[Daniel 12.3|Dan. 12:3]]; [[Matthew 13.43|Matt. 13:43]].  

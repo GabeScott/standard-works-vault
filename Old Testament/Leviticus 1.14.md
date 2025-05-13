@@ -5,4 +5,4 @@
 [Leviticus 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/1.14?lang=eng#p14)
 
 
-[^a]: [[Luke 2.24|Luke 2:24.]]
+[^a]: [[Luke 2.24|Luke 2:24]].  

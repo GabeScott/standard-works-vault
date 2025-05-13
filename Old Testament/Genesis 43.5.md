@@ -5,4 +5,4 @@
 [Genesis 43:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.5?lang=eng#p5)
 
 
-[^a]: [[Genesis 44.23|Gen. 44:23 (21-23).]]
+[^a]: [[Genesis 44.21|Gen. 44:23 (21–23)]][[Genesis 44.22|]][[Genesis 44.23|]].  

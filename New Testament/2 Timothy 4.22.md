@@ -5,4 +5,4 @@
 [2 Timothy 4:22](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.22?lang=eng#p22)
 
 
-[^a]: TG [[Jesus Christ, Lord]].
+[^a]: [[Jesus Christ, Lord|TG Jesus Christ, Lord]].  

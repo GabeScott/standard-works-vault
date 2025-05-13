@@ -5,4 +5,4 @@
 [Mosiah 21:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p35#p35)
 
 
-[^a]: [[Mosiah 25.18|Mosiah 25:18 (17-18).]]
+[^a]: [[Mosiah 25.17|Mosiah 25:18 (17–18)]][[Mosiah 25.18|]].  

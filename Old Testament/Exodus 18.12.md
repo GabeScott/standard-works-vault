@@ -5,4 +5,4 @@
 [Exodus 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 14.18|Gen. 14:18.]]
+[^a]: [[Genesis 14.18|Gen. 14:18]].  

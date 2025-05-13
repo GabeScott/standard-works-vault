@@ -5,5 +5,5 @@
 [Hosea 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.13?lang=eng#p13)
 
 
-[^a]: [[Judges 3.7|Judg. 3:7]]; [[Hosea 11.2|Hosea 11:2.]]
-[^b]: [[Jeremiah 4.30|Jer. 4:30]]; [[Ezekiel 23.40|Ezek. 23:40.]]
+[^a]: [[Judges 3.7|Judg. 3:7]]; [[Hosea 11.2|Hosea 11:2]].  
+[^b]: [[Jeremiah 4.30|Jer. 4:30]]; [[Ezekiel 23.40|Ezek. 23:40]].  

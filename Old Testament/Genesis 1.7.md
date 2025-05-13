@@ -5,4 +5,4 @@
 [Genesis 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 148.4|Ps. 148:4 (3-5).]]
+[^a]: [[Psalms 148.3|Ps. 148:4 (3–5)]][[Psalms 148.4|]][[Psalms 148.5|]].  

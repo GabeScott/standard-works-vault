@@ -5,4 +5,4 @@
 [Jeremiah 32:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 24.20|2 Kgs. 24:20.]]
+[^a]: [[2 Kings 24.20|2 Kgs. 24:20]].  

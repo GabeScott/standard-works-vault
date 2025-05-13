@@ -5,6 +5,6 @@
 [Exodus 23:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.15?lang=eng#p15)
 
 
-[^a]: TG [[Passover]].
-[^b]: [[Exodus 34.18|Ex. 34:18.]]
-[^c]: IE without offerings.
+[^a]: [[Passover|TG Passover]].  
+[^b]: [[Exodus 34.18|Ex. 34:18]].  
+[^c]: IE without offerings.  

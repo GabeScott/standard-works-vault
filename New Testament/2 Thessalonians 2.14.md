@@ -5,4 +5,4 @@
 [2 Thessalonians 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.14?lang=eng#p14)
 
 
-[^a]: TG [[Gospel]].
+[^a]: [[Gospel|TG Gospel]].  

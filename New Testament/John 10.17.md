@@ -5,6 +5,6 @@
 [John 10:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.17?lang=eng#p17)
 
 
-[^a]: TG [[God, Love of]].
-[^b]: TG [[Self-Sacrifice]].
-[^c]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[God, Love of|TG God, Love of]].  
+[^b]: [[Self-Sacrifice|TG Self-Sacrifice]].  
+[^c]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

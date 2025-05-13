@@ -5,4 +5,4 @@
 [Mosiah 11:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p23#p23)
 
 
-[^a]: [[Hosea 13.10|Hosea 13:10 (4, 10).]]
+[^a]: [[Hosea 13.4|Hosea 13:10 (4, 10)]][[Hosea 13.10|]].  

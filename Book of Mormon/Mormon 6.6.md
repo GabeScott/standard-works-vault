@@ -5,9 +5,9 @@
 [Mormon 6:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Sacred]].
-[^b]: [[2 Nephi 26.17|2 Ne. 26:17]]; [[Enos 1.14|Enos 1:14.]]
-[^c]: [[Mormon 2.18|Morm. 2:18.]]
-[^d]: [[Ether 15.11|Ether 15:11.]]
-[^e]: [[Moroni 9.24|Moro. 9:24]]; [[Moroni 10.2|10:2]]; [[D&C 17.1|D&C 17:1]]; JS—H 1:52.
-[^f]: [[Mormon 8.1|Morm. 8:1.]]
+[^a]: [[Sacred|TG Sacred]].  
+[^b]: [[2 Nephi 26.17|2 Ne. 26:17]]; [[Enos 1.14|Enos 1:14]].  
+[^c]: [[Mormon 2.18|Morm. 2:18]].  
+[^d]: [[Ether 15.11|Ether 15:11]].  
+[^e]: [[Moroni 9.24|Moro. 9:24]]; [[Moroni 10.2|10:2]]; [[D&C 17.1|D&C 17:1]]; [[Joseph Smith History 1.52|JS—H 1:52]].  
+[^f]: [[Mormon 8.1|Morm. 8:1]].  

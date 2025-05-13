@@ -5,5 +5,5 @@
 [Ezekiel 10:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/10.15?lang=eng#p15)
 
 
-[^a]: OR mounted.
-[^b]: [[Ezekiel 1.1|Ezek. 1:1.]]
+[^a]: OR mounted.  
+[^b]: [[Ezekiel 1.1|Ezek. 1:1]].  

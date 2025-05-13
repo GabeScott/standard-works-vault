@@ -5,4 +5,4 @@
 [Psalms 45:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/45.8?lang=eng#p8)
 
 
-[^a]: [[John 19.39|John 19:39.]]
+[^a]: [[John 19.39|John 19:39]].  

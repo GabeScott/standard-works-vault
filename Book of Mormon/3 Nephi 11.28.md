@@ -5,4 +5,4 @@
 [3 Nephi 11:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p28#p28)
 
 
-[^a]: [[Acts 4.32|Acts 4:32]]; [[1 Corinthians 1.10|1 Cor. 1:10 (10-13)]]; [[Ephesians 4.13|Eph. 4:13 (11-14)]]; [[D&C 38.27|D&C 38:27]]. TG [[Disputations, Dispute]].
+[^a]: [[Acts 4.32|Acts 4:32]]; [[1 Corinthians 1.10|1 Cor. 1:10 (10–13)]][[1 Corinthians 1.11|]][[1 Corinthians 1.12|]][[1 Corinthians 1.13|]]; [[Ephesians 4.11|Eph. 4:13 (11–14)]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]]; [[D&C 38.27|D&C 38:27]]. [[Disputations, Dispute|TG Disputations]].  

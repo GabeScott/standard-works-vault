@@ -5,4 +5,4 @@
 [Numbers 18:32](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.32?lang=eng#p32)
 
 
-[^a]: TG [[Pollution, Pollute]].
+[^a]: [[Pollution, Pollute|TG Pollution]].  

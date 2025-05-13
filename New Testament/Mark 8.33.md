@@ -5,5 +5,5 @@
 [Mark 8:33](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/8.33?lang=eng#p33)
 
 
-[^a]: [[Alma 12.5|Alma 12:5 (5-6, 34).]]
-[^b]: GR you do not consider, cherish.
+[^a]: [[Alma 12.5|Alma 12:5 (5–6, 34)]][[Alma 12.6|]][[Alma 12.34|]].  
+[^b]: GR you do not consider, cherish.  

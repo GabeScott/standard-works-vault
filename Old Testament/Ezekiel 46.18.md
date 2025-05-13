@@ -5,5 +5,5 @@
 [Ezekiel 46:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.18?lang=eng#p18)
 
 
-[^a]: [[Ezekiel 45.8|Ezek. 45:8.]]
-[^b]: [[Mosiah 2.14|Mosiah 2:14 (12-15).]]
+[^a]: [[Ezekiel 45.8|Ezek. 45:8]].  
+[^b]: [[Mosiah 2.12|Mosiah 2:14 (12–15)]][[Mosiah 2.13|]][[Mosiah 2.14|]][[Mosiah 2.15|]].  

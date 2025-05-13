@@ -5,5 +5,5 @@
 [Isaiah 31:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/31.4?lang=eng#p4)
 
 
-[^a]: [[Hosea 11.10|Hosea 11:10]]; [[Amos 1.2|Amos 1:2.]]
-[^b]: [[Isaiah 42.13|Isa. 42:13.]]
+[^a]: [[Hosea 11.10|Hosea 11:10]]; [[Amos 1.2|Amos 1:2]].  
+[^b]: [[Isaiah 42.13|Isa. 42:13]].  

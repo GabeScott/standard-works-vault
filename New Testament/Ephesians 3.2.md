@@ -5,4 +5,4 @@
 [Ephesians 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.2?lang=eng#p2)
 
 
-[^a]: TG [[Dispensations]].
+[^a]: [[Dispensations|TG Dispensations]].  

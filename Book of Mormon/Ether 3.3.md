@@ -5,5 +5,5 @@
 [Ether 3:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p3#p3)
 
 
-[^a]: [[Ether 1.40|Ether 1:40 (34-43).]]
-[^b]: [[Ether 6.2|Ether 6:2 (2-3, 10).]]
+[^a]: [[Ether 1.34|Ether 1:40 (34–43)]][[Ether 1.35|]][[Ether 1.36|]][[Ether 1.37|]][[Ether 1.38|]][[Ether 1.39|]][[Ether 1.40|]][[Ether 1.41|]][[Ether 1.42|]][[Ether 1.43|]].  
+[^b]: [[Ether 6.2|Ether 6:2 (2–3, 10)]][[Ether 6.3|]][[Ether 6.10|]].  

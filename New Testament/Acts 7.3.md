@@ -5,4 +5,4 @@
 [Acts 7:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.3?lang=eng#p3)
 
 
-[^a]: [[Abraham 1.1|Abr. 1:1 (1, 5).]]
+[^a]: [[Abraham 1.1|Abr. 1:1 (1, 5)]][[Abraham 1.5|]].  

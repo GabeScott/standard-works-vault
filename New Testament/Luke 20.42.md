@@ -5,4 +5,4 @@
 [Luke 20:42](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.42?lang=eng#p42)
 
 
-[^a]: [[Psalms 110.1|Ps. 110:1.]]
+[^a]: [[Psalms 110.1|Ps. 110:1]].  

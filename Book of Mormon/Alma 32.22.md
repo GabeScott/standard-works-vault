@@ -5,4 +5,4 @@
 [Alma 32:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p22#p22)
 
 
-[^a]: TG [[God, Mercy of]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  

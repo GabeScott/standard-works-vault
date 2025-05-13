@@ -5,5 +5,5 @@
 [Acts 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.20?lang=eng#p20)
 
 
-[^a]: [[Psalms 69.25|Ps. 69:25.]]
-[^b]: GR overseership, office. Ps. 109:8; [[D&C 114.2|D&C 114:2.]]
+[^a]: [[Psalms 69.25|Ps. 69:25]].  
+[^b]: GR overseership, office. [[Psalms 109.8|Ps. 109:8]]; [[D&C 114.2|D&C 114:2]].  

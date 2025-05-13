@@ -5,5 +5,5 @@
 [Mosiah 17:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/17?lang=eng&id=p2#p2)
 
 
-[^a]: [[Mosiah 23.9|Mosiah 23:9.]]
-[^b]: [[Mosiah 26.15|Mosiah 26:15]]; [[Alma 5.11|Alma 5:11.]]
+[^a]: [[Mosiah 23.9|Mosiah 23:9]].  
+[^b]: [[Mosiah 26.15|Mosiah 26:15]]; [[Alma 5.11|Alma 5:11]].  

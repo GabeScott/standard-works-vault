@@ -5,4 +5,4 @@
 [Ezekiel 28:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.13?lang=eng#p13)
 
 
-[^a]: Ezekiel implies that Tyrus has been presumed to be an earthly paradise. Ezek. 31:9 (8-9).
+[^a]: Ezekiel implies that Tyrus has been presumed to be an earthly paradise. [[Ezekiel 31.8|Ezek. 31:9 (8–9)]][[Ezekiel 31.9|]].  

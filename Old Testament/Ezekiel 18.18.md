@@ -5,4 +5,4 @@
 [Ezekiel 18:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.18?lang=eng#p18)
 
 
-[^a]: TG [[Cruelty, Cruel]].
+[^a]: [[Cruelty, Cruel|TG Cruelty]].  

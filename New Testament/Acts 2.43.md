@@ -5,5 +5,5 @@
 [Acts 2:43](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.43?lang=eng#p43)
 
 
-[^a]: TG [[Courage, Courageous]]; [[Fearful]].
-[^b]: TG [[Signs]].
+[^a]: [[Courage, Courageous|TG Courage]]; [[Fearful|Fearful]].  
+[^b]: [[Signs|TG Signs]].  

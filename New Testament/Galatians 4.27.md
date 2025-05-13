@@ -5,5 +5,5 @@
 [Galatians 4:27](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.27?lang=eng#p27)
 
 
-[^a]: [[Genesis 21.6|Gen. 21:6.]]
-[^b]: TG [[Barren, Barrenness]].
+[^a]: [[Genesis 21.6|Gen. 21:6]].  
+[^b]: [[Barren, Barrenness|TG Barren]].  

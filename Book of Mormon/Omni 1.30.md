@@ -5,4 +5,4 @@
 [Omni 1:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p30#p30)
 
 
-[^a]: [[1 Nephi 6.3|1 Ne. 6:3 (3-6)]]; [[Jacob 4.1|Jacob 4:1 (1-2)]]; [[Jarom 1.14|Jarom 1:14.]]
+[^a]: [[1 Nephi 6.3|1 Ne. 6:3 (3–6)]][[1 Nephi 6.4|]][[1 Nephi 6.5|]][[1 Nephi 6.6|]]; [[Jacob 4.1|Jacob 4:1 (1–2)]][[Jacob 4.2|]]; [[Jarom 1.14|Jarom 1:14]].  

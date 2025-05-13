@@ -5,4 +5,4 @@
 [Amos 8:12](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/8.12?lang=eng#p12)
 
 
-[^a]: [[Job 12.24|Job 12:24 (24-25).]]
+[^a]: [[Job 12.24|Job 12:24 (24–25)]][[Job 12.25|]].  

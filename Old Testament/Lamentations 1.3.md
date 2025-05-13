@@ -5,5 +5,5 @@
 [Lamentations 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.3?lang=eng#p3)
 
 
-[^a]: [[Isaiah 3.8|Isa. 3:8 (8-9)]]; [[Jeremiah 52.27|Jer. 52:27]]; [[2 Nephi 13.8|2 Ne. 13:8 (8-9)]]; [[2 Nephi 15.13|15:13 (13-15)]]; [[2 Nephi 25.10|25:10 (9-10).]]
-[^b]: [[Jeremiah 45.3|Jer. 45:3.]]
+[^a]: [[Isaiah 3.8|Isa. 3:8 (8–9)]][[Isaiah 3.9|]]; [[Jeremiah 52.27|Jer. 52:27]]; [[2 Nephi 13.8|2 Ne. 13:8 (8–9)]][[2 Nephi 13.9|]]; [[2 Nephi 15.13|15:13 (13–15)]][[2 Nephi 15.14|]][[2 Nephi 15.15|]]; [[2 Nephi 25.9|25:10 (9–10)]][[2 Nephi 25.10|]].  
+[^b]: [[Jeremiah 45.3|Jer. 45:3]].  

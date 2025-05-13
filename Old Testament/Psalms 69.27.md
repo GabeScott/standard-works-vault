@@ -5,4 +5,4 @@
 [Psalms 69:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.27?lang=eng#p27)
 
 
-[^a]: [[Matthew 27.25|Matt. 27:25 (24-25).]]
+[^a]: [[Matthew 27.24|Matt. 27:25 (24–25)]][[Matthew 27.25|]].  

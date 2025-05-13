@@ -5,5 +5,5 @@
 [Colossians 3:25](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.25?lang=eng#p25)
 
 
-[^a]: TG [[Injustice]].
-[^b]: [[D&C 1.35|D&C 1:35]]; [[D&C 38.16|38:16.]]
+[^a]: [[Injustice|TG Injustice]].  
+[^b]: [[D&C 1.35|D&C 1:35]]; [[D&C 38.16|38:16]].  

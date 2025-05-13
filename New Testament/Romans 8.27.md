@@ -5,5 +5,5 @@
 [Romans 8:27](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.27?lang=eng#p27)
 
 
-[^a]: TG [[Judgment]].
-[^b]: TG [[Holy Ghost, Mission of]].
+[^a]: [[Judgment|TG Judgment]].  
+[^b]: [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  

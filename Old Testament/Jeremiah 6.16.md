@@ -5,6 +5,6 @@
 [Jeremiah 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.16?lang=eng#p16)
 
 
-[^a]: [[Jeremiah 18.15|Jer. 18:15.]]
-[^b]: TG [[Walking with God]].
-[^c]: TG [[Restoration of the Gospel]].
+[^a]: [[Jeremiah 18.15|Jer. 18:15]].  
+[^b]: [[Walking with God|TG Walking with God]].  
+[^c]: [[Rest|TG Rest]].  

@@ -5,4 +5,4 @@
 [Jeremiah 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.13?lang=eng#p13)
 
 
-[^a]: TG [[Apostasy of Israel]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  

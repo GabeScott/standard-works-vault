@@ -5,4 +5,4 @@
 [1 Samuel 23:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/23.22?lang=eng#p22)
 
 
-[^a]: HEB his foot; i.e., his customary walk.
+[^a]: HEB his foot; i.e., his customary walk.  

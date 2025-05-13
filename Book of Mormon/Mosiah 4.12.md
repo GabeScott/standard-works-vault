@@ -5,6 +5,6 @@
 [Mosiah 4:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[God, Love of]].
-[^b]: [[Mosiah 4.26|Mosiah 4:26]]; [[Alma 4.14|Alma 4:14 (13-14)]]; [[Alma 5.26|5:26 (26-35)]]; [[D&C 20.32|D&C 20:32 (31-34).]]
-[^c]: TG [[God, Knowledge about]].
+[^a]: [[God, Love of|TG God, Love of]].  
+[^b]: [[Mosiah 4.26|Mosiah 4:26]]; [[Alma 4.13|Alma 4:14 (13–14)]][[Alma 4.14|]]; [[Alma 5.26|5:26 (26–35)]][[Alma 5.27|]][[Alma 5.28|]][[Alma 5.29|]][[Alma 5.30|]][[Alma 5.31|]][[Alma 5.32|]][[Alma 5.33|]][[Alma 5.34|]][[Alma 5.35|]]; [[D&C 20.31|D&C 20:32 (31–34)]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]].  
+[^c]: [[God, Knowledge about|TG God, Knowledge about]].  

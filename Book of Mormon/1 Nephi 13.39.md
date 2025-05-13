@@ -5,7 +5,7 @@
 [1 Nephi 13:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p39#p39)
 
 
-[^a]: [[D&C 9.2|D&C 9:2.]]
-[^b]: TG [[Scriptures to Come Forth]].
-[^c]: [[Ezekiel 37.17|Ezek. 37:17 (15-20)]]; [[1 Nephi 14.2|1 Ne. 14:2 (1-5).]]
-[^d]: [[1 Nephi 14.30|1 Ne. 14:30.]]
+[^a]: [[D&C 9.2|D&C 9:2]].  
+[^b]: [[Scriptures to Come Forth|TG Scriptures to Come Forth]].  
+[^c]: [[Ezekiel 37.15|Ezek. 37:17 (15–20)]][[Ezekiel 37.16|]][[Ezekiel 37.17|]][[Ezekiel 37.18|]][[Ezekiel 37.19|]][[Ezekiel 37.20|]]; [[1 Nephi 14.1|1 Ne. 14:2 (1–5)]][[1 Nephi 14.2|]][[1 Nephi 14.3|]][[1 Nephi 14.4|]][[1 Nephi 14.5|]].  
+[^d]: [[1 Nephi 14.30|1 Ne. 14:30]].  

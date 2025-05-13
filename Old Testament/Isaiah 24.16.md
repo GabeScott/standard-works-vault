@@ -5,5 +5,5 @@
 [Isaiah 24:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.16?lang=eng#p16)
 
 
-[^a]: HEB I waste away! Woe is me!
-[^b]: Despite the rejoicing of the remnant, the prophet laments the destruction of the many peoples who rejected righteousness (vv. 16-18).
+[^a]: HEB I waste away! Woe is me!  
+[^b]: Despite the rejoicing of the remnant, the prophet laments the destruction of the many peoples who rejected righteousness ([[Isaiah 24.16|vv. 16–18]][[Isaiah 24.17|]][[Isaiah 24.18|]]).  

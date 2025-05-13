@@ -5,4 +5,4 @@
 [Psalms 109:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.6?lang=eng#p6)
 
 
-[^a]: HEB an adversary, accuser. Zech. 3:1.
+[^a]: HEB an adversary, accuser. [[Zechariah 3.1|Zech. 3:1]].  

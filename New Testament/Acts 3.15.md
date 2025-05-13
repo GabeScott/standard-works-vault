@@ -5,6 +5,6 @@
 [Acts 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.15?lang=eng#p15)
 
 
-[^a]: TG [[Jesus Christ, Messiah]].
-[^b]: [[Acts 10.40|Acts 10:40.]]
-[^c]: TG [[Witness, Witnesses]].
+[^a]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  
+[^b]: [[Acts 10.40|Acts 10:40]].  
+[^c]: [[Witness, Witnesses|TG Witness]].  

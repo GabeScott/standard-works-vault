@@ -5,4 +5,4 @@
 [Job 21:19](https://www.churchofjesuschrist.org/study/scriptures/ot/job/21.19?lang=eng#p19)
 
 
-[^a]: TG [[Reward]].
+[^a]: [[Reward|TG Reward]].  

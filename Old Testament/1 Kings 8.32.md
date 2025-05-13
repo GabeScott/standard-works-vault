@@ -5,4 +5,4 @@
 [1 Kings 8:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.32?lang=eng#p32)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Righteousness|TG Righteousness]].  

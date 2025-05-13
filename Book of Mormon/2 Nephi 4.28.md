@@ -5,5 +5,5 @@
 [2 Nephi 4:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p28#p28)
 
 
-[^a]: [[Psalms 42.11|Ps. 42:11.]]
-[^b]: TG [[Adversary]]; [[Enemies, Enemy]].
+[^a]: [[Psalms 42.11|Ps. 42:11]].  
+[^b]: [[Adversary|TG Adversary]]; [[Enemies, Enemy|Enemies]].  

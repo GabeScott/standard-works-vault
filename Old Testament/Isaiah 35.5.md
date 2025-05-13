@@ -5,5 +5,5 @@
 [Isaiah 35:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/35.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 32.3|Isa. 32:3.]]
-[^b]: TG [[Sight]].
+[^a]: [[Isaiah 32.3|Isa. 32:3]].  
+[^b]: [[Sight|TG Sight]].  

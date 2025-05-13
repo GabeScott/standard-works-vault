@@ -5,8 +5,8 @@
 [Romans 10:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.15?lang=eng#p15)
 
 
-[^a]: TG [[Missionary Work]]; [[Preaching, Preach]].
-[^b]: TG [[Called of God]].
-[^c]: [[Nahum 1.15|Nahum 1:15.]]
-[^d]: TG [[Gospel]].
-[^e]: TG [[Peacemakers]]; [[Peace of God]].
+[^a]: [[Missionary Work|TG Missionary Work]]; [[Preaching, Preach|Preaching]].  
+[^b]: [[Called of God|TG Called of God]].  
+[^c]: [[Nahum 1.15|Nahum 1:15]].  
+[^d]: [[Gospel|TG Gospel]].  
+[^e]: [[Peacemakers|TG Peacemakers]]; [[Peace of God|Peace of God]].  

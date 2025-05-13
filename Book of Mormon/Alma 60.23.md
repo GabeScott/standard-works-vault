@@ -5,5 +5,5 @@
 [Alma 60:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p23#p23)
 
 
-[^a]: [[Matthew 23.26|Matt. 23:26 (25-26).]]
-[^b]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Matthew 23.25|Matt. 23:26 (25–26)]][[Matthew 23.26|]].  
+[^b]: [[Purification, Purify, Purifying|TG Purification]].  

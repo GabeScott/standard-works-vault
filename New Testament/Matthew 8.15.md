@@ -5,4 +5,4 @@
 [Matthew 8:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.15?lang=eng#p15)
 
 
-[^a]: GR took hold of.
+[^a]: GR took hold of.  

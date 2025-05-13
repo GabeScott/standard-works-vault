@@ -5,4 +5,4 @@
 [2 Corinthians 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/3.15?lang=eng#p15)
 
 
-[^a]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

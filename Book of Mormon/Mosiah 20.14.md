@@ -5,4 +5,4 @@
 [Mosiah 20:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/20?lang=eng&id=p14#p14)
 
 
-[^a]: [[Mosiah 19.26|Mosiah 19:26 (25-26).]]
+[^a]: [[Mosiah 19.25|Mosiah 19:26 (25–26)]][[Mosiah 19.26|]].  

@@ -5,5 +5,5 @@
 [Luke 8:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.19?lang=eng#p19)
 
 
-[^a]: TG [[Jesus Christ, Family of]].
-[^b]: GR crowd.
+[^a]: [[Jesus Christ, Family of|TG Jesus Christ, Family of]].  
+[^b]: GR crowd.  

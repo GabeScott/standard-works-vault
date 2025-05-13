@@ -5,4 +5,4 @@
 [Exodus 4:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.18?lang=eng#p18)
 
 
-[^a]: [[Exodus 2.18|Ex. 2:18 (16-18).]]
+[^a]: [[Exodus 2.16|Ex. 2:18 (16–18)]][[Exodus 2.17|]][[Exodus 2.18|]].  

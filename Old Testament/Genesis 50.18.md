@@ -5,4 +5,4 @@
 [Genesis 50:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 37.10|Gen. 37:10 (5-11).]]
+[^a]: [[Genesis 37.5|Gen. 37:10 (5–11)]][[Genesis 37.6|]][[Genesis 37.7|]][[Genesis 37.8|]][[Genesis 37.9|]][[Genesis 37.10|]][[Genesis 37.11|]].  

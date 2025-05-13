@@ -5,7 +5,7 @@
 [Ether 3:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p13#p13)
 
 
-[^a]: [[1 Samuel 3.21|1 Sam. 3:21]]; [[D&C 67.11|D&C 67:11 (11-12).]]
-[^b]: [[Enos 1.8|Enos 1:8 (6-8).]]
-[^c]: TG [[God, Presence of]]; [[God, Privilege of Seeing]].
-[^d]: TG [[Jesus Christ, Appearances, Antemortal]].
+[^a]: [[1 Samuel 3.21|1 Sam. 3:21]]; [[D&C 67.11|D&C 67:11 (11–12)]][[D&C 67.12|]].  
+[^b]: [[Enos 1.6|Enos 1:8 (6–8)]][[Enos 1.7|]][[Enos 1.8|]].  
+[^c]: [[God, Presence of|TG God, Presence of]]; [[God, Privilege of Seeing|God, Privilege of Seeing]].  
+[^d]: [[Jesus Christ, Appearances, Antemortal|TG Jesus Christ, Appearances, Antemortal]].  

@@ -5,4 +5,4 @@
 [Alma 37:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p17#p17)
 
 
-[^a]: [[2 Kings 10.10|2 Kgs. 10:10]]. TG [[Promise]].
+[^a]: [[2 Kings 10.10|2 Kgs. 10:10]]. [[Promise|TG Promise]].  

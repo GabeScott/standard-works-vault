@@ -5,5 +5,5 @@
 [2 Nephi 24:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p32#p32)
 
 
-[^a]: TG [[Zion, Sion]].
-[^b]: Zeph. 3:12.
+[^a]: [[Zion, Sion|TG Zion]].  
+[^b]: [[Zephaniah 3.12|Zeph. 3:12]].  

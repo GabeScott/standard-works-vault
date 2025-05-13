@@ -5,5 +5,5 @@
 [2 Nephi 12:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p5#p5)
 
 
-[^a]: [[2 Nephi 28.14|2 Ne. 28:14]]; [[Mosiah 14.6|Mosiah 14:6]]; [[Alma 5.37|Alma 5:37.]]
-[^b]: [[Isaiah 53.6|Isa. 53:6.]]
+[^a]: [[2 Nephi 28.14|2 Ne. 28:14]]; [[Mosiah 14.6|Mosiah 14:6]]; [[Alma 5.37|Alma 5:37]].  
+[^b]: [[Isaiah 53.6|Isa. 53:6]].  

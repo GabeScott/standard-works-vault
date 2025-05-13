@@ -5,4 +5,4 @@
 [Moses 7:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.3?lang=eng#p3)
 
 
-[^a]: TG [[Transfiguration, Transfigured]].
+[^a]: [[Transfiguration, Transfigured|TG Transfiguration]].  

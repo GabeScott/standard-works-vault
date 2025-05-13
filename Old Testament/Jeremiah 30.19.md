@@ -5,5 +5,5 @@
 [Jeremiah 30:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.19?lang=eng#p19)
 
 
-[^a]: [[D&C 45.58|D&C 45:58.]]
-[^b]: OR insignificant.
+[^a]: [[D&C 45.58|D&C 45:58]].  
+[^b]: OR insignificant.  

@@ -5,6 +5,6 @@
 [Numbers 33:54](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.54?lang=eng#p54)
 
 
-[^a]: TG [[Israel, Land of]].
-[^b]: [[D&C 85.7|D&C 85:7.]]
-[^c]: [[Deuteronomy 9.1|Deut. 9:1 (1-6).]]
+[^a]: [[Israel, Land of|TG Israel, Land of]].  
+[^b]: [[D&C 85.7|D&C 85:7]].  
+[^c]: [[Deuteronomy 9.1|Deut. 9:1 (1–6)]][[Deuteronomy 9.2|]][[Deuteronomy 9.3|]][[Deuteronomy 9.4|]][[Deuteronomy 9.5|]][[Deuteronomy 9.6|]].  

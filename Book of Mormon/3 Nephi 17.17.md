@@ -5,4 +5,4 @@
 [3 Nephi 17:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p17#p17)
 
 
-[^a]: [[2 Corinthians 12.4|2 Cor. 12:4]]; [[3 Nephi 19.34|3 Ne. 19:34 (32-34).]]
+[^a]: [[2 Corinthians 12.4|2 Cor. 12:4]]; [[3 Nephi 19.32|3 Ne. 19:34 (32–34)]][[3 Nephi 19.33|]][[3 Nephi 19.34|]].  

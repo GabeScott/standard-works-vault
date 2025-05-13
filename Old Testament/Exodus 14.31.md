@@ -5,4 +5,4 @@
 [Exodus 14:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.31?lang=eng#p31)
 
 
-[^a]: TG [[Faith]].
+[^a]: [[Faith|TG Faith]].  

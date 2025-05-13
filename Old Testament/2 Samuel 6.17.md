@@ -5,4 +5,4 @@
 [2 Samuel 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.17?lang=eng#p17)
 
 
-[^a]: [[1 Kings 3.15|1 Kgs. 3:15.]]
+[^a]: [[1 Kings 3.15|1 Kgs. 3:15]].  

@@ -5,5 +5,5 @@
 [Isaiah 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 7.12|Ezek. 7:12.]]
-[^b]: OR him who exacts payment, so with him who makes payment. TG [[Usury]].
+[^a]: [[Ezekiel 7.12|Ezek. 7:12]].  
+[^b]: OR him who exacts payment, so with him who makes payment. [[Usury|TG Usury]].  

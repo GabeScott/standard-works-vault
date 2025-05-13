@@ -5,4 +5,4 @@
 [Ezra 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.7?lang=eng#p7)
 
 
-[^a]: HEB Aramaic.
+[^a]: HEB Aramaic.  

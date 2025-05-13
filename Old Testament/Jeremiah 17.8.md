@@ -5,6 +5,6 @@
 [Jeremiah 17:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.8?lang=eng#p8)
 
 
-[^a]: [[Psalms 1.3|Ps. 1:3 (2-3)]]; [[D&C 97.9|D&C 97:9 (8-9).]]
-[^b]: HEB fear.
-[^c]: TG [[Drought]].
+[^a]: [[Psalms 1.2|Ps. 1:3 (2–3)]][[Psalms 1.3|]]; [[D&C 97.8|D&C 97:9 (8–9)]][[D&C 97.9|]].  
+[^b]: HEB fear.  
+[^c]: [[Drought|TG Drought]].  

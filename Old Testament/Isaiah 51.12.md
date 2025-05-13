@@ -5,4 +5,4 @@
 [Isaiah 51:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.12?lang=eng#p12)
 
 
-[^a]: [[Psalms 56.4|Ps. 56:4]]; [[Jeremiah 1.8|Jer. 1:8 (7-8).]]
+[^a]: [[Psalms 56.4|Ps. 56:4]]; [[Jeremiah 1.7|Jer. 1:8 (7–8)]][[Jeremiah 1.8|]].  

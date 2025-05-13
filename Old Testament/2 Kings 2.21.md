@@ -5,6 +5,6 @@
 [2 Kings 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.21?lang=eng#p21)
 
 
-[^a]: [[2 Kings 4.41|2 Kgs. 4:41.]]
-[^b]: [[Exodus 15.25|Ex. 15:25]]; [[Ezekiel 47.8|Ezek. 47:8 (8-9).]]
-[^c]: TG [[Barren, Barrenness]].
+[^a]: [[2 Kings 4.41|2 Kgs. 4:41]].  
+[^b]: [[Exodus 15.25|Ex. 15:25]]; [[Ezekiel 47.8|Ezek. 47:8 (8–9)]][[Ezekiel 47.9|]].  
+[^c]: [[Barren, Barrenness|TG Barren]].  

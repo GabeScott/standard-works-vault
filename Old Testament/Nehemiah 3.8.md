@@ -5,4 +5,4 @@
 [Nehemiah 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/3.8?lang=eng#p8)
 
 
-[^a]: OR perfumers, ointment makers.
+[^a]: OR perfumers, ointment makers.  

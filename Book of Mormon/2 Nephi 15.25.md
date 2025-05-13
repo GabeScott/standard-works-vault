@@ -5,4 +5,4 @@
 [2 Nephi 15:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p25#p25)
 
 
-[^a]: [[Deuteronomy 32.21|Deut. 32:21]]; [[D&C 63.32|D&C 63:32]]; [[Moses 6.27|Moses 6:27.]]
+[^a]: [[Deuteronomy 32.21|Deut. 32:21]]; [[D&C 63.32|D&C 63:32]]; [[Moses 6.27|Moses 6:27]].  

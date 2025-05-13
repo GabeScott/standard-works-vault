@@ -5,5 +5,5 @@
 [Colossians 1:21](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.21?lang=eng#p21)
 
 
-[^a]: GR formerly.
-[^b]: [[Ephesians 2.1|Eph. 2:1.]]
+[^a]: GR formerly.  
+[^b]: [[Ephesians 2.1|Eph. 2:1]].  

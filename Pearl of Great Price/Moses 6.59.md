@@ -5,11 +5,11 @@
 [Moses 6:59](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.59?lang=eng#p59)
 
 
-[^a]: 1 Jn. 5:8.
-[^b]: [[Genesis 2.7|Gen. 2:7]]; [[Moses 3.7|Moses 3:7]]; [[Moses 4.25|4:25 (25-29)]]; [[Abraham 5.7|Abr. 5:7.]]
-[^c]: TG [[Holy Ghost, Baptism of]]; [[Man, New, Spiritually Reborn]].
-[^d]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential.
-[^e]: [[2 Nephi 4.15|2 Ne. 4:15 (15-16).]]
-[^f]: [[John 6.68|John 6:68.]]
-[^g]: [[Abraham 2.11|Abr. 2:11.]]
-[^h]: TG [[Celestial Glory]]; [[Telestial Glory]].
+[^a]: [[1 John 5.8|1 Jn. 5:8]].  
+[^b]: [[Genesis 2.7|Gen. 2:7]]; [[Moses 3.7|Moses 3:7]]; [[Moses 4.25|4:25 (25–29)]][[Moses 4.26|]][[Moses 4.27|]][[Moses 4.28|]][[Moses 4.29|]]; [[Abraham 5.7|Abr. 5:7]].  
+[^c]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]]; [[Man, New, Spiritually Reborn|Man, New, Spiritually Reborn]].  
+[^d]: [[Baptism|TG Baptism]]; [[Baptism, Essential|Baptism, Essential]].  
+[^e]: [[2 Nephi 4.15|2 Ne. 4:15 (15–16)]][[2 Nephi 4.16|]].  
+[^f]: [[John 6.68|John 6:68]].  
+[^g]: [[Abraham 2.11|Abr. 2:11]].  
+[^h]: [[Celestial Glory|TG Celestial Glory]]; [[Glory|Glory]].  

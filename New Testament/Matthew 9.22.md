@@ -5,4 +5,4 @@
 [Matthew 9:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.22?lang=eng#p22)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Heal, Healing|TG Heal]].  

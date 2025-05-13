@@ -5,4 +5,4 @@
 [Jacob 7:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p6#p6)
 
 
-[^a]: [[2 Nephi 31.2|2 Ne. 31:2.]]
+[^a]: [[2 Nephi 31.2|2 Ne. 31:2]].  

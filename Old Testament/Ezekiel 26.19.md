@@ -5,5 +5,5 @@
 [Ezekiel 26:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.19?lang=eng#p19)
 
 
-[^a]: [[3 Nephi 10.7|3 Ne. 10:7 (7-8).]]
-[^b]: [[Ezekiel 27.34|Ezek. 27:34]]; [[3 Nephi 9.7|3 Ne. 9:7 (7-8).]]
+[^a]: [[3 Nephi 10.7|3 Ne. 10:7 (7–8)]][[3 Nephi 10.8|]].  
+[^b]: [[Ezekiel 27.34|Ezek. 27:34]]; [[3 Nephi 9.7|3 Ne. 9:7 (7–8)]][[3 Nephi 9.8|]].  

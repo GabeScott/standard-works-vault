@@ -5,4 +5,4 @@
 [Alma 21:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p14#p14)
 
 
-[^a]: [[Alma 20.29|Alma 20:29.]]
+[^a]: [[Alma 20.29|Alma 20:29]].  

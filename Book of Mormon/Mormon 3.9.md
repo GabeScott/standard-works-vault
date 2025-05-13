@@ -5,4 +5,4 @@
 [Mormon 3:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p9#p9)
 
 
-[^a]: [[Proverbs 14.16|Prov. 14:16]]; [[2 Nephi 4.34|2 Ne. 4:34]]; [[Mormon 4.8|Morm. 4:8.]]
+[^a]: [[Proverbs 14.16|Prov. 14:16]]; [[2 Nephi 4.34|2 Ne. 4:34]]; [[Mormon 4.8|Morm. 4:8]].  

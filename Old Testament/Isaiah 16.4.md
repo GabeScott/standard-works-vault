@@ -5,5 +5,5 @@
 [Isaiah 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.4?lang=eng#p4)
 
 
-[^a]: HEB Let mine outcasts dwell with thee; be thou a covert for Moab.
-[^b]: [[Mosiah 4.16|Mosiah 4:16.]]
+[^a]: HEB Let mine outcasts dwell with thee; be thou a covert for Moab.  
+[^b]: [[Mosiah 4.16|Mosiah 4:16]].  

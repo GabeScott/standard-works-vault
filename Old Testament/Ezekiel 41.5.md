@@ -5,4 +5,4 @@
 [Ezekiel 41:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.5?lang=eng#p5)
 
 
-[^a]: OR temple.
+[^a]: OR temple.  

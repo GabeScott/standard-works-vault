@@ -5,6 +5,6 @@
 [Genesis 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9.15?lang=eng#p15)
 
 
-[^a]: TG [[Covenants]].
-[^b]: [[Genesis 9.20|JST Gen. 9:20 … which I have made between me and you, for every living creature …]]
-[^c]: TG [[Flood, Noah’s]].
+[^a]: [[Covenants|TG Covenants]].  
+[^b]: JST Gen. 9:20 … which I have made between me and you, for every living creature …  
+[^c]: [[Flood|TG Flood]].  

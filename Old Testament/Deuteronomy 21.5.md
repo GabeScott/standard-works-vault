@@ -5,4 +5,4 @@
 [Deuteronomy 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/21.5?lang=eng#p5)
 
 
-[^a]: OR case of assault.
+[^a]: OR case of assault.  

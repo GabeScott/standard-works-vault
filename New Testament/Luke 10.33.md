@@ -5,5 +5,5 @@
 [Luke 10:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.33?lang=eng#p33)
 
 
-[^a]: [[John 4.9|John 4:9.]]
-[^b]: TG [[Benevolence]]; [[Compassion]]; [[Kindness]].
+[^a]: [[John 4.9|John 4:9]].  
+[^b]: [[Benevolence|TG Benevolence]]; [[Compassion|Compassion]]; [[Kindness|Kindness]].  

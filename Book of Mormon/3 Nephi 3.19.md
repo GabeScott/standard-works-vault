@@ -5,4 +5,4 @@
 [3 Nephi 3:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Guidance, Divine]].
+[^a]: [[Guidance, Divine|TG Guidance, Divine]].  

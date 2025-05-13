@@ -5,4 +5,4 @@
 [Exodus 30:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.29?lang=eng#p29)
 
 
-[^a]: OR consecrate.
+[^a]: OR consecrate.  

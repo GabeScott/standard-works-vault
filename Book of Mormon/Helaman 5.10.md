@@ -5,4 +5,4 @@
 [Helaman 5:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 11.34|Alma 11:34.]]
+[^a]: [[Alma 11.34|Alma 11:34]].  

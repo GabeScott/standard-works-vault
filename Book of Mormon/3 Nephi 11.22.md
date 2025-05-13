@@ -5,5 +5,5 @@
 [3 Nephi 11:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p22#p22)
 
 
-[^a]: [[1 Nephi 12.7|1 Ne. 12:7]]; [[3 Nephi 12.1|3 Ne. 12:1.]]
-[^b]: [[1 Corinthians 11.16|1 Cor. 11:16 (16-19)]]; [[3 Nephi 18.34|3 Ne. 18:34]]. TG [[Disputations, Dispute]].
+[^a]: [[1 Nephi 12.7|1 Ne. 12:7]]; [[3 Nephi 12.1|3 Ne. 12:1]].  
+[^b]: [[1 Corinthians 11.16|1 Cor. 11:16 (16–19)]][[1 Corinthians 11.17|]][[1 Corinthians 11.18|]][[1 Corinthians 11.19|]]; [[3 Nephi 18.34|3 Ne. 18:34]]. [[Disputations, Dispute|TG Disputations]].  

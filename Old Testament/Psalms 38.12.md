@@ -5,4 +5,4 @@
 [Psalms 38:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/38.12?lang=eng#p12)
 
 
-[^a]: TG [[Deceit, Deceive]].
+[^a]: [[Deceit, Deceive|TG Deceit]].  

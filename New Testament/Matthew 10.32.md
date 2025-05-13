@@ -5,4 +5,4 @@
 [Matthew 10:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.32?lang=eng#p32)
 
 
-[^a]: GR solemnly covenant with, promise me. TG [[Witness, Witnesses]].
+[^a]: GR solemnly covenant with, promise me. [[Witness, Witnesses|TG Witness]].  

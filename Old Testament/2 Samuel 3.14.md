@@ -5,4 +5,4 @@
 [2 Samuel 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/3.14?lang=eng#p14)
 
 
-[^a]: [[1 Samuel 14.49|1 Sam. 14:49]]; [[1 Samuel 18.27|18:27 (25-27).]]
+[^a]: [[1 Samuel 14.49|1 Sam. 14:49]]; [[1 Samuel 18.25|18:27 (25–27)]][[1 Samuel 18.26|]][[1 Samuel 18.27|]].  

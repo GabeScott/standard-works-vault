@@ -5,6 +5,6 @@
 [1 Kings 11:38](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.38?lang=eng#p38)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: JST 1 Kgs. 11:38 … did in the day that I blessed him; I will be …
-[^c]: [[1 Samuel 2.35|1 Sam. 2:35.]]
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: JST 1 Kgs. 11:38 … did in the day that I blessed him; I will be …  
+[^c]: [[1 Samuel 2.35|1 Sam. 2:35]].  

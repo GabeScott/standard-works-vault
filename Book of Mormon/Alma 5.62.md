@@ -5,4 +5,4 @@
 [Alma 5:62](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p62#p62)
 
 
-[^a]: [[1 Nephi 8.10|1 Ne. 8:10]]; [[1 Nephi 11.21|11:21 (21-23).]]
+[^a]: [[1 Nephi 8.10|1 Ne. 8:10]]; [[1 Nephi 11.21|11:21 (21–23)]][[1 Nephi 11.22|]][[1 Nephi 11.23|]].  

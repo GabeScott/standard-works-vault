@@ -5,5 +5,5 @@
 [Isaiah 24:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.21?lang=eng#p21)
 
 
-[^a]: TG [[Day of the Lord]].
-[^b]: TG [[Punish, Punishment]].
+[^a]: [[Day of the Lord|TG Day of the Lord]].  
+[^b]: [[Punish, Punishment|TG Punish]].  

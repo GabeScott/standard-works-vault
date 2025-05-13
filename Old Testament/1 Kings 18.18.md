@@ -5,4 +5,4 @@
 [1 Kings 18:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.18?lang=eng#p18)
 
 
-[^a]: [[D&C 3.4|D&C 3:4 (4-7).]]
+[^a]: [[D&C 3.4|D&C 3:4 (4–7)]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]].  

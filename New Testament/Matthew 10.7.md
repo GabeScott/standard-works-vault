@@ -5,4 +5,4 @@
 [Matthew 10:7](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.7?lang=eng#p7)
 
 
-[^a]: GR has come.
+[^a]: GR has come.  

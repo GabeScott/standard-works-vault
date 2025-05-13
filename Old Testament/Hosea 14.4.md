@@ -5,4 +5,4 @@
 [Hosea 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/14.4?lang=eng#p4)
 
 
-[^a]: TG [[Love]].
+[^a]: [[Love|TG Love]].  

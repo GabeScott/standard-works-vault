@@ -5,4 +5,4 @@
 [1 Samuel 8:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/8.20?lang=eng#p20)
 
 
-[^a]: [[D&C 1.16|D&C 1:16.]]
+[^a]: [[D&C 1.16|D&C 1:16]].  

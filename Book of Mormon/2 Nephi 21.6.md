@@ -5,4 +5,4 @@
 [2 Nephi 21:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/21?lang=eng&id=p6#p6)
 
 
-[^a]: [[Isaiah 65.25|Isa. 65:25.]]
+[^a]: [[Isaiah 65.25|Isa. 65:25]].  

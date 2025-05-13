@@ -5,4 +5,4 @@
 [1 Samuel 17:45](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.45?lang=eng#p45)
 
 
-[^a]: TG [[Name of the Lord]]; [[Testimony]].
+[^a]: [[Name|TG Name]]; [[Testimony|Testimony]].  

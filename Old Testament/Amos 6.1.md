@@ -5,5 +5,5 @@
 [Amos 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/6.1?lang=eng#p1)
 
 
-[^a]: [[Psalms 123.4|Ps. 123:4]]; [[2 Nephi 28.24|2 Ne. 28:24 (21-24).]]
-[^b]: [[Amos 4.1|Amos 4:1.]]
+[^a]: [[Psalms 123.4|Ps. 123:4]]; [[2 Nephi 28.21|2 Ne. 28:24 (21–24)]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.24|]].  
+[^b]: [[Amos 4.1|Amos 4:1]].  

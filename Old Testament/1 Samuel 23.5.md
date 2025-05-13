@@ -5,4 +5,4 @@
 [1 Samuel 23:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/23.5?lang=eng#p5)
 
 
-[^a]: [[Mosiah 10.20|Mosiah 10:20.]]
+[^a]: [[Mosiah 10.20|Mosiah 10:20]].  

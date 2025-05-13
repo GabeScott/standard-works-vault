@@ -5,4 +5,4 @@
 [Abraham 4:12](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 9.29|Ex. 9:29]]; [[D&C 14.9|D&C 14:9]]; [[D&C 15.2|15:2.]]
+[^a]: [[Exodus 9.29|Ex. 9:29]]; [[D&C 14.9|D&C 14:9]]; [[D&C 15.2|15:2]].  

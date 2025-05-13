@@ -5,5 +5,5 @@
 [Deuteronomy 27:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.5?lang=eng#p5)
 
 
-[^a]: [[1 Nephi 2.7|1 Ne. 2:7.]]
-[^b]: [[Exodus 20.25|Ex. 20:25.]]
+[^a]: [[1 Nephi 2.7|1 Ne. 2:7]].  
+[^b]: [[Exodus 20.25|Ex. 20:25]].  

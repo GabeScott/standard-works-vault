@@ -5,5 +5,5 @@
 [Daniel 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.5?lang=eng#p5)
 
 
-[^a]: OR opposite the lampstand.
-[^b]: [[Ether 3.6|Ether 3:6]]; [[Abraham 3.12|Abr. 3:12 (11-12).]]
+[^a]: OR opposite the lampstand.  
+[^b]: [[Ether 3.6|Ether 3:6]]; [[Abraham 3.11|Abr. 3:12 (11–12)]][[Abraham 3.12|]].  

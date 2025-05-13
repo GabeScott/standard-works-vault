@@ -5,9 +5,9 @@
 [Isaiah 50:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.10?lang=eng#p10)
 
 
-[^a]: [[D&C 1.38|D&C 1:38.]]
-[^b]: TG [[Servant]].
-[^c]: TG [[Darkness, Spiritual]].
-[^d]: TG [[Light]].
-[^e]: [[D&C 84.116|D&C 84:116.]]
-[^f]: HEB be supported by.
+[^a]: [[D&C 1.38|D&C 1:38]].  
+[^b]: [[Servant|TG Servant]].  
+[^c]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  
+[^d]: [[Light [noun]|TG Light [noun]]].  
+[^e]: [[D&C 84.116|D&C 84:116]].  
+[^f]: HEB be supported by.  

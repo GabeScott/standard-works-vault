@@ -5,4 +5,4 @@
 [Judges 18:15](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.15?lang=eng#p15)
 
 
-[^a]: HEB asked him concerning his welfare. 1 Sam. 10:4; 13:10.
+[^a]: HEB asked him concerning his welfare. [[1 Samuel 10.4|1 Sam. 10:4]]; [[1 Samuel 13.10|13:10]].  

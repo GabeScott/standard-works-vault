@@ -5,4 +5,4 @@
 [3 Nephi 7:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p11#p11)
 
 
-[^a]: [[3 Nephi 9.9|3 Ne. 9:9.]]
+[^a]: [[3 Nephi 9.9|3 Ne. 9:9]].  

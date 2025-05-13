@@ -5,4 +5,4 @@
 [Acts 7:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.16?lang=eng#p16)
 
 
-[^a]: [[Genesis 23.17|Gen. 23:17.]]
+[^a]: [[Genesis 23.17|Gen. 23:17]].  

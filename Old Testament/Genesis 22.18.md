@@ -5,6 +5,6 @@
 [Genesis 22:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.18?lang=eng#p18)
 
 
-[^a]: TG [[Seed of Abraham]].
-[^b]: TG [[Israel, Mission of]]; [[Mission of Early Saints]]; [[Mission of Latter-day Saints]].
-[^c]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[Seed of Abraham|TG Seed of Abraham]].  
+[^b]: [[Israel, Mission of|TG Israel, Mission of]]; [[Mission of Early Saints|Mission of Early Saints]]; [[Mission of Latter-day Saints|Mission of Latter-day Saints]].  
+[^c]: [[Obedience, Obedient, Obey|TG Obedience]].  

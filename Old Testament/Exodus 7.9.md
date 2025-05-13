@@ -5,5 +5,5 @@
 [Exodus 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.9?lang=eng#p9)
 
 
-[^a]: OR Prove yourselves by performing a miracle.
-[^b]: TG [[Sign Seekers]].
+[^a]: OR Prove yourselves by performing a miracle.  
+[^b]: [[Sign Seekers|TG Sign Seekers]].  

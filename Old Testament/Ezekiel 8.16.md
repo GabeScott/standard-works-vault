@@ -5,7 +5,7 @@
 [Ezekiel 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/8.16?lang=eng#p16)
 
 
-[^a]: [[1 Kings 6.36|1 Kgs. 6:36.]]
-[^b]: [[1 Kings 6.3|1 Kgs. 6:3.]]
-[^c]: [[Jeremiah 2.27|Jer. 2:27]]; [[Jeremiah 32.33|32:33.]]
-[^d]: IE the sun god of Egyptians or father of the gods. TG [[Idolatry, Idol]].
+[^a]: [[1 Kings 6.36|1 Kgs. 6:36]].  
+[^b]: [[1 Kings 6.3|1 Kgs. 6:3]].  
+[^c]: [[Jeremiah 2.27|Jer. 2:27]]; [[Jeremiah 32.33|32:33]].  
+[^d]: IE the sun god of Egyptians or father of the gods. [[Idolatry, Idol|TG Idolatry]].  

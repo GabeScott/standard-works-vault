@@ -5,4 +5,4 @@
 [Judges 19:24](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/19.24?lang=eng#p24)
 
 
-[^a]: [[Genesis 19.8|Gen. 19:8.]]
+[^a]: [[Genesis 19.8|Gen. 19:8]].  

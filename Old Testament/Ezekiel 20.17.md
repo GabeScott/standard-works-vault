@@ -5,4 +5,4 @@
 [Ezekiel 20:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.17?lang=eng#p17)
 
 
-[^a]: [[Ezekiel 5.11|Ezek. 5:11.]]
+[^a]: [[Ezekiel 5.11|Ezek. 5:11]].  

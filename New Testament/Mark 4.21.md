@@ -5,4 +5,4 @@
 [Mark 4:21](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.21?lang=eng#p21)
 
 
-[^a]: [[3 Nephi 18.24|3 Ne. 18:24.]]
+[^a]: [[3 Nephi 18.24|3 Ne. 18:24]].  

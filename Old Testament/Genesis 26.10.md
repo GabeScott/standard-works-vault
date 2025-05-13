@@ -5,6 +5,6 @@
 [Genesis 26:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 20.9|Gen. 20:9.]]
-[^b]: OR lain.
-[^c]: [[Genesis 20.9|Gen. 20:9.]]
+[^a]: [[Genesis 20.9|Gen. 20:9]].  
+[^b]: OR lain.  
+[^c]: [[Genesis 20.9|Gen. 20:9]].  

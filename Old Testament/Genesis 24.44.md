@@ -5,4 +5,4 @@
 [Genesis 24:44](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.44?lang=eng#p44)
 
 
-[^a]: [[Genesis 24.51|Gen. 24:51.]]
+[^a]: [[Genesis 24.51|Gen. 24:51]].  

@@ -5,4 +5,4 @@
 [1 Nephi 5:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p19#p19)
 
 
-[^a]: [[Alma 37.4|Alma 37:4.]]
+[^a]: [[Alma 37.4|Alma 37:4]].  

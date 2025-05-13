@@ -5,4 +5,4 @@
 [4 Nephi 1:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p30#p30)
 
 
-[^a]: [[3 Nephi 28.19|3 Ne. 28:19 (19-20).]]
+[^a]: [[3 Nephi 28.19|3 Ne. 28:19 (19–20)]][[3 Nephi 28.20|]].  

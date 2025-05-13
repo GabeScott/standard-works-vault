@@ -5,4 +5,4 @@
 [Leviticus 11:35](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.35?lang=eng#p35)
 
 
-[^a]: HEB stove and cooking ovens.
+[^a]: HEB stove and cooking ovens.  

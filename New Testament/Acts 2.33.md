@@ -5,7 +5,7 @@
 [Acts 2:33](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.33?lang=eng#p33)
 
 
-[^a]: GR to, at.
-[^b]: TG [[Godhead]].
-[^c]: [[Hebrews 2.9|Heb. 2:9.]]
-[^d]: [[D&C 53.2|D&C 53:2.]]
+[^a]: GR to, at.  
+[^b]: [[Godhead|TG Godhead]].  
+[^c]: [[Hebrews 2.9|Heb. 2:9]].  
+[^d]: [[D&C 53.2|D&C 53:2]].  

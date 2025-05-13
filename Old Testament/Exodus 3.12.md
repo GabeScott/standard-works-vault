@@ -5,7 +5,7 @@
 [Exodus 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.12?lang=eng#p12)
 
 
-[^a]: [[1 Nephi 17.55|1 Ne. 17:55]]; [[Mosiah 24.17|Mosiah 24:17]]; [[Alma 38.4|Alma 38:4]]. TG [[Walking with God]].
-[^b]: OR the sign.
-[^c]: TG [[Authority]].
-[^d]: [[Exodus 19.3|Ex. 19:3 (3-6)]]; [[Deuteronomy 1.6|Deut. 1:6 (5-8)]]; [[Deuteronomy 4.10|4:10 (10-13)]]; [[1 Kings 8.9|1 Kgs. 8:9.]]
+[^a]: [[1 Nephi 17.55|1 Ne. 17:55]]; [[Mosiah 24.17|Mosiah 24:17]]; [[Alma 38.4|Alma 38:4]]. [[Walking with God|TG Walking with God]].  
+[^b]: OR the sign.  
+[^c]: [[Authority|TG Authority]].  
+[^d]: [[Exodus 19.3|Ex. 19:3 (3–6)]][[Exodus 19.4|]][[Exodus 19.5|]][[Exodus 19.6|]]; [[Deuteronomy 1.5|Deut. 1:6 (5–8)]][[Deuteronomy 1.6|]][[Deuteronomy 1.7|]][[Deuteronomy 1.8|]]; [[Deuteronomy 4.10|4:10 (10–13)]][[Deuteronomy 4.11|]][[Deuteronomy 4.12|]][[Deuteronomy 4.13|]]; [[1 Kings 8.9|1 Kgs. 8:9]].  

@@ -5,7 +5,7 @@
 [Moroni 2:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/2?lang=eng&id=p2#p2)
 
 
-[^a]: [[Genesis 4.26|Gen. 4:26]]; [[Ether 4.15|Ether 4:15.]]
-[^b]: [[Matthew 10.1|Matt. 10:1]]. TG [[Priesthood, Melchizedek]].
-[^c]: TG [[Hands, Laying on of]].
-[^d]: [[3 Nephi 18.37|3 Ne. 18:37.]]
+[^a]: [[Genesis 4.26|Gen. 4:26]]; [[Ether 4.15|Ether 4:15]].  
+[^b]: [[Matthew 10.1|Matt. 10:1]]. [[Priesthood, Melchizedek|TG Priesthood, Melchizedek]].  
+[^c]: [[Hands, Laying on of|TG Hands, Laying on of]].  
+[^d]: [[3 Nephi 18.37|3 Ne. 18:37]].  

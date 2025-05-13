@@ -5,4 +5,4 @@
 [Amos 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/6.9?lang=eng#p9)
 
 
-[^a]: OR people.
+[^a]: OR people.  

@@ -5,4 +5,4 @@
 [Psalms 141:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/141.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 39.1|Ps. 39:1.]]
+[^a]: [[Psalms 39.1|Ps. 39:1]].  

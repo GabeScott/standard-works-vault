@@ -5,4 +5,4 @@
 [2 Chronicles 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/12.13?lang=eng#p13)
 
 
-[^a]: [[2 Chronicles 6.6|2 Chr. 6:6.]]
+[^a]: [[2 Chronicles 6.6|2 Chr. 6:6]].  

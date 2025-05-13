@@ -5,5 +5,5 @@
 [Joshua 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.3?lang=eng#p3)
 
 
-[^a]: [[1 Kings 18.31|1 Kgs. 18:31.]]
-[^b]: [[Deuteronomy 27.2|Deut. 27:2.]]
+[^a]: [[1 Kings 18.31|1 Kgs. 18:31]].  
+[^b]: [[Deuteronomy 27.2|Deut. 27:2]].  

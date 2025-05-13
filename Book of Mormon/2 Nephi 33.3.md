@@ -5,6 +5,6 @@
 [2 Nephi 33:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Scriptures, Value of]].
-[^b]: [[Genesis 20.7|Gen. 20:7]]; [[Numbers 21.7|Num. 21:7]]; [[1 Samuel 7.5|1 Sam. 7:5]]; [[Jeremiah 42.4|Jer. 42:4]]; [[Enos 1.9|Enos 1:9 (9-12)]]; W of M 1:8; [[Moroni 9.22|Moro. 9:22.]]
-[^c]: [[Psalms 6.6|Ps. 6:6]]; [[Jeremiah 13.17|Jer. 13:17]]; [[Acts 20.19|Acts 20:19.]]
+[^a]: [[Scriptures, Value of|TG Scriptures, Value of]].  
+[^b]: [[Genesis 20.7|Gen. 20:7]]; [[Numbers 21.7|Num. 21:7]]; [[1 Samuel 7.5|1 Sam. 7:5]]; [[Jeremiah 42.4|Jer. 42:4]]; [[Enos 1.9|Enos 1:9 (9–12)]][[Enos 1.10|]][[Enos 1.11|]][[Enos 1.12|]]; [[Words of Mormon 1.8|W of M 1:8]]; [[Moroni 9.22|Moro. 9:22]].  
+[^c]: [[Psalms 6.6|Ps. 6:6]]; [[Jeremiah 13.17|Jer. 13:17]]; [[Acts 20.19|Acts 20:19]].  

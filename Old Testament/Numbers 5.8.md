@@ -5,4 +5,4 @@
 [Numbers 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/5.8?lang=eng#p8)
 
 
-[^a]: HEB redeemer.
+[^a]: HEB redeemer.  

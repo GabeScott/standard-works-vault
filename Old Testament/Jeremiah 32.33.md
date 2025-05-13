@@ -5,4 +5,4 @@
 [Jeremiah 32:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.33?lang=eng#p33)
 
 
-[^a]: [[Jeremiah 2.27|Jer. 2:27]]; [[Ezekiel 8.16|Ezek. 8:16.]]
+[^a]: [[Jeremiah 2.27|Jer. 2:27]]; [[Ezekiel 8.16|Ezek. 8:16]].  

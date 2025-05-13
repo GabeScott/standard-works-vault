@@ -5,4 +5,4 @@
 [1 Peter 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.8?lang=eng#p8)
 
 
-[^a]: [[John 20.29|John 20:29.]]
+[^a]: [[John 20.29|John 20:29]].  

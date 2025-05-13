@@ -5,5 +5,5 @@
 [Psalms 35:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.10?lang=eng#p10)
 
 
-[^a]: [[Proverbs 22.23|Prov. 22:23.]]
-[^b]: [[Isaiah 25.4|Isa. 25:4]]; [[D&C 56.18|D&C 56:18 (18-19).]]
+[^a]: [[Proverbs 22.23|Prov. 22:23]].  
+[^b]: [[Isaiah 25.4|Isa. 25:4]]; [[D&C 56.18|D&C 56:18 (18–19)]][[D&C 56.19|]].  

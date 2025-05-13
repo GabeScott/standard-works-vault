@@ -5,7 +5,7 @@
 [Alma 47:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/47?lang=eng&id=p35#p35)
 
 
-[^a]: [[Proverbs 19.6|Prov. 19:6 (6-7).]]
-[^b]: TG [[Conspiracy]]; [[Tyranny]].
-[^c]: [[Alma 47.4|Alma 47:4.]]
-[^d]: [[Jacob 1.13|Jacob 1:13 (13-14).]]
+[^a]: [[Proverbs 19.6|Prov. 19:6 (6–7)]][[Proverbs 19.7|]].  
+[^b]: [[Conspiracy|TG Conspiracy]]; [[Tyranny|Tyranny]].  
+[^c]: [[Alma 47.4|Alma 47:4]].  
+[^d]: [[Jacob 1.13|Jacob 1:13 (13–14)]][[Jacob 1.14|]].  

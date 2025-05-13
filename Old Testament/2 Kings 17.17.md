@@ -5,6 +5,6 @@
 [2 Kings 17:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.17?lang=eng#p17)
 
 
-[^a]: [[2 Kings 16.3|2 Kgs. 16:3.]]
-[^b]: TG [[Sorcery]].
-[^c]: TG [[Evil]].
+[^a]: [[2 Kings 16.3|2 Kgs. 16:3]].  
+[^b]: [[Sorcery|TG Sorcery]].  
+[^c]: [[Evil|TG Evil]].  

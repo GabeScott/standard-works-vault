@@ -5,5 +5,5 @@
 [1 Kings 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/3.15?lang=eng#p15)
 
 
-[^a]: [[2 Samuel 6.17|2 Sam. 6:17]]; [[2 Chronicles 1.4|2 Chr. 1:4.]]
-[^b]: TG [[Self-Sacrifice]].
+[^a]: [[2 Samuel 6.17|2 Sam. 6:17]]; [[2 Chronicles 1.4|2 Chr. 1:4]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  

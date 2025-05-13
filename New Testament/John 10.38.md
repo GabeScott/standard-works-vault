@@ -5,5 +5,5 @@
 [John 10:38](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.38?lang=eng#p38)
 
 
-[^a]: TG [[Faith]].
-[^b]: TG [[Godhead]].
+[^a]: [[Faith|TG Faith]].  
+[^b]: [[Godhead|TG Godhead]].  

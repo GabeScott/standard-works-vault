@@ -5,4 +5,4 @@
 [Alma 31:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 18.4|Alma 18:4 (4-5).]]
+[^a]: [[Alma 18.4|Alma 18:4 (4–5)]][[Alma 18.5|]].  

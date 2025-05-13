@@ -5,5 +5,5 @@
 [Exodus 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 14.4|Ex. 14:4.]]
-[^b]: [[Nehemiah 9.10|Neh. 9:10 (6-10).]]
+[^a]: [[Exodus 14.4|Ex. 14:4]].  
+[^b]: [[Nehemiah 9.6|Neh. 9:10 (6–10)]][[Nehemiah 9.7|]][[Nehemiah 9.8|]][[Nehemiah 9.9|]][[Nehemiah 9.10|]].  

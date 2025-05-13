@@ -5,4 +5,4 @@
 [Leviticus 26:32](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.32?lang=eng#p32)
 
 
-[^a]: [[Isaiah 3.1|Isa. 3:1.]]
+[^a]: [[Isaiah 3.1|Isa. 3:1]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 23:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.19?lang=eng#p19)
 
 
-[^a]: OR interest (also v. 20). TG [[Usury]].
+[^a]: OR interest (also [[Deuteronomy 23.20|v. 20]]). [[Usury|TG Usury]].  

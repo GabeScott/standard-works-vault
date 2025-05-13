@@ -5,5 +5,5 @@
 [Ezra 8:36](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/8.36?lang=eng#p36)
 
 
-[^a]: IE on the west side of the Euphrates River.
-[^b]: OR raised, promoted.
+[^a]: IE on the west side of the Euphrates River.  
+[^b]: OR raised, promoted.  

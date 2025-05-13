@@ -5,4 +5,4 @@
 [1 Nephi 15:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p6#p6)
 
 
-[^a]: [[Moses 1.10|Moses 1:10]]; JS—H 1:20, 48.
+[^a]: [[Moses 1.10|Moses 1:10]]; [[Joseph Smith History 1.20|JS—H 1:20, 48]][[Joseph Smith History 1.48|]].  

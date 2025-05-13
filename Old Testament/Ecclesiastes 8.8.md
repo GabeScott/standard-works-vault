@@ -5,5 +5,5 @@
 [Ecclesiastes 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/8.8?lang=eng#p8)
 
 
-[^a]: [[2 Nephi 9.6|2 Ne. 9:6.]]
-[^b]: TG [[Deliver, Deliverance]].
+[^a]: [[2 Nephi 9.6|2 Ne. 9:6]].  
+[^b]: [[Deliver, Deliverance|TG Deliver]].  

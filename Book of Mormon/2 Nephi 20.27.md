@@ -5,5 +5,5 @@
 [2 Nephi 20:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p27#p27)
 
 
-[^a]: [[Isaiah 14.25|Isa. 14:25.]]
-[^b]: TG [[Jesus Christ, Messiah]].
+[^a]: [[Isaiah 14.25|Isa. 14:25]].  
+[^b]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  

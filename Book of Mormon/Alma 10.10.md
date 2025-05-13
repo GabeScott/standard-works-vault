@@ -5,5 +5,5 @@
 [Alma 10:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p10#p10)
 
 
-[^a]: [[Mosiah 3.2|Mosiah 3:2 (2-3)]]; [[Alma 11.31|Alma 11:31.]]
-[^b]: [[Alma 8.27|Alma 8:27.]]
+[^a]: [[Mosiah 3.2|Mosiah 3:2 (2–3)]][[Mosiah 3.3|]]; [[Alma 11.31|Alma 11:31]].  
+[^b]: [[Alma 8.27|Alma 8:27]].  

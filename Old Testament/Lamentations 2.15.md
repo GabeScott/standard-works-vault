@@ -5,8 +5,8 @@
 [Lamentations 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.15?lang=eng#p15)
 
 
-[^a]: [[Ezekiel 5.14|Ezek. 5:14.]]
-[^b]: [[Job 27.23|Job 27:23.]]
-[^c]: [[Psalms 50.2|Ps. 50:2]]; [[Ezekiel 16.14|Ezek. 16:14.]]
-[^d]: [[Ezekiel 27.3|Ezek. 27:3]]; [[Ezekiel 28.12|28:12.]]
-[^e]: [[Psalms 48.2|Ps. 48:2.]]
+[^a]: [[Ezekiel 5.14|Ezek. 5:14]].  
+[^b]: [[Job 27.23|Job 27:23]].  
+[^c]: [[Psalms 50.2|Ps. 50:2]]; [[Ezekiel 16.14|Ezek. 16:14]].  
+[^d]: [[Ezekiel 27.3|Ezek. 27:3]]; [[Ezekiel 28.12|28:12]].  
+[^e]: [[Psalms 48.2|Ps. 48:2]].  

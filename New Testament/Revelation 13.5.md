@@ -5,5 +5,5 @@
 [Revelation 13:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/13.5?lang=eng#p5)
 
 
-[^a]: Dan. 7:8.
-[^b]: TG [[Blaspheme, Blasphemous, Blasphemy]]; [[False Doctrine]].
+[^a]: [[Daniel 7.8|Dan. 7:8]].  
+[^b]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]]; [[False Doctrine|False Doctrine]].  

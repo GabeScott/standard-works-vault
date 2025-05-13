@@ -5,5 +5,5 @@
 [Matthew 21:33](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.33?lang=eng#p33)
 
 
-[^a]: JST Matt. 21:34-35 … And again, hear another parable; for unto you that believe not, I speak in parables; that your unrighteousness may be rewarded unto you. Behold, there was …
-[^b]: TG [[Stewardship, Steward]]; [[Watchman, Watchmen]].
+[^a]: JST Matt. 21:34–35 … And again, hear another parable; for unto you that believe not, I speak in parables; that your unrighteousness may be rewarded unto you. Behold, there was …  
+[^b]: [[Stewardship, Steward|TG Stewardship]]; [[Watchman, Watchmen|Watchman]].  

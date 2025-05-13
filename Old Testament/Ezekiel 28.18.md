@@ -5,4 +5,4 @@
 [Ezekiel 28:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.18?lang=eng#p18)
 
 
-[^a]: HEB merchandise or business dealings.
+[^a]: HEB merchandise or business dealings.  

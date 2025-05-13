@@ -5,4 +5,4 @@
 [3 Nephi 14:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 5.41|Alma 5:41.]]
+[^a]: [[Alma 5.41|Alma 5:41]].  

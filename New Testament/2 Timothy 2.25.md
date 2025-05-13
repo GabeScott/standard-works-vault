@@ -5,6 +5,6 @@
 [2 Timothy 2:25](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.25?lang=eng#p25)
 
 
-[^a]: TG [[Meek, Meekness]].
-[^b]: [[D&C 20.53|D&C 20:53.]]
-[^c]: GR perchance.
+[^a]: [[Meek, Meekness|TG Meek]].  
+[^b]: [[D&C 20.53|D&C 20:53]].  
+[^c]: GR perchance.  

@@ -5,4 +5,4 @@
 [Jeremiah 16:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.16?lang=eng#p16)
 
 
-[^a]: TG [[Missionary Work]].
+[^a]: [[Missionary Work|TG Missionary Work]].  

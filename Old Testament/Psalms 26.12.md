@@ -5,4 +5,4 @@
 [Psalms 26:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/26.12?lang=eng#p12)
 
 
-[^a]: TG [[Assembly for Worship]].
+[^a]: [[Assembly for Worship|TG Assembly for Worship]].  

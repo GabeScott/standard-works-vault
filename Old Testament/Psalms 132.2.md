@@ -5,5 +5,5 @@
 [Psalms 132:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/132.2?lang=eng#p2)
 
 
-[^a]: TG [[Vow]].
-[^b]: [[Isaiah 49.26|Isa. 49:26.]]
+[^a]: [[Vow|TG Vow]].  
+[^b]: [[Isaiah 49.26|Isa. 49:26]].  

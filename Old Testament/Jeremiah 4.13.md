@@ -5,5 +5,5 @@
 [Jeremiah 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 38.9|Ezek. 38:9.]]
-[^b]: Lam. 4:19.
+[^a]: [[Ezekiel 38.9|Ezek. 38:9]].  
+[^b]: [[Lamentations 4.19|Lam. 4:19]].  

@@ -5,4 +5,4 @@
 [Jeremiah 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 26.5|Jer. 26:5]]; [[1 Nephi 1.19|1 Ne. 1:19 (13-19).]]
+[^a]: [[Jeremiah 26.5|Jer. 26:5]]; [[1 Nephi 1.13|1 Ne. 1:19 (13–19)]][[1 Nephi 1.14|]][[1 Nephi 1.15|]][[1 Nephi 1.16|]][[1 Nephi 1.17|]][[1 Nephi 1.18|]][[1 Nephi 1.19|]].  

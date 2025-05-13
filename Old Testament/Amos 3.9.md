@@ -5,4 +5,4 @@
 [Amos 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.9?lang=eng#p9)
 
 
-[^a]: [[Amos 1.8|Amos 1:8.]]
+[^a]: [[Amos 1.8|Amos 1:8]].  

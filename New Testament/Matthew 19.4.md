@@ -5,4 +5,4 @@
 [Matthew 19:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.4?lang=eng#p4)
 
 
-[^a]: TG [[Man, Physical Creation of]].
+[^a]: [[Man, Physical Creation of|TG Man, Physical Creation of]].  

@@ -5,4 +5,4 @@
 [Proverbs 30:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.15?lang=eng#p15)
 
 
-[^a]: IE a blood-sucking parasite which is seemingly never satiated.
+[^a]: IE a blood-sucking parasite which is seemingly never satiated.  

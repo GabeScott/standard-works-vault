@@ -5,4 +5,4 @@
 [Isaiah 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 45.11|Ezek. 45:11.]]
+[^a]: [[Ezekiel 45.11|Ezek. 45:11]].  

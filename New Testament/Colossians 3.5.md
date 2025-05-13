@@ -5,8 +5,8 @@
 [Colossians 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.5?lang=eng#p5)
 
 
-[^a]: [[Romans 8.13|Rom. 8:13.]]
-[^b]: [[Romans 6.13|Rom. 6:13.]]
-[^c]: TG [[Sexual Immorality]].
-[^d]: TG [[Covet, Covetousness]].
-[^e]: TG [[Idolatry, Idol]].
+[^a]: [[Romans 8.13|Rom. 8:13]].  
+[^b]: [[Romans 6.13|Rom. 6:13]].  
+[^c]: [[Sexual Immorality|TG Sexual Immorality]].  
+[^d]: [[Covet, Covetousness|TG Covet]].  
+[^e]: [[Idolatry, Idol|TG Idolatry]].  

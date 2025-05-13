@@ -5,4 +5,4 @@
 [1 Nephi 20:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p8#p8)
 
 
-[^a]: [[Psalms 58.3|Ps. 58:3.]]
+[^a]: [[Psalms 58.3|Ps. 58:3]].  

@@ -5,4 +5,4 @@
 [Romans 9:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.8?lang=eng#p8)
 
 
-[^a]: TG [[Sons and Daughters of God]].
+[^a]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  

@@ -5,4 +5,4 @@
 [Exodus 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.5?lang=eng#p5)
 
 
-[^a]: HEB let his beast loose and it shall feed.
+[^a]: HEB let his beast loose and it shall feed.  

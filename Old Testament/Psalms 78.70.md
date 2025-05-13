@@ -5,4 +5,4 @@
 [Psalms 78:70](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.70?lang=eng#p70)
 
 
-[^a]: [[1 Samuel 16.13|1 Sam. 16:13 (11-13).]]
+[^a]: [[1 Samuel 16.11|1 Sam. 16:13 (11–13)]][[1 Samuel 16.12|]][[1 Samuel 16.13|]].  

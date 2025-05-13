@@ -5,4 +5,4 @@
 [Genesis 45:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/45.26?lang=eng#p26)
 
 
-[^a]: [[Genesis 41.43|Gen. 41:43 (41-44).]]
+[^a]: [[Genesis 41.41|Gen. 41:43 (41–44)]][[Genesis 41.42|]][[Genesis 41.43|]][[Genesis 41.44|]].  

@@ -5,7 +5,7 @@
 [Isaiah 52:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.8?lang=eng#p8)
 
 
-[^a]: TG [[Watchman, Watchmen]].
-[^b]: [[D&C 84.98|D&C 84:98.]]
-[^c]: HEB returns to Zion, or restores Zion. TG [[Millennium, Preparing a People for]].
-[^d]: [[D&C 12.6|D&C 12:6]]; [[D&C 39.13|39:13.]]
+[^a]: [[Watchman, Watchmen|TG Watchman]].  
+[^b]: [[D&C 84.98|D&C 84:98]].  
+[^c]: HEB returns to Zion, or restores Zion. [[Millennium, Preparing a People for|TG Millennium, Preparing a People for]].  
+[^d]: [[D&C 12.6|D&C 12:6]]; [[D&C 39.13|39:13]].  

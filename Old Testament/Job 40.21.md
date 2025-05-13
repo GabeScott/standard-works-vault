@@ -5,4 +5,4 @@
 [Job 40:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/40.21?lang=eng#p21)
 
 
-[^a]: HEB in marshes.
+[^a]: HEB in marshes.  

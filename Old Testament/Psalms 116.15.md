@@ -5,4 +5,4 @@
 [Psalms 116:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.15?lang=eng#p15)
 
 
-[^a]: TG [[Death]].
+[^a]: [[Death|TG Death]].  

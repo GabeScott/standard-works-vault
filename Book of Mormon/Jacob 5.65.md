@@ -5,4 +5,4 @@
 [Jacob 5:65](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p65#p65)
 
 
-[^a]: [[D&C 86.6|D&C 86:6 (6-7).]]
+[^a]: [[D&C 86.6|D&C 86:6 (6–7)]][[D&C 86.7|]].  

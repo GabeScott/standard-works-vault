@@ -5,4 +5,4 @@
 [Acts 2:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.25?lang=eng#p25)
 
 
-[^a]: [[Psalms 16.8|Ps. 16:8 (8-11).]]
+[^a]: [[Psalms 16.8|Ps. 16:8 (8–11)]][[Psalms 16.9|]][[Psalms 16.10|]][[Psalms 16.11|]].  

@@ -5,4 +5,4 @@
 [Luke 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.22?lang=eng#p22)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

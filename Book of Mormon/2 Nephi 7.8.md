@@ -5,5 +5,5 @@
 [2 Nephi 7:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/7?lang=eng&id=p8#p8)
 
 
-[^a]: [[Romans 8.33|Rom. 8:33 (32-34).]]
-[^b]: [[Isaiah 11.4|Isa. 11:4.]]
+[^a]: [[Romans 8.32|Rom. 8:33 (32–34)]][[Romans 8.33|]][[Romans 8.34|]].  
+[^b]: [[Isaiah 11.4|Isa. 11:4]].  

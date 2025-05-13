@@ -5,6 +5,6 @@
 [Deuteronomy 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 34.13|Ex. 34:13.]]
-[^b]: HEB pillars. TG [[Idolatry, Idol]].
-[^c]: HEB asherim; i.e., fertility deities. Judg. 6:25.
+[^a]: [[Exodus 34.13|Ex. 34:13]].  
+[^b]: HEB pillars. [[Idolatry, Idol|TG Idolatry]].  
+[^c]: HEB asherim; i.e., fertility deities. [[Judges 6.25|Judg. 6:25]].  

@@ -5,6 +5,6 @@
 [Job 1:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.21?lang=eng#p21)
 
 
-[^a]: [[Ecclesiastes 5.15|Eccl. 5:15]]; [[1 Timothy 6.7|1 Tim. 6:7.]]
-[^b]: TG [[Patience, Patient, Patiently]]; [[Suffering]].
-[^c]: [[Genesis 14.20|Gen. 14:20]]; [[D&C 36.3|D&C 36:3.]]
+[^a]: [[Ecclesiastes 5.15|Eccl. 5:15]]; [[1 Timothy 6.7|1 Tim. 6:7]].  
+[^b]: [[Patience, Patient, Patiently|TG Patience]]; [[Suffering|Suffering]].  
+[^c]: [[Genesis 14.20|Gen. 14:20]]; [[D&C 36.3|D&C 36:3]].  

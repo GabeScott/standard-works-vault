@@ -5,4 +5,4 @@
 [Psalms 109:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.14?lang=eng#p14)
 
 
-[^a]: [[Exodus 20.5|Ex. 20:5.]]
+[^a]: [[Exodus 20.5|Ex. 20:5]].  

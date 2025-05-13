@@ -5,4 +5,4 @@
 [Galatians 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.1?lang=eng#p1)
 
 
-[^a]: [[Jacob 7.18|Jacob 7:18 (16-18)]]. TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Jacob 7.16|Jacob 7:18 (16–18)]][[Jacob 7.17|]][[Jacob 7.18|]]. [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

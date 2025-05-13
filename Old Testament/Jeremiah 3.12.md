@@ -5,6 +5,6 @@
 [Jeremiah 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.12?lang=eng#p12)
 
 
-[^a]: [[D&C 30.9|D&C 30:9.]]
-[^b]: TG [[Israel, Ten Lost Tribes of]].
-[^c]: TG [[Israel, Restoration of]].
+[^a]: [[D&C 30.9|D&C 30:9]].  
+[^b]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  
+[^c]: [[Israel, Restoration of|TG Israel, Restoration of]].  

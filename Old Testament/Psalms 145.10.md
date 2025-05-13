@@ -5,4 +5,4 @@
 [Psalms 145:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/145.10?lang=eng#p10)
 
 
-[^a]: TG [[Mission of Early Saints]].
+[^a]: [[Mission of Early Saints|TG Mission of Early Saints]].  

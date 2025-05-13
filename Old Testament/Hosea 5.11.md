@@ -5,4 +5,4 @@
 [Hosea 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/5.11?lang=eng#p11)
 
 
-[^a]: OR after filth.
+[^a]: OR after filth.  

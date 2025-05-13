@@ -5,4 +5,4 @@
 [Ezekiel 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.11?lang=eng#p11)
 
 
-[^a]: HEB the Lord Jehovah.
+[^a]: HEB the Lord Jehovah.  

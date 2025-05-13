@@ -5,4 +5,4 @@
 [Moroni 9:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/9?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Anger]].
+[^a]: [[Anger|TG Anger]].  

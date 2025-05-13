@@ -5,4 +5,4 @@
 [Ezra 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 119.53|Ps. 119:53]]; [[D&C 1.7|D&C 1:7.]]
+[^a]: [[Psalms 119.53|Ps. 119:53]]; [[D&C 1.7|D&C 1:7]].  

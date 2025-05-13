@@ -5,4 +5,4 @@
 [1 Kings 6:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.29?lang=eng#p29)
 
 
-[^a]: [[1 Kings 7.36|1 Kgs. 7:36]]; [[Ezekiel 41.18|Ezek. 41:18.]]
+[^a]: [[1 Kings 7.36|1 Kgs. 7:36]]; [[Ezekiel 41.18|Ezek. 41:18]].  

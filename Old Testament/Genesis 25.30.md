@@ -5,4 +5,4 @@
 [Genesis 25:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.30?lang=eng#p30)
 
 
-[^a]: IE Red. Gen. 36:1 (1, 8).
+[^a]: IE Red. [[Genesis 36.1|Gen. 36:1 (1, 8)]][[Genesis 36.8|]].  

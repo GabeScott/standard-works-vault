@@ -5,5 +5,5 @@
 [D&C 9:9](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/9.9?lang=eng#p9)
 
 
-[^a]: [[D&C 10.2|D&C 10:2.]]
-[^b]: TG [[Sacred]].
+[^a]: [[D&C 10.2|D&C 10:2]].  
+[^b]: [[Sacred|TG Sacred]].  

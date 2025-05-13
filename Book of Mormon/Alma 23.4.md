@@ -5,5 +5,5 @@
 [Alma 23:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/23?lang=eng&id=p4#p4)
 
 
-[^a]: [[Luke 8.1|Luke 8:1]]; [[D&C 66.5|D&C 66:5]]; [[D&C 75.18|75:18.]]
-[^b]: [[Alma 30.31|Alma 30:31.]]
+[^a]: [[Luke 8.1|Luke 8:1]]; [[D&C 66.5|D&C 66:5]]; [[D&C 75.18|75:18]].  
+[^b]: [[Alma 30.31|Alma 30:31]].  

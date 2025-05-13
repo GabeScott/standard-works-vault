@@ -5,4 +5,4 @@
 [Proverbs 14:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.9?lang=eng#p9)
 
 
-[^a]: [[Ether 12.26|Ether 12:26.]]
+[^a]: [[Ether 12.26|Ether 12:26]].  

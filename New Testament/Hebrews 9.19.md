@@ -5,6 +5,6 @@
 [Hebrews 9:19](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.19?lang=eng#p19)
 
 
-[^a]: [[Exodus 24.7|Ex. 24:7.]]
-[^b]: [[Exodus 24.6|Ex. 24:6.]]
-[^c]: [[Exodus 24.8|Ex. 24:8.]]
+[^a]: [[Exodus 24.7|Ex. 24:7]].  
+[^b]: [[Exodus 24.6|Ex. 24:6]].  
+[^c]: [[Exodus 24.8|Ex. 24:8]].  

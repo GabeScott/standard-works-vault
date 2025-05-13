@@ -5,5 +5,5 @@
 [Matthew 6:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.16?lang=eng#p16)
 
 
-[^a]: [[Zechariah 7.5|Zech. 7:5 (5-6).]]
-[^b]: GR receive.
+[^a]: [[Zechariah 7.5|Zech. 7:5 (5–6)]][[Zechariah 7.6|]].  
+[^b]: GR receive.  

@@ -5,4 +5,4 @@
 [Luke 9:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.21?lang=eng#p21)
 
 
-[^a]: [[Mark 8.30|Mark 8:30.]]
+[^a]: [[Mark 8.30|Mark 8:30]].  

@@ -5,4 +5,4 @@
 [Lamentations 3:62](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/3.62?lang=eng#p62)
 
 
-[^a]: [[Jeremiah 11.19|Jer. 11:19]]; [[Alma 10.13|Alma 10:13]]; [[Alma 11.21|11:21.]]
+[^a]: [[Jeremiah 11.19|Jer. 11:19]]; [[Alma 10.13|Alma 10:13]]; [[Alma 11.21|11:21]].  

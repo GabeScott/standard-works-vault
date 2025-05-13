@@ -5,4 +5,4 @@
 [Exodus 4:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 17.9|Ex. 17:9]]; [[Numbers 20.8|Num. 20:8 (8-9).]]
+[^a]: [[Exodus 17.9|Ex. 17:9]]; [[Numbers 20.8|Num. 20:8 (8–9)]][[Numbers 20.9|]].  

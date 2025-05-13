@@ -5,5 +5,5 @@
 [Romans 9:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.1?lang=eng#p1)
 
 
-[^a]: [[1 Timothy 2.7|1 Tim. 2:7.]]
-[^b]: TG [[Conscience]].
+[^a]: [[1 Timothy 2.7|1 Tim. 2:7]].  
+[^b]: [[Conscience|TG Conscience]].  

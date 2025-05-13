@@ -5,4 +5,4 @@
 [Song of Solomon 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/song/2.9?lang=eng#p9)
 
 
-[^a]: OR gazelle, fawn.
+[^a]: OR gazelle, fawn.  

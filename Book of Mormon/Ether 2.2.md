@@ -5,4 +5,4 @@
 [Ether 2:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p2#p2)
 
 
-[^a]: [[Genesis 7.3|Gen. 7:3 (1-3).]]
+[^a]: [[Genesis 7.1|Gen. 7:3 (1–3)]][[Genesis 7.2|]][[Genesis 7.3|]].  

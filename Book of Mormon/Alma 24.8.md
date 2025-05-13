@@ -5,4 +5,4 @@
 [Alma 24:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 23.18|Alma 23:18.]]
+[^a]: [[Alma 23.18|Alma 23:18]].  

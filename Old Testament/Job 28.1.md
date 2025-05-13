@@ -5,4 +5,4 @@
 [Job 28:1](https://www.churchofjesuschrist.org/study/scriptures/ot/job/28.1?lang=eng#p1)
 
 
-[^a]: OR mine.
+[^a]: OR mine.  

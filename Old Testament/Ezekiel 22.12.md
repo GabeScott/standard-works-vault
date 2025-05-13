@@ -5,5 +5,5 @@
 [Ezekiel 22:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.12?lang=eng#p12)
 
 
-[^a]: [[Deuteronomy 27.25|Deut. 27:25]]; [[Isaiah 1.23|Isa. 1:23.]]
-[^b]: [[Isaiah 3.14|Isa. 3:14]]; [[Amos 3.10|Amos 3:10]]; [[Alma 4.12|Alma 4:12 (12-13)]]. TG [[Usury]].
+[^a]: [[Deuteronomy 27.25|Deut. 27:25]]; [[Isaiah 1.23|Isa. 1:23]].  
+[^b]: [[Isaiah 3.14|Isa. 3:14]]; [[Amos 3.10|Amos 3:10]]; [[Alma 4.12|Alma 4:12 (12–13)]][[Alma 4.13|]]. [[Usury|TG Usury]].  

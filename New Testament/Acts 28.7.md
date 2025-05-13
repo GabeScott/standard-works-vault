@@ -5,4 +5,4 @@
 [Acts 28:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.7?lang=eng#p7)
 
 
-[^a]: TG [[Courtesy]].
+[^a]: [[Courtesy|TG Courtesy]].  

@@ -5,5 +5,5 @@
 [Proverbs 22:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.9?lang=eng#p9)
 
 
-[^a]: TG [[Bread]].
-[^b]: TG [[Almsgiving]].
+[^a]: [[Bread|TG Bread]].  
+[^b]: [[Almsgiving|TG Almsgiving]].  

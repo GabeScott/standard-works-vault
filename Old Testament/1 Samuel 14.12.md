@@ -5,4 +5,4 @@
 [1 Samuel 14:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.12?lang=eng#p12)
 
 
-[^a]: [[3 Nephi 3.21|3 Ne. 3:21.]]
+[^a]: [[3 Nephi 3.21|3 Ne. 3:21]].  

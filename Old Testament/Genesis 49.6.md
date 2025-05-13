@@ -5,6 +5,6 @@
 [Genesis 49:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.6?lang=eng#p6)
 
 
-[^a]: [[Ephesians 5.11|Eph. 5:11]]; [[Alma 5.57|Alma 5:57.]]
-[^b]: TG [[Retribution]].
-[^c]: [[Genesis 34.26|Gen. 34:26 (25-31).]]
+[^a]: [[Ephesians 5.11|Eph. 5:11]]; [[Alma 5.57|Alma 5:57]].  
+[^b]: [[Retribution|TG Retribution]].  
+[^c]: [[Genesis 34.25|Gen. 34:26 (25–31)]][[Genesis 34.26|]][[Genesis 34.27|]][[Genesis 34.28|]][[Genesis 34.29|]][[Genesis 34.30|]][[Genesis 34.31|]].  

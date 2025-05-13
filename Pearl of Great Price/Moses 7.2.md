@@ -5,4 +5,4 @@
 [Moses 7:2](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.2?lang=eng#p2)
 
 
-[^a]: The Hebrew equivalent of Simeon is Shimʼon, which means “hearing.”
+[^a]: The Hebrew equivalent of Simeon is Shimʼon, which means “hearing.”  

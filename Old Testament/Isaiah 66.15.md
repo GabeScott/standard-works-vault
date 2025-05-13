@@ -5,5 +5,5 @@
 [Isaiah 66:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.15?lang=eng#p15)
 
 
-[^a]: [[D&C 29.12|D&C 29:12 (12, 21, 28)]]; [[D&C 130.7|130:7]]; [[D&C 133.41|133:41.]]
-[^b]: [[Abraham 2.7|Abr. 2:7.]]
+[^a]: [[D&C 29.12|D&C 29:12 (12, 21, 28)]][[D&C 29.21|]][[D&C 29.28|]]; [[D&C 130.7|130:7]]; [[D&C 133.41|133:41]].  
+[^b]: [[Abraham 2.7|Abr. 2:7]].  

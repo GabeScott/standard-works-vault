@@ -5,4 +5,4 @@
 [Psalms 36:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/36.3?lang=eng#p3)
 
 
-[^a]: TG [[Deceit, Deceive]].
+[^a]: [[Deceit, Deceive|TG Deceit]].  

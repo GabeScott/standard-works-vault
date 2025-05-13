@@ -5,4 +5,4 @@
 [Proverbs 25:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.8?lang=eng#p8)
 
 
-[^a]: [[Proverbs 3.30|Prov. 3:30]]; [[Proverbs 17.14|17:14.]]
+[^a]: [[Proverbs 3.30|Prov. 3:30]]; [[Proverbs 17.14|17:14]].  

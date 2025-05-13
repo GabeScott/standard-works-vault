@@ -5,4 +5,4 @@
 [3 Nephi 12:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p15#p15)
 
 
-[^a]: [[Luke 8.16|Luke 8:16.]]
+[^a]: [[Luke 8.16|Luke 8:16]].  

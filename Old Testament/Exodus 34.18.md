@@ -5,8 +5,8 @@
 [Exodus 34:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.18?lang=eng#p18)
 
 
-[^a]: [[Exodus 23.14|Ex. 23:14 (14-19).]]
-[^b]: [[Exodus 12.15|Ex. 12:15.]]
-[^c]: OR appointed feast.
-[^d]: [[Exodus 23.15|Ex. 23:15.]]
-[^e]: [[Exodus 12.2|Ex. 12:2.]]
+[^a]: [[Exodus 23.14|Ex. 23:14 (14–19)]][[Exodus 23.15|]][[Exodus 23.16|]][[Exodus 23.17|]][[Exodus 23.18|]][[Exodus 23.19|]].  
+[^b]: [[Exodus 12.15|Ex. 12:15]].  
+[^c]: OR appointed feast.  
+[^d]: [[Exodus 23.15|Ex. 23:15]].  
+[^e]: [[Exodus 12.2|Ex. 12:2]].  

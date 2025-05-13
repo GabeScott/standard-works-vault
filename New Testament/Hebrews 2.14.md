@@ -5,8 +5,8 @@
 [Hebrews 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.14?lang=eng#p14)
 
 
-[^a]: GR Since.
-[^b]: TG [[Flesh and Blood]].
-[^c]: [[Genesis 3.15|Gen. 3:15.]]
-[^d]: 2 Tim. 1:10. TG [[Redemption]].
-[^e]: TG [[Devil, Church of]].
+[^a]: GR Since.  
+[^b]: [[Flesh and Blood|TG Flesh and Blood]].  
+[^c]: [[Genesis 3.15|Gen. 3:15]].  
+[^d]: [[2 Timothy 1.10|2 Tim. 1:10]]. [[Redemption|TG Redemption]].  
+[^e]: [[Devil|TG Devil]].  

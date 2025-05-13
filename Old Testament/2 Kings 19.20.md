@@ -5,4 +5,4 @@
 [2 Kings 19:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.20?lang=eng#p20)
 
 
-[^a]: TG [[Prayer, Pray]].
+[^a]: [[Prayer, Pray|TG Prayer]].  

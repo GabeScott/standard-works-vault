@@ -5,6 +5,6 @@
 [Moses 3:18](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.18?lang=eng#p18)
 
 
-[^a]: TG [[Jesus Christ, Divine Sonship]].
-[^b]: TG [[Family, Eternal]].
-[^c]: [[Genesis 2.18|Gen. 2:18]]; [[Abraham 5.14|Abr. 5:14.]]
+[^a]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  
+[^b]: [[Family, Eternal|TG Family, Eternal]].  
+[^c]: [[Genesis 2.18|Gen. 2:18]]; [[Abraham 5.14|Abr. 5:14]].  

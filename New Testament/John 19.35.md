@@ -5,5 +5,5 @@
 [John 19:35](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.35?lang=eng#p35)
 
 
-[^a]: [[John 1.14|John 1:14]]; [[John 21.24|21:24.]]
-[^b]: [[John 1.7|John 1:7 (6-8).]]
+[^a]: [[John 1.14|John 1:14]]; [[John 21.24|21:24]].  
+[^b]: [[John 1.6|John 1:7 (6–8)]][[John 1.7|]][[John 1.8|]].  

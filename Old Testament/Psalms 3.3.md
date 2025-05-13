@@ -5,4 +5,4 @@
 [Psalms 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/3.3?lang=eng#p3)
 
 
-[^a]: TG [[Protection, Divine]].
+[^a]: [[Protection, Divine|TG Protection, Divine]].  

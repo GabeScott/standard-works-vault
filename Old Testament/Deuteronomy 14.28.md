@@ -5,4 +5,4 @@
 [Deuteronomy 14:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.28?lang=eng#p28)
 
 
-[^a]: [[Amos 4.4|Amos 4:4.]]
+[^a]: [[Amos 4.4|Amos 4:4]].  

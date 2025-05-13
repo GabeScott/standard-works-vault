@@ -5,4 +5,4 @@
 [Alma 2:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p3#p3)
 
 
-[^a]: [[Mosiah 29.25|Mosiah 29:25 (25-27)]]; [[Alma 4.16|Alma 4:16 (16-17).]]
+[^a]: [[Mosiah 29.25|Mosiah 29:25 (25–27)]][[Mosiah 29.26|]][[Mosiah 29.27|]]; [[Alma 4.16|Alma 4:16 (16–17)]][[Alma 4.17|]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 23:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.3?lang=eng#p3)
 
 
-[^a]: [[Nehemiah 13.1|Neh. 13:1.]]
+[^a]: [[Nehemiah 13.1|Neh. 13:1]].  

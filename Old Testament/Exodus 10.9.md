@@ -5,5 +5,5 @@
 [Exodus 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.9?lang=eng#p9)
 
 
-[^a]: TG [[Old Age]].
-[^b]: [[Exodus 5.1|Ex. 5:1.]]
+[^a]: [[Old Age|TG Old Age]].  
+[^b]: [[Exodus 5.1|Ex. 5:1]].  

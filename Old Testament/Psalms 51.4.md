@@ -5,5 +5,5 @@
 [Psalms 51:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.4?lang=eng#p4)
 
 
-[^a]: [[2 Samuel 12.13|2 Sam. 12:13 (9-14).]]
-[^b]: [[Romans 3.4|Rom. 3:4]]; [[D&C 97.2|D&C 97:2.]]
+[^a]: [[2 Samuel 12.9|2 Sam. 12:13 (9–14)]][[2 Samuel 12.10|]][[2 Samuel 12.11|]][[2 Samuel 12.12|]][[2 Samuel 12.13|]][[2 Samuel 12.14|]].  
+[^b]: [[Romans 3.4|Rom. 3:4]]; [[D&C 97.2|D&C 97:2]].  

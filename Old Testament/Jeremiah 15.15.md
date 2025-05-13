@@ -5,6 +5,6 @@
 [Jeremiah 15:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/15.15?lang=eng#p15)
 
 
-[^a]: OR be mindful of me.
-[^b]: TG [[Suffering]].
-[^c]: HEB taunts.
+[^a]: OR be mindful of me.  
+[^b]: [[Suffering|TG Suffering]].  
+[^c]: HEB taunts.  

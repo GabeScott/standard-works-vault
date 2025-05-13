@@ -5,4 +5,4 @@
 [2 Samuel 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/13.4?lang=eng#p4)
 
 
-[^a]: [[D&C 63.16|D&C 63:16.]]
+[^a]: [[D&C 63.16|D&C 63:16]].  

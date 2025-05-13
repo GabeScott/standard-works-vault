@@ -5,8 +5,8 @@
 [Alma 41:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/41?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Honesty]].
-[^b]: [[Matthew 7.1|Matt. 7:1 (1-5)]]; [[D&C 11.12|D&C 11:12.]]
-[^c]: TG [[Benevolence]].
-[^d]: TG [[Reward]].
-[^e]: TG [[Mercy, Merciful]].
+[^a]: [[Honesty|TG Honesty]].  
+[^b]: [[Matthew 7.1|Matt. 7:1 (1–5)]][[Matthew 7.2|]][[Matthew 7.3|]][[Matthew 7.4|]][[Matthew 7.5|]]; [[D&C 11.12|D&C 11:12]].  
+[^c]: [[Benevolence|TG Benevolence]].  
+[^d]: [[Reward|TG Reward]].  
+[^e]: [[Mercy, Merciful|TG Mercy]].  

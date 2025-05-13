@@ -5,4 +5,4 @@
 [Proverbs 18:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.13?lang=eng#p13)
 
 
-[^a]: TG [[Rashness]].
+[^a]: [[Rashness|TG Rashness]].  

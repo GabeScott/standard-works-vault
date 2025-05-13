@@ -5,6 +5,6 @@
 [Alma 26:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p29#p29)
 
 
-[^a]: [[Alma 23.2|Alma 23:2 (2, 4).]]
-[^b]: [[2 Corinthians 11.23|2 Cor. 11:23 (23-29).]]
-[^c]: [[Alma 20.30|Alma 20:30 (29-30).]]
+[^a]: [[Alma 23.2|Alma 23:2 (2, 4)]][[Alma 23.4|]].  
+[^b]: [[2 Corinthians 11.23|2 Cor. 11:23 (23–29)]][[2 Corinthians 11.24|]][[2 Corinthians 11.25|]][[2 Corinthians 11.26|]][[2 Corinthians 11.27|]][[2 Corinthians 11.28|]][[2 Corinthians 11.29|]].  
+[^c]: [[Alma 20.29|Alma 20:30 (29–30)]][[Alma 20.30|]].  

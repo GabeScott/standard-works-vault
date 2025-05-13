@@ -5,4 +5,4 @@
 [Psalms 106:36](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.36?lang=eng#p36)
 
 
-[^a]: TG [[Apostasy of Israel]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  

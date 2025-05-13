@@ -5,4 +5,4 @@
 [Romans 7:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.16?lang=eng#p16)
 
 
-[^a]: GR choose, intend, design.
+[^a]: GR choose, intend, design.  

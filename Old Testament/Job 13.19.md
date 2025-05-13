@@ -5,4 +5,4 @@
 [Job 13:19](https://www.churchofjesuschrist.org/study/scriptures/ot/job/13.19?lang=eng#p19)
 
 
-[^a]: HEB contend.
+[^a]: HEB contend.  

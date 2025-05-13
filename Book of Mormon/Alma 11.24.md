@@ -5,4 +5,4 @@
 [Alma 11:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p24#p24)
 
 
-[^a]: [[Luke 16.14|Luke 16:14]]; [[John 12.43|John 12:43 (42-43)]]; [[Acts 19.27|Acts 19:27 (27, 36-38)]]; [[Titus 1.11|Titus 1:11.]]
+[^a]: [[Luke 16.14|Luke 16:14]]; [[John 12.42|John 12:43 (42–43)]][[John 12.43|]]; [[Acts 19.27|Acts 19:27 (27, 36–38)]][[Acts 19.36|]][[Acts 19.37|]][[Acts 19.38|]]; [[Titus 1.11|Titus 1:11]].  

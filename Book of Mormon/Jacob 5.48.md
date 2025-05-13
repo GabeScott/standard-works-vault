@@ -5,5 +5,5 @@
 [Jacob 5:48](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p48#p48)
 
 
-[^a]: TG [[Haughtiness, Haughty]]; [[Pride]].
-[^b]: [[D&C 121.39|D&C 121:39]]. TG [[Unrighteous Dominion]].
+[^a]: [[Haughtiness, Haughty|TG Haughtiness]]; [[Pride|Pride]].  
+[^b]: [[D&C 121.39|D&C 121:39]]. [[Unrighteous Dominion|TG Unrighteous Dominion]].  

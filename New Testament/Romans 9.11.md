@@ -5,4 +5,4 @@
 [Romans 9:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.11?lang=eng#p11)
 
 
-[^a]: TG [[Foreordination]]; [[God, Foreknowledge of]].
+[^a]: [[Foreordination|TG Foreordination]]; [[God, Foreknowledge of|God, Foreknowledge of]].  

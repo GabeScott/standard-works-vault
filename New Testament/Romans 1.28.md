@@ -5,6 +5,6 @@
 [Romans 1:28](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.28?lang=eng#p28)
 
 
-[^a]: GR discern, choose.
-[^b]: [[Psalms 81.12|Ps. 81:12.]]
-[^c]: GR worthless, unable to stand test.
+[^a]: GR discern, choose.  
+[^b]: [[Psalms 81.12|Ps. 81:12]].  
+[^c]: GR worthless, unable to stand test.  

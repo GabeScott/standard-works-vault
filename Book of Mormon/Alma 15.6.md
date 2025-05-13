@@ -5,4 +5,4 @@
 [Alma 15:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/15?lang=eng&id=p6#p6)
 
 
-[^a]: [[Mark 9.23|Mark 9:23.]]
+[^a]: [[Mark 9.23|Mark 9:23]].  

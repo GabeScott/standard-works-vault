@@ -5,5 +5,5 @@
 [Isaiah 5:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.24?lang=eng#p24)
 
 
-[^a]: [[Isaiah 47.14|Isa. 47:14.]]
-[^b]: [[Job 18.16|Job 18:16.]]
+[^a]: [[Isaiah 47.14|Isa. 47:14]].  
+[^b]: [[Job 18.16|Job 18:16]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 27:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.2?lang=eng#p2)
 
 
-[^a]: [[Joshua 4.3|Josh. 4:3.]]
+[^a]: [[Joshua 4.3|Josh. 4:3]].  

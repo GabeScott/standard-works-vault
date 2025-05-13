@@ -5,5 +5,5 @@
 [Genesis 34:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/34.14?lang=eng#p14)
 
 
-[^a]: Septuagint: And Simeon and Levi, brothers of Dinah, sons of Leah, said …
-[^b]: [[Judges 14.3|Judg. 14:3.]]
+[^a]: Septuagint: And Simeon and Levi, brothers of Dinah, sons of Leah, said …  
+[^b]: [[Judges 14.3|Judg. 14:3]].  

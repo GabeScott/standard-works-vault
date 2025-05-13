@@ -5,6 +5,6 @@
 [Galatians 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.7?lang=eng#p7)
 
 
-[^a]: GR slave.
-[^b]: TG [[Sons and Daughters of God]].
-[^c]: TG [[Eternal Life]]; [[Man, Potential to Become like Heavenly Father]].
+[^a]: GR slave.  
+[^b]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  
+[^c]: [[Eternal Life|TG Eternal Life]]; [[Man, Potential to Become like Heavenly Father|Man, Potential to Become like Heavenly Father]].  

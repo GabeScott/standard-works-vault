@@ -5,4 +5,4 @@
 [Jacob 2:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p30#p30)
 
 
-[^a]: Mal. 2:15; [[D&C 132.63|D&C 132:63 (61-66).]]
+[^a]: [[Malachi 2.15|Mal. 2:15]]; [[D&C 132.61|D&C 132:63 (61–66)]][[D&C 132.62|]][[D&C 132.63|]][[D&C 132.64|]][[D&C 132.65|]][[D&C 132.66|]].  

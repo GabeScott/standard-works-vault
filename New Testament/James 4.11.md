@@ -5,5 +5,5 @@
 [James 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.11?lang=eng#p11)
 
 
-[^a]: TG [[Gossip]].
-[^b]: TG [[Citizenship]].
+[^a]: [[Gossip|TG Gossip]].  
+[^b]: [[Citizenship|TG Citizenship]].  

@@ -5,5 +5,5 @@
 [Leviticus 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.9?lang=eng#p9)
 
 
-[^a]: HEB the cap (or turban) upon his head, and he put the golden diadem, the holy crown, upon the front face of the cap (or turban).
-[^b]: [[Exodus 28.36|Ex. 28:36.]]
+[^a]: HEB the cap (or turban) upon his head, and he put the golden diadem, the holy crown, upon the front face of the cap (or turban).  
+[^b]: [[Exodus 28.36|Ex. 28:36]].  

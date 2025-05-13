@@ -5,4 +5,4 @@
 [Proverbs 14:32](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.32?lang=eng#p32)
 
 
-[^a]: TG [[Jesus Christ, Death of]].
+[^a]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

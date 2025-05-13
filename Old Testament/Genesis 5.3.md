@@ -5,4 +5,4 @@
 [Genesis 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/5.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 1.26|Gen. 1:26 (26-28)]]; [[D&C 107.43|D&C 107:43 (42-43).]]
+[^a]: [[Genesis 1.26|Gen. 1:26 (26–28)]][[Genesis 1.27|]][[Genesis 1.28|]]; [[D&C 107.42|D&C 107:43 (42–43)]][[D&C 107.43|]].  

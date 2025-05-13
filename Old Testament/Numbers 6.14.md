@@ -5,4 +5,4 @@
 [Numbers 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.14?lang=eng#p14)
 
 
-[^a]: TG [[Self-Sacrifice]].
+[^a]: [[Sacrifice|TG Sacrifice]].  

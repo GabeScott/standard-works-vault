@@ -5,6 +5,6 @@
 [Isaiah 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.19?lang=eng#p19)
 
 
-[^a]: TG [[Teachable]].
-[^b]: TG [[Obedience, Obedient, Obey]].
-[^c]: TG [[Abundant Life]].
+[^a]: [[Teachable|TG Teachable]].  
+[^b]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^c]: [[Abundant Life|TG Abundant Life]].  

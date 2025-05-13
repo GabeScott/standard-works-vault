@@ -5,4 +5,4 @@
 [Ezra 2:59](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/2.59?lang=eng#p59)
 
 
-[^a]: HEB tell, declare (their lineage).
+[^a]: HEB tell, declare (their lineage).  

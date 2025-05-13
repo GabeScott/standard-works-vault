@@ -5,4 +5,4 @@
 [Numbers 16:24](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.24?lang=eng#p24)
 
 
-[^a]: OR dwelling places (see v. 26).
+[^a]: OR dwelling places (see [[Numbers 16.26|v. 26]]).  

@@ -5,5 +5,5 @@
 [Alma 33:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Doubt, Doubtful]]; [[Unbelief, Unbelievers]].
-[^b]: TG [[Apathy]]; [[Laziness]].
+[^a]: [[Doubt, Doubtful|TG Doubt]]; [[Unbelief, Unbelievers|Unbelief]].  
+[^b]: [[Apathy|TG Apathy]]; [[Laziness|Laziness]].  

@@ -5,4 +5,4 @@
 [John 14:29](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.29?lang=eng#p29)
 
 
-[^a]: TG [[Faith]].
+[^a]: [[Faith|TG Faith]].  

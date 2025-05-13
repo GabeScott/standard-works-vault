@@ -5,4 +5,4 @@
 [Leviticus 16:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.12?lang=eng#p12)
 
 
-[^a]: HEB shovel.
+[^a]: HEB shovel.  

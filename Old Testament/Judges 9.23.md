@@ -5,4 +5,4 @@
 [Judges 9:23](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.23?lang=eng#p23)
 
 
-[^a]: [[Judges 9.57|Judg. 9:57 (56-57).]]
+[^a]: [[Judges 9.56|Judg. 9:57 (56–57)]][[Judges 9.57|]].  

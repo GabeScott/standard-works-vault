@@ -5,4 +5,4 @@
 [Jonah 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/2.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 5.7|Ps. 5:7.]]
+[^a]: [[Psalms 5.7|Ps. 5:7]].  

@@ -5,4 +5,4 @@
 [Matthew 13:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.25?lang=eng#p25)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

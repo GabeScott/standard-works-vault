@@ -5,4 +5,4 @@
 [Ezekiel 33:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.26?lang=eng#p26)
 
 
-[^a]: IE resort to violence.
+[^a]: IE resort to violence.  

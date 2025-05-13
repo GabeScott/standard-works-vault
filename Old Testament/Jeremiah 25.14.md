@@ -5,4 +5,4 @@
 [Jeremiah 25:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.14?lang=eng#p14)
 
 
-[^a]: OR enslave them.
+[^a]: OR enslave them.  

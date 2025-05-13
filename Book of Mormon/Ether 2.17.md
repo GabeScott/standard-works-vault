@@ -5,4 +5,4 @@
 [Ether 2:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p17#p17)
 
 
-[^a]: [[Ether 6.7|Ether 6:7.]]
+[^a]: [[Ether 6.7|Ether 6:7]].  

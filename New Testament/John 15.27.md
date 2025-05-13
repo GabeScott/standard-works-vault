@@ -5,4 +5,4 @@
 [John 15:27](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.27?lang=eng#p27)
 
 
-[^a]: TG [[Witness, Witnesses]].
+[^a]: [[Witness, Witnesses|TG Witness]].  

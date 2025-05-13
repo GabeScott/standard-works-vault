@@ -5,5 +5,5 @@
 [Alma 33:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 32.5|Alma 32:5.]]
-[^b]: [[Psalms 3.7|Ps. 3:7]]; [[Psalms 18.17|18:17.]]
+[^a]: [[Alma 32.5|Alma 32:5]].  
+[^b]: [[Psalms 3.7|Ps. 3:7]]; [[Psalms 18.17|18:17]].  

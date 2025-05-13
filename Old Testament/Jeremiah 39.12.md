@@ -5,4 +5,4 @@
 [Jeremiah 39:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/39.12?lang=eng#p12)
 
 
-[^a]: HEB keep your eyes on him.
+[^a]: HEB keep your eyes on him.  

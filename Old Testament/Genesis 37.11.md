@@ -5,4 +5,4 @@
 [Genesis 37:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.11?lang=eng#p11)
 
 
-[^a]: TG [[Envy, Envious]].
+[^a]: [[Envy, Envious|TG Envy]].  

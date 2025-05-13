@@ -5,5 +5,5 @@
 [Ezekiel 28:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.26?lang=eng#p26)
 
 
-[^a]: [[Jeremiah 23.6|Jer. 23:6]]; [[Ezekiel 34.28|Ezek. 34:28 (25, 28).]]
-[^b]: HEB in safety.
+[^a]: [[Jeremiah 23.6|Jer. 23:6]]; [[Ezekiel 34.25|Ezek. 34:28 (25, 28)]][[Ezekiel 34.28|]].  
+[^b]: HEB in safety.  

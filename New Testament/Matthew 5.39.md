@@ -5,6 +5,6 @@
 [Matthew 5:39](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.39?lang=eng#p39)
 
 
-[^a]: TG [[Evil]].
-[^b]: Lam. 3:30. TG [[Patience, Patient, Patiently]].
-[^c]: TG [[Forbear, Forbearance]].
+[^a]: [[Evil|TG Evil]].  
+[^b]: [[Lamentations 3.30|Lam. 3:30]]. [[Patience, Patient, Patiently|TG Patience]].  
+[^c]: [[Forbear, Forbearance|TG Forbear]].  

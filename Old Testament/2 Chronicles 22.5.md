@@ -5,4 +5,4 @@
 [2 Chronicles 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/22.5?lang=eng#p5)
 
 
-[^a]: [[2 Kings 8.28|2 Kgs. 8:28.]]
+[^a]: [[2 Kings 8.28|2 Kgs. 8:28]].  

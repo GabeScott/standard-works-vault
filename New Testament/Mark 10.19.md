@@ -5,8 +5,8 @@
 [Mark 10:19](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.19?lang=eng#p19)
 
 
-[^a]: [[D&C 66.10|D&C 66:10.]]
-[^b]: TG [[Murder, Murderer]].
-[^c]: TG [[Stealing, Stolen]].
-[^d]: TG [[Fraud]].
-[^e]: TG [[Honoring Father and Mother]].
+[^a]: [[D&C 66.10|D&C 66:10]].  
+[^b]: [[Murder, Murderer|TG Murder]].  
+[^c]: [[Stealing, Stolen|TG Stealing]].  
+[^d]: [[Fraud|TG Fraud]].  
+[^e]: [[Honoring Father and Mother|TG Honoring Father and Mother]].  

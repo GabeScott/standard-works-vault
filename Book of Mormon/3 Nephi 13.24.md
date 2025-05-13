@@ -5,5 +5,5 @@
 [3 Nephi 13:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p24#p24)
 
 
-[^a]: [[1 Samuel 7.3|1 Sam. 7:3]]; [[Alma 5.41|Alma 5:41 (39-42)]]; [[Moses 1.15|Moses 1:15.]]
-[^b]: [[Hosea 10.2|Hosea 10:2.]]
+[^a]: [[1 Samuel 7.3|1 Sam. 7:3]]; [[Alma 5.39|Alma 5:41 (39–42)]][[Alma 5.40|]][[Alma 5.41|]][[Alma 5.42|]]; [[Moses 1.15|Moses 1:15]].  
+[^b]: [[Hosea 10.2|Hosea 10:2]].  

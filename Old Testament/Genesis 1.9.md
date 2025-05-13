@@ -5,5 +5,5 @@
 [Genesis 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.9?lang=eng#p9)
 
 
-[^a]: TG [[Earth, Dividing of]].
-[^b]: [[Moses 2.9|Moses 2:9]]; [[Abraham 4.9|Abr. 4:9.]]
+[^a]: [[Earth, Dividing of|TG Earth, Dividing of]].  
+[^b]: [[Moses 2.9|Moses 2:9]]; [[Abraham 4.9|Abr. 4:9]].  

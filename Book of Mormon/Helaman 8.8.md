@@ -5,4 +5,4 @@
 [Helaman 8:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p8#p8)
 
 
-[^a]: [[Helaman 7.29|Hel. 7:29]]. TG [[God, Foreknowledge of]].
+[^a]: [[Helaman 7.29|Hel. 7:29]]. [[God, Foreknowledge of|TG God, Foreknowledge of]].  

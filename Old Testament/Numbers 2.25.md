@@ -5,4 +5,4 @@
 [Numbers 2:25](https://www.churchofjesuschrist.org/study/scriptures/ot/num/2.25?lang=eng#p25)
 
 
-[^a]: [[Ezekiel 48.1|Ezek. 48:1.]]
+[^a]: [[Ezekiel 48.1|Ezek. 48:1]].  

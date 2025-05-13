@@ -5,4 +5,4 @@
 [Lamentations 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 3.26|Isa. 3:26.]]
+[^a]: [[Isaiah 3.26|Isa. 3:26]].  

@@ -5,4 +5,4 @@
 [Numbers 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/12.13?lang=eng#p13)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Heal, Healing|TG Heal]].  

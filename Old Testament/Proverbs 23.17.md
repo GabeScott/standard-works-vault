@@ -5,4 +5,4 @@
 [Proverbs 23:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.17?lang=eng#p17)
 
 
-[^a]: Prov. 24:1, 19.
+[^a]: [[Proverbs 24.1|Prov. 24:1, 19]][[Proverbs 24.19|]].  

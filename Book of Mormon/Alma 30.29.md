@@ -5,5 +5,5 @@
 [Alma 30:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p29#p29)
 
 
-[^a]: [[Alma 4.17|Alma 4:17.]]
-[^b]: TG [[Reviling, Revile]].
+[^a]: [[Alma 4.17|Alma 4:17]].  
+[^b]: [[Reviling, Revile|TG Reviling]].  

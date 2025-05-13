@@ -5,4 +5,4 @@
 [Jeremiah 34:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.11?lang=eng#p11)
 
 
-[^a]: IE turned back on their word.
+[^a]: IE turned back on their word.  

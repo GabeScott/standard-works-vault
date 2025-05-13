@@ -5,4 +5,4 @@
 [Moroni 7:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p31#p31)
 
 
-[^a]: [[D&C 20.10|D&C 20:10.]]
+[^a]: [[D&C 20.10|D&C 20:10]].  

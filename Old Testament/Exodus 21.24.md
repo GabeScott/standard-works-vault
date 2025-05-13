@@ -5,4 +5,4 @@
 [Exodus 21:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.24?lang=eng#p24)
 
 
-[^a]: TG [[Punish, Punishment]]; [[Retribution]].
+[^a]: [[Punish, Punishment|TG Punish]]; [[Retribution|Retribution]].  

@@ -5,4 +5,4 @@
 [2 Samuel 5:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.17?lang=eng#p17)
 
 
-[^a]: OR stronghold.
+[^a]: OR stronghold.  

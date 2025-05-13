@@ -5,4 +5,4 @@
 [Jeremiah 7:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.19?lang=eng#p19)
 
 
-[^a]: HEB to their shame, or disgrace.
+[^a]: HEB to their shame, or disgrace.  

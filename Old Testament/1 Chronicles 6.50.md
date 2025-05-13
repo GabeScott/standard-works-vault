@@ -5,4 +5,4 @@
 [1 Chronicles 6:50](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/6.50?lang=eng#p50)
 
 
-[^a]: [[Numbers 3.32|Num. 3:32.]]
+[^a]: [[Numbers 3.32|Num. 3:32]].  

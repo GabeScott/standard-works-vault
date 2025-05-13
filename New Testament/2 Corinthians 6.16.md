@@ -5,6 +5,6 @@
 [2 Corinthians 6:16](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/6.16?lang=eng#p16)
 
 
-[^a]: [[1 Corinthians 10.21|1 Cor. 10:21 (19-22).]]
-[^b]: TG [[Body, Sanctity of]]; [[Genealogy and Temple Work]].
-[^c]: [[Leviticus 26.12|Lev. 26:12]]. TG [[God, Presence of]].
+[^a]: [[1 Corinthians 10.19|1 Cor. 10:21 (19–22)]][[1 Corinthians 10.20|]][[1 Corinthians 10.21|]][[1 Corinthians 10.22|]].  
+[^b]: [[Body, Sanctity of|TG Body, Sanctity of]]; [[Temple|Temple]].  
+[^c]: [[Leviticus 26.12|Lev. 26:12]]. [[God, Presence of|TG God, Presence of]].  

@@ -5,4 +5,4 @@
 [Exodus 40:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.38?lang=eng#p38)
 
 
-[^a]: [[Exodus 16.10|Ex. 16:10]]; [[Numbers 9.15|Num. 9:15.]]
+[^a]: [[Exodus 16.10|Ex. 16:10]]; [[Numbers 9.15|Num. 9:15]].  

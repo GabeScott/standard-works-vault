@@ -5,6 +5,6 @@
 [2 Chronicles 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/8.14?lang=eng#p14)
 
 
-[^a]: [[2 Chronicles 35.4|2 Chr. 35:4.]]
-[^b]: [[1 Chronicles 23.6|1 Chr. 23:6]]; [[Ezra 6.18|Ezra 6:18.]]
-[^c]: TG [[Duty]].
+[^a]: [[2 Chronicles 35.4|2 Chr. 35:4]].  
+[^b]: [[1 Chronicles 23.6|1 Chr. 23:6]]; [[Ezra 6.18|Ezra 6:18]].  
+[^c]: [[Duty|TG Duty]].  

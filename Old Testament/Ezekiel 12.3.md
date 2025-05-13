@@ -5,5 +5,5 @@
 [Ezekiel 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.3?lang=eng#p3)
 
 
-[^a]: HEB vessels or equipment.
-[^b]: HEB exile.
+[^a]: HEB vessels or equipment.  
+[^b]: HEB exile.  

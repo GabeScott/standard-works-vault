@@ -5,4 +5,4 @@
 [Isaiah 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 31.3|Ezek. 31:3.]]
+[^a]: [[Ezekiel 31.3|Ezek. 31:3]].  

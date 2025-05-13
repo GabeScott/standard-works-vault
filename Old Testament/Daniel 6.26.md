@@ -5,6 +5,6 @@
 [Daniel 6:26](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.26?lang=eng#p26)
 
 
-[^a]: [[Alma 7.6|Alma 7:6]]; [[D&C 14.9|D&C 14:9]]; [[D&C 20.19|20:19.]]
-[^b]: TG [[Steadfastness, Steadfast]].
-[^c]: Dan. 2:44.
+[^a]: [[Alma 7.6|Alma 7:6]]; [[D&C 14.9|D&C 14:9]]; [[D&C 20.19|20:19]].  
+[^b]: [[Steadfastness, Steadfast|TG Steadfastness]].  
+[^c]: [[Daniel 2.44|Dan. 2:44]].  

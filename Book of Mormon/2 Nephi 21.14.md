@@ -5,6 +5,6 @@
 [2 Nephi 21:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/21?lang=eng&id=p14#p14)
 
 
-[^a]: Obad. 1:19 (18-19).
-[^b]: Lam. 4:21.
-[^c]: [[Genesis 19.37|Gen. 19:37 (30-38).]]
+[^a]: [[Obadiah 1.18|Obad. 1:19 (18–19)]][[Obadiah 1.19|]].  
+[^b]: [[Lamentations 4.21|Lam. 4:21]].  
+[^c]: [[Genesis 19.30|Gen. 19:37 (30–38)]][[Genesis 19.31|]][[Genesis 19.32|]][[Genesis 19.33|]][[Genesis 19.34|]][[Genesis 19.35|]][[Genesis 19.36|]][[Genesis 19.37|]][[Genesis 19.38|]].  

@@ -5,5 +5,5 @@
 [Numbers 22:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/22.7?lang=eng#p7)
 
 
-[^a]: TG [[Selfishness]].
-[^b]: [[Deuteronomy 18.10|Deut. 18:10.]]
+[^a]: [[Selfishness|TG Selfishness]].  
+[^b]: [[Deuteronomy 18.10|Deut. 18:10]].  

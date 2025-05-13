@@ -5,6 +5,6 @@
 [Revelation 20:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/20.14?lang=eng#p14)
 
 
-[^a]: [[1 Corinthians 15.26|1 Cor. 15:26 (26, 54).]]
-[^b]: TG [[Damnation, Damned]].
-[^c]: TG [[Death, Spiritual, Second]].
+[^a]: [[1 Corinthians 15.26|1 Cor. 15:26 (26, 54)]][[1 Corinthians 15.54|]].  
+[^b]: [[Damnation, Damned|TG Damnation]].  
+[^c]: [[Death, Spiritual, Second|TG Death, Spiritual, Second]].  

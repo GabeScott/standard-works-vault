@@ -5,7 +5,7 @@
 [Deuteronomy 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.12?lang=eng#p12)
 
 
-[^a]: TG [[Duty]].
-[^b]: TG [[Reverence]].
-[^c]: TG [[Service]]; [[Assembly for Worship]].
-[^d]: TG [[Commitment]].
+[^a]: [[Duty|TG Duty]].  
+[^b]: [[Reverence|TG Reverence]].  
+[^c]: [[Service|TG Service]]; [[Worship|Worship]].  
+[^d]: [[Commitment|TG Commitment]].  

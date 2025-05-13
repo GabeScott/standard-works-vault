@@ -5,4 +5,4 @@
 [Genesis 42:38](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.38?lang=eng#p38)
 
 
-[^a]: [[Genesis 37.35|Gen. 37:35]]; [[Genesis 44.31|44:31 (29, 31).]]
+[^a]: [[Genesis 37.35|Gen. 37:35]]; [[Genesis 44.29|44:31 (29, 31)]][[Genesis 44.31|]].  

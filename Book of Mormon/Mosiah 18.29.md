@@ -5,4 +5,4 @@
 [Mosiah 18:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p29#p29)
 
 
-[^a]: TG [[Walking with God]]; [[Welfare]].
+[^a]: [[Walking with God|TG Walking with God]]; [[Welfare|Welfare]].  

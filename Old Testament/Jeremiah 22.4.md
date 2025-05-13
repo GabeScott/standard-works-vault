@@ -5,4 +5,4 @@
 [Jeremiah 22:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 17.25|Jer. 17:25.]]
+[^a]: [[Jeremiah 17.25|Jer. 17:25]].  

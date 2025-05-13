@@ -5,5 +5,5 @@
 [Philippians 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.3?lang=eng#p3)
 
 
-[^a]: GR associate.
-[^b]: TG [[Book of Life]].
+[^a]: GR associate.  
+[^b]: [[Book of Life|TG Book of Life]].  

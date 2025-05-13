@@ -5,4 +5,4 @@
 [2 Chronicles 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/8.11?lang=eng#p11)
 
 
-[^a]: HEB No wife of mine shall dwell.
+[^a]: HEB No wife of mine shall dwell.  

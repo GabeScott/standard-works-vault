@@ -5,5 +5,5 @@
 [2 Nephi 2:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p13#p13)
 
 
-[^a]: [[Romans 4.15|Rom. 4:15]]; [[Romans 5.13|5:13]]; [[2 Nephi 9.25|2 Ne. 9:25]]; [[2 Nephi 11.7|11:7.]]
-[^b]: [[Alma 42.13|Alma 42:13.]]
+[^a]: [[Romans 4.15|Rom. 4:15]]; [[Romans 5.13|5:13]]; [[2 Nephi 9.25|2 Ne. 9:25]]; [[2 Nephi 11.7|11:7]].  
+[^b]: [[Alma 42.13|Alma 42:13]].  

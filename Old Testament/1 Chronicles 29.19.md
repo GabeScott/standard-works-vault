@@ -5,4 +5,4 @@
 [1 Chronicles 29:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.19?lang=eng#p19)
 
 
-[^a]: [[Deuteronomy 5.29|Deut. 5:29.]]
+[^a]: [[Deuteronomy 5.29|Deut. 5:29]].  

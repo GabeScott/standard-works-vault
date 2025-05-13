@@ -5,5 +5,5 @@
 [D&C 8:8](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/8.8?lang=eng#p8)
 
 
-[^a]: TG [[Doubt, Doubtful]].
-[^b]: TG [[God, Works of]].
+[^a]: [[Doubt, Doubtful|TG Doubt]].  
+[^b]: [[God, Works of|TG God, Works of]].  

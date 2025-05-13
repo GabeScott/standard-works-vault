@@ -5,5 +5,5 @@
 [Mosiah 9:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/9?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Laziness]].
-[^b]: [[Enos 1.20|Enos 1:20]]. TG [[Idolatry, Idol]].
+[^a]: [[Laziness|TG Laziness]].  
+[^b]: [[Enos 1.20|Enos 1:20]]. [[Idolatry, Idol|TG Idolatry]].  

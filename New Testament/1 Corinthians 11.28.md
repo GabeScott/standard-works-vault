@@ -5,4 +5,4 @@
 [1 Corinthians 11:28](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.28?lang=eng#p28)
 
 
-[^a]: [[2 Corinthians 13.5|2 Cor. 13:5 (5-7).]]
+[^a]: [[2 Corinthians 13.5|2 Cor. 13:5 (5–7)]][[2 Corinthians 13.6|]][[2 Corinthians 13.7|]].  

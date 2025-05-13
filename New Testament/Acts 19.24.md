@@ -5,4 +5,4 @@
 [Acts 19:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.24?lang=eng#p24)
 
 
-[^a]: GR Artemis.
+[^a]: GR Artemis.  

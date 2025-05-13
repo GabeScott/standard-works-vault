@@ -5,5 +5,5 @@
 [1 Nephi 5:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p4#p4)
 
 
-[^a]: [[1 Nephi 2.11|1 Ne. 2:11]]; [[1 Nephi 17.20|17:20.]]
-[^b]: [[1 Nephi 1.8|1 Ne. 1:8 (8-13)]]; [[1 Nephi 3.18|3:18 (17-18)]]. TG [[Vision]].
+[^a]: [[1 Nephi 2.11|1 Ne. 2:11]]; [[1 Nephi 17.20|17:20]].  
+[^b]: [[1 Nephi 1.8|1 Ne. 1:8 (8–13)]][[1 Nephi 1.9|]][[1 Nephi 1.10|]][[1 Nephi 1.11|]][[1 Nephi 1.12|]][[1 Nephi 1.13|]]; [[1 Nephi 3.17|3:18 (17–18)]][[1 Nephi 3.18|]]. [[Vision|TG Vision]].  

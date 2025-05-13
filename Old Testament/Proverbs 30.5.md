@@ -5,5 +5,5 @@
 [Proverbs 30:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.5?lang=eng#p5)
 
 
-[^a]: TG [[God, Perfection of]].
-[^b]: [[Psalms 84.11|Ps. 84:11.]]
+[^a]: [[God, Perfection of|TG God, Perfection of]].  
+[^b]: [[Psalms 84.11|Ps. 84:11]].  

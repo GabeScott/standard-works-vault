@@ -5,4 +5,4 @@
 [Isaiah 14:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.11?lang=eng#p11)
 
 
-[^a]: HEB sheol, or the spirit world.
+[^a]: HEB sheol, or the spirit world.  

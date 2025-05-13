@@ -5,6 +5,6 @@
 [Isaiah 30:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.10?lang=eng#p10)
 
 
-[^a]: TG [[Seer]].
-[^b]: TG [[False Doctrine]].
-[^c]: TG [[Honesty]].
+[^a]: [[Seer|TG Seer]].  
+[^b]: [[False Doctrine|TG False Doctrine]].  
+[^c]: [[Honesty|TG Honesty]].  

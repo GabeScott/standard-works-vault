@@ -5,6 +5,6 @@
 [Genesis 49:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.7?lang=eng#p7)
 
 
-[^a]: TG [[Curse]].
-[^b]: [[Genesis 34.7|Gen. 34:7]]. TG [[Anger]].
-[^c]: TG [[Cruelty, Cruel]].
+[^a]: [[Curse|TG Curse]].  
+[^b]: [[Genesis 34.7|Gen. 34:7]]. [[Anger|TG Anger]].  
+[^c]: [[Cruelty, Cruel|TG Cruelty]].  

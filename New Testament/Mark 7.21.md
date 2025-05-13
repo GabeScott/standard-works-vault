@@ -5,5 +5,5 @@
 [Mark 7:21](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.21?lang=eng#p21)
 
 
-[^a]: 1 Jn. 2:16.
-[^b]: TG [[Adulterer, Adultery]].
+[^a]: [[1 John 2.16|1 Jn. 2:16]].  
+[^b]: [[Adulterer, Adultery|TG Adulterer]].  

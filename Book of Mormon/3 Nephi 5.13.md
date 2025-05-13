@@ -5,4 +5,4 @@
 [3 Nephi 5:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p13#p13)
 
 
-[^a]: [[3 Nephi 30.1|3 Ne. 30:1]]; [[Moroni 7.2|Moro. 7:2.]]
+[^a]: [[3 Nephi 30.1|3 Ne. 30:1]]; [[Moroni 7.2|Moro. 7:2]].  

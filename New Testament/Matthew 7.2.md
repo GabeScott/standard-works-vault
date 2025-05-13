@@ -5,6 +5,6 @@
 [Matthew 7:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.2?lang=eng#p2)
 
 
-[^a]: TG [[Judgment]].
-[^b]: [[Proverbs 11.25|Prov. 11:25]]; [[D&C 1.10|D&C 1:10.]]
-[^c]: [[Esther 7.10|Esth. 7:10]]; [[1 Nephi 14.3|1 Ne. 14:3]]; [[D&C 10.26|D&C 10:26 (25-27).]]
+[^a]: [[Judgment|TG Judgment]].  
+[^b]: [[Proverbs 11.25|Prov. 11:25]]; [[D&C 1.10|D&C 1:10]].  
+[^c]: [[Esther 7.10|Esth. 7:10]]; [[1 Nephi 14.3|1 Ne. 14:3]]; [[D&C 10.25|D&C 10:26 (25–27)]][[D&C 10.26|]][[D&C 10.27|]].  

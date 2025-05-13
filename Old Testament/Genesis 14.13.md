@@ -5,5 +5,5 @@
 [Genesis 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 10.21|Gen. 10:21.]]
-[^b]: HEB by the terebinth(s) of Mamre.
+[^a]: [[Genesis 10.21|Gen. 10:21]].  
+[^b]: HEB by the terebinth(s) of Mamre.  

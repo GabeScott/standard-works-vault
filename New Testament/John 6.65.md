@@ -5,4 +5,4 @@
 [John 6:65](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.65?lang=eng#p65)
 
 
-[^a]: JST John 6:65 … except he doeth the will of my Father who hath sent me.
+[^a]: JST John 6:65 … except he doeth the will of my Father who hath sent me.  

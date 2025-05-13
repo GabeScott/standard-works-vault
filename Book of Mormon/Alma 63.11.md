@@ -5,6 +5,6 @@
 [Alma 63:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/63?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 63.1|Alma 63:1.]]
-[^b]: See heading to the book of Helaman.
-[^c]: [[Helaman 3.37|Hel. 3:37.]]
+[^a]: [[Alma 63.1|Alma 63:1]].  
+[^b]: See [heading to the book of Helaman](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=title1-intro1#title1).  
+[^c]: [[Helaman 3.37|Hel. 3:37]].  

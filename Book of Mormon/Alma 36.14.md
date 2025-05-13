@@ -5,4 +5,4 @@
 [Alma 36:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p14#p14)
 
 
-[^a]: [[Matthew 10.28|Matt. 10:28.]]
+[^a]: [[Matthew 10.28|Matt. 10:28]].  

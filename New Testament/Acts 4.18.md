@@ -5,4 +5,4 @@
 [Acts 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.18?lang=eng#p18)
 
 
-[^a]: [[Acts 5.28|Acts 5:28 (27-28).]]
+[^a]: [[Acts 5.27|Acts 5:28 (27–28)]][[Acts 5.28|]].  

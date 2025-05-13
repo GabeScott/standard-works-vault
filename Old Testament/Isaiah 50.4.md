@@ -5,5 +5,5 @@
 [Isaiah 50:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.4?lang=eng#p4)
 
 
-[^a]: [[Luke 21.15|Luke 21:15 (14-15).]]
-[^b]: [[Proverbs 25.11|Prov. 25:11.]]
+[^a]: [[Luke 21.14|Luke 21:15 (14–15)]][[Luke 21.15|]].  
+[^b]: [[Proverbs 25.11|Prov. 25:11]].  

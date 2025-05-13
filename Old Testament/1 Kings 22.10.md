@@ -5,4 +5,4 @@
 [1 Kings 22:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.10?lang=eng#p10)
 
 
-[^a]: HEB threshing floor.
+[^a]: HEB threshing floor.  

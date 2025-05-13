@@ -5,4 +5,4 @@
 [Moses 1:42](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.42?lang=eng#p42)
 
 
-[^a]: [[Moses 1.1|Moses 1:1.]]
+[^a]: [[Moses 1.1|Moses 1:1]].  

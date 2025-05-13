@@ -5,5 +5,5 @@
 [3 Nephi 11:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Church Organization]]; [[Priesthood, Authority]].
-[^b]: TG [[Baptism, Essential]].
+[^a]: [[Church Organization|TG Church Organization]]; [[Priesthood, Authority|Priesthood, Authority]].  
+[^b]: [[Baptism, Essential|TG Baptism, Essential]].  

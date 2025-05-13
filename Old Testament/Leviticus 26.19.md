@@ -5,4 +5,4 @@
 [Leviticus 26:19](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.19?lang=eng#p19)
 
 
-[^a]: TG [[Pride]].
+[^a]: [[Pride|TG Pride]].  

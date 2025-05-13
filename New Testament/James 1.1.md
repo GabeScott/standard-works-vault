@@ -5,5 +5,5 @@
 [James 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.1?lang=eng#p1)
 
 
-[^a]: TG [[Servant]].
-[^b]: TG [[Israel, Twelve Tribes of]].
+[^a]: [[Servant|TG Servant]].  
+[^b]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  

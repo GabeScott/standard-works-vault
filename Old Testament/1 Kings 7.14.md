@@ -5,5 +5,5 @@
 [1 Kings 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.14?lang=eng#p14)
 
 
-[^a]: [[Exodus 35.35|Ex. 35:35]]; [[Exodus 36.1|36:1 (1-2).]]
-[^b]: TG [[Skill]].
+[^a]: [[Exodus 35.35|Ex. 35:35]]; [[Exodus 36.1|36:1 (1–2)]][[Exodus 36.2|]].  
+[^b]: [[Skill|TG Skill]].  

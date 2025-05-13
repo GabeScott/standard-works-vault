@@ -5,6 +5,6 @@
 [Acts 13:39](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.39?lang=eng#p39)
 
 
-[^a]: TG [[Justification, Justify]].
-[^b]: [[Romans 2.13|Rom. 2:13.]]
-[^c]: TG [[Law of Moses]].
+[^a]: [[Justification, Justify|TG Justification]].  
+[^b]: [[Romans 2.13|Rom. 2:13]].  
+[^c]: [[Law of Moses|TG Law of Moses]].  

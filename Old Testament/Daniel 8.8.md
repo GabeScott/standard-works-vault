@@ -5,5 +5,5 @@
 [Daniel 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.8?lang=eng#p8)
 
 
-[^a]: HEB instead of it.
-[^b]: Dan. 7:6; 11:4 (3-4).
+[^a]: HEB instead of it.  
+[^b]: [[Daniel 7.6|Dan. 7:6]]; [[Daniel 11.3|11:4 (3–4)]][[Daniel 11.4|]].  

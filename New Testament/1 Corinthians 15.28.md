@@ -5,5 +5,5 @@
 [1 Corinthians 15:28](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.28?lang=eng#p28)
 
 
-[^a]: Philip. 3:21; [[D&C 76.106|D&C 76:106.]]
-[^b]: TG [[Jesus Christ, Relationships with the Father]].
+[^a]: [[Philippians 3.21|Philip. 3:21]]; [[D&C 76.106|D&C 76:106]].  
+[^b]: [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  

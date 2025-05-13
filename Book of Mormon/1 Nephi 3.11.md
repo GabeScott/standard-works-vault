@@ -5,4 +5,4 @@
 [1 Nephi 3:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p11#p11)
 
 
-[^a]: [[Nehemiah 10.34|Neh. 10:34]]; [[Acts 1.26|Acts 1:26.]]
+[^a]: [[Nehemiah 10.34|Neh. 10:34]]; [[Acts 1.26|Acts 1:26]].  

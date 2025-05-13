@@ -5,7 +5,7 @@
 [Ezekiel 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/5.11?lang=eng#p11)
 
 
-[^a]: TG [[Sacrilege]].
-[^b]: TG [[Idolatry, Idol]].
-[^c]: [[Deuteronomy 8.19|Deut. 8:19 (18-20).]]
-[^d]: [[Ezekiel 7.4|Ezek. 7:4]]; [[Ezekiel 20.17|20:17.]]
+[^a]: [[Sacrilege|TG Sacrilege]].  
+[^b]: [[Idolatry, Idol|TG Idolatry]].  
+[^c]: [[Deuteronomy 8.18|Deut. 8:19 (18–20)]][[Deuteronomy 8.19|]][[Deuteronomy 8.20|]].  
+[^d]: [[Ezekiel 7.4|Ezek. 7:4]]; [[Ezekiel 20.17|20:17]].  

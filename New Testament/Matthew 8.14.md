@@ -5,5 +5,5 @@
 [Matthew 8:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.14?lang=eng#p14)
 
 
-[^a]: [[1 Corinthians 9.5|1 Cor. 9:5]]; [[1 Timothy 4.3|1 Tim. 4:3.]]
-[^b]: GR lying sick and feverish.
+[^a]: [[1 Corinthians 9.5|1 Cor. 9:5]]; [[1 Timothy 4.3|1 Tim. 4:3]].  
+[^b]: GR lying sick and feverish.  

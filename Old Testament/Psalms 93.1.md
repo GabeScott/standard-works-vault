@@ -5,4 +5,4 @@
 [Psalms 93:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/93.1?lang=eng#p1)
 
 
-[^a]: [[D&C 65.5|D&C 65:5.]]
+[^a]: [[D&C 65.5|D&C 65:5]].  

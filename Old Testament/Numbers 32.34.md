@@ -5,4 +5,4 @@
 [Numbers 32:34](https://www.churchofjesuschrist.org/study/scriptures/ot/num/32.34?lang=eng#p34)
 
 
-[^a]: OR rebuilt.
+[^a]: OR rebuilt.  

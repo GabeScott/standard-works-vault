@@ -5,4 +5,4 @@
 [Psalms 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/2.1?lang=eng#p1)
 
 
-[^a]: TG [[Heathen]].
+[^a]: [[Heathen|TG Heathen]].  

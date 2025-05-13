@@ -5,4 +5,4 @@
 [Isaiah 16:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.1?lang=eng#p1)
 
 
-[^a]: IE Send an appeal to the king of Judah, who then ruled also Edom.
+[^a]: IE Send an appeal to the king of Judah, who then ruled also Edom.  

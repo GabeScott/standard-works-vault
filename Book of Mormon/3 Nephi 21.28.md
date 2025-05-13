@@ -5,4 +5,4 @@
 [3 Nephi 21:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Israel, Gathering of]].
+[^a]: [[Israel, Gathering of|TG Israel, Gathering of]].  

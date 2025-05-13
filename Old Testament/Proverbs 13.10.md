@@ -5,5 +5,5 @@
 [Proverbs 13:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.10?lang=eng#p10)
 
 
-[^a]: [[Proverbs 28.25|Prov. 28:25.]]
-[^b]: TG [[Contention]].
+[^a]: [[Proverbs 28.25|Prov. 28:25]].  
+[^b]: [[Contention|TG Contention]].  

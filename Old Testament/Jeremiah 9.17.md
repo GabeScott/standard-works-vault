@@ -5,4 +5,4 @@
 [Jeremiah 9:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.17?lang=eng#p17)
 
 
-[^a]: TG [[Woman, Women]].
+[^a]: [[Woman, Women|TG Woman]].  

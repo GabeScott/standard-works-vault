@@ -5,4 +5,4 @@
 [Psalms 81:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/81.5?lang=eng#p5)
 
 
-[^a]: TG [[Language]].
+[^a]: [[Language|TG Language]].  

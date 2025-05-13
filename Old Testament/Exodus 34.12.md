@@ -5,6 +5,6 @@
 [Exodus 34:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 23.32|Ex. 23:32 (31-33)]]; [[Judges 2.2|Judg. 2:2 (1-5).]]
-[^b]: TG [[Gentiles]].
-[^c]: OR become a.
+[^a]: [[Exodus 23.31|Ex. 23:32 (31–33)]][[Exodus 23.32|]][[Exodus 23.33|]]; [[Judges 2.1|Judg. 2:2 (1–5)]][[Judges 2.2|]][[Judges 2.3|]][[Judges 2.4|]][[Judges 2.5|]].  
+[^b]: [[Gentiles|TG Gentiles]].  
+[^c]: OR become a.  

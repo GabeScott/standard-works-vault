@@ -5,4 +5,4 @@
 [Luke 7:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.22?lang=eng#p22)
 
 
-[^a]: [[Alma 32.2|Alma 32:2 (2-6).]]
+[^a]: [[Alma 32.2|Alma 32:2 (2–6)]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]].  

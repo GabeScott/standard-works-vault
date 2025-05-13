@@ -5,4 +5,4 @@
 [Nehemiah 4:15](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/4.15?lang=eng#p15)
 
 
-[^a]: [[Psalms 33.10|Ps. 33:10.]]
+[^a]: [[Psalms 33.10|Ps. 33:10]].  

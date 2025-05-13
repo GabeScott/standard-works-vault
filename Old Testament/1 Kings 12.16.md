@@ -5,4 +5,4 @@
 [1 Kings 12:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.16?lang=eng#p16)
 
 
-[^a]: [[1 Kings 11.11|1 Kgs. 11:11.]]
+[^a]: [[1 Kings 11.11|1 Kgs. 11:11]].  

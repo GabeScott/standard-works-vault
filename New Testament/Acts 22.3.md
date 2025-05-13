@@ -5,8 +5,8 @@
 [Acts 22:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.3?lang=eng#p3)
 
 
-[^a]: [[Romans 11.1|Rom. 11:1.]]
-[^b]: [[Deuteronomy 33.3|Deut. 33:3.]]
-[^c]: [[Acts 5.34|Acts 5:34.]]
-[^d]: [[Acts 26.5|Acts 26:5.]]
-[^e]: TG [[Zeal, Zealous]].
+[^a]: [[Romans 11.1|Rom. 11:1]].  
+[^b]: [[Deuteronomy 33.3|Deut. 33:3]].  
+[^c]: [[Acts 5.34|Acts 5:34]].  
+[^d]: [[Acts 26.5|Acts 26:5]].  
+[^e]: [[Zeal, Zealous|TG Zeal]].  

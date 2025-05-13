@@ -5,9 +5,9 @@
 [Hosea 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 49.15|Ps. 49:15.]]
-[^b]: TG [[Jesus Christ, Resurrection]].
-[^c]: TG [[Jesus Christ, Foreordained]]; [[Jesus Christ, Prophecies about]]; [[Jesus Christ, Resurrection]].
-[^d]: TG [[Jesus Christ, Death of]].
-[^e]: TG [[Plague]].
-[^f]: HEB compassion.
+[^a]: [[Psalms 49.15|Ps. 49:15]].  
+[^b]: [[Resurrection|TG Resurrection]].  
+[^c]: [[Jesus Christ, Foreordained|TG Jesus Christ, Foreordained]]; [[Jesus Christ, Prophecies about|Jesus Christ, Prophecies about]]; [[Jesus Christ, Resurrection|Jesus Christ, Resurrection]].  
+[^d]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  
+[^e]: [[Plague|TG Plague]].  
+[^f]: HEB compassion.  

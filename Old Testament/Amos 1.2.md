@@ -5,5 +5,5 @@
 [Amos 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/1.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 31.4|Isa. 31:4]]; [[Jeremiah 25.30|Jer. 25:30.]]
-[^b]: OR pastures.
+[^a]: [[Isaiah 31.4|Isa. 31:4]]; [[Jeremiah 25.30|Jer. 25:30]].  
+[^b]: OR pastures.  

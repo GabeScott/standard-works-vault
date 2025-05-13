@@ -5,7 +5,7 @@
 [Acts 7:59](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.59?lang=eng#p59)
 
 
-[^a]: TG [[Persecution, Persecute]].
-[^b]: TG [[Martyrdom]].
-[^c]: JST Acts 7:59 … and he, calling upon God, said …
-[^e]: TG [[Man, a Spirit Child of Heavenly Father]]; [[Spirits, Disembodied]].
+[^a]: [[Persecution, Persecute|TG Persecution]].  
+[^b]: [[Martyrdom|TG Martyrdom]].  
+[^c]: JST Acts 7:59 … and he, calling upon God, said …  
+[^e]: [[Man, a Spirit Child of Heavenly Father|TG Man, a Spirit Child of Heavenly Father]]; [[Spirits, Disembodied|Spirits, Disembodied]].  

@@ -5,4 +5,4 @@
 [1 John 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.21?lang=eng#p21)
 
 
-[^a]: [[Alma 5.27|Alma 5:27.]]
+[^a]: [[Alma 5.27|Alma 5:27]].  

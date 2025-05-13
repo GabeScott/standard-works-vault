@@ -5,5 +5,5 @@
 [Moses 5:11](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.11?lang=eng#p11)
 
 
-[^a]: [[2 Nephi 2.23|2 Ne. 2:23 (22-25)]]. TG [[Birth Control]]; [[Family]]; [[Marriage, Motherhood]].
-[^b]: [[Genesis 3.22|Gen. 3:22.]]
+[^a]: [[2 Nephi 2.22|2 Ne. 2:23 (22–25)]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]]. [[Birth Control|TG Birth Control]]; [[Family|Family]]; [[Marriage, Motherhood|Marriage, Motherhood]].  
+[^b]: [[Genesis 3.22|Gen. 3:22]].  

@@ -5,4 +5,4 @@
 [Genesis 20:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 21.22|Gen. 21:22]]; [[Genesis 26.1|26:1.]]
+[^a]: [[Genesis 21.22|Gen. 21:22]]; [[Genesis 26.1|26:1]].  

@@ -5,4 +5,4 @@
 [Ezra 6:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.6?lang=eng#p6)
 
 
-[^a]: IE on the west side of the Euphrates River.
+[^a]: IE on the west side of the Euphrates River.  

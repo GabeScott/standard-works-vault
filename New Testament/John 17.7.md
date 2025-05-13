@@ -5,4 +5,4 @@
 [John 17:7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.7?lang=eng#p7)
 
 
-[^a]: TG [[Jesus Christ, Relationships with the Father]].
+[^a]: [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  

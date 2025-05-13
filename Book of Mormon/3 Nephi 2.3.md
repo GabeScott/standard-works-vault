@@ -5,4 +5,4 @@
 [3 Nephi 2:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/2?lang=eng&id=p3#p3)
 
 
-[^a]: [[Job 1.7|Job 1:7]]; [[D&C 10.27|D&C 10:27.]]
+[^a]: [[Job 1.7|Job 1:7]]; [[D&C 10.27|D&C 10:27]].  

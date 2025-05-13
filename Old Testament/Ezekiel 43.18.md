@@ -5,4 +5,4 @@
 [Ezekiel 43:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.18?lang=eng#p18)
 
 
-[^a]: [[Leviticus 1.5|Lev. 1:5.]]
+[^a]: [[Leviticus 1.5|Lev. 1:5]].  

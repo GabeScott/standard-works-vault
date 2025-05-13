@@ -5,4 +5,4 @@
 [2 Chronicles 34:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/34.22?lang=eng#p22)
 
 
-[^a]: HEB second section.
+[^a]: HEB second section.  

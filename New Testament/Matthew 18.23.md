@@ -5,5 +5,5 @@
 [Matthew 18:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.23?lang=eng#p23)
 
 
-[^a]: GR settle accounts with. TG [[Accountability]]; [[Stewardship, Steward]].
-[^b]: TG [[Servant]].
+[^a]: GR settle accounts with. [[Accountability|TG Accountability]]; [[Stewardship, Steward|Stewardship]].  
+[^b]: [[Servant|TG Servant]].  

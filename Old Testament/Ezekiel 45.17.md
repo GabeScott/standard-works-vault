@@ -5,7 +5,7 @@
 [Ezekiel 45:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.17?lang=eng#p17)
 
 
-[^a]: [[Exodus 29.40|Ex. 29:40.]]
-[^b]: [[Numbers 28.11|Num. 28:11]]; [[Ezekiel 46.1|Ezek. 46:1.]]
-[^c]: TG [[Solemn Assembly]].
-[^d]: [[Leviticus 14.19|Lev. 14:19.]]
+[^a]: [[Exodus 29.40|Ex. 29:40]].  
+[^b]: [[Numbers 28.11|Num. 28:11]]; [[Ezekiel 46.1|Ezek. 46:1]].  
+[^c]: [[Solemn Assembly|TG Solemn Assembly]].  
+[^d]: [[Leviticus 14.19|Lev. 14:19]].  

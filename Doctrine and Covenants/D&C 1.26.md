@@ -5,5 +5,5 @@
 [D&C 1:26](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.26?lang=eng#p26)
 
 
-[^a]: [[Ecclesiastes 8.16|Eccl. 8:16 (16-17)]]; [[D&C 42.68|D&C 42:68]]. TG [[Wisdom]].
-[^b]: TG [[Teachable]].
+[^a]: [[Ecclesiastes 8.16|Eccl. 8:16 (16–17)]][[Ecclesiastes 8.17|]]; [[D&C 42.68|D&C 42:68]]. [[Wisdom|TG Wisdom]].  
+[^b]: [[Teachable|TG Teachable]].  

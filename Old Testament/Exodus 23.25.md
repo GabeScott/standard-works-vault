@@ -5,5 +5,5 @@
 [Exodus 23:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.25?lang=eng#p25)
 
 
-[^a]: TG [[Bread]].
-[^b]: TG [[Sickness, Sick]].
+[^a]: [[Bread|TG Bread]].  
+[^b]: [[Sickness, Sick|TG Sickness]].  

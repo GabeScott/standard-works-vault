@@ -5,7 +5,7 @@
 [Alma 6:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/6?lang=eng&id=p1#p1)
 
 
-[^a]: TG [[Ordain]]; [[Priesthood, History of]].
-[^b]: TG [[Elder, Melchizedek Priesthood]]; [[Priest, Melchizedek Priesthood]].
-[^c]: TG [[Hands, Laying on of]].
-[^d]: [[D&C 52.39|D&C 52:39.]]
+[^a]: [[Ordain|TG Ordain]]; [[Priesthood|Priesthood]].  
+[^b]: [[Elder|TG Elder]]; [[Priest, Melchizedek Priesthood|Priest, Melchizedek Priesthood]].  
+[^c]: [[Hands, Laying on of|TG Hands, Laying on of]].  
+[^d]: [[D&C 52.39|D&C 52:39]].  

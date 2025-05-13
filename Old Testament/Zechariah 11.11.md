@@ -5,4 +5,4 @@
 [Zechariah 11:11](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/11.11?lang=eng#p11)
 
 
-[^a]: OR who watched for me.
+[^a]: OR who watched for me.  

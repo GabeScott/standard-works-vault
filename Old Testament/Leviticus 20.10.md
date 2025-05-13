@@ -5,7 +5,7 @@
 [Leviticus 20:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 18.11|Ezek. 18:11.]]
-[^b]: TG [[Adulterer, Adultery]]; [[Sexual Immorality]].
-[^c]: [[John 8.5|John 8:5.]]
-[^d]: TG [[Capital Punishment]].
+[^a]: [[Ezekiel 18.11|Ezek. 18:11]].  
+[^b]: [[Adulterer, Adultery|TG Adulterer]]; [[Sexual Immorality|Sexual Immorality]].  
+[^c]: [[John 8.5|John 8:5]].  
+[^d]: [[Capital Punishment|TG Capital Punishment]].  

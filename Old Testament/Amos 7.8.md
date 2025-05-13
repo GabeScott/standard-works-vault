@@ -5,4 +5,4 @@
 [Amos 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.8?lang=eng#p8)
 
 
-[^a]: [[Amos 8.2|Amos 8:2.]]
+[^a]: [[Amos 8.2|Amos 8:2]].  

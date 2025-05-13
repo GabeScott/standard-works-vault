@@ -5,4 +5,4 @@
 [Psalms 78:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 34.28|Ex. 34:28.]]
+[^a]: [[Exodus 34.28|Ex. 34:28]].  

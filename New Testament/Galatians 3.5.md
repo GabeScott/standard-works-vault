@@ -5,4 +5,4 @@
 [Galatians 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.5?lang=eng#p5)
 
 
-[^a]: GR grants, furnishes.
+[^a]: GR grants, furnishes.  

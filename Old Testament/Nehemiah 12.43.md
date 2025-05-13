@@ -5,4 +5,4 @@
 [Nehemiah 12:43](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/12.43?lang=eng#p43)
 
 
-[^a]: [[Mosiah 2.20|Mosiah 2:20.]]
+[^a]: [[Mosiah 2.20|Mosiah 2:20]].  

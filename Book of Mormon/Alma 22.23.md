@@ -5,6 +5,6 @@
 [Alma 22:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Minister]]; [[Ministration]]; [[Ministry]].
-[^b]: [[Alma 23.3|Alma 23:3.]]
-[^c]: TG [[Conversion, Convert]].
+[^a]: [[Minister|TG Minister]]; [[Ministration|Ministration]]; [[Ministry|Ministry]].  
+[^b]: [[Alma 23.3|Alma 23:3]].  
+[^c]: [[Conversion, Convert|TG Conversion]].  

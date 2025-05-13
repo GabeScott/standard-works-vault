@@ -5,5 +5,5 @@
 [Proverbs 20:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.17?lang=eng#p17)
 
 
-[^a]: IE Food gained by fraudulent means.
-[^b]: TG [[Deceit, Deceive]].
+[^a]: IE Food gained by fraudulent means.  
+[^b]: [[Deceit, Deceive|TG Deceit]].  

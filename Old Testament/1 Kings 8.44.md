@@ -5,4 +5,4 @@
 [1 Kings 8:44](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.44?lang=eng#p44)
 
 
-[^a]: [[D&C 98.33|D&C 98:33.]]
+[^a]: [[D&C 98.33|D&C 98:33]].  

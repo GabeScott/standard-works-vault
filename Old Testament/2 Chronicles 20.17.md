@@ -5,4 +5,4 @@
 [2 Chronicles 20:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/20.17?lang=eng#p17)
 
 
-[^a]: OR deliverance.
+[^a]: OR deliverance.  

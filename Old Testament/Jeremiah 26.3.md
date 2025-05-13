@@ -5,4 +5,4 @@
 [Jeremiah 26:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.3?lang=eng#p3)
 
 
-[^a]: HEB relent; i.e., change the decreed punishment because of their changed behavior.
+[^a]: HEB relent; i.e., change the decreed punishment because of their changed behavior.  

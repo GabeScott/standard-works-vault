@@ -5,4 +5,4 @@
 [Leviticus 27:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/27.25?lang=eng#p25)
 
 
-[^a]: [[Exodus 30.13|Ex. 30:13.]]
+[^a]: [[Exodus 30.13|Ex. 30:13]].  

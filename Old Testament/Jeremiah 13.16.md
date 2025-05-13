@@ -5,4 +5,4 @@
 [Jeremiah 13:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.16?lang=eng#p16)
 
 
-[^a]: TG [[Darkness, Spiritual]].
+[^a]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  

@@ -5,4 +5,4 @@
 [Ezekiel 43:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.12?lang=eng#p12)
 
 
-[^a]: [[Ezekiel 40.2|Ezek. 40:2.]]
+[^a]: [[Ezekiel 40.2|Ezek. 40:2]].  

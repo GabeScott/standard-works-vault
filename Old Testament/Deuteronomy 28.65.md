@@ -5,4 +5,4 @@
 [Deuteronomy 28:65](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.65?lang=eng#p65)
 
 
-[^a]: HEB anguish of soul. TG [[Sorrow]].
+[^a]: HEB anguish of soul. [[Sorrow|TG Sorrow]].  

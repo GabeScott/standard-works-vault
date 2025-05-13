@@ -5,6 +5,6 @@
 [Micah 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.16?lang=eng#p16)
 
 
-[^a]: [[1 Kings 16.25|1 Kgs. 16:25 (16, 25-26).]]
-[^b]: [[Jeremiah 18.16|Jer. 18:16 (16-17)]]; [[Jeremiah 24.10|24:10.]]
-[^c]: [[Jeremiah 24.9|Jer. 24:9]]; [[2 Nephi 29.5|2 Ne. 29:5.]]
+[^a]: [[1 Kings 16.16|1 Kgs. 16:25 (16, 25–26)]][[1 Kings 16.25|]][[1 Kings 16.26|]].  
+[^b]: [[Jeremiah 18.16|Jer. 18:16 (16–17)]][[Jeremiah 18.17|]]; [[Jeremiah 24.10|24:10]].  
+[^c]: [[Jeremiah 24.9|Jer. 24:9]]; [[2 Nephi 29.5|2 Ne. 29:5]].  

@@ -5,4 +5,4 @@
 [Job 9:5](https://www.churchofjesuschrist.org/study/scriptures/ot/job/9.5?lang=eng#p5)
 
 
-[^a]: OR Who.
+[^a]: OR Who.  

@@ -5,4 +5,4 @@
 [Proverbs 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/2.22?lang=eng#p22)
 
 
-[^a]: [[Psalms 52.5|Ps. 52:5.]]
+[^a]: [[Psalms 52.5|Ps. 52:5]].  

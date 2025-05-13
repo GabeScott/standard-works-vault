@@ -5,4 +5,4 @@
 [Esther 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/5.9?lang=eng#p9)
 
 
-[^a]: [[Esther 3.5|Esth. 3:5.]]
+[^a]: [[Esther 3.5|Esth. 3:5]].  

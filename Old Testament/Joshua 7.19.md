@@ -5,6 +5,6 @@
 [Joshua 7:19](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/7.19?lang=eng#p19)
 
 
-[^a]: [[1 Samuel 6.5|1 Sam. 6:5.]]
-[^b]: TG [[Confession]].
-[^c]: TG [[Accountability]].
+[^a]: [[1 Samuel 6.5|1 Sam. 6:5]].  
+[^b]: [[Confession|TG Confession]].  
+[^c]: [[Accountability|TG Accountability]].  

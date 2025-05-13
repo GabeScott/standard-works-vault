@@ -5,5 +5,5 @@
 [2 Samuel 22:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.7?lang=eng#p7)
 
 
-[^a]: [[D&C 136.29|D&C 136:29.]]
-[^b]: [[D&C 121.4|D&C 121:4 (1-4).]]
+[^a]: [[D&C 136.29|D&C 136:29]].  
+[^b]: [[D&C 121.1|D&C 121:4 (1–4)]][[D&C 121.2|]][[D&C 121.3|]][[D&C 121.4|]].  

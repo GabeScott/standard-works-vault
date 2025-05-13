@@ -5,4 +5,4 @@
 [1 Samuel 24:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/24.13?lang=eng#p13)
 
 
-[^a]: TG [[Wickedness, Wicked]].
+[^a]: [[Wickedness, Wicked|TG Wickedness]].  

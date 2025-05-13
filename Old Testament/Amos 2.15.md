@@ -5,4 +5,4 @@
 [Amos 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/2.15?lang=eng#p15)
 
 
-[^a]: [[Psalms 33.17|Ps. 33:17.]]
+[^a]: [[Psalms 33.17|Ps. 33:17]].  

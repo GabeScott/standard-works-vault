@@ -5,4 +5,4 @@
 [Leviticus 17:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/17.4?lang=eng#p4)
 
 
-[^a]: [[Deuteronomy 12.14|Deut. 12:14 (13-14).]]
+[^a]: [[Deuteronomy 12.13|Deut. 12:14 (13–14)]][[Deuteronomy 12.14|]].  

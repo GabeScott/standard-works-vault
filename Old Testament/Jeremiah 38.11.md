@@ -5,4 +5,4 @@
 [Jeremiah 38:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/38.11?lang=eng#p11)
 
 
-[^a]: HEB worn-out clothes.
+[^a]: HEB worn-out clothes.  

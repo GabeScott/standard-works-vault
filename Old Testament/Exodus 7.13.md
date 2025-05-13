@@ -5,4 +5,4 @@
 [Exodus 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.13?lang=eng#p13)
 
 
-[^a]: [[Exodus 7.13|JST Ex. 7:13 And Pharaoh hardened his heart …]]
+[^a]: JST Ex. 7:13 And Pharaoh hardened his heart …  

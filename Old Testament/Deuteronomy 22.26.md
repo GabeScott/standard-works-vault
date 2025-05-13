@@ -5,4 +5,4 @@
 [Deuteronomy 22:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.26?lang=eng#p26)
 
 
-[^a]: IE in gravity.
+[^a]: IE in gravity.  

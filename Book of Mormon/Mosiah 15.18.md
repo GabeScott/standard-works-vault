@@ -5,5 +5,5 @@
 [Mosiah 15:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p18#p18)
 
 
-[^a]: [[Nahum 1.15|Nahum 1:15]]; [[3 Nephi 20.40|3 Ne. 20:40]]; [[D&C 128.19|D&C 128:19.]]
-[^b]: [[Micah 5.5|Micah 5:5 (4-7)]]; [[John 16.33|John 16:33]]. TG [[Peace of God]].
+[^a]: [[Nahum 1.15|Nahum 1:15]]; [[3 Nephi 20.40|3 Ne. 20:40]]; [[D&C 128.19|D&C 128:19]].  
+[^b]: [[Micah 5.4|Micah 5:5 (4–7)]][[Micah 5.5|]][[Micah 5.6|]][[Micah 5.7|]]; [[John 16.33|John 16:33]]. [[Peace of God|TG Peace of God]].  

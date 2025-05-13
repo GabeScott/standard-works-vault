@@ -5,4 +5,4 @@
 [1 Kings 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.3?lang=eng#p3)
 
 
-[^a]: [[Jeremiah 44.9|Jer. 44:9.]]
+[^a]: [[Jeremiah 44.9|Jer. 44:9]].  

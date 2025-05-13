@@ -5,4 +5,4 @@
 [Genesis 45:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/45.4?lang=eng#p4)
 
 
-[^a]: [[2 Nephi 3.4|2 Ne. 3:4.]]
+[^a]: [[2 Nephi 3.4|2 Ne. 3:4]].  

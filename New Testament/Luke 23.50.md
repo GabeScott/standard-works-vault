@@ -5,4 +5,4 @@
 [Luke 23:50](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.50?lang=eng#p50)
 
 
-[^a]: IE member of the Sanhedrin, senator.
+[^a]: IE member of the Sanhedrin, senator.  

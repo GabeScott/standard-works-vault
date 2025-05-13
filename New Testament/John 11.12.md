@@ -5,4 +5,4 @@
 [John 11:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.12?lang=eng#p12)
 
 
-[^a]: GR be cured, saved.
+[^a]: GR be cured, saved.  

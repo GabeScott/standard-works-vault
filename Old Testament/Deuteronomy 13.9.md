@@ -5,4 +5,4 @@
 [Deuteronomy 13:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/13.9?lang=eng#p9)
 
 
-[^a]: [[Deuteronomy 17.7|Deut. 17:7.]]
+[^a]: [[Deuteronomy 17.7|Deut. 17:7]].  

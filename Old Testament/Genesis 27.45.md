@@ -5,4 +5,4 @@
 [Genesis 27:45](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.45?lang=eng#p45)
 
 
-[^a]: TG [[Anger]].
+[^a]: [[Anger|TG Anger]].  

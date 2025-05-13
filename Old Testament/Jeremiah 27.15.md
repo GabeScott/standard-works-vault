@@ -5,4 +5,4 @@
 [Jeremiah 27:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.15?lang=eng#p15)
 
 
-[^a]: TG [[False Prophets]].
+[^a]: [[False Prophets|TG False Prophets]].  

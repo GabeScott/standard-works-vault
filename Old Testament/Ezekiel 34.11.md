@@ -5,4 +5,4 @@
 [Ezekiel 34:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.11?lang=eng#p11)
 
 
-[^a]: TG [[Missionary Work]].
+[^a]: [[Missionary Work|TG Missionary Work]].  

@@ -5,4 +5,4 @@
 [Ezekiel 29:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.4?lang=eng#p4)
 
 
-[^a]: [[Ezekiel 38.4|Ezek. 38:4.]]
+[^a]: [[Ezekiel 38.4|Ezek. 38:4]].  

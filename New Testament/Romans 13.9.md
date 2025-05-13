@@ -5,7 +5,7 @@
 [Romans 13:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.9?lang=eng#p9)
 
 
-[^a]: TG [[Adulterer, Adultery]].
-[^b]: TG [[Stealing, Stolen]].
-[^c]: TG [[Covet, Covetousness]].
-[^d]: TG [[Neighbor]].
+[^a]: [[Adulterer, Adultery|TG Adulterer]].  
+[^b]: [[Stealing, Stolen|TG Stealing]].  
+[^c]: [[Covet, Covetousness|TG Covet]].  
+[^d]: [[Neighbor|TG Neighbor]].  

@@ -5,6 +5,6 @@
 [Matthew 7:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.25?lang=eng#p25)
 
 
-[^a]: [[D&C 90.5|D&C 90:5.]]
-[^b]: TG [[Adversity]].
-[^c]: TG [[Rock]].
+[^a]: [[D&C 90.5|D&C 90:5]].  
+[^b]: [[Adversity|TG Adversity]].  
+[^c]: [[Rock|TG Rock]].  

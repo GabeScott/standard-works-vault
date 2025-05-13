@@ -5,4 +5,4 @@
 [Genesis 39:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.22?lang=eng#p22)
 
 
-[^a]: [[Genesis 39.22|JST Gen. 39:22 … overseer …]]
+[^a]: JST Gen. 39:22 … overseer …  

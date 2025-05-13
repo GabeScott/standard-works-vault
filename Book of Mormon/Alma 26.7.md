@@ -5,5 +5,5 @@
 [Alma 26:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Harvest]].
-[^b]: [[Mosiah 23.22|Mosiah 23:22]]; [[Alma 36.28|Alma 36:28.]]
+[^a]: [[Harvest|TG Harvest]].  
+[^b]: [[Mosiah 23.22|Mosiah 23:22]]; [[Alma 36.28|Alma 36:28]].  

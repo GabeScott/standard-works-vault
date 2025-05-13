@@ -5,4 +5,4 @@
 [Matthew 27:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.12?lang=eng#p12)
 
 
-[^a]: TG [[Jesus Christ, Trials of]].
+[^a]: [[Jesus Christ, Trials of|TG Jesus Christ, Trials of]].  

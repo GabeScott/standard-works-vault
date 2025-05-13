@@ -5,4 +5,4 @@
 [Leviticus 23:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.10?lang=eng#p10)
 
 
-[^a]: [[Numbers 28.26|Num. 28:26 (26-31)]]; [[Mosiah 2.3|Mosiah 2:3.]]
+[^a]: [[Numbers 28.26|Num. 28:26 (26–31)]][[Numbers 28.27|]][[Numbers 28.28|]][[Numbers 28.29|]][[Numbers 28.30|]][[Numbers 28.31|]]; [[Mosiah 2.3|Mosiah 2:3]].  

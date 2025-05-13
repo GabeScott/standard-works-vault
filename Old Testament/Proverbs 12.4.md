@@ -5,6 +5,6 @@
 [Proverbs 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.4?lang=eng#p4)
 
 
-[^a]: [[Ruth 3.11|Ruth 3:11]]. TG [[Chastity, Chaste]]; [[Virtue, Virtuous]].
-[^b]: TG [[Marriage, Wives]]; [[Woman, Women]].
-[^c]: TG [[Marriage, Husbands]].
+[^a]: [[Ruth 3.11|Ruth 3:11]]. [[Chastity, Chaste|TG Chastity]]; [[Virtue, Virtuous|Virtue]].  
+[^b]: [[Marriage, Wives|TG Marriage, Wives]]; [[Woman, Women|Woman]].  
+[^c]: [[Marriage, Husbands|TG Marriage, Husbands]].  

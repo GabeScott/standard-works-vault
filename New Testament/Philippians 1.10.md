@@ -5,5 +5,5 @@
 [Philippians 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.10?lang=eng#p10)
 
 
-[^a]: GR prove, put to the test.
-[^b]: GR pure, spotless.
+[^a]: GR prove, put to the test.  
+[^b]: GR pure, spotless.  

@@ -5,4 +5,4 @@
 [Psalms 78:65](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.65?lang=eng#p65)
 
 
-[^a]: [[Psalms 73.20|Ps. 73:20.]]
+[^a]: [[Psalms 73.20|Ps. 73:20]].  

@@ -5,5 +5,5 @@
 [Isaiah 8:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.21?lang=eng#p21)
 
 
-[^a]: IE Israel would be taken into captivity because they would not hearken.
-[^b]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^a]: IE Israel would be taken into captivity because they would not hearken.  
+[^b]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  

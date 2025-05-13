@@ -5,5 +5,5 @@
 [Mormon 5:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p16#p16)
 
 
-[^a]: [[Genesis 6.3|Gen. 6:3]]; [[Ether 2.15|Ether 2:15]]; [[Moroni 8.28|Moro. 8:28.]]
-[^b]: [[Psalms 1.4|Ps. 1:4 (1-4)]]; [[Hosea 13.3|Hosea 13:3 (1-4).]]
+[^a]: [[Genesis 6.3|Gen. 6:3]]; [[Ether 2.15|Ether 2:15]]; [[Moroni 8.28|Moro. 8:28]].  
+[^b]: [[Psalms 1.1|Ps. 1:4 (1–4)]][[Psalms 1.2|]][[Psalms 1.3|]][[Psalms 1.4|]]; [[Hosea 13.1|Hosea 13:3 (1–4)]][[Hosea 13.2|]][[Hosea 13.3|]][[Hosea 13.4|]].  

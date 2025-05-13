@@ -5,4 +5,4 @@
 [Joshua 9:21](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.21?lang=eng#p21)
 
 
-[^a]: [[Deuteronomy 29.11|Deut. 29:11 (10-13).]]
+[^a]: [[Deuteronomy 29.10|Deut. 29:11 (10–13)]][[Deuteronomy 29.11|]][[Deuteronomy 29.12|]][[Deuteronomy 29.13|]].  

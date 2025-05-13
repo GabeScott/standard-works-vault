@@ -5,5 +5,5 @@
 [Isaiah 61:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 132.16|Ps. 132:16 (13-16).]]
-[^b]: [[Isaiah 59.17|Isa. 59:17]]; [[Ephesians 6.14|Eph. 6:14 (11, 13-17).]]
+[^a]: [[Psalms 132.13|Ps. 132:16 (13–16)]][[Psalms 132.14|]][[Psalms 132.15|]][[Psalms 132.16|]].  
+[^b]: [[Isaiah 59.17|Isa. 59:17]]; [[Ephesians 6.11|Eph. 6:14 (11, 13–17)]][[Ephesians 6.13|]][[Ephesians 6.14|]][[Ephesians 6.15|]][[Ephesians 6.16|]][[Ephesians 6.17|]].  

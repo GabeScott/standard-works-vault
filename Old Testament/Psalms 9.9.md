@@ -5,5 +5,5 @@
 [Psalms 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/9.9?lang=eng#p9)
 
 
-[^a]: TG [[Refuge]].
-[^b]: TG [[Oppression, Oppress]].
+[^a]: [[Refuge|TG Refuge]].  
+[^b]: [[Oppression, Oppress|TG Oppression]].  

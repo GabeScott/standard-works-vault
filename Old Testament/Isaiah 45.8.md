@@ -5,6 +5,6 @@
 [Isaiah 45:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.8?lang=eng#p8)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: IE the heavens and the earth.
-[^c]: TG [[Book of Mormon]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: IE the heavens and the earth.  
+[^c]: [[Book of Mormon|TG Book of Mormon]].  

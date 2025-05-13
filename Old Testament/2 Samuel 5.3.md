@@ -5,6 +5,6 @@
 [2 Samuel 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.3?lang=eng#p3)
 
 
-[^a]: [[1 Chronicles 14.8|1 Chr. 14:8.]]
-[^b]: [[2 Samuel 2.4|2 Sam. 2:4 (3-4)]]; [[1 Chronicles 12.23|1 Chr. 12:23.]]
-[^c]: TG [[Kings, Earthly]].
+[^a]: [[1 Chronicles 14.8|1 Chr. 14:8]].  
+[^b]: [[2 Samuel 2.3|2 Sam. 2:4 (3–4)]][[2 Samuel 2.4|]]; [[1 Chronicles 12.23|1 Chr. 12:23]].  
+[^c]: [[Kings, Earthly|TG Kings, Earthly]].  

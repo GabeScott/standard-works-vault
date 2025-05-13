@@ -5,4 +5,4 @@
 [Job 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/job/22.23?lang=eng#p23)
 
 
-[^a]: [[1 Nephi 17.3|1 Ne. 17:3.]]
+[^a]: [[1 Nephi 17.3|1 Ne. 17:3]].  

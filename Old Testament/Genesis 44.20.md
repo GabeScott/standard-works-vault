@@ -5,4 +5,4 @@
 [Genesis 44:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/44.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 42.11|Gen. 42:11 (11-13).]]
+[^a]: [[Genesis 42.11|Gen. 42:11 (11–13)]][[Genesis 42.12|]][[Genesis 42.13|]].  

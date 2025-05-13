@@ -5,5 +5,5 @@
 [Mormon 9:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p23#p23)
 
 
-[^a]: [[Mark 16.16|Mark 16:16.]]
-[^b]: TG [[Damnation, Damned]].
+[^a]: [[Mark 16.16|Mark 16:16]].  
+[^b]: [[Damnation, Damned|TG Damnation]].  

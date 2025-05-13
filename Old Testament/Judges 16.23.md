@@ -5,4 +5,4 @@
 [Judges 16:23](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16.23?lang=eng#p23)
 
 
-[^a]: [[1 Samuel 5.2|1 Sam. 5:2.]]
+[^a]: [[1 Samuel 5.2|1 Sam. 5:2]].  

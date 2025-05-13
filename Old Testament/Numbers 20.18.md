@@ -5,4 +5,4 @@
 [Numbers 20:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.18?lang=eng#p18)
 
 
-[^a]: HEB through me (i.e., through my land).
+[^a]: HEB through me (i.e., through my land).  

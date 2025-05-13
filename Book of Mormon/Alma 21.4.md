@@ -5,5 +5,5 @@
 [Alma 21:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p4#p4)
 
 
-[^a]: [[D&C 66.7|D&C 66:7.]]
-[^b]: [[Alma 1.12|Alma 1:12 (2-15)]]; [[Alma 14.16|14:16]]; [[Alma 24.28|24:28.]]
+[^a]: [[D&C 66.7|D&C 66:7]].  
+[^b]: [[Alma 1.2|Alma 1:12 (2–15)]][[Alma 1.3|]][[Alma 1.4|]][[Alma 1.5|]][[Alma 1.6|]][[Alma 1.7|]][[Alma 1.8|]][[Alma 1.9|]][[Alma 1.10|]][[Alma 1.11|]][[Alma 1.12|]][[Alma 1.13|]][[Alma 1.14|]][[Alma 1.15|]]; [[Alma 14.16|14:16]]; [[Alma 24.28|24:28]].  

@@ -5,5 +5,5 @@
 [Exodus 12:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 34.18|Ex. 34:18]]; [[Acts 20.6|Acts 20:6]]. TG [[Leaven]].
-[^b]: TG [[Excommunication]].
+[^a]: [[Exodus 34.18|Ex. 34:18]]; [[Acts 20.6|Acts 20:6]]. [[Leaven|TG Leaven]].  
+[^b]: [[Excommunication|TG Excommunication]].  

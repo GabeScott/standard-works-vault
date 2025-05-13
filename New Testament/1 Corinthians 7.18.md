@@ -5,4 +5,4 @@
 [1 Corinthians 7:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.18?lang=eng#p18)
 
 
-[^a]: GR conceal, obliterate circumcision.
+[^a]: GR conceal, obliterate circumcision.  

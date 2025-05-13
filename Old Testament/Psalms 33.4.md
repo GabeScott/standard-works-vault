@@ -5,4 +5,4 @@
 [Psalms 33:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.4?lang=eng#p4)
 
 
-[^a]: [[D&C 84.45|D&C 84:45.]]
+[^a]: [[D&C 84.45|D&C 84:45]].  

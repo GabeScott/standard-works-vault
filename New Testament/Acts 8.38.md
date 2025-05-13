@@ -5,4 +5,4 @@
 [Acts 8:38](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.38?lang=eng#p38)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Immersion.
+[^a]: [[Baptism|TG Baptism]]; [[Baptism, Immersion|Baptism, Immersion]].  

@@ -5,4 +5,4 @@
 [Proverbs 29:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.3?lang=eng#p3)
 
 
-[^a]: [[Mosiah 11.4|Mosiah 11:4 (2-4).]]
+[^a]: [[Mosiah 11.2|Mosiah 11:4 (2–4)]][[Mosiah 11.3|]][[Mosiah 11.4|]].  

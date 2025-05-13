@@ -5,4 +5,4 @@
 [Alma 52:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/52?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 51.26|Alma 51:26.]]
+[^a]: [[Alma 51.26|Alma 51:26]].  

@@ -5,5 +5,5 @@
 [Isaiah 23:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/23.17?lang=eng#p17)
 
 
-[^a]: OR return.
-[^b]: [[Revelation 18.3|Rev. 18:3 (3, 9).]]
+[^a]: OR return.  
+[^b]: [[Revelation 18.3|Rev. 18:3 (3, 9)]][[Revelation 18.9|]].  

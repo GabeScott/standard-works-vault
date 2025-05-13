@@ -5,4 +5,4 @@
 [Mark 4:27](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.27?lang=eng#p27)
 
 
-[^a]: [[1 Corinthians 3.6|1 Cor. 3:6 (6-7).]]
+[^a]: [[1 Corinthians 3.6|1 Cor. 3:6 (6–7)]][[1 Corinthians 3.7|]].  

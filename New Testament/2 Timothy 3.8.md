@@ -5,5 +5,5 @@
 [2 Timothy 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.8?lang=eng#p8)
 
 
-[^a]: TG [[Opposition]].
-[^b]: [[Psalms 14.1|Ps. 14:1]]; [[D&C 10.21|D&C 10:21 (20-23)]]; [[D&C 112.23|112:23 (23-24).]]
+[^a]: [[Opposition|TG Opposition]].  
+[^b]: [[Psalms 14.1|Ps. 14:1]]; [[D&C 10.20|D&C 10:21 (20–23)]][[D&C 10.21|]][[D&C 10.22|]][[D&C 10.23|]]; [[D&C 112.23|112:23 (23–24)]][[D&C 112.24|]].  

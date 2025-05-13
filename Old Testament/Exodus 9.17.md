@@ -5,4 +5,4 @@
 [Exodus 9:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.17?lang=eng#p17)
 
 
-[^a]: [[Exodus 5.2|Ex. 5:2]]; [[Exodus 10.3|10:3]]. TG [[Haughtiness, Haughty]].
+[^a]: [[Exodus 5.2|Ex. 5:2]]; [[Exodus 10.3|10:3]]. [[Haughtiness, Haughty|TG Haughtiness]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 7:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.15?lang=eng#p15)
 
 
-[^a]: TG [[Sickness, Sick]].
-[^b]: [[Exodus 15.26|Ex. 15:26.]]
+[^a]: [[Sickness, Sick|TG Sickness]].  
+[^b]: [[Exodus 15.26|Ex. 15:26]].  

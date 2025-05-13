@@ -5,4 +5,4 @@
 [Luke 24:41](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.41?lang=eng#p41)
 
 
-[^a]: GR marveled.
+[^a]: GR marveled.  

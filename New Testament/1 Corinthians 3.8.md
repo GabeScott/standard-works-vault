@@ -5,4 +5,4 @@
 [1 Corinthians 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.8?lang=eng#p8)
 
 
-[^a]: TG [[Reward]]; [[Wages]].
+[^a]: [[Reward|TG Reward]]; [[Wages|Wages]].  

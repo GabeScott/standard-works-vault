@@ -5,5 +5,5 @@
 [Zechariah 11:13](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/11.13?lang=eng#p13)
 
 
-[^a]: [[Matthew 27.7|Matt. 27:7 (3-10).]]
-[^b]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Matthew 27.3|Matt. 27:7 (3–10)]][[Matthew 27.4|]][[Matthew 27.5|]][[Matthew 27.6|]][[Matthew 27.7|]][[Matthew 27.8|]][[Matthew 27.9|]][[Matthew 27.10|]].  
+[^b]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

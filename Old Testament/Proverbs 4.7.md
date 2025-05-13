@@ -5,5 +5,5 @@
 [Proverbs 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Wisdom]].
-[^b]: TG [[Learn, Learning]]; [[Problem-Solving]]; [[Understanding]].
+[^a]: [[Wisdom|TG Wisdom]].  
+[^b]: [[Learn, Learning|TG Learn]]; [[Problem-Solving|Problem-Solving]]; [[Understanding|Understanding]].  

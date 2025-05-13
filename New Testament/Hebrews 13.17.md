@@ -5,5 +5,5 @@
 [Hebrews 13:17](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.17?lang=eng#p17)
 
 
-[^a]: TG [[Sustaining Church Leaders]].
-[^b]: TG [[Submissiveness, Submit]].
+[^a]: [[Sustaining Church Leaders|TG Sustaining Church Leaders]].  
+[^b]: [[Submissiveness, Submit|TG Submissiveness]].  

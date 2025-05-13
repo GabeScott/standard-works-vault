@@ -5,5 +5,5 @@
 [1 Corinthians 10:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.1?lang=eng#p1)
 
 
-[^a]: [[Psalms 99.7|Ps. 99:7]]; [[D&C 103.20|D&C 103:20 (19-20).]]
-[^b]: TG [[Israel, Deliverance of]].
+[^a]: [[Psalms 99.7|Ps. 99:7]]; [[D&C 103.19|D&C 103:20 (19–20)]][[D&C 103.20|]].  
+[^b]: [[Israel, Deliverance of|TG Israel, Deliverance of]].  

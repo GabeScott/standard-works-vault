@@ -5,4 +5,4 @@
 [Jeremiah 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.14?lang=eng#p14)
 
 
-[^a]: [[Ezekiel 7.22|Ezek. 7:22 (21-22)]]; [[Ezekiel 24.21|24:21.]]
+[^a]: [[Ezekiel 7.21|Ezek. 7:22 (21–22)]][[Ezekiel 7.22|]]; [[Ezekiel 24.21|24:21]].  

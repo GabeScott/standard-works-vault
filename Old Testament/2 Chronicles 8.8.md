@@ -5,4 +5,4 @@
 [2 Chronicles 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/8.8?lang=eng#p8)
 
 
-[^a]: IE provide labor.
+[^a]: IE provide labor.  

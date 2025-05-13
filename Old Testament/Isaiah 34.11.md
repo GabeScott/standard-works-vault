@@ -5,6 +5,6 @@
 [Isaiah 34:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/34.11?lang=eng#p11)
 
 
-[^a]: Zeph. 2:14.
-[^b]: [[Isaiah 14.23|Isa. 14:23.]]
-[^c]: HEB plummet.
+[^a]: [[Zephaniah 2.14|Zeph. 2:14]].  
+[^b]: [[Isaiah 14.23|Isa. 14:23]].  
+[^c]: HEB plummet.  

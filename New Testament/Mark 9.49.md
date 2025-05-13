@@ -5,4 +5,4 @@
 [Mark 9:49](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.49?lang=eng#p49)
 
 
-[^a]: TG [[Salt]].
+[^a]: [[Salt|TG Salt]].  

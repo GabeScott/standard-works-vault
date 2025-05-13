@@ -5,6 +5,6 @@
 [Genesis 17:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.17?lang=eng#p17)
 
 
-[^a]: JST Gen. 17:23-24 (Appendix).
-[^b]: HEB (also) rejoiced. JST Gen. 17:23 … rejoiced … TG [[Laughter, Laugh]].
-[^c]: [[Genesis 21.5|Gen. 21:5.]]
+[^a]: [[JST Genesis 17.23|JST Gen. 17:23–24 (Appendix)]][[JST Genesis 17.24|]].  
+[^b]: HEB (also) rejoiced. [[JST Genesis 17.23|JST Gen. 17:23]] … rejoiced … [[Laughter, Laugh|TG Laughter]].  
+[^c]: [[Genesis 21.5|Gen. 21:5]].  

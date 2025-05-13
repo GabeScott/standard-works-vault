@@ -5,6 +5,6 @@
 [Alma 37:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p35#p35)
 
 
-[^a]: TG [[Education]]; [[Learn, Learning]].
-[^b]: TG [[Wisdom]].
-[^c]: [[Ecclesiastes 12.1|Eccl. 12:1]]; Lam. 3:27.
+[^a]: [[Education|TG Education]]; [[Learn, Learning|Learn]].  
+[^b]: [[Wisdom|TG Wisdom]].  
+[^c]: [[Ecclesiastes 12.1|Eccl. 12:1]]; [[Lamentations 3.27|Lam. 3:27]].  

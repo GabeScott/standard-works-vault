@@ -5,4 +5,4 @@
 [Jeremiah 50:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.27?lang=eng#p27)
 
 
-[^a]: OR punishment.
+[^a]: OR punishment.  

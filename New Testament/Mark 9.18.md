@@ -5,4 +5,4 @@
 [Mark 9:18](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.18?lang=eng#p18)
 
 
-[^a]: GR dashes on the ground, convulses, lacerates.
+[^a]: GR dashes on the ground, convulses, lacerates.  

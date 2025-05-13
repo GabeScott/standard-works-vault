@@ -5,4 +5,4 @@
 [Jeremiah 16:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.5?lang=eng#p5)
 
 
-[^a]: [[Ezekiel 24.17|Ezek. 24:17.]]
+[^a]: [[Ezekiel 24.17|Ezek. 24:17]].  

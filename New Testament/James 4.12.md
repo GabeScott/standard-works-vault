@@ -5,4 +5,4 @@
 [James 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.12?lang=eng#p12)
 
 
-[^a]: [[Mormon 8.20|Morm. 8:20 (19-20).]]
+[^a]: [[Mormon 8.19|Morm. 8:20 (19–20)]][[Mormon 8.20|]].  

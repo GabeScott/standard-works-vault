@@ -5,4 +5,4 @@
 [1 Nephi 22:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Forgive, Forgiveness]]; [[Repent, Repentance]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]]; [[Repent, Repentance|Repent]].  

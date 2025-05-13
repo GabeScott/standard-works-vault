@@ -5,4 +5,4 @@
 [Mormon 8:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p40#p40)
 
 
-[^a]: TG [[Secret Combinations]].
+[^a]: [[Secret Combinations|TG Secret Combinations]].  

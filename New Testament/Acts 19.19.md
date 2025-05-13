@@ -5,4 +5,4 @@
 [Acts 19:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.19?lang=eng#p19)
 
 
-[^a]: TG [[Sorcery]].
+[^a]: [[Sorcery|TG Sorcery]].  

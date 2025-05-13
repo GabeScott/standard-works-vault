@@ -5,4 +5,4 @@
 [Hosea 12:14](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.14?lang=eng#p14)
 
 
-[^a]: IE guilt.
+[^a]: IE guilt.  

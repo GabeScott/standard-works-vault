@@ -5,4 +5,4 @@
 [Jacob 5:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p43#p43)
 
 
-[^a]: [[Ezekiel 17.8|Ezek. 17:8]]; [[Jacob 5.25|Jacob 5:25.]]
+[^a]: [[Ezekiel 17.8|Ezek. 17:8]]; [[Jacob 5.25|Jacob 5:25]].  

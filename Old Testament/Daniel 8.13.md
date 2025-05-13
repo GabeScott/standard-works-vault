@@ -5,4 +5,4 @@
 [Daniel 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.13?lang=eng#p13)
 
 
-[^a]: TG [[Mission of Latter-day Saints]].
+[^a]: [[Saints|TG Saints]].  

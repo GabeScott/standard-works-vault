@@ -5,4 +5,4 @@
 [Mosiah 2:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p30#p30)
 
 
-[^a]: [[Mosiah 1.10|Mosiah 1:10]]; [[Mosiah 6.3|6:3 (3-4)]]. TG [[Kings, Earthly]].
+[^a]: [[Mosiah 1.10|Mosiah 1:10]]; [[Mosiah 6.3|6:3 (3–4)]][[Mosiah 6.4|]]. [[Kings, Earthly|TG Kings, Earthly]].  

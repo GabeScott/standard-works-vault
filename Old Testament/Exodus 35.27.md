@@ -5,4 +5,4 @@
 [Exodus 35:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.27?lang=eng#p27)
 
 
-[^a]: OR presidents or presiding officers.
+[^a]: OR presidents or presiding officers.  

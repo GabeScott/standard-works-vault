@@ -5,4 +5,4 @@
 [1 Samuel 28:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/28.7?lang=eng#p7)
 
 
-[^a]: TG [[Spirits, Evil or Unclean]]; [[Superstitions]].
+[^a]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]]; [[Superstitions|Superstitions]].  

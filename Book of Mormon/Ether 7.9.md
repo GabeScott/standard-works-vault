@@ -5,4 +5,4 @@
 [Ether 7:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/7?lang=eng&id=p9#p9)
 
 
-[^a]: [[1 Nephi 16.18|1 Ne. 16:18.]]
+[^a]: [[1 Nephi 16.18|1 Ne. 16:18]].  

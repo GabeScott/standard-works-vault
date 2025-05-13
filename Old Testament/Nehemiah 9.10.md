@@ -5,4 +5,4 @@
 [Nehemiah 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 7.5|Ex. 7:5]]; [[Exodus 9.16|9:16.]]
+[^a]: [[Exodus 7.5|Ex. 7:5]]; [[Exodus 9.16|9:16]].  

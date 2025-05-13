@@ -5,4 +5,4 @@
 [Acts 24:18](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.18?lang=eng#p18)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

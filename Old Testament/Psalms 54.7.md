@@ -5,4 +5,4 @@
 [Psalms 54:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/54.7?lang=eng#p7)
 
 
-[^a]: TG [[Deliver, Deliverance]].
+[^a]: [[Deliver, Deliverance|TG Deliver]].  

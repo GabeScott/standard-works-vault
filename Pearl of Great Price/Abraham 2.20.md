@@ -5,7 +5,7 @@
 [Abraham 2:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/2.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 28.19|Gen. 28:19.]]
-[^b]: [[Genesis 13.3|Gen. 13:3.]]
-[^c]: [[Genesis 13.4|Gen. 13:4.]]
-[^d]: [[Genesis 12.8|Gen. 12:8.]]
+[^a]: [[Genesis 28.19|Gen. 28:19]].  
+[^b]: [[Genesis 13.3|Gen. 13:3]].  
+[^c]: [[Genesis 13.4|Gen. 13:4]].  
+[^d]: [[Genesis 12.8|Gen. 12:8]].  

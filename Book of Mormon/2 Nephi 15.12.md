@@ -5,5 +5,5 @@
 [2 Nephi 15:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p12#p12)
 
 
-[^a]: [[Amos 6.5|Amos 6:5 (5-6).]]
-[^b]: [[Psalms 28.5|Ps. 28:5]]. TG [[Rebellion, Rebel]].
+[^a]: [[Amos 6.5|Amos 6:5 (5–6)]][[Amos 6.6|]].  
+[^b]: [[Psalms 28.5|Ps. 28:5]]. [[Rebellion, Rebel|TG Rebellion]].  

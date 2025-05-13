@@ -5,4 +5,4 @@
 [2 Chronicles 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.9?lang=eng#p9)
 
 
-[^a]: OR surrounded.
+[^a]: OR surrounded.  

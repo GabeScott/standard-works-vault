@@ -5,4 +5,4 @@
 [Jeremiah 43:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/43.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 21.2|Jer. 21:2 (2, 7)]]; [[Jeremiah 25.9|25:9.]]
+[^a]: [[Jeremiah 21.2|Jer. 21:2 (2, 7)]][[Jeremiah 21.7|]]; [[Jeremiah 25.9|25:9]].  

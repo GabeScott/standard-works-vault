@@ -5,4 +5,4 @@
 [Mark 9:27](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.27?lang=eng#p27)
 
 
-[^a]: [[Acts 3.7|Acts 3:7.]]
+[^a]: [[Acts 3.7|Acts 3:7]].  

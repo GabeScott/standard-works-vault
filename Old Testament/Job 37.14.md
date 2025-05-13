@@ -5,5 +5,5 @@
 [Job 37:14](https://www.churchofjesuschrist.org/study/scriptures/ot/job/37.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 46.10|Ps. 46:10.]]
-[^b]: TG [[God, Works of]].
+[^a]: [[Psalms 46.10|Ps. 46:10]].  
+[^b]: [[God, Works of|TG God, Works of]].  

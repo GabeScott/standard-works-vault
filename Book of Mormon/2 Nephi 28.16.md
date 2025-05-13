@@ -5,6 +5,6 @@
 [2 Nephi 28:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p16#p16)
 
 
-[^a]: [[2 Nephi 27.32|2 Ne. 27:32.]]
-[^b]: Mal. 2:17. TG [[Reviling, Revile]].
-[^c]: [[Ether 2.10|Ether 2:10 (8-11).]]
+[^a]: [[2 Nephi 27.32|2 Ne. 27:32]].  
+[^b]: [[Malachi 2.17|Mal. 2:17]]. [[Reviling, Revile|TG Reviling]].  
+[^c]: [[Ether 2.8|Ether 2:10 (8–11)]][[Ether 2.9|]][[Ether 2.10|]][[Ether 2.11|]].  

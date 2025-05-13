@@ -5,5 +5,5 @@
 [Ezekiel 19:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/19.12?lang=eng#p12)
 
 
-[^a]: [[2 Chronicles 36.20|2 Chr. 36:20 (17-20).]]
-[^b]: [[Ezekiel 17.10|Ezek. 17:10.]]
+[^a]: [[2 Chronicles 36.17|2 Chr. 36:20 (17–20)]][[2 Chronicles 36.18|]][[2 Chronicles 36.19|]][[2 Chronicles 36.20|]].  
+[^b]: [[Ezekiel 17.10|Ezek. 17:10]].  

@@ -5,5 +5,5 @@
 [Genesis 10:25](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.25?lang=eng#p25)
 
 
-[^a]: IE Division.
-[^b]: TG [[Earth, Dividing of]].
+[^a]: IE Division.  
+[^b]: [[Earth, Dividing of|TG Earth, Dividing of]].  

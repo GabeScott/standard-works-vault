@@ -5,4 +5,4 @@
 [1 Kings 19:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/19.5?lang=eng#p5)
 
 
-[^a]: TG [[Angels]].
+[^a]: [[Angels|TG Angels]].  

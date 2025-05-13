@@ -5,5 +5,5 @@
 [Helaman 5:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p8#p8)
 
 
-[^a]: [[Helaman 8.25|Hel. 8:25]]; [[3 Nephi 13.20|3 Ne. 13:20 (19-21)]]. TG [[Treasure]].
-[^b]: [[1 Nephi 15.36|1 Ne. 15:36.]]
+[^a]: [[Helaman 8.25|Hel. 8:25]]; [[3 Nephi 13.19|3 Ne. 13:20 (19–21)]][[3 Nephi 13.20|]][[3 Nephi 13.21|]]. [[Treasure|TG Treasure]].  
+[^b]: [[1 Nephi 15.36|1 Ne. 15:36]].  

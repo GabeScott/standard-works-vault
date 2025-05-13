@@ -5,5 +5,5 @@
 [Genesis 18:32](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.32?lang=eng#p32)
 
 
-[^a]: [[Judges 6.39|Judg. 6:39.]]
-[^b]: [[Isaiah 65.8|Isa. 65:8.]]
+[^a]: [[Judges 6.39|Judg. 6:39]].  
+[^b]: [[Isaiah 65.8|Isa. 65:8]].  

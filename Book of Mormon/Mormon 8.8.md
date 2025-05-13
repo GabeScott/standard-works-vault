@@ -5,4 +5,4 @@
 [Mormon 8:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p8#p8)
 
 
-[^a]: [[1 Nephi 12.21|1 Ne. 12:21 (20-23).]]
+[^a]: [[1 Nephi 12.20|1 Ne. 12:21 (20–23)]][[1 Nephi 12.21|]][[1 Nephi 12.22|]][[1 Nephi 12.23|]].  

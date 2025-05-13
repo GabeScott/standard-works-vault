@@ -5,4 +5,4 @@
 [Acts 9:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.2?lang=eng#p2)
 
 
-[^a]: [[Acts 22.5|Acts 22:5.]]
+[^a]: [[Acts 22.5|Acts 22:5]].  

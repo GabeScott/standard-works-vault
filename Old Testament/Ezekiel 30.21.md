@@ -5,4 +5,4 @@
 [Ezekiel 30:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/30.21?lang=eng#p21)
 
 
-[^a]: HEB bandage.
+[^a]: HEB bandage.  

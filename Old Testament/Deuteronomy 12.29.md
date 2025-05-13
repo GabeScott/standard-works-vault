@@ -5,5 +5,5 @@
 [Deuteronomy 12:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.29?lang=eng#p29)
 
 
-[^a]: [[1 Nephi 4.13|1 Ne. 4:13.]]
-[^b]: HEB dispossessest.
+[^a]: [[1 Nephi 4.13|1 Ne. 4:13]].  
+[^b]: HEB dispossessest.  

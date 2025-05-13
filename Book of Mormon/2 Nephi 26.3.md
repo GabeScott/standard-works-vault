@@ -5,8 +5,8 @@
 [2 Nephi 26:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Nephi 12.4|1 Ne. 12:4 (4-6)]]. TG [[Signs]].
-[^b]: TG [[Jesus Christ, Birth of]].
-[^c]: TG [[Jesus Christ, Death of]].
-[^d]: TG [[Prophets, Rejection of]].
-[^e]: [[Genesis 4.10|Gen. 4:10]]; [[2 Nephi 28.10|2 Ne. 28:10]]; [[Mormon 8.27|Morm. 8:27.]]
+[^a]: [[1 Nephi 12.4|1 Ne. 12:4 (4–6)]][[1 Nephi 12.5|]][[1 Nephi 12.6|]]. [[Signs|TG Signs]].  
+[^b]: [[Jesus Christ, Birth of|TG Jesus Christ, Birth of]].  
+[^c]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  
+[^d]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  
+[^e]: [[Genesis 4.10|Gen. 4:10]]; [[2 Nephi 28.10|2 Ne. 28:10]]; [[Mormon 8.27|Morm. 8:27]].  

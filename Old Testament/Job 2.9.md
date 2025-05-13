@@ -5,6 +5,6 @@
 [Job 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/job/2.9?lang=eng#p9)
 
 
-[^a]: TG [[Perseverance]].
-[^b]: TG [[Steadfastness, Steadfast]].
-[^c]: TG [[Blaspheme, Blasphemous, Blasphemy]]; [[Curse]].
+[^a]: [[Perseverance|TG Perseverance]].  
+[^b]: [[Steadfastness, Steadfast|TG Steadfastness]].  
+[^c]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]]; [[Curse|Curse]].  

@@ -5,4 +5,4 @@
 [John 19:24](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.24?lang=eng#p24)
 
 
-[^a]: [[Psalms 22.18|Ps. 22:18.]]
+[^a]: [[Psalms 22.18|Ps. 22:18]].  

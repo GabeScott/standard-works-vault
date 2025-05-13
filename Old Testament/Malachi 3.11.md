@@ -5,5 +5,5 @@
 [Malachi 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.11?lang=eng#p11)
 
 
-[^a]: TG [[God, Power of]].
-[^b]: [[D&C 85.3|D&C 85:3]]; [[D&C 97.26|97:26.]]
+[^a]: [[God, Power of|TG God, Power of]].  
+[^b]: [[D&C 85.3|D&C 85:3]]; [[D&C 97.26|97:26]].  

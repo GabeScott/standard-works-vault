@@ -5,4 +5,4 @@
 [Ephesians 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.14?lang=eng#p14)
 
 
-[^a]: TG [[Jesus Christ, Light of the World]]; [[Light]].
+[^a]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]]; [[Light [noun]|Light [noun]]].  

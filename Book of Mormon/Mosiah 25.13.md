@@ -5,4 +5,4 @@
 [Mosiah 25:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/25?lang=eng&id=p13#p13)
 
 
-[^a]: [[Omni 1.19|Omni 1:19.]]
+[^a]: [[Omni 1.19|Omni 1:19]].  

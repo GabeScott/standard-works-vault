@@ -5,6 +5,6 @@
 [Exodus 13:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.7?lang=eng#p7)
 
 
-[^a]: [[Deuteronomy 16.4|Deut. 16:4.]]
-[^b]: TG [[Leaven]].
-[^c]: OR within all your borders.
+[^a]: [[Deuteronomy 16.4|Deut. 16:4]].  
+[^b]: [[Leaven|TG Leaven]].  
+[^c]: OR within all your borders.  

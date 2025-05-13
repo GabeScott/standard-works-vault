@@ -5,4 +5,4 @@
 [Moses 7:28](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.28?lang=eng#p28)
 
 
-[^a]: [[Moroni 7.32|Moro. 7:32]]; [[Moses 7.20|Moses 7:20.]]
+[^a]: [[Moroni 7.32|Moro. 7:32]]; [[Moses 7.20|Moses 7:20]].  

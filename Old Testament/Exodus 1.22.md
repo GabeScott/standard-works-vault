@@ -5,4 +5,4 @@
 [Exodus 1:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.22?lang=eng#p22)
 
 
-[^a]: IE to the Hebrews.
+[^a]: IE to the Hebrews.  

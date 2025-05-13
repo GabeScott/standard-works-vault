@@ -5,5 +5,5 @@
 [Colossians 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.5?lang=eng#p5)
 
 
-[^a]: [[1 Peter 1.4|1 Pet. 1:4.]]
-[^b]: TG [[Gospel]].
+[^a]: [[1 Peter 1.4|1 Pet. 1:4]].  
+[^b]: [[Gospel|TG Gospel]].  

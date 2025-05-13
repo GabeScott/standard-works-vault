@@ -5,6 +5,6 @@
 [Deuteronomy 25:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.15?lang=eng#p15)
 
 
-[^a]: HEB full, whole.
-[^b]: [[Leviticus 19.36|Lev. 19:36]]; [[Ezekiel 45.10|Ezek. 45:10]]; [[Amos 8.5|Amos 8:5.]]
-[^c]: [[Deuteronomy 4.40|Deut. 4:40.]]
+[^a]: HEB full, whole.  
+[^b]: [[Leviticus 19.36|Lev. 19:36]]; [[Ezekiel 45.10|Ezek. 45:10]]; [[Amos 8.5|Amos 8:5]].  
+[^c]: [[Deuteronomy 4.40|Deut. 4:40]].  

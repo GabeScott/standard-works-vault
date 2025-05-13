@@ -5,7 +5,7 @@
 [Proverbs 20:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.29?lang=eng#p29)
 
 
-[^a]: TG [[Telestial Glory]].
-[^b]: TG [[Beauty]].
-[^c]: TG [[Old Age]].
-[^d]: [[Leviticus 19.32|Lev. 19:32]]; [[Proverbs 16.31|Prov. 16:31.]]
+[^a]: [[Glory|TG Glory]].  
+[^b]: [[Beauty|TG Beauty]].  
+[^c]: [[Old Age|TG Old Age]].  
+[^d]: [[Leviticus 19.32|Lev. 19:32]]; [[Proverbs 16.31|Prov. 16:31]].  

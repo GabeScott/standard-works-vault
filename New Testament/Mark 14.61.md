@@ -5,5 +5,5 @@
 [Mark 14:61](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.61?lang=eng#p61)
 
 
-[^a]: [[Isaiah 53.7|Isa. 53:7 (7-8).]]
-[^b]: TG [[Jesus Christ, Messiah]].
+[^a]: [[Isaiah 53.7|Isa. 53:7 (7–8)]][[Isaiah 53.8|]].  
+[^b]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/6.16?lang=eng#p16)
 
 
-[^a]: OR if only.
+[^a]: OR if only.  

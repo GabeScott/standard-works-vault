@@ -5,4 +5,4 @@
 [2 Kings 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/18.12?lang=eng#p12)
 
 
-[^a]: TG [[Disobedience, Disobey]].
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  

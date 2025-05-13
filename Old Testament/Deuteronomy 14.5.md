@@ -5,4 +5,4 @@
 [Deuteronomy 14:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.5?lang=eng#p5)
 
 
-[^a]: HEB gazelle.
+[^a]: HEB gazelle.  

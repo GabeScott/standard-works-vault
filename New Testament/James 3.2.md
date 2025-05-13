@@ -5,7 +5,7 @@
 [James 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.2?lang=eng#p2)
 
 
-[^a]: GR stumble, err.
-[^b]: TG [[Offense, Offend, Offender]].
-[^c]: [[Psalms 39.1|Ps. 39:1]]; [[Proverbs 21.23|Prov. 21:23.]]
-[^d]: TG [[Perfection, Perfect, Perfectly]].
+[^a]: GR stumble, err.  
+[^b]: [[Offense, Offend, Offender|TG Offense]].  
+[^c]: [[Psalms 39.1|Ps. 39:1]]; [[Proverbs 21.23|Prov. 21:23]].  
+[^d]: [[Perfection, Perfect, Perfectly|TG Perfection]].  

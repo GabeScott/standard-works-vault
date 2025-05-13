@@ -5,10 +5,10 @@
 [Alma 34:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Apathy]].
-[^b]: TG [[Poor]].
-[^c]: [[Ezekiel 18.7|Ezek. 18:7 (5-9).]]
-[^d]: TG [[Almsgiving]]; [[Good Works]].
-[^e]: [[Ezekiel 33.31|Ezek. 33:31]]; [[Matthew 15.8|Matt. 15:8 (7-8).]]
-[^f]: [[Isaiah 58.3|Isa. 58:3]]; [[Moroni 7.6|Moro. 7:6 (6-8).]]
-[^g]: TG [[Hypocrisy, Hypocrite]].
+[^a]: [[Apathy|TG Apathy]].  
+[^b]: [[Poor|TG Poor]].  
+[^c]: [[Ezekiel 18.5|Ezek. 18:7 (5–9)]][[Ezekiel 18.6|]][[Ezekiel 18.7|]][[Ezekiel 18.8|]][[Ezekiel 18.9|]].  
+[^d]: [[Almsgiving|TG Almsgiving]]; [[Good Works|Good Works]].  
+[^e]: [[Ezekiel 33.31|Ezek. 33:31]]; [[Matthew 15.7|Matt. 15:8 (7–8)]][[Matthew 15.8|]].  
+[^f]: [[Isaiah 58.3|Isa. 58:3]]; [[Moroni 7.6|Moro. 7:6 (6–8)]][[Moroni 7.7|]][[Moroni 7.8|]].  
+[^g]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  

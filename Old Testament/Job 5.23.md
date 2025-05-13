@@ -5,4 +5,4 @@
 [Job 5:23](https://www.churchofjesuschrist.org/study/scriptures/ot/job/5.23?lang=eng#p23)
 
 
-[^a]: [[Hosea 2.18|Hosea 2:18.]]
+[^a]: [[Hosea 2.18|Hosea 2:18]].  

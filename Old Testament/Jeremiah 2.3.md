@@ -5,4 +5,4 @@
 [Jeremiah 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 28.36|Ex. 28:36]]; [[Isaiah 23.18|Isa. 23:18.]]
+[^a]: [[Exodus 28.36|Ex. 28:36]]; [[Isaiah 23.18|Isa. 23:18]].  

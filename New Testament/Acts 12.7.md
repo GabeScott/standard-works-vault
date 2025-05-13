@@ -5,4 +5,4 @@
 [Acts 12:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/12.7?lang=eng#p7)
 
 
-[^a]: [[Acts 5.19|Acts 5:19.]]
+[^a]: [[Acts 5.19|Acts 5:19]].  

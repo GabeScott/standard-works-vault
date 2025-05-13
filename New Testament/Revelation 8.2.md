@@ -5,4 +5,4 @@
 [Revelation 8:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/8.2?lang=eng#p2)
 
 
-[^a]: [[D&C 77.12|D&C 77:12.]]
+[^a]: [[D&C 77.12|D&C 77:12]].  

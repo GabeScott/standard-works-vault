@@ -5,5 +5,5 @@
 [1 Samuel 14:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.20?lang=eng#p20)
 
 
-[^a]: [[Judges 7.22|Judg. 7:22]]; [[2 Chronicles 20.23|2 Chr. 20:23.]]
-[^b]: OR panic, confusion.
+[^a]: [[Judges 7.22|Judg. 7:22]]; [[2 Chronicles 20.23|2 Chr. 20:23]].  
+[^b]: OR panic, confusion.  

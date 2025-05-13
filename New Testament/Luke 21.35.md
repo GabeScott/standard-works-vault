@@ -5,4 +5,4 @@
 [Luke 21:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.35?lang=eng#p35)
 
 
-[^a]: [[Revelation 3.3|Rev. 3:3]]; [[Revelation 16.15|16:15]]; [[D&C 63.15|D&C 63:15.]]
+[^a]: [[Revelation 3.3|Rev. 3:3]]; [[Revelation 16.15|16:15]]; [[D&C 63.15|D&C 63:15]].  

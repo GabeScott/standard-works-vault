@@ -5,6 +5,6 @@
 [Exodus 6:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.6?lang=eng#p6)
 
 
-[^a]: [[1 Nephi 19.10|1 Ne. 19:10.]]
-[^b]: [[Exodus 5.4|Ex. 5:4 (4-5)]]; [[Psalms 81.6|Ps. 81:6 (5-6).]]
-[^c]: HEB deliver.
+[^a]: [[1 Nephi 19.10|1 Ne. 19:10]].  
+[^b]: [[Exodus 5.4|Ex. 5:4 (4–5)]][[Exodus 5.5|]]; [[Psalms 81.5|Ps. 81:6 (5–6)]][[Psalms 81.6|]].  
+[^c]: HEB deliver.  

@@ -5,6 +5,6 @@
 [Isaiah 13:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.2?lang=eng#p2)
 
 
-[^a]: OR ensign. TG [[Ensign]].
-[^b]: [[Isaiah 2.2|Isa. 2:2.]]
-[^c]: HEB raise.
+[^a]: OR ensign. [[Ensign|TG Ensign]].  
+[^b]: [[Isaiah 2.2|Isa. 2:2]].  
+[^c]: HEB raise.  

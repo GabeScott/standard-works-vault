@@ -5,4 +5,4 @@
 [Ezekiel 39:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.21?lang=eng#p21)
 
 
-[^a]: TG [[Conversion, Convert]]; [[Heathen]].
+[^a]: [[Conversion, Convert|TG Conversion]]; [[Heathen|Heathen]].  

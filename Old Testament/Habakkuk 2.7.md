@@ -5,4 +5,4 @@
 [Habakkuk 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.7?lang=eng#p7)
 
 
-[^a]: OR plunder, spoil.
+[^a]: OR plunder, spoil.  

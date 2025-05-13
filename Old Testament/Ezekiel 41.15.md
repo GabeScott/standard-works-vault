@@ -5,4 +5,4 @@
 [Ezekiel 41:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.15?lang=eng#p15)
 
 
-[^a]: OR facing or opposite.
+[^a]: OR facing or opposite.  

@@ -5,5 +5,5 @@
 [Proverbs 17:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.17?lang=eng#p17)
 
 
-[^a]: TG [[Friendship, Friend]].
-[^b]: TG [[Brotherhood and Sisterhood]].
+[^a]: [[Friendship, Friend|TG Friendship]].  
+[^b]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  

@@ -5,9 +5,9 @@
 [Matthew 4:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.23?lang=eng#p23)
 
 
-[^a]: [[Luke 4.44|Luke 4:44.]]
-[^b]: [[Matthew 9.35|Matt. 9:35.]]
-[^c]: [[D&C 71.1|D&C 71:1.]]
-[^d]: TG [[Health]]; [[Miracle]].
-[^e]: TG [[Sickness, Sick]].
-[^f]: JST Matt. 4:22 … people which believed on his name.
+[^a]: [[Luke 4.44|Luke 4:44]].  
+[^b]: [[Matthew 9.35|Matt. 9:35]].  
+[^c]: [[D&C 71.1|D&C 71:1]].  
+[^d]: [[Heal, Healing|TG Heal]]; [[Miracle|Miracle]].  
+[^e]: [[Sickness, Sick|TG Sickness]].  
+[^f]: [[JST Matthew 4.22|JST Matt. 4:22]] … people which believed on his name.  

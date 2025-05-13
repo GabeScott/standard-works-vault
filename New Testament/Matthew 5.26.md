@@ -5,4 +5,4 @@
 [Matthew 5:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.26?lang=eng#p26)
 
 
-[^a]: GR the last penny.
+[^a]: GR the last penny.  

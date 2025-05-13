@@ -5,7 +5,7 @@
 [2 Nephi 23:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p10#p10)
 
 
-[^a]: [[Isaiah 24.23|Isa. 24:23]]; [[Ezekiel 32.7|Ezek. 32:7 (7-8)]]; [[Revelation 6.13|Rev. 6:13 (12-13).]]
-[^b]: TG [[Astronomy]].
-[^c]: [[Joel 3.15|Joel 3:15.]]
-[^d]: TG [[World, End of]].
+[^a]: [[Isaiah 24.23|Isa. 24:23]]; [[Ezekiel 32.7|Ezek. 32:7 (7–8)]][[Ezekiel 32.8|]]; [[Revelation 6.12|Rev. 6:13 (12–13)]][[Revelation 6.13|]].  
+[^b]: [[Astronomy|TG Astronomy]].  
+[^c]: [[Joel 3.15|Joel 3:15]].  
+[^d]: [[World, End of|TG World, End of]].  

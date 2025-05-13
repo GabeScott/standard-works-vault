@@ -5,4 +5,4 @@
 [1 Thessalonians 5:23](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.23?lang=eng#p23)
 
 
-[^a]: TG [[Sanctification, Sanctify]].
+[^a]: [[Sanctification, Sanctify|TG Sanctification]].  

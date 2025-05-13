@@ -5,5 +5,5 @@
 [Romans 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.8?lang=eng#p8)
 
 
-[^a]: [[Mosiah 4.11|Mosiah 4:11.]]
-[^b]: TG [[Salvation, Plan of]].
+[^a]: [[Mosiah 4.11|Mosiah 4:11]].  
+[^b]: [[Salvation, Plan of|TG Salvation, Plan of]].  

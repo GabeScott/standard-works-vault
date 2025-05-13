@@ -5,4 +5,4 @@
 [Alma 10:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[Holiness]].
+[^a]: [[Holiness|TG Holiness]].  

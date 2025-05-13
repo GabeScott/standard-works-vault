@@ -5,4 +5,4 @@
 [Numbers 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.2?lang=eng#p2)
 
 
-[^a]: TG [[Vow]].
+[^a]: [[Vow|TG Vow]].  

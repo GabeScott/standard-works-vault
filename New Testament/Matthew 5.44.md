@@ -5,11 +5,11 @@
 [Matthew 5:44](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.44?lang=eng#p44)
 
 
-[^a]: TG [[Love]].
-[^b]: TG [[Enemies, Enemy]]; [[Opposition]].
-[^c]: TG [[Retribution]].
-[^d]: TG [[Curse]].
-[^e]: TG [[Benevolence]].
-[^f]: TG [[Hate]].
-[^g]: [[Job 42.10|Job 42:10]]; [[Acts 7.60|Acts 7:60 (55-60)]]. TG [[Prayer, Pray]].
-[^h]: TG [[Persecution, Persecute]].
+[^a]: [[Love|TG Love]].  
+[^b]: [[Enemies, Enemy|TG Enemies]]; [[Opposition|Opposition]].  
+[^c]: [[Retribution|TG Retribution]].  
+[^d]: [[Curse|TG Curse]].  
+[^e]: [[Benevolence|TG Benevolence]].  
+[^f]: [[Hate|TG Hate]].  
+[^g]: [[Job 42.10|Job 42:10]]; [[Acts 7.55|Acts 7:60 (55–60)]][[Acts 7.56|]][[Acts 7.57|]][[Acts 7.58|]][[Acts 7.59|]][[Acts 7.60|]]. [[Prayer, Pray|TG Prayer]].  
+[^h]: [[Persecution, Persecute|TG Persecution]].  

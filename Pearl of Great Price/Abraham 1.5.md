@@ -5,6 +5,6 @@
 [Abraham 1:5](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.5?lang=eng#p5)
 
 
-[^a]: [[Genesis 12.1|Gen. 12:1.]]
-[^b]: [[Joshua 24.14|Josh. 24:14.]]
-[^c]: TG [[Heathen]].
+[^a]: [[Genesis 12.1|Gen. 12:1]].  
+[^b]: [[Joshua 24.14|Josh. 24:14]].  
+[^c]: [[Heathen|TG Heathen]].  

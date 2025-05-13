@@ -5,4 +5,4 @@
 [Colossians 1:25](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.25?lang=eng#p25)
 
 
-[^a]: TG [[Dispensations]].
+[^a]: [[Dispensations|TG Dispensations]].  

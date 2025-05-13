@@ -5,4 +5,4 @@
 [Helaman 10:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/10?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Meditation, Meditate]].
+[^a]: [[Meditation, Meditate|TG Meditation]].  

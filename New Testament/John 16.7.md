@@ -5,5 +5,5 @@
 [John 16:7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.7?lang=eng#p7)
 
 
-[^a]: GR beneficial, profitable, advantageous.
-[^b]: TG [[Holy Ghost, Comforter]].
+[^a]: GR beneficial, profitable, advantageous.  
+[^b]: [[Holy Ghost, Comforter|TG Holy Ghost, Comforter]].  

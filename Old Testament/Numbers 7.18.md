@@ -5,4 +5,4 @@
 [Numbers 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/7.18?lang=eng#p18)
 
 
-[^a]: HEB leader or president.
+[^a]: HEB leader or president.  

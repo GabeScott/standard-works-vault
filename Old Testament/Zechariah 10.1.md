@@ -5,4 +5,4 @@
 [Zechariah 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/10.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 11.14|Deut. 11:14]]; [[Joel 2.23|Joel 2:23.]]
+[^a]: [[Deuteronomy 11.14|Deut. 11:14]]; [[Joel 2.23|Joel 2:23]].  

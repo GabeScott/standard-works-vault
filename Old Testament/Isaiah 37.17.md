@@ -5,4 +5,4 @@
 [Isaiah 37:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/37.17?lang=eng#p17)
 
 
-[^a]: HEB blaspheme.
+[^a]: HEB blaspheme.  

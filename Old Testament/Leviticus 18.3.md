@@ -5,5 +5,5 @@
 [Leviticus 18:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.3?lang=eng#p3)
 
 
-[^a]: TG [[Apostasy of Israel]].
-[^b]: TG [[Walking in Darkness]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  
+[^b]: [[Walking in Darkness|TG Walking in Darkness]].  

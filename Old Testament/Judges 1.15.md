@@ -5,4 +5,4 @@
 [Judges 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/1.15?lang=eng#p15)
 
 
-[^a]: [[Joshua 15.19|Josh. 15:19.]]
+[^a]: [[Joshua 15.19|Josh. 15:19]].  

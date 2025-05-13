@@ -5,11 +5,11 @@
 [Moroni 10:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p34#p34)
 
 
-[^a]: TG [[Restoration of the Gospel]].
-[^b]: TG [[Paradise, Paradisiacal]].
-[^c]: TG [[Spirit Body]].
-[^d]: TG [[Jesus Christ, Resurrection]].
-[^e]: 1 Thes. 4:17.
-[^f]: [[Jacob 6.13|Jacob 6:13.]]
-[^g]: TG [[Jesus Christ, Jehovah]].
-[^h]: TG [[Jesus Christ, Judge]].
+[^a]: [[Rest|TG Rest]].  
+[^b]: [[Paradise, Paradisiacal|TG Paradise]].  
+[^c]: [[Spirit Body|TG Spirit Body]].  
+[^d]: [[Resurrection|TG Resurrection]].  
+[^e]: [[1 Thessalonians 4.17|1 Thes. 4:17]].  
+[^f]: [[Jacob 6.13|Jacob 6:13]].  
+[^g]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^h]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

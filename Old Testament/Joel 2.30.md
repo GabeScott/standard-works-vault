@@ -5,6 +5,6 @@
 [Joel 2:30](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.30?lang=eng#p30)
 
 
-[^a]: [[D&C 45.40|D&C 45:40]]. TG [[Last Days]].
-[^b]: TG [[Astronomy]]; [[Man, a Spirit Child of Heavenly Father]].
-[^c]: TG [[World, End of]].
+[^a]: [[D&C 45.40|D&C 45:40]]. [[Last Days|TG Last Days]].  
+[^b]: [[Astronomy|TG Astronomy]]; [[Heaven|Heaven]].  
+[^c]: [[World, End of|TG World, End of]].  

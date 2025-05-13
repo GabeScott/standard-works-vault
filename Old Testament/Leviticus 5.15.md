@@ -5,5 +5,5 @@
 [Leviticus 5:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/5.15?lang=eng#p15)
 
 
-[^a]: [[2 Kings 12.16|2 Kgs. 12:16.]]
-[^b]: IE by your valuation in weights of silver.
+[^a]: [[2 Kings 12.16|2 Kgs. 12:16]].  
+[^b]: IE by your valuation in weights of silver.  

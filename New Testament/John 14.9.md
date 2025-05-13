@@ -5,4 +5,4 @@
 [John 14:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.9?lang=eng#p9)
 
 
-[^a]: TG [[God, Body of, Corporeal Nature]].
+[^a]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  

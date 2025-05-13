@@ -5,5 +5,5 @@
 [John 17:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.11?lang=eng#p11)
 
 
-[^a]: TG [[Earth, Purpose of]].
-[^b]: TG [[Unity]].
+[^a]: [[Earth, Purpose of|TG Earth, Purpose of]].  
+[^b]: [[Unity|TG Unity]].  

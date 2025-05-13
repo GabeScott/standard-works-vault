@@ -5,6 +5,6 @@
 [Hebrews 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.1?lang=eng#p1)
 
 
-[^a]: GR in many locations and various ways.
-[^b]: TG [[Family, Patriarchal]].
-[^c]: TG [[Prophets, Mission of]].
+[^a]: GR in many locations and various ways.  
+[^b]: [[Family, Patriarchal|TG Family, Patriarchal]].  
+[^c]: [[Prophets, Mission of|TG Prophets, Mission of]].  

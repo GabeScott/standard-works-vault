@@ -5,4 +5,4 @@
 [Exodus 18:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 3.1|Ex. 3:1]]; [[Exodus 4.27|4:27.]]
+[^a]: [[Exodus 3.1|Ex. 3:1]]; [[Exodus 4.27|4:27]].  

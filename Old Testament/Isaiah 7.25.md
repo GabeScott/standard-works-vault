@@ -5,5 +5,5 @@
 [Isaiah 7:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.25?lang=eng#p25)
 
 
-[^a]: HEB hoed with the hoe.
-[^b]: HEB sheep, or goats.
+[^a]: HEB hoed with the hoe.  
+[^b]: HEB sheep, or goats.  

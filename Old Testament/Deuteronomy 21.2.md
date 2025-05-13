@@ -5,4 +5,4 @@
 [Deuteronomy 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/21.2?lang=eng#p2)
 
 
-[^a]: OR the distance to.
+[^a]: OR the distance to.  

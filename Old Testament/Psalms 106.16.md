@@ -5,4 +5,4 @@
 [Psalms 106:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.16?lang=eng#p16)
 
 
-[^a]: TG [[Envy, Envious]].
+[^a]: [[Envy, Envious|TG Envy]].  

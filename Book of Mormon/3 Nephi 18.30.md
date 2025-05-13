@@ -5,5 +5,5 @@
 [3 Nephi 18:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p30#p30)
 
 
-[^a]: [[D&C 46.3|D&C 46:3.]]
-[^b]: [[3 Nephi 18.23|3 Ne. 18:23.]]
+[^a]: [[D&C 46.3|D&C 46:3]].  
+[^b]: [[3 Nephi 18.23|3 Ne. 18:23]].  

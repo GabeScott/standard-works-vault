@@ -5,4 +5,4 @@
 [1 Nephi 19:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p18#p18)
 
 
-[^a]: [[Mosiah 13.29|Mosiah 13:29.]]
+[^a]: [[Mosiah 13.29|Mosiah 13:29]].  

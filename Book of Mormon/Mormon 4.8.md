@@ -5,4 +5,4 @@
 [Mormon 4:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/4?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mormon 3.9|Morm. 3:9.]]
+[^a]: [[Mormon 3.9|Morm. 3:9]].  

@@ -5,4 +5,4 @@
 [1 Peter 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.24?lang=eng#p24)
 
 
-[^a]: TG [[Mortality]].
+[^a]: [[Mortality|TG Mortality]].  

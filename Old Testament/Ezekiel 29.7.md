@@ -5,4 +5,4 @@
 [Ezekiel 29:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.7?lang=eng#p7)
 
 
-[^a]: OR come to a standstill.
+[^a]: OR come to a standstill.  

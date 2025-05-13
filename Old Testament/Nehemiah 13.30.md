@@ -5,4 +5,4 @@
 [Nehemiah 13:30](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.30?lang=eng#p30)
 
 
-[^a]: OR foreigners.
+[^a]: OR foreigners.  

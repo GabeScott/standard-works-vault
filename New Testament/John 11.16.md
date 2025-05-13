@@ -5,4 +5,4 @@
 [John 11:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.16?lang=eng#p16)
 
 
-[^a]: JST John 11:16 … him; for they feared lest the Jews should take Jesus and put him to death, for as yet they did not understand the power of God.
+[^a]: JST John 11:16 … him; for they feared lest the Jews should take Jesus and put him to death, for as yet they did not understand the power of God.  

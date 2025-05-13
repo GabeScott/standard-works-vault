@@ -5,4 +5,4 @@
 [Isaiah 64:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/64.12?lang=eng#p12)
 
 
-[^a]: [[Isaiah 42.14|Isa. 42:14.]]
+[^a]: [[Isaiah 42.14|Isa. 42:14]].  

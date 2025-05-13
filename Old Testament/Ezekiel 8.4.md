@@ -5,5 +5,5 @@
 [Ezekiel 8:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/8.4?lang=eng#p4)
 
 
-[^a]: TG [[God, Glory of]].
-[^b]: [[Ezekiel 3.22|Ezek. 3:22.]]
+[^a]: [[God, Glory of|TG God, Glory of]].  
+[^b]: [[Ezekiel 3.22|Ezek. 3:22]].  

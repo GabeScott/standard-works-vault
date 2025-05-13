@@ -5,4 +5,4 @@
 [Psalms 143:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/143.1?lang=eng#p1)
 
 
-[^a]: [[D&C 11.12|D&C 11:12 (10-12).]]
+[^a]: [[D&C 11.10|D&C 11:12 (10–12)]][[D&C 11.11|]][[D&C 11.12|]].  

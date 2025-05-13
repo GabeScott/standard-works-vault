@@ -5,5 +5,5 @@
 [Ezekiel 43:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 40.4|Ezek. 40:4.]]
-[^b]: OR arrangement, plan.
+[^a]: [[Ezekiel 40.4|Ezek. 40:4]].  
+[^b]: OR arrangement, plan.  

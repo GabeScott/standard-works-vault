@@ -5,4 +5,4 @@
 [Jeremiah 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.1?lang=eng#p1)
 
 
-[^a]: [[Jeremiah 29.27|Jer. 29:27.]]
+[^a]: [[Jeremiah 29.27|Jer. 29:27]].  

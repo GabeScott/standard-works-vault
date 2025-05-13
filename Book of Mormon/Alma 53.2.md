@@ -5,4 +5,4 @@
 [Alma 53:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 48.17|Alma 48:17.]]
+[^a]: [[Alma 48.17|Alma 48:17]].  

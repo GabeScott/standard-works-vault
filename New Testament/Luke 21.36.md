@@ -5,8 +5,8 @@
 [Luke 21:36](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.36?lang=eng#p36)
 
 
-[^a]: TG [[Watch, Watchfulness]].
-[^b]: TG [[Prayer, Pray]].
-[^c]: JST Luke 21:36 … and keep my commandments, that ye …
-[^d]: TG [[Worthiness, Worthy]].
-[^e]: JST Luke 21:36 … Son of man when he shall come clothed in the glory of his Father.
+[^a]: [[Watch, Watchfulness|TG Watch]].  
+[^b]: [[Prayer, Pray|TG Prayer]].  
+[^c]: JST Luke 21:36 … and keep my commandments, that ye …  
+[^d]: [[Worthiness, Worthy|TG Worthiness]].  
+[^e]: JST Luke 21:36 … Son of man when he shall come clothed in the glory of his Father.  

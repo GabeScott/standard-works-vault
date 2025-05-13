@@ -5,5 +5,5 @@
 [Jacob 5:54](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p54#p54)
 
 
-[^a]: [[3 Nephi 21.6|3 Ne. 21:6 (5-6)]]; [[Mormon 5.15|Morm. 5:15.]]
-[^b]: [[1 Nephi 15.16|1 Ne. 15:16.]]
+[^a]: [[3 Nephi 21.5|3 Ne. 21:6 (5–6)]][[3 Nephi 21.6|]]; [[Mormon 5.15|Morm. 5:15]].  
+[^b]: [[1 Nephi 15.16|1 Ne. 15:16]].  

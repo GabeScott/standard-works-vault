@@ -5,4 +5,4 @@
 [Psalms 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/9.15?lang=eng#p15)
 
 
-[^a]: [[Psalms 25.15|Ps. 25:15]]; [[Psalms 31.4|31:4]]; [[Psalms 57.6|57:6.]]
+[^a]: [[Psalms 25.15|Ps. 25:15]]; [[Psalms 31.4|31:4]]; [[Psalms 57.6|57:6]].  

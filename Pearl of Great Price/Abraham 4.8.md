@@ -5,4 +5,4 @@
 [Abraham 4:8](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 1.8|Gen. 1:8.]]
+[^a]: [[Genesis 1.8|Gen. 1:8]].  

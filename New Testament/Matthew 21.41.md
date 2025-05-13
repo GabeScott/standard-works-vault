@@ -5,4 +5,4 @@
 [Matthew 21:41](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.41?lang=eng#p41)
 
 
-[^a]: TG [[Vineyard of the Lord]].
+[^a]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  

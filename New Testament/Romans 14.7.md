@@ -5,4 +5,4 @@
 [Romans 14:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.7?lang=eng#p7)
 
 
-[^a]: [[2 Corinthians 5.15|2 Cor. 5:15 (14-16)]]; [[Galatians 2.20|Gal. 2:20.]]
+[^a]: [[2 Corinthians 5.14|2 Cor. 5:15 (14–16)]][[2 Corinthians 5.15|]][[2 Corinthians 5.16|]]; [[Galatians 2.20|Gal. 2:20]].  

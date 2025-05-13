@@ -5,4 +5,4 @@
 [Acts 6:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.4?lang=eng#p4)
 
 
-[^a]: [[Mark 16.15|Mark 16:15 (15-19)]]; [[D&C 107.8|D&C 107:8.]]
+[^a]: [[Mark 16.15|Mark 16:15 (15–19)]][[Mark 16.16|]][[Mark 16.17|]][[Mark 16.18|]][[Mark 16.19|]]; [[D&C 107.8|D&C 107:8]].  

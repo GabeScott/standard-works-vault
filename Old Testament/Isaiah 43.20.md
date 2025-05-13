@@ -5,4 +5,4 @@
 [Isaiah 43:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.20?lang=eng#p20)
 
 
-[^a]: HEB jackals and ostriches.
+[^a]: HEB jackals and ostriches.  

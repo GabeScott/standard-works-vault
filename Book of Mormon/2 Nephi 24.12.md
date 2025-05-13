@@ -5,5 +5,5 @@
 [2 Nephi 24:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p12#p12)
 
 
-[^a]: IE The fallen king of Babylon is typified by the fallen “son of the morning,” Lucifer in vv. 12-15. D&C 76:26.
-[^b]: TG [[Devil, Church of]].
+[^a]: IE The fallen king of Babylon is typified by the fallen “son of the morning,” Lucifer in [[2 Nephi 24.12|vv. 12–15]][[2 Nephi 24.13|]][[2 Nephi 24.14|]][[2 Nephi 24.15|]]. [[D&C 76.26|D&C 76:26]].  
+[^b]: [[Devil|TG Devil]].  

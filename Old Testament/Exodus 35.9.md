@@ -5,4 +5,4 @@
 [Exodus 35:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.9?lang=eng#p9)
 
 
-[^a]: [[Exodus 29.5|Ex. 29:5.]]
+[^a]: [[Exodus 29.5|Ex. 29:5]].  

@@ -5,6 +5,6 @@
 [Luke 18:12](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 34.28|Ex. 34:28.]]
-[^b]: TG [[Tithing]].
-[^c]: GR acquire, gain, or possess.
+[^a]: [[Exodus 34.28|Ex. 34:28]].  
+[^b]: [[Tithing|TG Tithing]].  
+[^c]: GR acquire, gain, or possess.  

@@ -5,4 +5,4 @@
 [Jeremiah 25:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.30?lang=eng#p30)
 
 
-[^a]: [[Joel 3.16|Joel 3:16]]; [[Amos 1.2|Amos 1:2.]]
+[^a]: [[Joel 3.16|Joel 3:16]]; [[Amos 1.2|Amos 1:2]].  

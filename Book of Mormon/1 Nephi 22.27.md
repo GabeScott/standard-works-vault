@@ -5,4 +5,4 @@
 [1 Nephi 22:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p27#p27)
 
 
-[^a]: IE these things pertain to this mortal world.
+[^a]: IE these things pertain to this mortal world.  

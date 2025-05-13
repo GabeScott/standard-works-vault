@@ -5,4 +5,4 @@
 [Proverbs 16:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.12?lang=eng#p12)
 
 
-[^a]: [[Mosiah 23.9|Mosiah 23:9 (8-10)]]; [[Mosiah 29.17|29:17 (17-19).]]
+[^a]: [[Mosiah 23.8|Mosiah 23:9 (8–10)]][[Mosiah 23.9|]][[Mosiah 23.10|]]; [[Mosiah 29.17|29:17 (17–19)]][[Mosiah 29.18|]][[Mosiah 29.19|]].  

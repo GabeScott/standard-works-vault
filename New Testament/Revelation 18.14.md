@@ -5,4 +5,4 @@
 [Revelation 18:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.14?lang=eng#p14)
 
 
-[^a]: TG [[Lust]].
+[^a]: [[Lust|TG Lust]].  

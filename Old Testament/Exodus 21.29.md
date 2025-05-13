@@ -5,5 +5,5 @@
 [Exodus 21:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.29?lang=eng#p29)
 
 
-[^a]: OR accustomed to gore (also vv. 32, 36).
-[^b]: TG [[Capital Punishment]].
+[^a]: OR accustomed to gore (also [[Exodus 21.32|vv. 32, 36]][[Exodus 21.36|]]).  
+[^b]: [[Capital Punishment|TG Capital Punishment]].  

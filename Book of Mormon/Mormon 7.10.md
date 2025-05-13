@@ -5,6 +5,6 @@
 [Mormon 7:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/7?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Israel, Remnant of]].
-[^b]: [[3 Nephi 19.13|3 Ne. 19:13 (13-14)]]; [[Ether 12.14|Ether 12:14.]]
-[^c]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Israel, Remnant of|TG Israel, Remnant of]].  
+[^b]: [[3 Nephi 19.13|3 Ne. 19:13 (13–14)]][[3 Nephi 19.14|]]; [[Ether 12.14|Ether 12:14]].  
+[^c]: [[God, the Standard of Righteousness|TG God, the Standard of Righteousness]].  

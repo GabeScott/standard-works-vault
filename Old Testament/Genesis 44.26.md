@@ -5,4 +5,4 @@
 [Genesis 44:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/44.26?lang=eng#p26)
 
 
-[^a]: [[Genesis 43.3|Gen. 43:3.]]
+[^a]: [[Genesis 43.3|Gen. 43:3]].  

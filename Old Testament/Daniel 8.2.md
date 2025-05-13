@@ -5,4 +5,4 @@
 [Daniel 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.2?lang=eng#p2)
 
 
-[^a]: HEB water-course. Dan. 8:16; [[1 Nephi 11.1|1 Ne. 11:1 (1-5).]]
+[^a]: HEB water-course. [[Daniel 8.16|Dan. 8:16]]; [[1 Nephi 11.1|1 Ne. 11:1 (1–5)]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]].  

@@ -5,5 +5,5 @@
 [Jeremiah 30:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.21?lang=eng#p21)
 
 
-[^a]: OR their own people.
-[^b]: TG [[God, Presence of]].
+[^a]: OR their own people.  
+[^b]: [[God, Presence of|TG God, Presence of]].  

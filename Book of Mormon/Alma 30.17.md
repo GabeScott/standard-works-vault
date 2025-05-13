@@ -5,6 +5,6 @@
 [Alma 30:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p17#p17)
 
 
-[^a]: [[Proverbs 16.25|Prov. 16:25]]; [[2 Nephi 28.7|2 Ne. 28:7 (5-9).]]
-[^b]: [[Alma 18.5|Alma 18:5.]]
-[^c]: [[Alma 1.4|Alma 1:4]]; [[Mormon 8.31|Morm. 8:31.]]
+[^a]: [[Proverbs 16.25|Prov. 16:25]]; [[2 Nephi 28.5|2 Ne. 28:7 (5–9)]][[2 Nephi 28.6|]][[2 Nephi 28.7|]][[2 Nephi 28.8|]][[2 Nephi 28.9|]].  
+[^b]: [[Alma 18.5|Alma 18:5]].  
+[^c]: [[Alma 1.4|Alma 1:4]]; [[Mormon 8.31|Morm. 8:31]].  

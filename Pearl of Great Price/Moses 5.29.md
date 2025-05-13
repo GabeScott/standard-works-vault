@@ -5,4 +5,4 @@
 [Moses 5:29](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.29?lang=eng#p29)
 
 
-[^a]: [[Matthew 5.36|Matt. 5:36.]]
+[^a]: [[Matthew 5.36|Matt. 5:36]].  

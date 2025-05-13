@@ -5,4 +5,4 @@
 [Alma 5:54](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p54#p54)
 
 
-[^a]: TG [[Sanctification, Sanctify]].
+[^a]: [[Sanctification, Sanctify|TG Sanctification]].  

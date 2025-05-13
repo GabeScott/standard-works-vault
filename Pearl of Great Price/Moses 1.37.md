@@ -5,4 +5,4 @@
 [Moses 1:37](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.37?lang=eng#p37)
 
 
-[^a]: [[Genesis 1.1|Gen. 1:1]]; [[Moses 2.1|Moses 2:1]]; [[Abraham 4.1|Abr. 4:1]]. TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Genesis 1.1|Gen. 1:1]]; [[Moses 2.1|Moses 2:1]]; [[Abraham 4.1|Abr. 4:1]]. [[Heaven|TG Heaven]].  

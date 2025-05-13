@@ -5,7 +5,7 @@
 [Helaman 15:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p12#p12)
 
 
-[^a]: [[Enos 1.13|Enos 1:13 (12-13).]]
-[^b]: [[Mormon 5.15|Morm. 5:15.]]
-[^c]: TG [[Refuge]].
-[^d]: [[1 Nephi 13.31|1 Ne. 13:31]]; [[2 Nephi 4.7|2 Ne. 4:7]]; [[2 Nephi 10.18|10:18 (18-19)]]; [[Jacob 3.6|Jacob 3:6 (5-9)]]; [[Mormon 5.20|Morm. 5:20 (20-21).]]
+[^a]: [[Enos 1.12|Enos 1:13 (12–13)]][[Enos 1.13|]].  
+[^b]: [[Mormon 5.15|Morm. 5:15]].  
+[^c]: [[Refuge|TG Refuge]].  
+[^d]: [[1 Nephi 13.31|1 Ne. 13:31]]; [[2 Nephi 4.7|2 Ne. 4:7]]; [[2 Nephi 10.18|10:18 (18–19)]][[2 Nephi 10.19|]]; [[Jacob 3.5|Jacob 3:6 (5–9)]][[Jacob 3.6|]][[Jacob 3.7|]][[Jacob 3.8|]][[Jacob 3.9|]]; [[Mormon 5.20|Morm. 5:20 (20–21)]][[Mormon 5.21|]].  

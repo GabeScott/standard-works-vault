@@ -5,6 +5,6 @@
 [1 Corinthians 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/5.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 12.14|Ex. 12:14 (14-17).]]
-[^b]: TG [[Leaven]].
-[^c]: TG [[Sincere, Sincerity]].
+[^a]: [[Exodus 12.14|Ex. 12:14 (14–17)]][[Exodus 12.15|]][[Exodus 12.16|]][[Exodus 12.17|]].  
+[^b]: [[Leaven|TG Leaven]].  
+[^c]: [[Sincere, Sincerity|TG Sincere]].  

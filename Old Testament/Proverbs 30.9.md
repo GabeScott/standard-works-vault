@@ -5,4 +5,4 @@
 [Proverbs 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.9?lang=eng#p9)
 
 
-[^a]: [[D&C 101.5|D&C 101:5.]]
+[^a]: [[D&C 101.5|D&C 101:5]].  

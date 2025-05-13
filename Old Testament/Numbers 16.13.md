@@ -5,4 +5,4 @@
 [Numbers 16:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.13?lang=eng#p13)
 
 
-[^a]: [[Exodus 2.14|Ex. 2:14]]; [[1 Nephi 16.37|1 Ne. 16:37 (37-38)]]; [[2 Nephi 5.3|2 Ne. 5:3 (3, 19).]]
+[^a]: [[Exodus 2.14|Ex. 2:14]]; [[1 Nephi 16.37|1 Ne. 16:37 (37–38)]][[1 Nephi 16.38|]]; [[2 Nephi 5.3|2 Ne. 5:3 (3, 19)]][[2 Nephi 5.19|]].  

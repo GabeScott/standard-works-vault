@@ -5,5 +5,5 @@
 [Lamentations 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 79.1|Ps. 79:1]]; [[Jeremiah 51.51|Jer. 51:51.]]
-[^b]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Psalms 79.1|Ps. 79:1]]; [[Jeremiah 51.51|Jer. 51:51]].  
+[^b]: [[Church|TG Church]].  

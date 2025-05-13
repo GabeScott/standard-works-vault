@@ -5,4 +5,4 @@
 [Deuteronomy 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.7?lang=eng#p7)
 
 
-[^a]: [[Deuteronomy 26.11|Deut. 26:11.]]
+[^a]: [[Deuteronomy 26.11|Deut. 26:11]].  

@@ -5,7 +5,7 @@
 [Deuteronomy 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.3?lang=eng#p3)
 
 
-[^a]: TG [[Humility, Humble]].
-[^b]: [[Nehemiah 9.20|Neh. 9:20]]; [[1 Nephi 17.28|1 Ne. 17:28]]. TG [[Jesus Christ, Types of, in Anticipation]].
-[^c]: [[Matthew 4.4|Matt. 4:4]]; [[Luke 4.4|Luke 4:4]]; [[D&C 84.44|D&C 84:44 (43-44).]]
-[^d]: TG [[Bread]]; [[Bread]] of Life.
+[^a]: [[Humility, Humble|TG Humility]].  
+[^b]: [[Nehemiah 9.20|Neh. 9:20]]; [[1 Nephi 17.28|1 Ne. 17:28]]. [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]].  
+[^c]: [[Matthew 4.4|Matt. 4:4]]; [[Luke 4.4|Luke 4:4]]; [[D&C 84.43|D&C 84:44 (43–44)]][[D&C 84.44|]].  
+[^d]: [[Bread|TG Bread]]; [[Bread of Life|Bread of Life]].  

@@ -5,4 +5,4 @@
 [Psalms 38:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/38.11?lang=eng#p11)
 
 
-[^a]: HEB friends and neighbors.
+[^a]: HEB friends and neighbors.  

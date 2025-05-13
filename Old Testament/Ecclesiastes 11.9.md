@@ -5,6 +5,6 @@
 [Ecclesiastes 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/11.9?lang=eng#p9)
 
 
-[^a]: TG [[Happiness, Happy]].
-[^b]: [[Job 31.7|Job 31:7.]]
-[^c]: TG [[Judgment, the Last]].
+[^a]: [[Happiness, Happy|TG Happiness]].  
+[^b]: [[Job 31.7|Job 31:7]].  
+[^c]: [[Judgment, the Last|TG Judgment, the Last]].  

@@ -5,4 +5,4 @@
 [Daniel 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.12?lang=eng#p12)
 
 
-[^a]: Dan. 1:7.
+[^a]: [[Daniel 1.7|Dan. 1:7]].  

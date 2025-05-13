@@ -5,6 +5,6 @@
 [Isaiah 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.18?lang=eng#p18)
 
 
-[^a]: [[D&C 50.10|D&C 50:10.]]
-[^b]: TG [[Forgive, Forgiveness]]; [[Sin]].
-[^c]: TG [[Purification, Purify, Purifying]].
+[^a]: [[D&C 50.10|D&C 50:10]].  
+[^b]: [[Forgive, Forgiveness|TG Forgive]]; [[Sin|Sin]].  
+[^c]: [[Purification, Purify, Purifying|TG Purification]].  

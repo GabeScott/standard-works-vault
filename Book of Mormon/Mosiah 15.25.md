@@ -5,4 +5,4 @@
 [Mosiah 15:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p25#p25)
 
 
-[^a]: [[D&C 29.46|D&C 29:46]]; [[D&C 137.10|137:10]]. TG [[Salvation of Little Children]].
+[^a]: [[D&C 29.46|D&C 29:46]]; [[D&C 137.10|137:10]]. [[Salvation of Little Children|TG Salvation of Little Children]].  

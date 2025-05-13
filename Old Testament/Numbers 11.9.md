@@ -5,4 +5,4 @@
 [Numbers 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.9?lang=eng#p9)
 
 
-[^a]: OR with it.
+[^a]: OR with it.  

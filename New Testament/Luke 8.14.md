@@ -5,8 +5,8 @@
 [Luke 8:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.14?lang=eng#p14)
 
 
-[^a]: [[Galatians 6.9|Gal. 6:9 (8-10).]]
-[^b]: TG [[Worldliness]].
-[^c]: TG [[Treasure]].
-[^d]: TG [[Pleasure]].
-[^e]: TG [[Perfection, Perfect, Perfectly]].
+[^a]: [[Galatians 6.8|Gal. 6:9 (8–10)]][[Galatians 6.9|]][[Galatians 6.10|]].  
+[^b]: [[Worldliness|TG Worldliness]].  
+[^c]: [[Treasure|TG Treasure]].  
+[^d]: [[Pleasure|TG Pleasure]].  
+[^e]: [[Perfection, Perfect, Perfectly|TG Perfection]].  

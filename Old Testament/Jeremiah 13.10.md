@@ -5,5 +5,5 @@
 [Jeremiah 13:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.10?lang=eng#p10)
 
 
-[^a]: HEB stubbornness.
-[^b]: TG [[Walking in Darkness]].
+[^a]: HEB stubbornness.  
+[^b]: [[Walking in Darkness|TG Walking in Darkness]].  

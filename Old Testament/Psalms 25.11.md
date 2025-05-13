@@ -5,4 +5,4 @@
 [Psalms 25:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.11?lang=eng#p11)
 
 
-[^a]: [[Psalms 109.21|Ps. 109:21.]]
+[^a]: [[Psalms 109.21|Ps. 109:21]].  

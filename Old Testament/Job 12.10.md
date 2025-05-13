@@ -5,5 +5,5 @@
 [Job 12:10](https://www.churchofjesuschrist.org/study/scriptures/ot/job/12.10?lang=eng#p10)
 
 
-[^a]: TG [[Nature, Earth]].
-[^b]: TG [[Breath of Life]].
+[^a]: [[Nature, Earth|TG Nature, Earth]].  
+[^b]: [[Breath of Life|TG Breath of Life]].  

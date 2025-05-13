@@ -5,5 +5,5 @@
 [2 Samuel 20:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/20.10?lang=eng#p10)
 
 
-[^a]: [[1 Kings 2.5|1 Kgs. 2:5 (5, 32).]]
-[^b]: [[2 Samuel 2.23|2 Sam. 2:23.]]
+[^a]: [[1 Kings 2.5|1 Kgs. 2:5 (5, 32)]][[1 Kings 2.32|]].  
+[^b]: [[2 Samuel 2.23|2 Sam. 2:23]].  

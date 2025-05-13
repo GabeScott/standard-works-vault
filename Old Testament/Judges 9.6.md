@@ -5,4 +5,4 @@
 [Judges 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.6?lang=eng#p6)
 
 
-[^a]: HEB terebinth tree.
+[^a]: HEB terebinth tree.  

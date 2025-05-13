@@ -5,4 +5,4 @@
 [Numbers 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/num/22.5?lang=eng#p5)
 
 
-[^a]: [[Deuteronomy 23.4|Deut. 23:4]]; [[Nehemiah 13.2|Neh. 13:2]]; 2 Pet. 2:15.
+[^a]: [[Deuteronomy 23.4|Deut. 23:4]]; [[Nehemiah 13.2|Neh. 13:2]]; [[2 Peter 2.15|2 Pet. 2:15]].  

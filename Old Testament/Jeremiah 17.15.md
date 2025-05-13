@@ -5,4 +5,4 @@
 [Jeremiah 17:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.15?lang=eng#p15)
 
 
-[^a]: TG [[Sign Seekers]].
+[^a]: [[Sign Seekers|TG Sign Seekers]].  

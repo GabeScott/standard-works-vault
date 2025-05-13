@@ -5,4 +5,4 @@
 [2 Samuel 6:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.8?lang=eng#p8)
 
 
-[^a]: IE Breach of Uzzah.
+[^a]: IE Breach of Uzzah.  

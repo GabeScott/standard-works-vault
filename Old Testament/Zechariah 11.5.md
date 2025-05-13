@@ -5,5 +5,5 @@
 [Zechariah 11:5](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/11.5?lang=eng#p5)
 
 
-[^a]: TG [[Guiltless]].
-[^b]: TG [[Treasure]].
+[^a]: [[Guilt, Guilty|TG Guilt]].  
+[^b]: [[Treasure|TG Treasure]].  

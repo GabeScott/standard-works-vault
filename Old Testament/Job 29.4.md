@@ -5,4 +5,4 @@
 [Job 29:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/29.4?lang=eng#p4)
 
 
-[^a]: OR friendship, confidence.
+[^a]: OR friendship, confidence.  

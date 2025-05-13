@@ -5,7 +5,7 @@
 [Titus 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.5?lang=eng#p5)
 
 
-[^a]: TG [[Order]].
-[^b]: TG [[Priesthood, Authority]]; [[Priesthood, Ordination]].
-[^c]: TG [[Church Organization]]; [[Elder, Melchizedek Priesthood]].
-[^d]: GR directed, ordered.
+[^a]: [[Order|TG Order]].  
+[^b]: [[Priesthood, Authority|TG Priesthood, Authority]]; [[Priesthood, Ordination|Priesthood, Ordination]].  
+[^c]: [[Church Organization|TG Church Organization]]; [[Elder, Melchizedek Priesthood|Elder, Melchizedek Priesthood]].  
+[^d]: GR directed, ordered.  

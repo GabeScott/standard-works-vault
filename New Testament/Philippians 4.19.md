@@ -5,5 +5,5 @@
 [Philippians 4:19](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.19?lang=eng#p19)
 
 
-[^a]: [[Psalms 23.1|Ps. 23:1.]]
-[^b]: TG [[Treasure]].
+[^a]: [[Psalms 23.1|Ps. 23:1]].  
+[^b]: [[Treasure|TG Treasure]].  

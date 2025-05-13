@@ -5,6 +5,6 @@
 [Nehemiah 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.17?lang=eng#p17)
 
 
-[^a]: [[Nehemiah 8.14|Neh. 8:14.]]
-[^b]: OR Joshua.
-[^c]: [[Exodus 33.11|Ex. 33:11]]; [[Numbers 11.28|Num. 11:28]]; [[1 Kings 16.34|1 Kgs. 16:34.]]
+[^a]: [[Nehemiah 8.14|Neh. 8:14]].  
+[^b]: OR Joshua.  
+[^c]: [[Exodus 33.11|Ex. 33:11]]; [[Numbers 11.28|Num. 11:28]]; [[1 Kings 16.34|1 Kgs. 16:34]].  

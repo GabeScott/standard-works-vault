@@ -5,5 +5,5 @@
 [Moses 8:26](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.26?lang=eng#p26)
 
 
-[^a]: TG [[Earth, Cleansing of]].
-[^b]: [[Moses 8.18|Moses 8:18.]]
+[^a]: [[Earth, Cleansing of|TG Earth, Cleansing of]].  
+[^b]: [[Moses 8.18|Moses 8:18]].  

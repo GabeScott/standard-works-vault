@@ -5,6 +5,6 @@
 [2 Samuel 6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.20?lang=eng#p20)
 
 
-[^a]: [[1 Chronicles 16.43|1 Chr. 16:43.]]
-[^b]: [[1 Samuel 14.49|1 Sam. 14:49.]]
-[^c]: IE In his joyful dancing, more of his body was exposed than she believed proper.
+[^a]: [[1 Chronicles 16.43|1 Chr. 16:43]].  
+[^b]: [[1 Samuel 14.49|1 Sam. 14:49]].  
+[^c]: IE In his joyful dancing, more of his body was exposed than she believed proper.  

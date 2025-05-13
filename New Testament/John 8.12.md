@@ -5,6 +5,6 @@
 [John 8:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.12?lang=eng#p12)
 
 
-[^a]: 1 Jn. 1:5. TG [[Jesus Christ, Light of the World]]; [[Light]]; [[Light of Christ]].
-[^b]: TG [[Walking in Darkness]].
-[^c]: TG [[Darkness, Spiritual]].
+[^a]: [[1 John 1.5|1 Jn. 1:5]]. [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]]; [[Light [noun]|Light [noun]]]; [[Light of Christ|Light of Christ]].  
+[^b]: [[Walking in Darkness|TG Walking in Darkness]].  
+[^c]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  

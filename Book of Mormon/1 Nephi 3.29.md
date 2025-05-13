@@ -5,6 +5,6 @@
 [1 Nephi 3:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p29#p29)
 
 
-[^a]: [[1 Nephi 4.3|1 Ne. 4:3]]; [[1 Nephi 7.10|7:10]]. TG [[Angels]].
-[^b]: [[Genesis 41.43|Gen. 41:43 (41-43)]]; [[1 Nephi 2.22|1 Ne. 2:22.]]
-[^c]: [[2 Kings 3.18|2 Kgs. 3:18]]; [[3 Nephi 3.21|3 Ne. 3:21.]]
+[^a]: [[1 Nephi 4.3|1 Ne. 4:3]]; [[1 Nephi 7.10|7:10]]. [[Angels|TG Angels]].  
+[^b]: [[Genesis 41.41|Gen. 41:43 (41–43)]][[Genesis 41.42|]][[Genesis 41.43|]]; [[1 Nephi 2.22|1 Ne. 2:22]].  
+[^c]: [[2 Kings 3.18|2 Kgs. 3:18]]; [[3 Nephi 3.21|3 Ne. 3:21]].  

@@ -5,5 +5,5 @@
 [Proverbs 4:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/4.12?lang=eng#p12)
 
 
-[^a]: OR distressed, hampered.
-[^b]: [[D&C 89.20|D&C 89:20 (19-20).]]
+[^a]: OR distressed, hampered.  
+[^b]: [[D&C 89.19|D&C 89:20 (19–20)]][[D&C 89.20|]].  

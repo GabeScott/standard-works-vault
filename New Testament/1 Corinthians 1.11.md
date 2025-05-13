@@ -5,5 +5,5 @@
 [1 Corinthians 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.11?lang=eng#p11)
 
 
-[^a]: GR about, concerning.
-[^b]: TG [[Apostasy of the Early Christian Church]]; [[Contention]].
+[^a]: GR about, concerning.  
+[^b]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]]; [[Contention|Contention]].  

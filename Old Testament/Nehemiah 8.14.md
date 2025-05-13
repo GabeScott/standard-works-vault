@@ -5,5 +5,5 @@
 [Nehemiah 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.14?lang=eng#p14)
 
 
-[^a]: This is the characteristic tradition of the feast of tabernacles. Lev. 23:43; [[Nehemiah 8.17|Neh. 8:17 (16-17).]]
-[^b]: [[Zechariah 14.16|Zech. 14:16.]]
+[^a]: This is the characteristic tradition of the feast of tabernacles. [[Leviticus 23.43|Lev. 23:43]]; [[Nehemiah 8.16|Neh. 8:17 (16–17)]][[Nehemiah 8.17|]].  
+[^b]: [[Zechariah 14.16|Zech. 14:16]].  

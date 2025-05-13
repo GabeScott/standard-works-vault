@@ -5,5 +5,5 @@
 [Jeremiah 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.15?lang=eng#p15)
 
 
-[^a]: HEB shepherds. TG [[Bishop]].
-[^b]: TG [[Knowledge]].
+[^a]: HEB shepherds. [[Bishop|TG Bishop]].  
+[^b]: [[Knowledge|TG Knowledge]].  

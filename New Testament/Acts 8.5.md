@@ -5,4 +5,4 @@
 [Acts 8:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.5?lang=eng#p5)
 
 
-[^a]: [[Acts 1.8|Acts 1:8.]]
+[^a]: [[Acts 1.8|Acts 1:8]].  

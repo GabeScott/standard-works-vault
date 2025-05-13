@@ -5,7 +5,7 @@
 [Genesis 48:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.19?lang=eng#p19)
 
 
-[^a]: [[Joshua 17.14|Josh. 17:14.]]
-[^b]: TG [[Seed of Abraham]].
-[^c]: [[Numbers 1.33|Num. 1:33.]]
-[^d]: [[D&C 45.24|D&C 45:24 (24-25)]]. TG [[Israel, Joseph, People of]].
+[^a]: [[Joshua 17.14|Josh. 17:14]].  
+[^b]: [[Seed of Abraham|TG Seed of Abraham]].  
+[^c]: [[Numbers 1.33|Num. 1:33]].  
+[^d]: [[D&C 45.24|D&C 45:24 (24–25)]][[D&C 45.25|]]. [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  

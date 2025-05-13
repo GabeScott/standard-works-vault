@@ -5,4 +5,4 @@
 [Acts 7:45](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.45?lang=eng#p45)
 
 
-[^a]: IE Joshua. Heb. 4:8.
+[^a]: IE Joshua. [[Hebrews 4.8|Heb. 4:8]].  

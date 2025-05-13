@@ -5,5 +5,5 @@
 [Exodus 12:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.5?lang=eng#p5)
 
 
-[^a]: TG [[Jesus Christ, Lamb of God]]; [[Jesus Christ, Types of, in Anticipation]]; [[Passover]].
-[^b]: HEB a year old.
+[^a]: [[Jesus Christ, Lamb of God|TG Jesus Christ, Lamb of God]]; [[Jesus Christ, Types of, in Anticipation|Jesus Christ, Types of, in Anticipation]]; [[Passover|Passover]].  
+[^b]: HEB a year old.  

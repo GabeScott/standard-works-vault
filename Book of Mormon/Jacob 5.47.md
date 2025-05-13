@@ -5,7 +5,7 @@
 [Jacob 5:47](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p47#p47)
 
 
-[^a]: [[Jacob 5.41|Jacob 5:41 (41, 49).]]
-[^b]: [[Isaiah 9.12|Isa. 9:12 (12, 17, 21).]]
-[^c]: [[2 Nephi 19.17|2 Ne. 19:17 (17-21)]]; [[2 Nephi 28.32|28:32]]; [[Jacob 6.4|Jacob 6:4.]]
-[^d]: TG [[World, End of]].
+[^a]: [[Jacob 5.41|Jacob 5:41 (41, 49)]][[Jacob 5.49|]].  
+[^b]: [[Isaiah 9.12|Isa. 9:12 (12, 17, 21)]][[Isaiah 9.17|]][[Isaiah 9.21|]].  
+[^c]: [[2 Nephi 19.17|2 Ne. 19:17 (17–21)]][[2 Nephi 19.18|]][[2 Nephi 19.19|]][[2 Nephi 19.20|]][[2 Nephi 19.21|]]; [[2 Nephi 28.32|28:32]]; [[Jacob 6.4|Jacob 6:4]].  
+[^d]: [[World, End of|TG World, End of]].  

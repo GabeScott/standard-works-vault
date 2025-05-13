@@ -5,4 +5,4 @@
 [Exodus 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.6?lang=eng#p6)
 
 
-[^a]: TG [[Leprosy, Leper, Leprous]].
+[^a]: [[Leprosy, Leper, Leprous|TG Leprosy]].  

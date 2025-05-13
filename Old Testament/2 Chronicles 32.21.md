@@ -5,4 +5,4 @@
 [2 Chronicles 32:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.21?lang=eng#p21)
 
 
-[^a]: [[2 Kings 19.35|2 Kgs. 19:35 (35-37).]]
+[^a]: [[2 Kings 19.35|2 Kgs. 19:35 (35–37)]][[2 Kings 19.36|]][[2 Kings 19.37|]].  

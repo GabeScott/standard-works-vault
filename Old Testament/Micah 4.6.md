@@ -5,5 +5,5 @@
 [Micah 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/4.6?lang=eng#p6)
 
 
-[^a]: HEB is lame.
-[^b]: TG [[Israel, Gathering of]].
+[^a]: HEB is lame.  
+[^b]: [[Israel, Gathering of|TG Israel, Gathering of]].  

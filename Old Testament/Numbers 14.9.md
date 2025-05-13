@@ -5,5 +5,5 @@
 [Numbers 14:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.9?lang=eng#p9)
 
 
-[^a]: TG [[Rebellion, Rebel]].
-[^b]: TG [[Protection, Divine]].
+[^a]: [[Rebellion, Rebel|TG Rebellion]].  
+[^b]: [[Protection, Divine|TG Protection, Divine]].  

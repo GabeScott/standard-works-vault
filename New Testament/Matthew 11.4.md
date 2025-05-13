@@ -5,4 +5,4 @@
 [Matthew 11:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.4?lang=eng#p4)
 
 
-[^a]: [[John 5.36|John 5:36.]]
+[^a]: [[John 5.36|John 5:36]].  

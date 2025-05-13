@@ -5,5 +5,5 @@
 [Alma 43:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p29#p29)
 
 
-[^a]: [[Alma 43.8|Alma 43:8.]]
-[^b]: [[Alma 49.7|Alma 49:7.]]
+[^a]: [[Alma 43.8|Alma 43:8]].  
+[^b]: [[Alma 49.7|Alma 49:7]].  

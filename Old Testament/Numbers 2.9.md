@@ -5,4 +5,4 @@
 [Numbers 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/2.9?lang=eng#p9)
 
 
-[^a]: [[Numbers 10.14|Num. 10:14.]]
+[^a]: [[Numbers 10.14|Num. 10:14]].  

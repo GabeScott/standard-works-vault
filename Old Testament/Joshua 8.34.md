@@ -5,5 +5,5 @@
 [Joshua 8:34](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.34?lang=eng#p34)
 
 
-[^a]: TG [[Scriptures, Study of]].
-[^b]: TG [[Curse]].
+[^a]: [[Scriptures, Study of|TG Scriptures, Study of]].  
+[^b]: [[Curse|TG Curse]].  

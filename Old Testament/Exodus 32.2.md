@@ -5,4 +5,4 @@
 [Exodus 32:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.2?lang=eng#p2)
 
 
-[^a]: [[Judges 8.26|Judg. 8:26 (24-27).]]
+[^a]: [[Judges 8.24|Judg. 8:26 (24–27)]][[Judges 8.25|]][[Judges 8.26|]][[Judges 8.27|]].  

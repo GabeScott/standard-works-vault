@@ -5,4 +5,4 @@
 [Luke 21:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.28?lang=eng#p28)
 
 
-[^a]: [[D&C 35.26|D&C 35:26.]]
+[^a]: [[D&C 35.26|D&C 35:26]].  

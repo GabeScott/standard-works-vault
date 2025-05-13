@@ -5,4 +5,4 @@
 [1 Samuel 17:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.12?lang=eng#p12)
 
 
-[^a]: [[1 Samuel 16.13|1 Sam. 16:13 (11-13)]]; [[1 Chronicles 2.15|1 Chr. 2:15]]. TG [[Jesus Christ, Davidic Descent of]].
+[^a]: [[1 Samuel 16.11|1 Sam. 16:13 (11–13)]][[1 Samuel 16.12|]][[1 Samuel 16.13|]]; [[1 Chronicles 2.15|1 Chr. 2:15]]. [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  

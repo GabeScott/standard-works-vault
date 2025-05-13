@@ -5,4 +5,4 @@
 [1 Kings 18:36](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.36?lang=eng#p36)
 
 
-[^a]: Dan. 9:21.
+[^a]: [[Daniel 9.21|Dan. 9:21]].  

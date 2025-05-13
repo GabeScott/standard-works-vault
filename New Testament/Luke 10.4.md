@@ -5,5 +5,5 @@
 [Luke 10:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.4?lang=eng#p4)
 
 
-[^a]: [[Matthew 10.9|Matt. 10:9.]]
-[^b]: [[2 Kings 4.29|2 Kgs. 4:29.]]
+[^a]: [[Matthew 10.9|Matt. 10:9]].  
+[^b]: [[2 Kings 4.29|2 Kgs. 4:29]].  

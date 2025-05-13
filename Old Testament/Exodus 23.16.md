@@ -5,6 +5,6 @@
 [Exodus 23:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 34.22|Ex. 34:22.]]
-[^b]: [[Deuteronomy 16.13|Deut. 16:13.]]
-[^c]: IE the fruits thereof.
+[^a]: [[Exodus 34.22|Ex. 34:22]].  
+[^b]: [[Deuteronomy 16.13|Deut. 16:13]].  
+[^c]: IE the fruits thereof.  

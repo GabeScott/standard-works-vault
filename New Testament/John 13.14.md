@@ -5,7 +5,7 @@
 [John 13:14](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.14?lang=eng#p14)
 
 
-[^a]: GR Teacher.
-[^b]: TG [[Courtesy]].
-[^c]: TG [[Humility, Humble]].
-[^d]: TG [[Jesus Christ, Teaching Mode of]].
+[^a]: GR Teacher.  
+[^b]: [[Courtesy|TG Courtesy]].  
+[^c]: [[Humility, Humble|TG Humility]].  
+[^d]: [[Jesus Christ, Teaching Mode of|TG Jesus Christ, Teaching Mode of]].  

@@ -5,5 +5,5 @@
 [Moroni 8:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Baptism, Qualifications for]]; [[Children]].
-[^b]: TG [[Remission of Sins]].
+[^a]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]]; [[Children|Children]].  
+[^b]: [[Remission of Sins|TG Remission of Sins]].  

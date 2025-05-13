@@ -5,5 +5,5 @@
 [Alma 50:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 2.15|Alma 2:15]]; [[Alma 22.29|22:29.]]
-[^b]: [[Mormon 2.3|Morm. 2:3.]]
+[^a]: [[Alma 2.15|Alma 2:15]]; [[Alma 22.29|22:29]].  
+[^b]: [[Mormon 2.3|Morm. 2:3]].  

@@ -5,4 +5,4 @@
 [Isaiah 25:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/25.12?lang=eng#p12)
 
 
-[^a]: [[1 Nephi 22.14|1 Ne. 22:14.]]
+[^a]: [[1 Nephi 22.14|1 Ne. 22:14]].  

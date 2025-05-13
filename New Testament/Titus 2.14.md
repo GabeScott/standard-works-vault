@@ -5,8 +5,8 @@
 [Titus 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.14?lang=eng#p14)
 
 
-[^a]: TG [[Self-Sacrifice]].
-[^b]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]]; [[Redemption]].
-[^c]: TG [[Purification, Purify, Purifying]]; [[Purity, Pure]].
-[^d]: TG [[Peculiar People]].
-[^e]: TG [[Zeal, Zealous]].
+[^a]: [[Self-Sacrifice|TG Self-Sacrifice]].  
+[^b]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer|Jesus Christ, Redeemer]]; [[Redemption|Redemption]].  
+[^c]: [[Purification, Purify, Purifying|TG Purification]]; [[Purity, Pure|Purity]].  
+[^d]: [[Peculiar People|TG Peculiar People]].  
+[^e]: [[Zeal, Zealous|TG Zeal]].  

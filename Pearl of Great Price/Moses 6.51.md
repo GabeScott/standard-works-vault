@@ -5,6 +5,6 @@
 [Moses 6:51](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.51?lang=eng#p51)
 
 
-[^a]: [[Moses 3.5|Moses 3:5.]]
-[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
-[^c]: TG [[Spirit Creation]].
+[^a]: [[Moses 3.5|Moses 3:5]].  
+[^b]: [[Man, a Spirit Child of Heavenly Father|TG Man, a Spirit Child of Heavenly Father]].  
+[^c]: [[Spirit Creation|TG Spirit Creation]].  

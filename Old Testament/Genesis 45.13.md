@@ -5,4 +5,4 @@
 [Genesis 45:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/45.13?lang=eng#p13)
 
 
-[^a]: [[Acts 7.14|Acts 7:14.]]
+[^a]: [[Acts 7.14|Acts 7:14]].  

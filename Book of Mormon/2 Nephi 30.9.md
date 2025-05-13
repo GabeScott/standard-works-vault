@@ -5,6 +5,6 @@
 [2 Nephi 30:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/30?lang=eng&id=p9#p9)
 
 
-[^a]: [[Isaiah 11.4|Isa. 11:4 (4-9).]]
-[^b]: [[Psalms 19.9|Ps. 19:9]]; [[2 Nephi 9.15|2 Ne. 9:15.]]
-[^c]: TG [[Meek, Meekness]].
+[^a]: [[Isaiah 11.4|Isa. 11:4 (4–9)]][[Isaiah 11.5|]][[Isaiah 11.6|]][[Isaiah 11.7|]][[Isaiah 11.8|]][[Isaiah 11.9|]].  
+[^b]: [[Psalms 19.9|Ps. 19:9]]; [[2 Nephi 9.15|2 Ne. 9:15]].  
+[^c]: [[Meek, Meekness|TG Meek]].  

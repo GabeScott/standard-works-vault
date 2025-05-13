@@ -5,6 +5,6 @@
 [Ezekiel 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 20.46|Ezek. 20:46.]]
-[^b]: OR preach against.
-[^c]: TG [[Israel, Land of]].
+[^a]: [[Ezekiel 20.46|Ezek. 20:46]].  
+[^b]: OR preach against.  
+[^c]: [[Israel, Land of|TG Israel, Land of]].  

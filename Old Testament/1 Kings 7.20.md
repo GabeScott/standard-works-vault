@@ -5,4 +5,4 @@
 [1 Kings 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.20?lang=eng#p20)
 
 
-[^a]: [[Jeremiah 52.23|Jer. 52:23 (22-23).]]
+[^a]: [[Jeremiah 52.22|Jer. 52:23 (22–23)]][[Jeremiah 52.23|]].  

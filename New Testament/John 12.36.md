@@ -5,5 +5,5 @@
 [John 12:36](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.36?lang=eng#p36)
 
 
-[^a]: TG [[Faith]].
-[^b]: TG [[Children of Light]].
+[^a]: [[Faith|TG Faith]].  
+[^b]: [[Children of Light|TG Children of Light]].  

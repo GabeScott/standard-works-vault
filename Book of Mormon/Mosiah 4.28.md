@@ -5,4 +5,4 @@
 [Mosiah 4:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Borrow, Borrowing]]; [[Debt]]; [[Honesty]].
+[^a]: [[Borrow, Borrowing|TG Borrow]]; [[Debt|Debt]]; [[Honesty|Honesty]].  

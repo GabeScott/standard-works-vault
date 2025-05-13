@@ -5,4 +5,4 @@
 [Numbers 32:20](https://www.churchofjesuschrist.org/study/scriptures/ot/num/32.20?lang=eng#p20)
 
 
-[^a]: [[Joshua 1.13|Josh. 1:13.]]
+[^a]: [[Joshua 1.13|Josh. 1:13]].  

@@ -5,4 +5,4 @@
 [1 Kings 11:43](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.43?lang=eng#p43)
 
 
-[^a]: [[1 Chronicles 3.10|1 Chr. 3:10.]]
+[^a]: [[1 Chronicles 3.10|1 Chr. 3:10]].  

@@ -5,5 +5,5 @@
 [Ezra 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/7.6?lang=eng#p6)
 
 
-[^a]: [[Nehemiah 8.1|Neh. 8:1.]]
-[^b]: [[Ezra 7.9|Ezra 7:9 (9, 28)]]; [[Ezra 8.18|8:18.]]
+[^a]: [[Nehemiah 8.1|Neh. 8:1]].  
+[^b]: [[Ezra 7.9|Ezra 7:9 (9, 28)]][[Ezra 7.28|]]; [[Ezra 8.18|8:18]].  

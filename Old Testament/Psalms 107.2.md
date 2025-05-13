@@ -5,4 +5,4 @@
 [Psalms 107:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 7.8|Deut. 7:8 (7-8)]]; [[3 Nephi 9.17|3 Ne. 9:17 (15-17).]]
+[^a]: [[Deuteronomy 7.7|Deut. 7:8 (7–8)]][[Deuteronomy 7.8|]]; [[3 Nephi 9.15|3 Ne. 9:17 (15–17)]][[3 Nephi 9.16|]][[3 Nephi 9.17|]].  

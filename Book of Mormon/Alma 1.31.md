@@ -5,4 +5,4 @@
 [Alma 1:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p31#p31)
 
 
-[^a]: TG [[Prosper]].
+[^a]: [[Prosper|TG Prosper]].  

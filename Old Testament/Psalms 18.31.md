@@ -5,4 +5,4 @@
 [Psalms 18:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.31?lang=eng#p31)
 
 
-[^a]: TG [[Rock]].
+[^a]: [[Rock|TG Rock]].  

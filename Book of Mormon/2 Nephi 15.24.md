@@ -5,8 +5,8 @@
 [2 Nephi 15:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p24#p24)
 
 
-[^a]: Obad. 1:18; [[2 Nephi 20.17|2 Ne. 20:17]]; [[3 Nephi 20.16|3 Ne. 20:16.]]
-[^b]: [[Joel 2.5|Joel 2:5]]; [[1 Nephi 22.15|1 Ne. 22:15 (15, 23)]]; [[2 Nephi 26.6|2 Ne. 26:6 (4, 6)]]; [[D&C 64.24|D&C 64:24 (23-24)]]; [[D&C 133.64|133:64.]]
-[^c]: [[Luke 3.17|Luke 3:17]]; [[Mosiah 7.30|Mosiah 7:30 (29-31).]]
-[^d]: [[Job 18.16|Job 18:16 (16-21).]]
-[^e]: [[2 Samuel 12.9|2 Sam. 12:9 (7-9).]]
+[^a]: [[Obadiah 1.18|Obad. 1:18]]; [[2 Nephi 20.17|2 Ne. 20:17]]; [[3 Nephi 20.16|3 Ne. 20:16]].  
+[^b]: [[Joel 2.5|Joel 2:5]]; [[1 Nephi 22.15|1 Ne. 22:15 (15, 23)]][[1 Nephi 22.23|]]; [[2 Nephi 26.4|2 Ne. 26:6 (4, 6)]][[2 Nephi 26.6|]]; [[D&C 64.23|D&C 64:24 (23–24)]][[D&C 64.24|]]; [[D&C 133.64|133:64]].  
+[^c]: [[Luke 3.17|Luke 3:17]]; [[Mosiah 7.29|Mosiah 7:30 (29–31)]][[Mosiah 7.30|]][[Mosiah 7.31|]].  
+[^d]: [[Job 18.16|Job 18:16 (16–21)]][[Job 18.17|]][[Job 18.18|]][[Job 18.19|]][[Job 18.20|]][[Job 18.21|]].  
+[^e]: [[2 Samuel 12.7|2 Sam. 12:9 (7–9)]][[2 Samuel 12.8|]][[2 Samuel 12.9|]].  

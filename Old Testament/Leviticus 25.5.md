@@ -5,4 +5,4 @@
 [Leviticus 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.5?lang=eng#p5)
 
 
-[^a]: HEB of thy separation; i.e., of the time “set apart” as a sabbatical year.
+[^a]: HEB of thy separation; i.e., of the time “set apart” as a sabbatical year.  

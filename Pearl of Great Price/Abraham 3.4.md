@@ -5,7 +5,7 @@
 [Abraham 3:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.4?lang=eng#p4)
 
 
-[^a]: Dan. 2:21.
-[^b]: [[Abraham 5.13|Abr. 5:13.]]
-[^c]: [[Psalms 90.4|Ps. 90:4]]; 2 Pet. 3:8.
-[^d]: TG [[Time]].
+[^a]: [[Daniel 2.21|Dan. 2:21]].  
+[^b]: [[Abraham 5.13|Abr. 5:13]].  
+[^c]: [[Psalms 90.4|Ps. 90:4]]; [[2 Peter 3.8|2 Pet. 3:8]].  
+[^d]: [[Time|TG Time]].  

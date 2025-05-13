@@ -5,4 +5,4 @@
 [Genesis 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/7.22?lang=eng#p22)
 
 
-[^a]: TG [[Breath of Life]].
+[^a]: [[Breath of Life|TG Breath of Life]].  

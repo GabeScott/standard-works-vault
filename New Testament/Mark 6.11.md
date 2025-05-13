@@ -5,4 +5,4 @@
 [Mark 6:11](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.11?lang=eng#p11)
 
 
-[^a]: [[Luke 10.11|Luke 10:11]]; [[D&C 24.15|D&C 24:15.]]
+[^a]: [[Luke 10.11|Luke 10:11]]; [[D&C 24.15|D&C 24:15]].  

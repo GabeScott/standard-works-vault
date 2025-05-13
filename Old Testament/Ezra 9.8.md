@@ -5,6 +5,6 @@
 [Ezra 9:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.8?lang=eng#p8)
 
 
-[^a]: TG [[Grace]].
-[^b]: [[Isaiah 22.23|Isa. 22:23 (23, 25).]]
-[^c]: [[3 Nephi 13.22|3 Ne. 13:22]]; [[D&C 88.11|D&C 88:11.]]
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[Isaiah 22.23|Isa. 22:23 (23, 25)]][[Isaiah 22.25|]].  
+[^c]: [[3 Nephi 13.22|3 Ne. 13:22]]; [[D&C 88.11|D&C 88:11]].  

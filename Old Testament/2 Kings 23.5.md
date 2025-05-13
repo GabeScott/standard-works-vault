@@ -5,4 +5,4 @@
 [2 Kings 23:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.5?lang=eng#p5)
 
 
-[^a]: TG [[False Priesthoods]].
+[^a]: [[False Priesthoods|TG False Priesthoods]].  

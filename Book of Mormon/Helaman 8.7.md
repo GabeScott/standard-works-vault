@@ -5,5 +5,5 @@
 [Helaman 8:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Provoking, Provoke]].
-[^b]: [[Acts 5.38|Acts 5:38 (37-40).]]
+[^a]: [[Provoking, Provoke|TG Provoking]].  
+[^b]: [[Acts 5.37|Acts 5:38 (37–40)]][[Acts 5.38|]][[Acts 5.39|]][[Acts 5.40|]].  

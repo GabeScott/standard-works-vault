@@ -5,4 +5,4 @@
 [2 Chronicles 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.22?lang=eng#p22)
 
 
-[^a]: IE calamity.
+[^a]: IE calamity.  

@@ -5,5 +5,5 @@
 [Proverbs 19:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.6?lang=eng#p6)
 
 
-[^a]: [[Proverbs 29.26|Prov. 29:26]]; [[Alma 47.35|Alma 47:35.]]
-[^b]: [[Matthew 5.46|Matt. 5:46.]]
+[^a]: [[Proverbs 29.26|Prov. 29:26]]; [[Alma 47.35|Alma 47:35]].  
+[^b]: [[Matthew 5.46|Matt. 5:46]].  

@@ -5,4 +5,4 @@
 [1 Samuel 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/3.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 27.20|Ex. 27:20 (20-21)]]; [[Leviticus 24.2|Lev. 24:2 (2-3).]]
+[^a]: [[Exodus 27.20|Ex. 27:20 (20–21)]][[Exodus 27.21|]]; [[Leviticus 24.2|Lev. 24:2 (2–3)]][[Leviticus 24.3|]].  

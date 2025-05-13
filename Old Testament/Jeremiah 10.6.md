@@ -5,4 +5,4 @@
 [Jeremiah 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 71.19|Ps. 71:19.]]
+[^a]: [[Psalms 71.19|Ps. 71:19]].  

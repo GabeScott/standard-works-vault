@@ -5,4 +5,4 @@
 [Mark 8:31](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/8.31?lang=eng#p31)
 
 
-[^a]: TG [[Jesus Christ, Teaching Mode of]].
+[^a]: [[Jesus Christ, Teaching Mode of|TG Jesus Christ, Teaching Mode of]].  

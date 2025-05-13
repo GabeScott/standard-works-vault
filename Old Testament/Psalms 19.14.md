@@ -5,5 +5,5 @@
 [Psalms 19:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.14?lang=eng#p14)
 
 
-[^a]: TG [[Meditation, Meditate]].
-[^b]: TG [[Strength]].
+[^a]: [[Meditation, Meditate|TG Meditation]].  
+[^b]: [[Strength|TG Strength]].  

@@ -5,4 +5,4 @@
 [Daniel 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.21?lang=eng#p21)
 
 
-[^a]: [[Alma 30.56|Alma 30:56.]]
+[^a]: [[Alma 30.56|Alma 30:56]].  

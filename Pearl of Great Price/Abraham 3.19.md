@@ -5,4 +5,4 @@
 [Abraham 3:19](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.19?lang=eng#p19)
 
 
-[^a]: [[Isaiah 55.9|Isa. 55:9 (8-9)]]. TG [[God, Intelligence of]]; [[God, Omniscience of]]; [[Intelligence]].
+[^a]: [[Isaiah 55.8|Isa. 55:9 (8–9)]][[Isaiah 55.9|]]. [[God, Intelligence of|TG God, Intelligence of]]; [[God, Omniscience of|God, Omniscience of]]; [[Intelligence|Intelligence]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 32:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.11?lang=eng#p11)
 
 
-[^a]: [[Exodus 19.4|Ex. 19:4.]]
+[^a]: [[Exodus 19.4|Ex. 19:4]].  

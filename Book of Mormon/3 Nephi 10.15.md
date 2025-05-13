@@ -5,4 +5,4 @@
 [3 Nephi 10:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/10?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Martyrdom]].
+[^a]: [[Martyrdom|TG Martyrdom]].  

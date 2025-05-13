@@ -5,6 +5,6 @@
 [Ezekiel 24:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.13?lang=eng#p13)
 
 
-[^a]: TG [[Filthiness, Filthy]].
-[^b]: [[Jeremiah 13.27|Jer. 13:27]]; [[D&C 128.24|D&C 128:24.]]
-[^c]: [[Ezekiel 5.13|Ezek. 5:13.]]
+[^a]: [[Filthiness, Filthy|TG Filthiness]].  
+[^b]: [[Jeremiah 13.27|Jer. 13:27]]; [[D&C 128.24|D&C 128:24]].  
+[^c]: [[Ezekiel 5.13|Ezek. 5:13]].  

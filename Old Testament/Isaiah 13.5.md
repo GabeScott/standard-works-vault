@@ -5,4 +5,4 @@
 [Isaiah 13:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.5?lang=eng#p5)
 
 
-[^a]: [[Zechariah 12.9|Zech. 12:9 (4, 8-9).]]
+[^a]: [[Zechariah 12.4|Zech. 12:9 (4, 8–9)]][[Zechariah 12.8|]][[Zechariah 12.9|]].  

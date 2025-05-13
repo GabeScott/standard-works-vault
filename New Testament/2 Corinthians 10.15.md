@@ -5,4 +5,4 @@
 [2 Corinthians 10:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.15?lang=eng#p15)
 
 
-[^a]: [[Romans 15.20|Rom. 15:20.]]
+[^a]: [[Romans 15.20|Rom. 15:20]].  

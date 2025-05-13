@@ -5,6 +5,6 @@
 [Daniel 4:35](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.35?lang=eng#p35)
 
 
-[^a]: [[Psalms 39.5|Ps. 39:5]]; [[Isaiah 40.15|Isa. 40:15]]; [[Helaman 12.7|Hel. 12:7]]; [[Moses 1.10|Moses 1:10.]]
-[^b]: TG [[God, Will of]].
-[^c]: [[D&C 38.33|D&C 38:33]]; [[D&C 121.33|121:33.]]
+[^a]: [[Psalms 39.5|Ps. 39:5]]; [[Isaiah 40.15|Isa. 40:15]]; [[Helaman 12.7|Hel. 12:7]]; [[Moses 1.10|Moses 1:10]].  
+[^b]: [[God, Will of|TG God, Will of]].  
+[^c]: [[D&C 38.33|D&C 38:33]]; [[D&C 121.33|121:33]].  

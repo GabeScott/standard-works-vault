@@ -5,4 +5,4 @@
 [Judges 19:19](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/19.19?lang=eng#p19)
 
 
-[^a]: OR food, fodder (also v. 21).
+[^a]: OR food, fodder (also [[Judges 19.21|v. 21]]).  

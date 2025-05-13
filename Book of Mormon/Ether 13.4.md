@@ -5,4 +5,4 @@
 [Ether 13:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p4#p4)
 
 
-[^a]: TG [[Zion, Sion]].
+[^a]: [[Zion, Sion|TG Zion]].  

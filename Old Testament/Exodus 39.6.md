@@ -5,4 +5,4 @@
 [Exodus 39:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.6?lang=eng#p6)
 
 
-[^a]: OR settings (also vv. 13, 16, 18).
+[^a]: OR settings (also [[Exodus 39.13|vv. 13, 16, 18]][[Exodus 39.16|]][[Exodus 39.18|]]).  

@@ -5,4 +5,4 @@
 [Acts 10:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.19?lang=eng#p19)
 
 
-[^a]: TG [[Holy Ghost, Gifts of]].
+[^a]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  

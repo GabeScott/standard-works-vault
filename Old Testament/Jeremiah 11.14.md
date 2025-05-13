@@ -5,4 +5,4 @@
 [Jeremiah 11:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 7.16|Jer. 7:16]]; [[Jeremiah 14.11|14:11.]]
+[^a]: [[Jeremiah 7.16|Jer. 7:16]]; [[Jeremiah 14.11|14:11]].  

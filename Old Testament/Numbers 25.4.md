@@ -5,6 +5,6 @@
 [Numbers 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/25.4?lang=eng#p4)
 
 
-[^a]: OR chief men.
-[^b]: OR facing.
-[^c]: [[Deuteronomy 13.17|Deut. 13:17.]]
+[^a]: OR chief men.  
+[^b]: OR facing.  
+[^c]: [[Deuteronomy 13.17|Deut. 13:17]].  

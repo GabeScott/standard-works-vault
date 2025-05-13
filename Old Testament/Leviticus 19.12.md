@@ -5,6 +5,6 @@
 [Leviticus 19:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.12?lang=eng#p12)
 
 
-[^a]: TG [[Swearing, Swear, Sware, Sworn]].
-[^b]: TG [[Honesty]].
-[^c]: TG [[Profanity]].
+[^a]: [[Swearing, Swear, Sware, Sworn|TG Swearing]].  
+[^b]: [[Honesty|TG Honesty]].  
+[^c]: [[Profanity|TG Profanity]].  

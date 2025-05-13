@@ -5,7 +5,7 @@
 [Alma 26:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p24#p24)
 
 
-[^a]: [[Mosiah 1.5|Mosiah 1:5]]; [[Mosiah 28.2|28:2.]]
-[^b]: [[Alma 23.3|Alma 23:3]]; [[Alma 25.6|25:6.]]
-[^c]: TG [[Stiffnecked, Stiffneckedness]].
-[^d]: [[Jacob 7.24|Jacob 7:24]]; [[Jarom 1.6|Jarom 1:6.]]
+[^a]: [[Mosiah 1.5|Mosiah 1:5]]; [[Mosiah 28.2|28:2]].  
+[^b]: [[Alma 23.3|Alma 23:3]]; [[Alma 25.6|25:6]].  
+[^c]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  
+[^d]: [[Jacob 7.24|Jacob 7:24]]; [[Jarom 1.6|Jarom 1:6]].  

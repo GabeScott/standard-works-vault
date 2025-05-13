@@ -5,5 +5,5 @@
 [Isaiah 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.9?lang=eng#p9)
 
 
-[^a]: IE ordinary man.
-[^b]: [[2 Nephi 12.9|2 Ne. 12:9.]]
+[^a]: IE ordinary man.  
+[^b]: [[2 Nephi 12.9|2 Ne. 12:9]].  

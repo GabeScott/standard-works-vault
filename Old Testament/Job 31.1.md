@@ -5,4 +5,4 @@
 [Job 31:1](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.1?lang=eng#p1)
 
 
-[^a]: [[D&C 43.9|D&C 43:9.]]
+[^a]: [[D&C 43.9|D&C 43:9]].  

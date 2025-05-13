@@ -5,4 +5,4 @@
 [Leviticus 18:27](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.27?lang=eng#p27)
 
 
-[^a]: TG [[Apostasy of Israel]]; [[Sin]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]]; [[Sin|Sin]].  

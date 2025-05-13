@@ -5,4 +5,4 @@
 [Ezra 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.4?lang=eng#p4)
 
 
-[^a]: IE discouraged the people.
+[^a]: IE discouraged the people.  

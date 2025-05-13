@@ -5,4 +5,4 @@
 [1 Kings 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.2?lang=eng#p2)
 
 
-[^a]: [[1 Kings 11.29|1 Kgs. 11:29 (29-31).]]
+[^a]: [[1 Kings 11.29|1 Kgs. 11:29 (29–31)]][[1 Kings 11.30|]][[1 Kings 11.31|]].  

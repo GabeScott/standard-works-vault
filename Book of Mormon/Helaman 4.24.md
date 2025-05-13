@@ -5,7 +5,7 @@
 [Helaman 4:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p24#p24)
 
 
-[^a]: [[Jeremiah 46.15|Jer. 46:15 (15-17)]]; [[Mosiah 1.13|Mosiah 1:13.]]
-[^b]: TG [[Holy Ghost, Loss of]].
-[^c]: [[Mosiah 2.37|Mosiah 2:37]]; [[Alma 7.21|Alma 7:21]]; [[Alma 34.36|34:36.]]
-[^d]: TG [[Genealogy and Temple Work]].
+[^a]: [[Jeremiah 46.15|Jer. 46:15 (15–17)]][[Jeremiah 46.16|]][[Jeremiah 46.17|]]; [[Mosiah 1.13|Mosiah 1:13]].  
+[^b]: [[Holy Ghost, Loss of|TG Holy Ghost, Loss of]].  
+[^c]: [[Mosiah 2.37|Mosiah 2:37]]; [[Alma 7.21|Alma 7:21]]; [[Alma 34.36|34:36]].  
+[^d]: [[Temple|TG Temple]].  

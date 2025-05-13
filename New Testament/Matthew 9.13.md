@@ -5,9 +5,9 @@
 [Matthew 9:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.13?lang=eng#p13)
 
 
-[^a]: [[Hosea 6.6|Hosea 6:6.]]
-[^b]: GR desire.
-[^c]: TG [[Mercy, Merciful]].
-[^d]: [[1 Timothy 1.15|1 Tim. 1:15.]]
-[^e]: TG [[God, the Standard of Righteousness]].
-[^f]: TG [[Repent, Repentance]].
+[^a]: [[Hosea 6.6|Hosea 6:6]].  
+[^b]: GR desire.  
+[^c]: [[Mercy, Merciful|TG Mercy]].  
+[^d]: [[1 Timothy 1.15|1 Tim. 1:15]].  
+[^e]: [[Righteousness|TG Righteousness]].  
+[^f]: [[Repent, Repentance|TG Repent]].  

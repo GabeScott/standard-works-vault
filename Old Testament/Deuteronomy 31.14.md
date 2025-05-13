@@ -5,5 +5,5 @@
 [Deuteronomy 31:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 47.29|Gen. 47:29 (28-29).]]
-[^b]: HEB tent of meeting.
+[^a]: [[Genesis 47.28|Gen. 47:29 (28–29)]][[Genesis 47.29|]].  
+[^b]: HEB tent of meeting.  

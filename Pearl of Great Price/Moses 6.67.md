@@ -5,4 +5,4 @@
 [Moses 6:67](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.67?lang=eng#p67)
 
 
-[^a]: TG [[Priesthood, Melchizedek]].
+[^a]: [[Priesthood, Melchizedek|TG Priesthood, Melchizedek]].  

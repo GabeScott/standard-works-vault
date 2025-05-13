@@ -5,4 +5,4 @@
 [1 Nephi 4:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/4?lang=eng&id=p35#p35)
 
 
-[^a]: [[1 Nephi 16.7|1 Ne. 16:7]]; [[2 Nephi 5.6|2 Ne. 5:6 (5-6)]]; [[Jacob 1.13|Jacob 1:13]]; [[Alma 54.23|Alma 54:23]]; 4 Ne. 1:36 (36-37).
+[^a]: [[1 Nephi 16.7|1 Ne. 16:7]]; [[2 Nephi 5.5|2 Ne. 5:6 (5–6)]][[2 Nephi 5.6|]]; [[Jacob 1.13|Jacob 1:13]]; [[Alma 54.23|Alma 54:23]]; [[4 Nephi 1.36|4 Ne. 1:36 (36–37)]][[4 Nephi 1.37|]].  

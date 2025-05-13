@@ -5,5 +5,5 @@
 [Psalms 100:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/100.3?lang=eng#p3)
 
 
-[^a]: [[Ephesians 2.10|Eph. 2:10.]]
-[^b]: TG [[Sheep]].
+[^a]: [[Ephesians 2.10|Eph. 2:10]].  
+[^b]: [[Sheep|TG Sheep]].  

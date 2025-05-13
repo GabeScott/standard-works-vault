@@ -5,6 +5,6 @@
 [Alma 50:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p39#p39)
 
 
-[^a]: [[Alma 60.1|Alma 60:1.]]
-[^b]: TG [[Oath]]; [[Ordinance]].
-[^c]: [[Alma 4.16|Alma 4:16 (16-17)]]; [[Helaman 1.5|Hel. 1:5 (3-5, 13).]]
+[^a]: [[Alma 60.1|Alma 60:1]].  
+[^b]: [[Oath|TG Oath]]; [[Ordinance|Ordinance]].  
+[^c]: [[Alma 4.16|Alma 4:16 (16–17)]][[Alma 4.17|]]; [[Helaman 1.3|Hel. 1:5 (3–5, 13)]][[Helaman 1.4|]][[Helaman 1.5|]][[Helaman 1.13|]].  

@@ -5,5 +5,5 @@
 [Romans 8:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.11?lang=eng#p11)
 
 
-[^a]: GR make alive. D&C 84:33. TG [[God, Power of]]; [[Jesus Christ, Resurrection]].
-[^b]: TG [[Mortality]].
+[^a]: GR make alive. [[D&C 84.33|D&C 84:33]]. [[God, Power of|TG God, Power of]]; [[Resurrection|Resurrection]].  
+[^b]: [[Mortality|TG Mortality]].  

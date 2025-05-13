@@ -5,4 +5,4 @@
 [Joshua 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/14.2?lang=eng#p2)
 
 
-[^a]: [[Joshua 18.6|Josh. 18:6]]; [[D&C 102.34|D&C 102:34.]]
+[^a]: [[Joshua 18.6|Josh. 18:6]]; [[D&C 102.34|D&C 102:34]].  

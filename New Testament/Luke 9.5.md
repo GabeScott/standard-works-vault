@@ -5,5 +5,5 @@
 [Luke 9:5](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.5?lang=eng#p5)
 
 
-[^a]: [[D&C 60.15|D&C 60:15.]]
-[^b]: [[Luke 10.11|Luke 10:11 (11-12)]]; [[D&C 84.92|D&C 84:92.]]
+[^a]: [[D&C 60.15|D&C 60:15]].  
+[^b]: [[Luke 10.11|Luke 10:11 (11–12)]][[Luke 10.12|]]; [[D&C 84.92|D&C 84:92]].  

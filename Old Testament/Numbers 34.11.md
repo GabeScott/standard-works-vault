@@ -5,5 +5,5 @@
 [Numbers 34:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/34.11?lang=eng#p11)
 
 
-[^a]: OR boundary.
-[^b]: IE the Sea of Galilee.
+[^a]: OR boundary.  
+[^b]: IE the Sea of Galilee.  

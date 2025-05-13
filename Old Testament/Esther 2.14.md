@@ -5,4 +5,4 @@
 [Esther 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/2.14?lang=eng#p14)
 
 
-[^a]: [[Ether 10.5|Ether 10:5.]]
+[^a]: [[Ether 10.5|Ether 10:5]].  

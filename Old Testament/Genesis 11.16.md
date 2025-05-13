@@ -5,4 +5,4 @@
 [Genesis 11:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.16?lang=eng#p16)
 
 
-[^a]: TG [[Earth, Dividing of]].
+[^a]: [[Earth, Dividing of|TG Earth, Dividing of]].  

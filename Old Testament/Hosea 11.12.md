@@ -5,4 +5,4 @@
 [Hosea 11:12](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/11.12?lang=eng#p12)
 
 
-[^a]: OR walks.
+[^a]: OR walks.  

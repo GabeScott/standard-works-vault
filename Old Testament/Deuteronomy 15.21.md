@@ -5,6 +5,6 @@
 [Deuteronomy 15:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.21?lang=eng#p21)
 
 
-[^a]: [[Leviticus 22.20|Lev. 22:20]]; [[1 Peter 1.19|1 Pet. 1:19 (18-20).]]
-[^b]: OR serious.
-[^c]: TG [[Self-Sacrifice]].
+[^a]: [[Leviticus 22.20|Lev. 22:20]]; [[1 Peter 1.18|1 Pet. 1:19 (18–20)]][[1 Peter 1.19|]][[1 Peter 1.20|]].  
+[^b]: OR serious.  
+[^c]: [[Sacrifice|TG Sacrifice]].  

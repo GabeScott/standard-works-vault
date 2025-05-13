@@ -5,4 +5,4 @@
 [Ezekiel 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/9.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 47.10|Isa. 47:10.]]
+[^a]: [[Isaiah 47.10|Isa. 47:10]].  

@@ -5,4 +5,4 @@
 [2 Nephi 30:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/30?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Israel, Restoration of]]; [[Millennium, Preparing a People for]].
+[^a]: [[Israel, Restoration of|TG Israel, Restoration of]]; [[Millennium, Preparing a People for|Millennium, Preparing a People for]].  

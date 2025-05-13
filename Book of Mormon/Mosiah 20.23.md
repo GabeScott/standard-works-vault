@@ -5,4 +5,4 @@
 [Mosiah 20:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/20?lang=eng&id=p23#p23)
 
 
-[^a]: [[Mosiah 19.23|Mosiah 19:23 (21, 23)]]; [[Mosiah 23.9|23:9 (9, 12, 31).]]
+[^a]: [[Mosiah 19.21|Mosiah 19:23 (21, 23)]][[Mosiah 19.23|]]; [[Mosiah 23.9|23:9 (9, 12, 31)]][[Mosiah 23.12|]][[Mosiah 23.31|]].  

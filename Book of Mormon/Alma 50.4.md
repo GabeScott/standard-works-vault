@@ -5,4 +5,4 @@
 [Alma 50:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Chronicles 14.7|2 Chr. 14:7 (7-8).]]
+[^a]: [[2 Chronicles 14.7|2 Chr. 14:7 (7–8)]][[2 Chronicles 14.8|]].  

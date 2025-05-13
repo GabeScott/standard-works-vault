@@ -5,4 +5,4 @@
 [Isaiah 36:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/36.11?lang=eng#p11)
 
 
-[^a]: HEB Aramaic.
+[^a]: HEB Aramaic.  

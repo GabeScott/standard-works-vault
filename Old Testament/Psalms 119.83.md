@@ -5,4 +5,4 @@
 [Psalms 119:83](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.83?lang=eng#p83)
 
 
-[^a]: OR waterskin.
+[^a]: OR waterskin.  

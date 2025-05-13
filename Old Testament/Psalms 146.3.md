@@ -5,4 +5,4 @@
 [Psalms 146:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/146.3?lang=eng#p3)
 
 
-[^a]: TG [[Trust Not in the Arm of Flesh]].
+[^a]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  

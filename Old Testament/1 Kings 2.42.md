@@ -5,4 +5,4 @@
 [1 Kings 2:42](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.42?lang=eng#p42)
 
 
-[^a]: OR solemnly warned thee.
+[^a]: OR solemnly warned thee.  

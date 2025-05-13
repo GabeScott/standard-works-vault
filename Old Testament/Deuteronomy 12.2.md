@@ -5,6 +5,6 @@
 [Deuteronomy 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 12.3|2 Kgs. 12:3.]]
-[^b]: HEB dispossess.
-[^c]: TG [[Idolatry, Idol]].
+[^a]: [[2 Kings 12.3|2 Kgs. 12:3]].  
+[^b]: HEB dispossess.  
+[^c]: [[Idolatry, Idol|TG Idolatry]].  

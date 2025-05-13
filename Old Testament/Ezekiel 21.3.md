@@ -5,4 +5,4 @@
 [Ezekiel 21:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.3?lang=eng#p3)
 
 
-[^a]: [[D&C 1.13|D&C 1:13.]]
+[^a]: [[D&C 1.13|D&C 1:13]].  

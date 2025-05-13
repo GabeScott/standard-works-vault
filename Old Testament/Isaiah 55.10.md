@@ -5,5 +5,5 @@
 [Isaiah 55:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.10?lang=eng#p10)
 
 
-[^a]: TG [[Nature, Earth]].
-[^b]: TG [[Bread]].
+[^a]: [[Nature, Earth|TG Nature, Earth]].  
+[^b]: [[Bread|TG Bread]].  

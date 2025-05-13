@@ -5,4 +5,4 @@
 [Mosiah 29:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p31#p31)
 
 
-[^a]: [[1 Kings 14.16|1 Kgs. 14:16]]; [[1 Kings 15.26|15:26]]; [[1 Kings 16.2|16:2]]; [[1 Kings 21.22|21:22]]; [[Mosiah 29.36|Mosiah 29:36.]]
+[^a]: [[1 Kings 14.16|1 Kgs. 14:16]]; [[1 Kings 15.26|15:26]]; [[1 Kings 16.2|16:2]]; [[1 Kings 21.22|21:22]]; [[Mosiah 29.36|Mosiah 29:36]].  

@@ -5,6 +5,6 @@
 [Jeremiah 39:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/39.5?lang=eng#p5)
 
 
-[^a]: [[Jeremiah 44.30|Jer. 44:30.]]
-[^b]: Lam. 4:19.
-[^c]: OR pronounced sentence.
+[^a]: [[Jeremiah 44.30|Jer. 44:30]].  
+[^b]: [[Lamentations 4.19|Lam. 4:19]].  
+[^c]: OR pronounced sentence.  

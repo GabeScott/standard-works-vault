@@ -5,7 +5,7 @@
 [Romans 8:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.6?lang=eng#p6)
 
 
-[^a]: TG [[Carnal Mind]]; [[Chastity, Chaste]]; [[Man, Natural, Not Spiritually Reborn]].
-[^b]: TG [[Death]]; [[Death]], Spiritual, First.
-[^c]: TG [[Spirituality]].
-[^d]: TG [[Peace of God]].
+[^a]: [[Carnal Mind|TG Carnal Mind]]; [[Chastity, Chaste|Chastity]]; [[Man, Natural, Not Spiritually Reborn|Man, Natural, Not Spiritually Reborn]].  
+[^b]: [[Death|TG Death]]; [[Death, Spiritual, First|Death, Spiritual, First]].  
+[^c]: [[Spirituality|TG Spirituality]].  
+[^d]: [[Peace of God|TG Peace of God]].  

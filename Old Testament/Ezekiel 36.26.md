@@ -5,8 +5,8 @@
 [Ezekiel 36:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.26?lang=eng#p26)
 
 
-[^a]: TG [[Man, New, Spiritually Reborn]].
-[^b]: [[3 Nephi 10.6|3 Ne. 10:6.]]
-[^c]: TG [[God, Gifts of]].
-[^d]: TG [[Spirituality]].
-[^e]: TG [[Conversion, Convert]].
+[^a]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  
+[^b]: [[3 Nephi 10.6|3 Ne. 10:6]].  
+[^c]: [[God, Gifts of|TG God, Gifts of]].  
+[^d]: [[Spirituality|TG Spirituality]].  
+[^e]: [[Conversion, Convert|TG Conversion]].  

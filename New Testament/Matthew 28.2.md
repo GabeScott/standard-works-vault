@@ -5,5 +5,5 @@
 [Matthew 28:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.2?lang=eng#p2)
 
 
-[^a]: JST Matt. 28:2 … two angels …
-[^b]: TG [[Angels]].
+[^a]: JST Matt. 28:2 … two angels …  
+[^b]: [[Angels|TG Angels]].  

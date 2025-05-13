@@ -5,4 +5,4 @@
 [Leviticus 8:31](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.31?lang=eng#p31)
 
 
-[^a]: [[Exodus 29.31|Ex. 29:31 (31-34).]]
+[^a]: [[Exodus 29.31|Ex. 29:31 (31–34)]][[Exodus 29.32|]][[Exodus 29.33|]][[Exodus 29.34|]].  

@@ -5,6 +5,6 @@
 [Esther 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/4.11?lang=eng#p11)
 
 
-[^a]: [[Esther 6.4|Esth. 6:4.]]
-[^b]: TG [[Capital Punishment]].
-[^c]: [[Esther 5.2|Esth. 5:2]]; [[Esther 8.4|8:4.]]
+[^a]: [[Esther 6.4|Esth. 6:4]].  
+[^b]: [[Capital Punishment|TG Capital Punishment]].  
+[^c]: [[Esther 5.2|Esth. 5:2]]; [[Esther 8.4|8:4]].  

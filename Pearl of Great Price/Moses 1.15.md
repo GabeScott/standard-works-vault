@@ -5,6 +5,6 @@
 [Moses 1:15](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.15?lang=eng#p15)
 
 
-[^a]: TG [[God, Spirit of]].
-[^b]: [[Matthew 4.10|Matt. 4:10]]. TG [[Assembly for Worship]].
-[^c]: [[1 Samuel 7.3|1 Sam. 7:3]]; [[3 Nephi 13.24|3 Ne. 13:24.]]
+[^a]: [[God, Spirit of|TG God, Spirit of]].  
+[^b]: [[Matthew 4.10|Matt. 4:10]]. [[Worship|TG Worship]].  
+[^c]: [[1 Samuel 7.3|1 Sam. 7:3]]; [[3 Nephi 13.24|3 Ne. 13:24]].  

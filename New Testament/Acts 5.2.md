@@ -5,5 +5,5 @@
 [Acts 5:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.2?lang=eng#p2)
 
 
-[^a]: TG [[Selfishness]].
-[^c]: TG [[Welfare]].
+[^a]: [[Selfishness|TG Selfishness]].  
+[^c]: [[Welfare|TG Welfare]].  

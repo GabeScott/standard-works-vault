@@ -5,4 +5,4 @@
 [Joshua 14:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/14.9?lang=eng#p9)
 
 
-[^a]: [[Numbers 13.22|Num. 13:22.]]
+[^a]: [[Numbers 13.22|Num. 13:22]].  

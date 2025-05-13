@@ -5,5 +5,5 @@
 [Acts 11:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/11.28?lang=eng#p28)
 
 
-[^a]: [[Acts 2.18|Acts 2:18]]; [[Acts 21.11|21:11 (4, 10-11).]]
-[^b]: OR famine. TG [[Drought]].
+[^a]: [[Acts 2.18|Acts 2:18]]; [[Acts 21.4|21:11 (4, 10–11)]][[Acts 21.10|]][[Acts 21.11|]].  
+[^b]: OR famine. [[Drought|TG Drought]].  

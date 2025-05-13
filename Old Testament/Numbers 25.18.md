@@ -5,4 +5,4 @@
 [Numbers 25:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/25.18?lang=eng#p18)
 
 
-[^a]: OR on account of the Peor incident.
+[^a]: OR on account of the Peor incident.  

@@ -5,4 +5,4 @@
 [Isaiah 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.4?lang=eng#p4)
 
 
-[^a]: TG [[Apostasy of Israel]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  

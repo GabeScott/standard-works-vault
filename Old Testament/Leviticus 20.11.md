@@ -5,5 +5,5 @@
 [Leviticus 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.11?lang=eng#p11)
 
 
-[^a]: [[Deuteronomy 22.30|Deut. 22:30.]]
-[^b]: [[Leviticus 18.8|Lev. 18:8 (7-8).]]
+[^a]: [[Deuteronomy 22.30|Deut. 22:30]].  
+[^b]: [[Leviticus 18.7|Lev. 18:8 (7–8)]][[Leviticus 18.8|]].  

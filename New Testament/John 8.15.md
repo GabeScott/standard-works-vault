@@ -5,4 +5,4 @@
 [John 8:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.15?lang=eng#p15)
 
 
-[^a]: [[John 12.47|John 12:47.]]
+[^a]: [[John 12.47|John 12:47]].  

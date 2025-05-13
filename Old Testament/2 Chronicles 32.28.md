@@ -5,4 +5,4 @@
 [2 Chronicles 32:28](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.28?lang=eng#p28)
 
 
-[^a]: OR grain.
+[^a]: OR grain.  

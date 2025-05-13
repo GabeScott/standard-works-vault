@@ -5,4 +5,4 @@
 [John 16:32](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.32?lang=eng#p32)
 
 
-[^a]: John 8:16, 29; [[John 14.18|14:18.]]
+[^a]: [[John 8.16|John 8:16, 29]][[John 8.29|]]; [[John 14.18|14:18]].  

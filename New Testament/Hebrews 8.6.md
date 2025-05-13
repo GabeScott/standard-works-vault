@@ -5,6 +5,6 @@
 [Hebrews 8:6](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/8.6?lang=eng#p6)
 
 
-[^a]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Authority of]].
-[^b]: [[Hebrews 7.22|Heb. 7:22]]. TG [[Covenants]]; [[Priesthood, Melchizedek]].
-[^c]: TG [[Promise]].
+[^a]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Jesus Christ, Authority of|Jesus Christ, Authority of]].  
+[^b]: [[Hebrews 7.22|Heb. 7:22]]. [[Covenants|TG Covenants]]; [[Priesthood, Melchizedek|Priesthood, Melchizedek]].  
+[^c]: [[Promise|TG Promise]].  

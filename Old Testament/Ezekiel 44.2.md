@@ -5,4 +5,4 @@
 [Ezekiel 44:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 43.4|Ezek. 43:4.]]
+[^a]: [[Ezekiel 43.4|Ezek. 43:4]].  

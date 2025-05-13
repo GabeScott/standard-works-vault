@@ -5,5 +5,5 @@
 [Ether 12:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p28#p28)
 
 
-[^a]: [[Alma 7.24|Alma 7:24.]]
-[^b]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Alma 7.24|Alma 7:24]].  
+[^b]: [[God, the Standard of Righteousness|TG God, the Standard of Righteousness]].  

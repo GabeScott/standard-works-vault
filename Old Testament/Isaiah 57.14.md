@@ -5,6 +5,6 @@
 [Isaiah 57:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.14?lang=eng#p14)
 
 
-[^a]: HEB And he shall say.
-[^b]: [[Isaiah 62.10|Isa. 62:10.]]
-[^c]: [[Jacob 4.14|Jacob 4:14 (13-14).]]
+[^a]: HEB And he shall say.  
+[^b]: [[Isaiah 62.10|Isa. 62:10]].  
+[^c]: [[Jacob 4.13|Jacob 4:14 (13–14)]][[Jacob 4.14|]].  

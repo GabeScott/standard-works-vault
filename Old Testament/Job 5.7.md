@@ -5,4 +5,4 @@
 [Job 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/5.7?lang=eng#p7)
 
 
-[^a]: TG [[Adversity]].
+[^a]: [[Adversity|TG Adversity]].  

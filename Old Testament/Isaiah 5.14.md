@@ -5,4 +5,4 @@
 [Isaiah 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.14?lang=eng#p14)
 
 
-[^a]: HEB noise, or uproar.
+[^a]: HEB noise, or uproar.  

@@ -5,4 +5,4 @@
 [D&C 3:10](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.10?lang=eng#p10)
 
 
-[^a]: [[D&C 10.3|D&C 10:3.]]
+[^a]: [[D&C 10.3|D&C 10:3]].  

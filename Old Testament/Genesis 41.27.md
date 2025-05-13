@@ -5,4 +5,4 @@
 [Genesis 41:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.27?lang=eng#p27)
 
 
-[^a]: TG [[Famine]].
+[^a]: [[Famine|TG Famine]].  

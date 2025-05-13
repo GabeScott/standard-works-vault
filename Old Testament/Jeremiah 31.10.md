@@ -5,4 +5,4 @@
 [Jeremiah 31:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.10?lang=eng#p10)
 
 
-[^a]: TG [[Israel, Gathering of]].
+[^a]: [[Israel, Gathering of|TG Israel, Gathering of]].  

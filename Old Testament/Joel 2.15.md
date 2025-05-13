@@ -5,4 +5,4 @@
 [Joel 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.15?lang=eng#p15)
 
 
-[^a]: TG [[Solemn Assembly]].
+[^a]: [[Solemn Assembly|TG Solemn Assembly]].  

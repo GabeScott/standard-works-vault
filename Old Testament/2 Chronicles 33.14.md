@@ -5,5 +5,5 @@
 [2 Chronicles 33:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.14?lang=eng#p14)
 
 
-[^a]: Zeph. 1:10.
-[^b]: OR fortified.
+[^a]: [[Zephaniah 1.10|Zeph. 1:10]].  
+[^b]: OR fortified.  

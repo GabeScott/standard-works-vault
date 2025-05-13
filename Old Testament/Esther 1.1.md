@@ -5,5 +5,5 @@
 [Esther 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.1?lang=eng#p1)
 
 
-[^a]: [[Ezra 4.6|Ezra 4:6.]]
-[^b]: [[Esther 9.30|Esth. 9:30.]]
+[^a]: [[Ezra 4.6|Ezra 4:6]].  
+[^b]: [[Esther 9.30|Esth. 9:30]].  

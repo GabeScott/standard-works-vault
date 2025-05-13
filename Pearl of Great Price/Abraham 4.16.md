@@ -5,4 +5,4 @@
 [Abraham 4:16](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.16?lang=eng#p16)
 
 
-[^a]: [[Genesis 1.16|Gen. 1:16]]; [[D&C 76.71|D&C 76:71 (70-71)]]; [[D&C 88.45|88:45.]]
+[^a]: [[Genesis 1.16|Gen. 1:16]]; [[D&C 76.70|D&C 76:71 (70–71)]][[D&C 76.71|]]; [[D&C 88.45|88:45]].  

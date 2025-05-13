@@ -5,4 +5,4 @@
 [Matthew 27:64](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.64?lang=eng#p64)
 
 
-[^a]: GR deception.
+[^a]: GR deception.  

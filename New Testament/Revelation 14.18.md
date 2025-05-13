@@ -5,4 +5,4 @@
 [Revelation 14:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.18?lang=eng#p18)
 
 
-[^a]: TG [[Vineyard of the Lord]].
+[^a]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  

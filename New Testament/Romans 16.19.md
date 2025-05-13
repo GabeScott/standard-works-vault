@@ -5,6 +5,6 @@
 [Romans 16:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/16.19?lang=eng#p19)
 
 
-[^a]: [[Romans 1.8|Rom. 1:8.]]
-[^b]: TG [[Wisdom]].
-[^c]: GR blameless, innocent.
+[^a]: [[Romans 1.8|Rom. 1:8]].  
+[^b]: [[Wisdom|TG Wisdom]].  
+[^c]: GR blameless, innocent.  

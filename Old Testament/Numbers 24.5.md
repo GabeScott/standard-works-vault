@@ -5,4 +5,4 @@
 [Numbers 24:5](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.5?lang=eng#p5)
 
 
-[^a]: OR dwellings.
+[^a]: OR dwellings.  

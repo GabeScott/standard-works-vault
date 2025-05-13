@@ -5,4 +5,4 @@
 [Luke 17:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.33?lang=eng#p33)
 
 
-[^a]: TG [[Self-Sacrifice]].
+[^a]: [[Sacrifice|TG Sacrifice]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/13.3?lang=eng#p3)
 
 
-[^a]: TG [[False Prophets]].
-[^b]: TG [[Testament]].
+[^a]: [[False Prophets|TG False Prophets]].  
+[^b]: [[Test, Try, Prove|TG Test]].  

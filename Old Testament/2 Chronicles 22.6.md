@@ -5,4 +5,4 @@
 [2 Chronicles 22:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/22.6?lang=eng#p6)
 
 
-[^a]: OR Ahaziah (see vv. 7, 11) or Jehoahaz (see 2 Chr. 21:17).
+[^a]: OR Ahaziah (see [[2 Chronicles 22.7|vv. 7, 11]][[2 Chronicles 22.11|]]) or Jehoahaz (see [[2 Chronicles 21.17|2 Chr. 21:17]]).  

@@ -5,4 +5,4 @@
 [2 Nephi 27:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p15#p15)
 
 
-[^a]: [[Isaiah 29.11|Isa. 29:11.]]
+[^a]: [[Isaiah 29.11|Isa. 29:11]].  

@@ -5,5 +5,5 @@
 [Genesis 50:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.10?lang=eng#p10)
 
 
-[^a]: [[Alma 28.12|Alma 28:12.]]
-[^b]: [[Job 2.13|Job 2:13.]]
+[^a]: [[Alma 28.12|Alma 28:12]].  
+[^b]: [[Job 2.13|Job 2:13]].  

@@ -5,4 +5,4 @@
 [2 Nephi 2:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Jesus Christ, Mediator]].
+[^a]: [[Jesus Christ, Mediator|TG Jesus Christ, Mediator]].  

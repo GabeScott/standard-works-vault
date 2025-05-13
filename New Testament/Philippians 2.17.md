@@ -5,4 +5,4 @@
 [Philippians 2:17](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.17?lang=eng#p17)
 
 
-[^a]: 1 Thes. 2:8; [[D&C 98.13|D&C 98:13.]]
+[^a]: [[1 Thessalonians 2.8|1 Thes. 2:8]]; [[D&C 98.13|D&C 98:13]].  

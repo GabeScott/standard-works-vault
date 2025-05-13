@@ -5,5 +5,5 @@
 [1 Nephi 18:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p9#p9)
 
 
-[^a]: [[Ether 6.5|Ether 6:5.]]
-[^b]: [[2 Nephi 1.2|2 Ne. 1:2]]. TG [[Rioting and Reveling]].
+[^a]: [[Ether 6.5|Ether 6:5]].  
+[^b]: [[2 Nephi 1.2|2 Ne. 1:2]]. [[Rioting and Reveling|TG Rioting and Reveling]].  

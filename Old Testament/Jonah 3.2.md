@@ -5,4 +5,4 @@
 [Jonah 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/3.2?lang=eng#p2)
 
 
-[^a]: TG [[Missionary Work]]; [[Preaching, Preach]]; [[Prophets, Mission of]].
+[^a]: [[Missionary Work|TG Missionary Work]]; [[Preaching, Preach|Preaching]]; [[Prophets, Mission of|Prophets, Mission of]].  

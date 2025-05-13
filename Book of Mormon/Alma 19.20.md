@@ -5,4 +5,4 @@
 [Alma 19:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 17.26|Alma 17:26]]; [[Alma 18.7|18:7.]]
+[^a]: [[Alma 17.26|Alma 17:26]]; [[Alma 18.7|18:7]].  

@@ -5,4 +5,4 @@
 [Mosiah 23:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p33#p33)
 
 
-[^a]: [[Mosiah 20.5|Mosiah 20:5]]; [[Mosiah 25.12|25:12.]]
+[^a]: [[Mosiah 20.5|Mosiah 20:5]]; [[Mosiah 25.12|25:12]].  

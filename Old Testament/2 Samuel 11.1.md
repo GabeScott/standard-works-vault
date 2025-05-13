@@ -5,4 +5,4 @@
 [2 Samuel 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/11.1?lang=eng#p1)
 
 
-[^a]: [[1 Chronicles 20.1|1 Chr. 20:1.]]
+[^a]: [[1 Chronicles 20.1|1 Chr. 20:1]].  

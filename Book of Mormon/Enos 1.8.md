@@ -5,6 +5,6 @@
 [Enos 1:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p8#p8)
 
 
-[^a]: [[Ether 3.13|Ether 3:13 (12-13).]]
-[^b]: TG [[Faith]].
-[^c]: [[Matthew 9.22|Matt. 9:22]]. TG [[Man, New, Spiritually Reborn]]; [[Steadfastness, Steadfast]].
+[^a]: [[Ether 3.12|Ether 3:13 (12–13)]][[Ether 3.13|]].  
+[^b]: [[Faith|TG Faith]].  
+[^c]: [[Matthew 9.22|Matt. 9:22]]. [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]]; [[Steadfastness, Steadfast|Steadfastness]].  

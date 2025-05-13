@@ -5,4 +5,4 @@
 [Hebrews 7:12](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.12?lang=eng#p12)
 
 
-[^a]: TG [[Priesthood, History of]].
+[^a]: [[Priesthood, History of|TG Priesthood, History of]].  

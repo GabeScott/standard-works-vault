@@ -5,5 +5,5 @@
 [Ether 6:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/6?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: TG [[Guidance, Divine]]; [[Revelation]].
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Guidance, Divine|TG Guidance, Divine]]; [[Revelation|Revelation]].  

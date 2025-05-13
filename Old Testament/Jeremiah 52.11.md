@@ -5,6 +5,6 @@
 [Jeremiah 52:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.11?lang=eng#p11)
 
 
-[^a]: [[Jeremiah 39.7|Jer. 39:7]]; [[Ezekiel 12.13|Ezek. 12:13.]]
-[^b]: [[Omni 1.15|Omni 1:15.]]
-[^c]: TG [[Israel, Bondage of, in Other Lands]].
+[^a]: [[Jeremiah 39.7|Jer. 39:7]]; [[Ezekiel 12.13|Ezek. 12:13]].  
+[^b]: [[Omni 1.15|Omni 1:15]].  
+[^c]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  

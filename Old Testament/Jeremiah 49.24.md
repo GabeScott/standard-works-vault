@@ -5,4 +5,4 @@
 [Jeremiah 49:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.24?lang=eng#p24)
 
 
-[^a]: TG [[Sorrow]].
+[^a]: [[Sorrow|TG Sorrow]].  

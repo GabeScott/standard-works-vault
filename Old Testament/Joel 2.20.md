@@ -5,6 +5,6 @@
 [Joel 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.20?lang=eng#p20)
 
 
-[^a]: [[Ezekiel 39.3|Ezek. 39:3 (2-5).]]
-[^b]: [[Ezekiel 47.18|Ezek. 47:18.]]
-[^c]: [[Isaiah 34.3|Isa. 34:3.]]
+[^a]: [[Ezekiel 39.2|Ezek. 39:3 (2–5)]][[Ezekiel 39.3|]][[Ezekiel 39.4|]][[Ezekiel 39.5|]].  
+[^b]: [[Ezekiel 47.18|Ezek. 47:18]].  
+[^c]: [[Isaiah 34.3|Isa. 34:3]].  

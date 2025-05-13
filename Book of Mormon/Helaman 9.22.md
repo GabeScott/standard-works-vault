@@ -5,4 +5,4 @@
 [Helaman 9:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/9?lang=eng&id=p22#p22)
 
 
-[^a]: [[Ezekiel 24.23|Ezek. 24:23]]; [[Mosiah 7.24|Mosiah 7:24.]]
+[^a]: [[Ezekiel 24.23|Ezek. 24:23]]; [[Mosiah 7.24|Mosiah 7:24]].  

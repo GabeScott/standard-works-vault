@@ -5,4 +5,4 @@
 [Zechariah 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.2?lang=eng#p2)
 
 
-[^a]: [[Zechariah 1.14|Zech. 1:14.]]
+[^a]: [[Zechariah 1.14|Zech. 1:14]].  

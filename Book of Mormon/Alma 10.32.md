@@ -5,4 +5,4 @@
 [Alma 10:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p32#p32)
 
 
-[^a]: [[Alma 11.1|Alma 11:1 (1-3).]]
+[^a]: [[Alma 11.1|Alma 11:1 (1–3)]][[Alma 11.2|]][[Alma 11.3|]].  

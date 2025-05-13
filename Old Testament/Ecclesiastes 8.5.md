@@ -5,5 +5,5 @@
 [Ecclesiastes 8:5](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/8.5?lang=eng#p5)
 
 
-[^a]: [[1 Nephi 20.18|1 Ne. 20:18.]]
-[^b]: TG [[Time]].
+[^a]: [[1 Nephi 20.18|1 Ne. 20:18]].  
+[^b]: [[Time|TG Time]].  

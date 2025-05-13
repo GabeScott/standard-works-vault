@@ -5,5 +5,5 @@
 [James 1:2](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.2?lang=eng#p2)
 
 
-[^a]: JST James 1:2 … many afflictions;
-[^b]: TG [[Temptation]].
+[^a]: [[JST James 1.2|JST James 1:2]] … many afflictions;  
+[^b]: [[Temptation|TG Temptation]].  

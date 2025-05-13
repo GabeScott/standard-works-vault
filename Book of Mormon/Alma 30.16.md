@@ -5,4 +5,4 @@
 [Alma 30:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p16#p16)
 
 
-[^a]: [[Acts 26.24|Acts 26:24 (24-25).]]
+[^a]: [[Acts 26.24|Acts 26:24 (24–25)]][[Acts 26.25|]].  

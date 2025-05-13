@@ -5,6 +5,6 @@
 [1 Nephi 22:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p13#p13)
 
 
-[^a]: [[Revelation 17.16|Rev. 17:16 (16-17)]]. TG [[Devil, Church of]].
-[^b]: [[1 Nephi 14.16|1 Ne. 14:16 (3, 15-17)]]; [[2 Nephi 6.15|2 Ne. 6:15]]. TG [[War]].
-[^c]: [[1 Nephi 21.26|1 Ne. 21:26 (24-26).]]
+[^a]: [[Revelation 17.16|Rev. 17:16 (16–17)]][[Revelation 17.17|]]. [[Devil, Church of|TG Devil, Church of]].  
+[^b]: [[1 Nephi 14.3|1 Ne. 14:16 (3, 15–17)]][[1 Nephi 14.15|]][[1 Nephi 14.16|]][[1 Nephi 14.17|]]; [[2 Nephi 6.15|2 Ne. 6:15]]. [[War|TG War]].  
+[^c]: [[1 Nephi 21.24|1 Ne. 21:26 (24–26)]][[1 Nephi 21.25|]][[1 Nephi 21.26|]].  

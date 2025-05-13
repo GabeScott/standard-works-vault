@@ -5,6 +5,6 @@
 [Ether 1:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/1?lang=eng&id=p33#p33)
 
 
-[^a]: [[Genesis 11.9|Gen. 11:9 (6-9).]]
-[^b]: [[Omni 1.22|Omni 1:22.]]
-[^c]: [[Mosiah 28.17|Mosiah 28:17.]]
+[^a]: [[Genesis 11.6|Gen. 11:9 (6–9)]][[Genesis 11.7|]][[Genesis 11.8|]][[Genesis 11.9|]].  
+[^b]: [[Omni 1.22|Omni 1:22]].  
+[^c]: [[Mosiah 28.17|Mosiah 28:17]].  

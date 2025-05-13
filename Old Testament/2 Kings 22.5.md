@@ -5,4 +5,4 @@
 [2 Kings 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/22.5?lang=eng#p5)
 
 
-[^a]: OR holes, broken areas.
+[^a]: OR holes, broken areas.  

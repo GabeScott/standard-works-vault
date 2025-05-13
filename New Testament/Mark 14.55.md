@@ -5,4 +5,4 @@
 [Mark 14:55](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.55?lang=eng#p55)
 
 
-[^a]: TG [[Jesus Christ, Death of]].
+[^a]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

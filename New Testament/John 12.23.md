@@ -5,5 +5,5 @@
 [John 12:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.23?lang=eng#p23)
 
 
-[^a]: [[John 7.30|John 7:30.]]
-[^b]: TG [[Jesus Christ, Mission of]].
+[^a]: [[John 7.30|John 7:30]].  
+[^b]: [[Jesus Christ, Mission of|TG Jesus Christ, Mission of]].  

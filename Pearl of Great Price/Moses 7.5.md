@@ -5,4 +5,4 @@
 [Moses 7:5](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.5?lang=eng#p5)
 
 
-[^a]: [[Moses 5.45|Moses 5:45]]; [[Moses 6.38|6:38.]]
+[^a]: [[Moses 5.45|Moses 5:45]]; [[Moses 6.38|6:38]].  

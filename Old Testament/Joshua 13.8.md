@@ -5,4 +5,4 @@
 [Joshua 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.8?lang=eng#p8)
 
 
-[^a]: [[Joshua 14.3|Josh. 14:3.]]
+[^a]: [[Joshua 14.3|Josh. 14:3]].  

@@ -5,4 +5,4 @@
 [Zephaniah 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.9?lang=eng#p9)
 
 
-[^a]: OR over; i.e., to plunder and pillage.
+[^a]: OR over; i.e., to plunder and pillage.  

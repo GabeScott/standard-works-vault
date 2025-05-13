@@ -5,5 +5,5 @@
 [Ephesians 5:26](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.26?lang=eng#p26)
 
 
-[^a]: TG [[Sanctification, Sanctify]].
-[^b]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Sanctification, Sanctify|TG Sanctification]].  
+[^b]: [[Purification, Purify, Purifying|TG Purification]].  

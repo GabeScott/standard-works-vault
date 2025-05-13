@@ -5,6 +5,6 @@
 [2 Nephi 10:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Abrahamic Covenant]]; [[Covenants]].
-[^b]: [[Leviticus 19.26|Lev. 19:26]]; [[Helaman 3.23|Hel. 3:23]]; [[Helaman 7.25|7:25 (4-5, 21, 25)]]. TG [[Secret Combinations]].
-[^c]: TG [[Darkness, Spiritual]].
+[^a]: [[Abrahamic Covenant|TG Abrahamic Covenant]]; [[Covenants|Covenants]].  
+[^b]: [[Leviticus 19.26|Lev. 19:26]]; [[Helaman 3.23|Hel. 3:23]]; [[Helaman 7.4|7:25 (4–5, 21, 25)]][[Helaman 7.5|]][[Helaman 7.21|]][[Helaman 7.25|]]. [[Secret Combinations|TG Secret Combinations]].  
+[^c]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  

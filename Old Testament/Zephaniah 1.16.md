@@ -5,5 +5,5 @@
 [Zephaniah 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.16?lang=eng#p16)
 
 
-[^a]: HEB shofar, or ram’s horn.
-[^b]: [[D&C 101.57|D&C 101:57.]]
+[^a]: HEB shofar, or ram’s horn.  
+[^b]: [[D&C 101.57|D&C 101:57]].  

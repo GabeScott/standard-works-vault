@@ -5,5 +5,5 @@
 [Proverbs 31:30](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.30?lang=eng#p30)
 
 
-[^a]: TG [[Beauty]].
-[^b]: OR reveres the Lord.
+[^a]: [[Beauty|TG Beauty]].  
+[^b]: OR reveres the Lord.  

@@ -5,4 +5,4 @@
 [Leviticus 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.7?lang=eng#p7)
 
 
-[^a]: [[Ezekiel 22.10|Ezek. 22:10.]]
+[^a]: [[Ezekiel 22.10|Ezek. 22:10]].  

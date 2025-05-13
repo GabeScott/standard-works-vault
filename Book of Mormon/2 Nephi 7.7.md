@@ -5,4 +5,4 @@
 [2 Nephi 7:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/7?lang=eng&id=p7#p7)
 
 
-[^a]: [[Romans 9.33|Rom. 9:33.]]
+[^a]: [[Romans 9.33|Rom. 9:33]].  

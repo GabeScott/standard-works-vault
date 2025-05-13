@@ -5,4 +5,4 @@
 [Alma 22:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Believe]].
+[^a]: [[Believe|TG Believe]].  

@@ -5,6 +5,6 @@
 [Judges 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.3?lang=eng#p3)
 
 
-[^a]: [[Joshua 17.16|Josh. 17:16]]; [[Judges 1.19|Judg. 1:19.]]
-[^b]: HEB forcibly, violently.
-[^c]: [[Psalms 106.42|Ps. 106:42 (42-43).]]
+[^a]: [[Joshua 17.16|Josh. 17:16]]; [[Judges 1.19|Judg. 1:19]].  
+[^b]: HEB forcibly, violently.  
+[^c]: [[Psalms 106.42|Ps. 106:42 (42–43)]][[Psalms 106.43|]].  

@@ -5,4 +5,4 @@
 [Alma 29:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p1#p1)
 
 
-[^a]: [[Isaiah 58.1|Isa. 58:1]]; [[D&C 29.4|D&C 29:4.]]
+[^a]: [[Isaiah 58.1|Isa. 58:1]]; [[D&C 29.4|D&C 29:4]].  

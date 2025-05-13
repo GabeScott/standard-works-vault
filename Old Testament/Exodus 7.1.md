@@ -5,6 +5,6 @@
 [Exodus 7:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.1?lang=eng#p1)
 
 
-[^a]: OR as God.
-[^b]: [[Exodus 7.1|JST Ex. 7:1 … prophet … Ex. 4:16.]]
-[^c]: [[Exodus 7.1|JST Ex. 7:1 … spokesman]]. TG [[Priesthood, Keys of]]; [[Prophecy]]; [[Prophets, Mission of]].
+[^a]: OR as God.  
+[^b]: JST Ex. 7:1 … prophet … [[Exodus 4.16|Ex. 4:16]].  
+[^c]: JST Ex. 7:1 … spokesman. [[Priesthood, Keys of|TG Priesthood, Keys of]]; [[Prophecy|Prophecy]]; [[Prophets, Mission of|Prophets, Mission of]].  

@@ -5,4 +5,4 @@
 [Numbers 7:84](https://www.churchofjesuschrist.org/study/scriptures/ot/num/7.84?lang=eng#p84)
 
 
-[^a]: HEB leaders or presidents.
+[^a]: HEB leaders or presidents.  

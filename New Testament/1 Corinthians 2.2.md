@@ -5,5 +5,5 @@
 [1 Corinthians 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.2?lang=eng#p2)
 
 
-[^a]: GR except.
-[^b]: TG [[Jesus Christ, Crucifixion of]].
+[^a]: GR except.  
+[^b]: [[Jesus Christ, Crucifixion of|TG Jesus Christ, Crucifixion of]].  

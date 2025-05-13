@@ -5,5 +5,5 @@
 [Matthew 9:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.9?lang=eng#p9)
 
 
-[^a]: [[Luke 5.27|Luke 5:27 (27-32).]]
-[^b]: GR tax office.
+[^a]: [[Luke 5.27|Luke 5:27 (27–32)]][[Luke 5.28|]][[Luke 5.29|]][[Luke 5.30|]][[Luke 5.31|]][[Luke 5.32|]].  
+[^b]: GR tax office.  

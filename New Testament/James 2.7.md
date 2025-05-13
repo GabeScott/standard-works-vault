@@ -5,4 +5,4 @@
 [James 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.7?lang=eng#p7)
 
 
-[^a]: TG [[Name of the Lord]].
+[^a]: [[Name|TG Name]].  

@@ -5,5 +5,5 @@
 [2 Nephi 1:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p25#p25)
 
 
-[^a]: [[1 Nephi 15.8|1 Ne. 15:8 (8-11)]]; [[Mosiah 10.14|Mosiah 10:14.]]
-[^b]: [[Genesis 37.10|Gen. 37:10 (9-11)]]; [[1 Nephi 2.22|1 Ne. 2:22.]]
+[^a]: [[1 Nephi 15.8|1 Ne. 15:8 (8–11)]][[1 Nephi 15.9|]][[1 Nephi 15.10|]][[1 Nephi 15.11|]]; [[Mosiah 10.14|Mosiah 10:14]].  
+[^b]: [[Genesis 37.9|Gen. 37:10 (9–11)]][[Genesis 37.10|]][[Genesis 37.11|]]; [[1 Nephi 2.22|1 Ne. 2:22]].  

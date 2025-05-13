@@ -5,4 +5,4 @@
 [Leviticus 22:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.10?lang=eng#p10)
 
 
-[^a]: HEB Any alien shall not eat a sacred thing.
+[^a]: HEB Any alien shall not eat a sacred thing.  

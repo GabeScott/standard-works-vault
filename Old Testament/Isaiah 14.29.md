@@ -5,4 +5,4 @@
 [Isaiah 14:29](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.29?lang=eng#p29)
 
 
-[^a]: HEB Philistia (also v. 31).
+[^a]: HEB Philistia (also [[Isaiah 14.31|v. 31]]).  

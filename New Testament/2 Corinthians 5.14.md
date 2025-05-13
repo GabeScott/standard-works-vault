@@ -5,5 +5,5 @@
 [2 Corinthians 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.14?lang=eng#p14)
 
 
-[^a]: [[Romans 5.15|Rom. 5:15.]]
-[^b]: [[D&C 19.16|D&C 19:16.]]
+[^a]: [[Romans 5.15|Rom. 5:15]].  
+[^b]: [[D&C 19.16|D&C 19:16]].  

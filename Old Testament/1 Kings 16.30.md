@@ -5,5 +5,5 @@
 [1 Kings 16:30](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.30?lang=eng#p30)
 
 
-[^a]: [[2 Chronicles 21.6|2 Chr. 21:6]]; [[2 Chronicles 22.3|22:3.]]
-[^b]: TG [[Unrighteous Dominion]].
+[^a]: [[2 Chronicles 21.6|2 Chr. 21:6]]; [[2 Chronicles 22.3|22:3]].  
+[^b]: [[Unrighteous Dominion|TG Unrighteous Dominion]].  

@@ -5,5 +5,5 @@
 [Ezekiel 17:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.24?lang=eng#p24)
 
 
-[^a]: [[2 Nephi 20.33|2 Ne. 20:33]]; [[D&C 112.8|D&C 112:8 (3-8).]]
-[^b]: [[Ezekiel 36.36|Ezek. 36:36.]]
+[^a]: [[2 Nephi 20.33|2 Ne. 20:33]]; [[D&C 112.3|D&C 112:8 (3–8)]][[D&C 112.4|]][[D&C 112.5|]][[D&C 112.6|]][[D&C 112.7|]][[D&C 112.8|]].  
+[^b]: [[Ezekiel 36.36|Ezek. 36:36]].  

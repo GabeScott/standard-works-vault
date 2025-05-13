@@ -5,4 +5,4 @@
 [3 Nephi 17:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p9#p9)
 
 
-[^a]: [[Matthew 9.28|Matt. 9:28 (28-31)]]; [[Mosiah 3.5|Mosiah 3:5]]; [[3 Nephi 26.15|3 Ne. 26:15]]; [[D&C 84.69|D&C 84:69.]]
+[^a]: [[Matthew 9.28|Matt. 9:28 (28–31)]][[Matthew 9.29|]][[Matthew 9.30|]][[Matthew 9.31|]]; [[Mosiah 3.5|Mosiah 3:5]]; [[3 Nephi 26.15|3 Ne. 26:15]]; [[D&C 84.69|D&C 84:69]].  

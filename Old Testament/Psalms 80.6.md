@@ -5,4 +5,4 @@
 [Psalms 80:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/80.6?lang=eng#p6)
 
 
-[^a]: TG [[Strife]].
+[^a]: [[Strife|TG Strife]].  

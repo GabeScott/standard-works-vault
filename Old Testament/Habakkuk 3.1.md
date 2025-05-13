@@ -5,4 +5,4 @@
 [Habakkuk 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.1?lang=eng#p1)
 
 
-[^a]: A type of poetry.
+[^a]: A type of poetry.  

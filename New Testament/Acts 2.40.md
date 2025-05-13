@@ -5,5 +5,5 @@
 [Acts 2:40](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.40?lang=eng#p40)
 
 
-[^a]: [[D&C 36.6|D&C 36:6.]]
-[^b]: GR crooked.
+[^a]: [[D&C 36.6|D&C 36:6]].  
+[^b]: GR crooked.  

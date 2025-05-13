@@ -5,5 +5,5 @@
 [Matthew 25:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.15?lang=eng#p15)
 
 
-[^a]: [[Mark 4.24|Mark 4:24 (23-25).]]
-[^b]: TG [[Talents]]; [[Work, Value of]].
+[^a]: [[Mark 4.23|Mark 4:24 (23–25)]][[Mark 4.24|]][[Mark 4.25|]].  
+[^b]: [[Talents|TG Talents]]; [[Work, Value of|Work, Value of]].  

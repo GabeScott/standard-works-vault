@@ -5,4 +5,4 @@
 [Alma 51:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 1.1|Alma 1:1.]]
+[^a]: [[Alma 1.1|Alma 1:1]].  

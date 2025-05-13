@@ -5,5 +5,5 @@
 [Acts 17:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.24?lang=eng#p24)
 
 
-[^a]: TG [[Creation, Create]].
-[^b]: [[Acts 7.48|Acts 7:48.]]
+[^a]: [[Creation, Create|TG Creation]].  
+[^b]: [[Acts 7.48|Acts 7:48]].  

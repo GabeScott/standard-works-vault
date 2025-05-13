@@ -5,5 +5,5 @@
 [Isaiah 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.8?lang=eng#p8)
 
 
-[^a]: TG [[Apostasy of Israel]]; [[Idolatry, Idol]].
-[^b]: TG [[Trust Not in the Arm of Flesh]]; [[Assembly for Worship]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]]; [[Idolatry, Idol|Idolatry]].  
+[^b]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]]; [[Worship|Worship]].  

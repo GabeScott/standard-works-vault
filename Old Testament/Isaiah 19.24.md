@@ -5,5 +5,5 @@
 [Isaiah 19:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.24?lang=eng#p24)
 
 
-[^a]: IE all three will be allied, with Israel as a blessing in the midst of them.
-[^b]: TG [[Israel, Mission of]].
+[^a]: IE all three will be allied, with Israel as a blessing in the midst of them.  
+[^b]: [[Israel, Mission of|TG Israel, Mission of]].  

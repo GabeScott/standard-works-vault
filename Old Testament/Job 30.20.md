@@ -5,4 +5,4 @@
 [Job 30:20](https://www.churchofjesuschrist.org/study/scriptures/ot/job/30.20?lang=eng#p20)
 
 
-[^a]: HEB answer.
+[^a]: HEB answer.  

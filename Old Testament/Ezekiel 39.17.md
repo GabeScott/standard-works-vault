@@ -5,4 +5,4 @@
 [Ezekiel 39:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.17?lang=eng#p17)
 
 
-[^a]: [[D&C 29.20|D&C 29:20 (17-20).]]
+[^a]: [[D&C 29.17|D&C 29:20 (17–20)]][[D&C 29.18|]][[D&C 29.19|]][[D&C 29.20|]].  

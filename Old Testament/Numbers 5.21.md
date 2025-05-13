@@ -5,4 +5,4 @@
 [Numbers 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/num/5.21?lang=eng#p21)
 
 
-[^a]: HEB diminish, or fall away (also vv. 22, 27).
+[^a]: HEB diminish, or fall away (also [[Numbers 5.22|vv. 22, 27]][[Numbers 5.27|]]).  

@@ -5,4 +5,4 @@
 [Genesis 19:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.30?lang=eng#p30)
 
 
-[^a]: [[Genesis 19.17|Gen. 19:17 (17-19).]]
+[^a]: [[Genesis 19.17|Gen. 19:17 (17–19)]][[Genesis 19.18|]][[Genesis 19.19|]].  

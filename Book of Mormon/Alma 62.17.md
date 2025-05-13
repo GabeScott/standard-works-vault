@@ -5,4 +5,4 @@
 [Alma 62:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 47.29|Alma 47:29.]]
+[^a]: [[Alma 47.29|Alma 47:29]].  

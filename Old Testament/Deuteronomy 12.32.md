@@ -5,5 +5,5 @@
 [Deuteronomy 12:32](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.32?lang=eng#p32)
 
 
-[^a]: TG [[False Doctrine]].
-[^b]: TG [[Scriptures, Preservation of]].
+[^a]: [[False Doctrine|TG False Doctrine]].  
+[^b]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  

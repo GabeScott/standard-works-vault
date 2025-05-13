@@ -5,8 +5,8 @@
 [1 Timothy 6:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 119.36|Ps. 119:36]]; [[James 5.3|James 5:3 (1-6).]]
-[^b]: TG [[Selfishness]].
-[^c]: TG [[Covet, Covetousness]].
-[^d]: GR wandered, apostatized.
-[^e]: TG [[Sorrow]].
+[^a]: [[Psalms 119.36|Ps. 119:36]]; [[James 5.1|James 5:3 (1–6)]][[James 5.2|]][[James 5.3|]][[James 5.4|]][[James 5.5|]][[James 5.6|]].  
+[^b]: [[Selfishness|TG Selfishness]].  
+[^c]: [[Covet, Covetousness|TG Covet]].  
+[^d]: GR wandered, apostatized.  
+[^e]: [[Sorrow|TG Sorrow]].  

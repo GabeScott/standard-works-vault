@@ -5,4 +5,4 @@
 [1 Samuel 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/8.1?lang=eng#p1)
 
 
-[^a]: [[1 Chronicles 6.28|1 Chr. 6:28.]]
+[^a]: [[1 Chronicles 6.28|1 Chr. 6:28]].  

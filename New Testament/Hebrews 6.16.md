@@ -5,5 +5,5 @@
 [Hebrews 6:16](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.16?lang=eng#p16)
 
 
-[^a]: TG [[Oath]].
-[^b]: TG [[Strife]].
+[^a]: [[Oath|TG Oath]].  
+[^b]: [[Strife|TG Strife]].  

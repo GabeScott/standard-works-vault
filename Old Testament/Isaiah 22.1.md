@@ -5,4 +5,4 @@
 [Isaiah 22:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.1?lang=eng#p1)
 
 
-[^a]: IE a message of doom to Jerusalem.
+[^a]: IE a message of doom to Jerusalem.  

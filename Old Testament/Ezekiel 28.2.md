@@ -5,5 +5,5 @@
 [Ezekiel 28:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.2?lang=eng#p2)
 
 
-[^a]: TG [[Pride]].
-[^b]: [[Isaiah 55.8|Isa. 55:8 (8-9).]]
+[^a]: [[Pride|TG Pride]].  
+[^b]: [[Isaiah 55.8|Isa. 55:8 (8–9)]][[Isaiah 55.9|]].  

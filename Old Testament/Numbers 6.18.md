@@ -5,5 +5,5 @@
 [Numbers 6:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.18?lang=eng#p18)
 
 
-[^a]: [[Acts 21.24|Acts 21:24.]]
-[^b]: OR consecration (also vv. 19, 21).
+[^a]: [[Acts 21.24|Acts 21:24]].  
+[^b]: OR consecration (also [[Numbers 6.19|vv. 19, 21]][[Numbers 6.21|]]).  

@@ -5,7 +5,7 @@
 [1 Chronicles 28:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/28.9?lang=eng#p9)
 
 
-[^a]: [[1 Kings 8.61|1 Kgs. 8:61.]]
-[^b]: TG [[God, Omniscience of]].
-[^c]: [[D&C 6.16|D&C 6:16.]]
-[^d]: [[D&C 88.63|D&C 88:63.]]
+[^a]: [[1 Kings 8.61|1 Kgs. 8:61]].  
+[^b]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^c]: [[D&C 6.16|D&C 6:16]].  
+[^d]: [[D&C 88.63|D&C 88:63]].  

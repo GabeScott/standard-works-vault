@@ -5,5 +5,5 @@
 [Psalms 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/11.4?lang=eng#p4)
 
 
-[^a]: TG [[Kingdom of God, in Heaven]].
-[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  
+[^b]: [[Heaven|TG Heaven]].  

@@ -5,4 +5,4 @@
 [Ezra 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/7.18?lang=eng#p18)
 
 
-[^a]: [[Exodus 12.35|Ex. 12:35 (33-36).]]
+[^a]: [[Exodus 12.33|Ex. 12:35 (33–36)]][[Exodus 12.34|]][[Exodus 12.35|]][[Exodus 12.36|]].  

@@ -5,4 +5,4 @@
 [Numbers 33:55](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.55?lang=eng#p55)
 
 
-[^a]: [[Joshua 23.13|Josh. 23:13]]; [[Ezekiel 28.24|Ezek. 28:24.]]
+[^a]: [[Joshua 23.13|Josh. 23:13]]; [[Ezekiel 28.24|Ezek. 28:24]].  

@@ -5,4 +5,4 @@
 [Joshua 14:12](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/14.12?lang=eng#p12)
 
 
-[^a]: OR fortified.
+[^a]: OR fortified.  

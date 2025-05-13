@@ -5,6 +5,6 @@
 [Acts 2:42](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.42?lang=eng#p42)
 
 
-[^a]: TG [[Commitment]]; [[Steadfastness, Steadfast]]; [[Sustaining Church Leaders]].
-[^b]: TG [[Fellowshipping]].
-[^c]: TG [[Bread]]; [[Sacrament]].
+[^a]: [[Commitment|TG Commitment]]; [[Steadfastness, Steadfast|Steadfastness]]; [[Sustaining Church Leaders|Sustaining Church Leaders]].  
+[^b]: [[Fellowshipping|TG Fellowshipping]].  
+[^c]: [[Bread|TG Bread]]; [[Sacrament|Sacrament]].  

@@ -5,5 +5,5 @@
 [Acts 12:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/12.2?lang=eng#p2)
 
 
-[^a]: TG [[Tyranny]].
-[^b]: TG [[Martyrdom]].
+[^a]: [[Tyranny|TG Tyranny]].  
+[^b]: [[Martyrdom|TG Martyrdom]].  

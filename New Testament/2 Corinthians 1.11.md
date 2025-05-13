@@ -5,4 +5,4 @@
 [2 Corinthians 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.11?lang=eng#p11)
 
 
-[^a]: Philip. 1:19; Philem. 1:22.
+[^a]: [[Philippians 1.19|Philip. 1:19]]; [[Philemon 1.22|Philem. 1:22]].  

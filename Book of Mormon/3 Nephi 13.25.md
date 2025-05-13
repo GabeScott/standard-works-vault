@@ -5,7 +5,7 @@
 [3 Nephi 13:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p25#p25)
 
 
-[^a]: [[Matthew 6.25|Matt. 6:25]]; [[3 Nephi 12.1|3 Ne. 12:1]]; [[3 Nephi 15.11|15:11.]]
-[^b]: TG [[Church Organization]]; [[Delegation of Responsibility]].
-[^c]: [[Alma 31.37|Alma 31:37]]; [[D&C 84.81|D&C 84:81 (79-85).]]
-[^d]: [[Job 27.16|Job 27:16 (16-17).]]
+[^a]: [[Matthew 6.25|Matt. 6:25]]; [[3 Nephi 12.1|3 Ne. 12:1]]; [[3 Nephi 15.11|15:11]].  
+[^b]: [[Church Organization|TG Church Organization]]; [[Delegation of Responsibility|Delegation of Responsibility]].  
+[^c]: [[Alma 31.37|Alma 31:37]]; [[D&C 84.79|D&C 84:81 (79–85)]][[D&C 84.80|]][[D&C 84.81|]][[D&C 84.82|]][[D&C 84.83|]][[D&C 84.84|]][[D&C 84.85|]].  
+[^d]: [[Job 27.16|Job 27:16 (16–17)]][[Job 27.17|]].  

@@ -5,4 +5,4 @@
 [Psalms 42:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/42.8?lang=eng#p8)
 
 
-[^a]: [[Psalms 63.6|Ps. 63:6.]]
+[^a]: [[Psalms 63.6|Ps. 63:6]].  

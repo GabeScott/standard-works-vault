@@ -5,6 +5,6 @@
 [Romans 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.11?lang=eng#p11)
 
 
-[^a]: TG [[Signs]].
-[^b]: TG [[Circumcision]].
-[^c]: [[Abraham 2.10|Abr. 2:10.]]
+[^a]: [[Signs|TG Signs]].  
+[^b]: [[Circumcision|TG Circumcision]].  
+[^c]: [[Abraham 2.10|Abr. 2:10]].  

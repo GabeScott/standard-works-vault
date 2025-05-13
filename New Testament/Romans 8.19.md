@@ -5,6 +5,6 @@
 [Romans 8:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.19?lang=eng#p19)
 
 
-[^a]: GR eager hope.
-[^b]: GR creation, material universe.
-[^c]: GR revelation.
+[^a]: GR eager hope.  
+[^b]: GR creation, material universe.  
+[^c]: GR revelation.  

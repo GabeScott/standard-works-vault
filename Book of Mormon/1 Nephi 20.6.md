@@ -5,4 +5,4 @@
 [1 Nephi 20:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Corinthians 9.16|1 Cor. 9:16.]]
+[^a]: [[1 Corinthians 9.16|1 Cor. 9:16]].  

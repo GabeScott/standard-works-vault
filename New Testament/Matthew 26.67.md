@@ -5,4 +5,4 @@
 [Matthew 26:67](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.67?lang=eng#p67)
 
 
-[^a]: [[Isaiah 50.6|Isa. 50:6.]]
+[^a]: [[Isaiah 50.6|Isa. 50:6]].  

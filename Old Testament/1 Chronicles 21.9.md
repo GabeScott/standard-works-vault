@@ -5,4 +5,4 @@
 [1 Chronicles 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.9?lang=eng#p9)
 
 
-[^a]: TG [[Seer]].
+[^a]: [[Seer|TG Seer]].  

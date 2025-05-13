@@ -5,5 +5,5 @@
 [3 Nephi 3:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p21#p21)
 
 
-[^a]: [[Alma 43.46|Alma 43:46 (46-47)]]; [[Alma 48.14|48:14]]; [[Mormon 3.10|Morm. 3:10 (10-11).]]
-[^b]: [[1 Samuel 14.12|1 Sam. 14:12]]; [[2 Kings 3.18|2 Kgs. 3:18]]; [[1 Nephi 3.29|1 Ne. 3:29.]]
+[^a]: [[Alma 43.46|Alma 43:46 (46–47)]][[Alma 43.47|]]; [[Alma 48.14|48:14]]; [[Mormon 3.10|Morm. 3:10 (10–11)]][[Mormon 3.11|]].  
+[^b]: [[1 Samuel 14.12|1 Sam. 14:12]]; [[2 Kings 3.18|2 Kgs. 3:18]]; [[1 Nephi 3.29|1 Ne. 3:29]].  

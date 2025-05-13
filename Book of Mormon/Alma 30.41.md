@@ -5,4 +5,4 @@
 [Alma 30:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p41#p41)
 
 
-[^a]: TG [[Testimony]].
+[^a]: [[Testimony|TG Testimony]].  

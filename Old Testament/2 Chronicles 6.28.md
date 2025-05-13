@@ -5,5 +5,5 @@
 [2 Chronicles 6:28](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/6.28?lang=eng#p28)
 
 
-[^a]: OR blight.
-[^b]: HEB stroke, plague (also v. 29).
+[^a]: OR blight.  
+[^b]: HEB stroke, plague (also [[2 Chronicles 6.29|v. 29]]).  

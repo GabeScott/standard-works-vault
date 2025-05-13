@@ -5,5 +5,5 @@
 [Jarom 1:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/jarom/1?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Contention]].
-[^b]: [[Omni 1.3|Omni 1:3.]]
+[^a]: [[Contention|TG Contention]].  
+[^b]: [[Omni 1.3|Omni 1:3]].  

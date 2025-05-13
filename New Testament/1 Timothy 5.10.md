@@ -5,6 +5,6 @@
 [1 Timothy 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.10?lang=eng#p10)
 
 
-[^a]: [[Acts 16.15|Acts 16:15 (14-15).]]
-[^b]: TG [[Wash, Washing]].
-[^c]: JST 1 Tim. 5:10 … clothes …
+[^a]: [[Acts 16.14|Acts 16:15 (14–15)]][[Acts 16.15|]].  
+[^b]: [[Wash, Washing|TG Wash]].  
+[^c]: JST 1 Tim. 5:10 … clothes …  

@@ -5,4 +5,4 @@
 [Isaiah 46:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.2?lang=eng#p2)
 
 
-[^a]: IE the idols.
+[^a]: IE the idols.  

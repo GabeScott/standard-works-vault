@@ -5,5 +5,5 @@
 [Ezekiel 32:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/32.27?lang=eng#p27)
 
 
-[^a]: [[Isaiah 14.18|Isa. 14:18 (18-19).]]
-[^b]: [[Galatians 6.7|Gal. 6:7.]]
+[^a]: [[Isaiah 14.18|Isa. 14:18 (18–19)]][[Isaiah 14.19|]].  
+[^b]: [[Galatians 6.7|Gal. 6:7]].  

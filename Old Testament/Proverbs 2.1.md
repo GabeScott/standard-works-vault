@@ -5,4 +5,4 @@
 [Proverbs 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/2.1?lang=eng#p1)
 
 
-[^a]: OR treasure. Prov. 4:21.
+[^a]: OR treasure. [[Proverbs 4.21|Prov. 4:21]].  

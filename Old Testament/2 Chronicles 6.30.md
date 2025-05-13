@@ -5,4 +5,4 @@
 [2 Chronicles 6:30](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/6.30?lang=eng#p30)
 
 
-[^a]: TG [[God, Omniscience of]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  

@@ -5,5 +5,5 @@
 [John 4:38](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.38?lang=eng#p38)
 
 
-[^a]: TG [[Harvest]].
-[^b]: JST John 4:40 … the prophets have labored …
+[^a]: [[Harvest|TG Harvest]].  
+[^b]: JST John 4:40 … the prophets have labored …  

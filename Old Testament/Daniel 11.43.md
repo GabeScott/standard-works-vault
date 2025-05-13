@@ -5,4 +5,4 @@
 [Daniel 11:43](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.43?lang=eng#p43)
 
 
-[^a]: IE march with him.
+[^a]: IE march with him.  

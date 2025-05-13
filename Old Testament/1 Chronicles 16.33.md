@@ -5,6 +5,6 @@
 [1 Chronicles 16:33](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.33?lang=eng#p33)
 
 
-[^a]: [[Isaiah 55.12|Isa. 55:12.]]
-[^b]: TG [[Jesus Christ, Judge]].
-[^c]: TG [[Earth, Destiny of]].
+[^a]: [[Isaiah 55.12|Isa. 55:12]].  
+[^b]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  
+[^c]: [[Earth, Destiny of|TG Earth, Destiny of]].  

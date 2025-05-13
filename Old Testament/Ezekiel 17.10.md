@@ -5,5 +5,5 @@
 [Ezekiel 17:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 18.17|Jer. 18:17.]]
-[^b]: [[Ezekiel 19.12|Ezek. 19:12.]]
+[^a]: [[Jeremiah 18.17|Jer. 18:17]].  
+[^b]: [[Ezekiel 19.12|Ezek. 19:12]].  

@@ -5,4 +5,4 @@
 [Genesis 10:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.29?lang=eng#p29)
 
 
-[^a]: [[Genesis 2.11|Gen. 2:11.]]
+[^a]: [[Genesis 2.11|Gen. 2:11]].  

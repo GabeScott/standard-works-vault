@@ -5,5 +5,5 @@
 [Jeremiah 6:26](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.26?lang=eng#p26)
 
 
-[^a]: TG [[Apparel]].
-[^b]: [[Amos 8.10|Amos 8:10.]]
+[^a]: [[Apparel|TG Apparel]].  
+[^b]: [[Amos 8.10|Amos 8:10]].  

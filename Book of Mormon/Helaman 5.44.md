@@ -5,6 +5,6 @@
 [Helaman 5:44](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p44#p44)
 
 
-[^a]: [[Helaman 6.6|Hel. 6:6.]]
-[^b]: [[Helaman 11.19|Hel. 11:19.]]
-[^c]: TG [[Joy]].
+[^a]: [[Helaman 6.6|Hel. 6:6]].  
+[^b]: [[Helaman 11.19|Hel. 11:19]].  
+[^c]: [[Joy|TG Joy]].  

@@ -5,6 +5,6 @@
 [Jeremiah 7:34](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.34?lang=eng#p34)
 
 
-[^a]: [[Jeremiah 16.9|Jer. 16:9]]; [[Jeremiah 25.10|25:10]]; [[Hosea 2.11|Hosea 2:11.]]
-[^b]: [[Revelation 18.23|Rev. 18:23 (22-24).]]
-[^c]: [[Jeremiah 27.17|Jer. 27:17]]; [[Jeremiah 44.2|44:2.]]
+[^a]: [[Jeremiah 16.9|Jer. 16:9]]; [[Jeremiah 25.10|25:10]]; [[Hosea 2.11|Hosea 2:11]].  
+[^b]: [[Revelation 18.22|Rev. 18:23 (22–24)]][[Revelation 18.23|]][[Revelation 18.24|]].  
+[^c]: [[Jeremiah 27.17|Jer. 27:17]]; [[Jeremiah 44.2|44:2]].  

@@ -5,5 +5,5 @@
 [1 Kings 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/5.6?lang=eng#p6)
 
 
-[^a]: [[1 Chronicles 22.4|1 Chr. 22:4]]; [[Ezra 3.7|Ezra 3:7]]; [[2 Nephi 19.10|2 Ne. 19:10.]]
-[^b]: HEB know how.
+[^a]: [[1 Chronicles 22.4|1 Chr. 22:4]]; [[Ezra 3.7|Ezra 3:7]]; [[2 Nephi 19.10|2 Ne. 19:10]].  
+[^b]: HEB know how.  

@@ -5,4 +5,4 @@
 [Leviticus 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/2.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 23.19|Ex. 23:19.]]
+[^a]: [[Exodus 23.19|Ex. 23:19]].  

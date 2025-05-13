@@ -5,4 +5,4 @@
 [Alma 37:44](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p44#p44)
 
 
-[^a]: [[Psalms 119.105|Ps. 119:105.]]
+[^a]: [[Psalms 119.105|Ps. 119:105]].  

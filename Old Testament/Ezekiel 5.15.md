@@ -5,4 +5,4 @@
 [Ezekiel 5:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/5.15?lang=eng#p15)
 
 
-[^a]: [[Jeremiah 24.9|Jer. 24:9.]]
+[^a]: [[Jeremiah 24.9|Jer. 24:9]].  

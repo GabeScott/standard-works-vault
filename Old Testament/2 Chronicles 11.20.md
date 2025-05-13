@@ -5,4 +5,4 @@
 [2 Chronicles 11:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/11.20?lang=eng#p20)
 
 
-[^a]: [[1 Kings 15.2|1 Kgs. 15:2.]]
+[^a]: [[1 Kings 15.2|1 Kgs. 15:2]].  

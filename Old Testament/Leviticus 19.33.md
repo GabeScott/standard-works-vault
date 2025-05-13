@@ -5,4 +5,4 @@
 [Leviticus 19:33](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.33?lang=eng#p33)
 
 
-[^a]: HEB oppress.
+[^a]: HEB oppress.  

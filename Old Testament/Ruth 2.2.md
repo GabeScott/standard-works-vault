@@ -5,5 +5,5 @@
 [Ruth 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.2?lang=eng#p2)
 
 
-[^a]: [[Leviticus 19.9|Lev. 19:9]]; [[Deuteronomy 24.19|Deut. 24:19.]]
-[^b]: OR grain.
+[^a]: [[Leviticus 19.9|Lev. 19:9]]; [[Deuteronomy 24.19|Deut. 24:19]].  
+[^b]: OR grain.  

@@ -5,5 +5,5 @@
 [Hosea 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.15?lang=eng#p15)
 
 
-[^a]: IE Trouble. Josh. 7:26; [[Isaiah 65.10|Isa. 65:10.]]
-[^b]: [[Exodus 15.1|Ex. 15:1 (1, 20).]]
+[^a]: IE Trouble. [[Joshua 7.26|Josh. 7:26]]; [[Isaiah 65.10|Isa. 65:10]].  
+[^b]: [[Exodus 15.1|Ex. 15:1 (1, 20)]][[Exodus 15.20|]].  

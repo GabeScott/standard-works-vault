@@ -5,4 +5,4 @@
 [Alma 51:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 46.13|Alma 46:13 (12-13).]]
+[^a]: [[Alma 46.12|Alma 46:13 (12–13)]][[Alma 46.13|]].  

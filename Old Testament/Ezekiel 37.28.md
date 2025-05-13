@@ -5,6 +5,6 @@
 [Ezekiel 37:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.28?lang=eng#p28)
 
 
-[^a]: TG [[Heathen]].
-[^b]: TG [[God, Knowledge about]].
-[^c]: TG [[Sanctification, Sanctify]].
+[^a]: [[Heathen|TG Heathen]].  
+[^b]: [[God, Knowledge about|TG God, Knowledge about]].  
+[^c]: [[Sanctification, Sanctify|TG Sanctification]].  

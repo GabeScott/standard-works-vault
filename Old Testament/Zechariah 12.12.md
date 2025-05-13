@@ -5,4 +5,4 @@
 [Zechariah 12:12](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/12.12?lang=eng#p12)
 
 
-[^a]: [[Matthew 24.30|Matt. 24:30.]]
+[^a]: [[Matthew 24.30|Matt. 24:30]].  

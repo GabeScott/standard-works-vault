@@ -5,4 +5,4 @@
 [3 Nephi 28:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p33#p33)
 
 
-[^a]: [[3 Nephi 26.8|3 Ne. 26:8 (6-12).]]
+[^a]: [[3 Nephi 26.6|3 Ne. 26:8 (6–12)]][[3 Nephi 26.7|]][[3 Nephi 26.8|]][[3 Nephi 26.9|]][[3 Nephi 26.10|]][[3 Nephi 26.11|]][[3 Nephi 26.12|]].  

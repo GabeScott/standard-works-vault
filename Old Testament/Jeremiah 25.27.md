@@ -5,4 +5,4 @@
 [Jeremiah 25:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.27?lang=eng#p27)
 
 
-[^a]: [[Jeremiah 48.26|Jer. 48:26.]]
+[^a]: [[Jeremiah 48.26|Jer. 48:26]].  

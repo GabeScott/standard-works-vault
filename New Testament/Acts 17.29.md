@@ -5,6 +5,6 @@
 [Acts 17:29](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.29?lang=eng#p29)
 
 
-[^a]: TG [[Man, a Spirit Child of Heavenly Father]]; [[Man, Physical Creation of]]; [[Man, Potential to Become like Heavenly Father]]; [[Sons and Daughters of God]]; [[Spirit Creation]].
-[^b]: TG [[Idolatry, Idol]].
-[^c]: [[Jeremiah 44.8|Jer. 44:8.]]
+[^a]: [[Man, a Spirit Child of Heavenly Father|TG Man, a Spirit Child of Heavenly Father]]; [[Man, Physical Creation of|Man, Physical Creation of]]; [[Man, Potential to Become like Heavenly Father|Man, Potential to Become like Heavenly Father]]; [[Sons and Daughters of God|Sons and Daughters of God]]; [[Spirit Creation|Spirit Creation]].  
+[^b]: [[Idolatry, Idol|TG Idolatry]].  
+[^c]: [[Jeremiah 44.8|Jer. 44:8]].  

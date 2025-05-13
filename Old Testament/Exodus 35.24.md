@@ -5,4 +5,4 @@
 [Exodus 35:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 36.3|Ex. 36:3.]]
+[^a]: [[Exodus 36.3|Ex. 36:3]].  

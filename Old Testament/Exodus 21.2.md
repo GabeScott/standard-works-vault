@@ -5,6 +5,6 @@
 [Exodus 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.2?lang=eng#p2)
 
 
-[^a]: TG [[Bondage, Physical]].
-[^b]: TG [[Sabbatical Year]].
-[^c]: TG [[Liberty]].
+[^a]: [[Bondage, Physical|TG Bondage, Physical]].  
+[^b]: [[Sabbatical Year|TG Sabbatical Year]].  
+[^c]: [[Liberty|TG Liberty]].  

@@ -5,4 +5,4 @@
 [Ephesians 6:7](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.7?lang=eng#p7)
 
 
-[^a]: TG [[Service]].
+[^a]: [[Service|TG Service]].  

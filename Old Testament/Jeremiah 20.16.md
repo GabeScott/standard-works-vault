@@ -5,4 +5,4 @@
 [Jeremiah 20:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 13.19|Isa. 13:19 (19-20).]]
+[^a]: [[Isaiah 13.19|Isa. 13:19 (19–20)]][[Isaiah 13.20|]].  

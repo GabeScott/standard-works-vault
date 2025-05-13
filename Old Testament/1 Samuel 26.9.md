@@ -5,4 +5,4 @@
 [1 Samuel 26:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/26.9?lang=eng#p9)
 
 
-[^a]: [[1 Samuel 24.10|1 Sam. 24:10.]]
+[^a]: [[1 Samuel 24.10|1 Sam. 24:10]].  

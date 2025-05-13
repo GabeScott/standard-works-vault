@@ -5,6 +5,6 @@
 [Helaman 5:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p17#p17)
 
 
-[^a]: [[Helaman 4.14|Hel. 4:14.]]
-[^b]: TG [[Teaching with the Spirit]].
-[^c]: [[Helaman 4.4|Hel. 4:4 (2, 4).]]
+[^a]: [[Helaman 4.14|Hel. 4:14]].  
+[^b]: [[Teaching with the Spirit|TG Teaching with the Spirit]].  
+[^c]: [[Helaman 4.2|Hel. 4:4 (2, 4)]][[Helaman 4.4|]].  

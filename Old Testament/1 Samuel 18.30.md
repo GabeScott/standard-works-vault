@@ -5,4 +5,4 @@
 [1 Samuel 18:30](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/18.30?lang=eng#p30)
 
 
-[^a]: OR adored.
+[^a]: OR adored.  

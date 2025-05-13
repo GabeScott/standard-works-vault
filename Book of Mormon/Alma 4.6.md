@@ -5,7 +5,7 @@
 [Alma 4:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Riches]].
-[^b]: [[Alma 1.29|Alma 1:29.]]
-[^c]: TG [[Industry, Industrious]].
-[^d]: TG [[Apparel]].
+[^a]: [[Riches|TG Riches]].  
+[^b]: [[Alma 1.29|Alma 1:29]].  
+[^c]: [[Industry, Industrious|TG Industry]].  
+[^d]: [[Apparel|TG Apparel]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 16:40](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.40?lang=eng#p40)
 
 
-[^a]: [[Exodus 29.38|Ex. 29:38 (38-39).]]
+[^a]: [[Exodus 29.38|Ex. 29:38 (38–39)]][[Exodus 29.39|]].  

@@ -5,4 +5,4 @@
 [Ezra 9:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.11?lang=eng#p11)
 
 
-[^a]: TG [[Filthiness, Filthy]].
+[^a]: [[Filthiness, Filthy|TG Filthiness]].  

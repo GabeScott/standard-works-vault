@@ -5,4 +5,4 @@
 [Isaiah 17:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/17.6?lang=eng#p6)
 
 
-[^a]: IE only a small remnant of Israel will be found after Assyria’s conquest. TG [[Israel, Remnant of]].
+[^a]: IE only a small remnant of Israel will be found after Assyria’s conquest. [[Israel, Remnant of|TG Israel, Remnant of]].  

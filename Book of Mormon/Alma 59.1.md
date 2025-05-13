@@ -5,5 +5,5 @@
 [Alma 59:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/59?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 56.1|Alma 56:1.]]
-[^b]: [[Alma 58.31|Alma 58:31 (31, 41).]]
+[^a]: [[Alma 56.1|Alma 56:1]].  
+[^b]: [[Alma 58.31|Alma 58:31 (31, 41)]][[Alma 58.41|]].  

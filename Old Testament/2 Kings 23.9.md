@@ -5,5 +5,5 @@
 [2 Kings 23:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.9?lang=eng#p9)
 
 
-[^a]: [[Ezekiel 44.13|Ezek. 44:13 (10-14).]]
-[^b]: TG [[Bread, Unleavened]].
+[^a]: [[Ezekiel 44.10|Ezek. 44:13 (10–14)]][[Ezekiel 44.11|]][[Ezekiel 44.12|]][[Ezekiel 44.13|]][[Ezekiel 44.14|]].  
+[^b]: [[Bread, Unleavened|TG Bread, Unleavened]].  

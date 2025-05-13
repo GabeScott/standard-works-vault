@@ -5,5 +5,5 @@
 [Ezekiel 39:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.25?lang=eng#p25)
 
 
-[^a]: HEB restore Jacob from exile.
-[^b]: TG [[Israel, Twelve Tribes of]].
+[^a]: HEB restore Jacob from exile.  
+[^b]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  

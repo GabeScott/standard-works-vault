@@ -5,4 +5,4 @@
 [Helaman 5:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p33#p33)
 
 
-[^a]: [[Romans 8.26|Rom. 8:26.]]
+[^a]: [[Romans 8.26|Rom. 8:26]].  

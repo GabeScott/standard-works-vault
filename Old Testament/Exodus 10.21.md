@@ -5,5 +5,5 @@
 [Exodus 10:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.21?lang=eng#p21)
 
 
-[^a]: TG [[Darkness, Physical]].
-[^b]: [[3 Nephi 8.20|3 Ne. 8:20.]]
+[^a]: [[Darkness, Physical|TG Darkness, Physical]].  
+[^b]: [[3 Nephi 8.20|3 Ne. 8:20]].  

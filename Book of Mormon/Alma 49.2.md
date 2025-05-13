@@ -5,5 +5,5 @@
 [Alma 49:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 48.8|Alma 48:8.]]
-[^b]: [[1 Nephi 16.15|1 Ne. 16:15]]; [[Alma 43.20|Alma 43:20.]]
+[^a]: [[Alma 48.8|Alma 48:8]].  
+[^b]: [[1 Nephi 16.15|1 Ne. 16:15]]; [[Alma 43.20|Alma 43:20]].  

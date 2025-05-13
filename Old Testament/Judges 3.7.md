@@ -5,7 +5,7 @@
 [Judges 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/3.7?lang=eng#p7)
 
 
-[^a]: TG [[Apostasy of Israel]].
-[^b]: [[Judges 4.1|Judg. 4:1.]]
-[^c]: [[Hosea 2.13|Hosea 2:13.]]
-[^d]: HEB asheroth; fertility cult goddesses. TG [[Idolatry, Idol]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  
+[^b]: [[Judges 4.1|Judg. 4:1]].  
+[^c]: [[Hosea 2.13|Hosea 2:13]].  
+[^d]: HEB asheroth; fertility cult goddesses. [[Idolatry, Idol|TG Idolatry]].  

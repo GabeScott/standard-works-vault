@@ -5,6 +5,6 @@
 [Psalms 95:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/95.10?lang=eng#p10)
 
 
-[^a]: [[Numbers 14.33|Num. 14:33]]; [[Deuteronomy 2.14|Deut. 2:14 (14-15).]]
-[^b]: [[Psalms 119.158|Ps. 119:158.]]
-[^c]: [[Proverbs 30.12|Prov. 30:12 (11-14).]]
+[^a]: [[Numbers 14.33|Num. 14:33]]; [[Deuteronomy 2.14|Deut. 2:14 (14–15)]][[Deuteronomy 2.15|]].  
+[^b]: [[Psalms 119.158|Ps. 119:158]].  
+[^c]: [[Proverbs 30.11|Prov. 30:12 (11–14)]][[Proverbs 30.12|]][[Proverbs 30.13|]][[Proverbs 30.14|]].  

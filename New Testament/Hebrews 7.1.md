@@ -5,4 +5,4 @@
 [Hebrews 7:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.1?lang=eng#p1)
 
 
-[^a]: TG [[Priesthood, Melchizedek]].
+[^a]: [[Priesthood, Melchizedek|TG Priesthood, Melchizedek]].  

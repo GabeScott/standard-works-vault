@@ -5,4 +5,4 @@
 [Mosiah 10:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p18#p18)
 
 
-[^a]: [[Mosiah 9.10|Mosiah 9:10]]; [[Mosiah 19.28|19:28 (26, 28).]]
+[^a]: [[Mosiah 9.10|Mosiah 9:10]]; [[Mosiah 19.26|19:28 (26, 28)]][[Mosiah 19.28|]].  

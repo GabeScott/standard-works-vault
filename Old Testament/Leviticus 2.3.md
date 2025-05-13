@@ -5,5 +5,5 @@
 [Leviticus 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/2.3?lang=eng#p3)
 
 
-[^a]: [[Numbers 18.9|Num. 18:9.]]
-[^b]: [[Leviticus 6.16|Lev. 6:16.]]
+[^a]: [[Numbers 18.9|Num. 18:9]].  
+[^b]: [[Leviticus 6.16|Lev. 6:16]].  

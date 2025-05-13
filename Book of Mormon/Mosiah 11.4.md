@@ -5,5 +5,5 @@
 [Mosiah 11:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p4#p4)
 
 
-[^a]: [[Proverbs 29.3|Prov. 29:3.]]
-[^b]: TG [[Concubine]].
+[^a]: [[Proverbs 29.3|Prov. 29:3]].  
+[^b]: [[Concubine|TG Concubine]].  

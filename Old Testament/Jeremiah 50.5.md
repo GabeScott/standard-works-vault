@@ -5,5 +5,5 @@
 [Jeremiah 50:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.5?lang=eng#p5)
 
 
-[^a]: OR everlasting.
-[^b]: TG [[Covenants]].
+[^a]: OR everlasting.  
+[^b]: [[Covenants|TG Covenants]].  

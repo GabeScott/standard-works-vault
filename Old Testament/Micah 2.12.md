@@ -5,6 +5,6 @@
 [Micah 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/2.12?lang=eng#p12)
 
 
-[^a]: [[D&C 33.6|D&C 33:6.]]
-[^b]: TG [[Israel, Remnant of]].
-[^c]: HEB the sheepfold.
+[^a]: [[D&C 33.6|D&C 33:6]].  
+[^b]: [[Israel, Remnant of|TG Israel, Remnant of]].  
+[^c]: HEB the sheepfold.  

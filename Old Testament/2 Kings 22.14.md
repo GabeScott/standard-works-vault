@@ -5,4 +5,4 @@
 [2 Kings 22:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/22.14?lang=eng#p14)
 
 
-[^a]: IE one of two geographical sections of Jerusalem.
+[^a]: IE one of two geographical sections of Jerusalem.  

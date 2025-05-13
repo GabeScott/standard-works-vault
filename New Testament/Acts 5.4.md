@@ -5,5 +5,5 @@
 [Acts 5:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.4?lang=eng#p4)
 
 
-[^a]: TG [[Lying, Liar, Lie]].
-[^b]: [[Joshua 7.20|Josh. 7:20.]]
+[^a]: [[Lying, Liar, Lie|TG Lying]].  
+[^b]: [[Joshua 7.20|Josh. 7:20]].  

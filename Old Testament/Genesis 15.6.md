@@ -5,6 +5,6 @@
 [Genesis 15:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.6?lang=eng#p6)
 
 
-[^a]: JST Gen. 15:9-12 (Appendix).
-[^b]: TG [[Faith]].
-[^c]: TG [[God, the Standard of Righteousness]].
+[^a]: [[JST Genesis 15.9|JST Gen. 15:9–12 (Appendix)]][[JST Genesis 15.10|]][[JST Genesis 15.11|]][[JST Genesis 15.12|]].  
+[^b]: [[Faith|TG Faith]].  
+[^c]: [[Righteousness|TG Righteousness]].  

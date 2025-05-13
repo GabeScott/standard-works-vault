@@ -5,4 +5,4 @@
 [Exodus 14:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.29?lang=eng#p29)
 
 
-[^a]: [[Isaiah 11.16|Isa. 11:16]]; [[2 Nephi 21.16|2 Ne. 21:16]]; [[D&C 133.27|D&C 133:27.]]
+[^a]: [[Isaiah 11.16|Isa. 11:16]]; [[2 Nephi 21.16|2 Ne. 21:16]]; [[D&C 133.27|D&C 133:27]].  

@@ -5,5 +5,5 @@
 [Alma 53:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Self-Sacrifice]].
-[^b]: [[Alma 56.47|Alma 56:47]]. TG [[Liberty]].
+[^a]: [[Self-Sacrifice|TG Self-Sacrifice]].  
+[^b]: [[Alma 56.47|Alma 56:47]]. [[Liberty|TG Liberty]].  

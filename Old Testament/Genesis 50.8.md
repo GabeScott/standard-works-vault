@@ -5,4 +5,4 @@
 [Genesis 50:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 45.10|Gen. 45:10.]]
+[^a]: [[Genesis 45.10|Gen. 45:10]].  

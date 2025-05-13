@@ -5,7 +5,7 @@
 [4 Nephi 1:48](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p48#p48)
 
 
-[^a]: [[Words of Mormon 1.2|Morm. 1:2.]]
-[^b]: [[Mormon 2.17|Morm. 2:17.]]
-[^c]: TG [[Scriptures, Preservation of]].
-[^d]: [[Helaman 3.15|Hel. 3:15 (13, 15-16).]]
+[^a]: [[Mormon 1.2|Morm. 1:2]].  
+[^b]: [[Mormon 2.17|Morm. 2:17]].  
+[^c]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  
+[^d]: [[Helaman 3.13|Hel. 3:15 (13, 15–16)]][[Helaman 3.15|]][[Helaman 3.16|]].  

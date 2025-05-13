@@ -5,5 +5,5 @@
 [Galatians 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.6?lang=eng#p6)
 
 
-[^a]: TG [[Apostasy of Individuals]]; [[Apostasy of the Early Christian Church]].
-[^b]: [[2 Corinthians 11.4|2 Cor. 11:4.]]
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]]; [[Apostasy of the Early Christian Church|Apostasy of the Early Christian Church]].  
+[^b]: [[2 Corinthians 11.4|2 Cor. 11:4]].  

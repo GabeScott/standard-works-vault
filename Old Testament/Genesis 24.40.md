@@ -5,4 +5,4 @@
 [Genesis 24:40](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.40?lang=eng#p40)
 
 
-[^b]: TG [[Walking with God]].
+[^b]: [[Walking with God|TG Walking with God]].  

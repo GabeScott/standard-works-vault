@@ -5,5 +5,5 @@
 [2 Chronicles 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.9?lang=eng#p9)
 
 
-[^a]: [[1 Kings 8.66|1 Kgs. 8:66 (65-66).]]
-[^b]: TG [[Solemn Assembly]].
+[^a]: [[1 Kings 8.65|1 Kgs. 8:66 (65–66)]][[1 Kings 8.66|]].  
+[^b]: [[Solemn Assembly|TG Solemn Assembly]].  

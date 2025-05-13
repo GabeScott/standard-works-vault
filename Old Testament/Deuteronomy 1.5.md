@@ -5,5 +5,5 @@
 [Deuteronomy 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.5?lang=eng#p5)
 
 
-[^a]: HEB explain, clarify, expound.
-[^b]: HEB this “teaching.”
+[^a]: HEB explain, clarify, expound.  
+[^b]: HEB this “teaching.”  

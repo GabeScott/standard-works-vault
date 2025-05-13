@@ -5,4 +5,4 @@
 [Isaiah 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.8?lang=eng#p8)
 
 
-[^a]: OR fish hooks.
+[^a]: OR fish hooks.  

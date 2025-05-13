@@ -5,4 +5,4 @@
 [Judges 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.14?lang=eng#p14)
 
 
-[^a]: [[D&C 4.2|D&C 4:2.]]
+[^a]: [[D&C 4.2|D&C 4:2]].  

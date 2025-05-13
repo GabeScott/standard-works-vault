@@ -5,6 +5,6 @@
 [Isaiah 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.9?lang=eng#p9)
 
 
-[^a]: Matt. 13:14-15; Acts 28:26-27.
-[^b]: [[Luke 8.10|Luke 8:10]]; [[2 Nephi 16.9|2 Ne. 16:9.]]
-[^c]: TG [[Unbelief, Unbelievers]].
+[^a]: [[Matthew 13.14|Matt. 13:14–15]][[Matthew 13.15|]]; [[Acts 28.26|Acts 28:26–27]][[Acts 28.27|]].  
+[^b]: [[Luke 8.10|Luke 8:10]]; [[2 Nephi 16.9|2 Ne. 16:9]].  
+[^c]: [[Unbelief, Unbelievers|TG Unbelief]].  

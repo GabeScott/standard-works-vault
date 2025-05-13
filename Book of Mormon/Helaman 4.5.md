@@ -5,4 +5,4 @@
 [Helaman 4:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p5#p5)
 
 
-[^a]: Hel. 5:16, 52.
+[^a]: [[Helaman 5.16|Hel. 5:16, 52]][[Helaman 5.52|]].  

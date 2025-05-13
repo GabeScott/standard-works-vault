@@ -5,5 +5,5 @@
 [Matthew 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.3?lang=eng#p3)
 
 
-[^a]: TG [[Devil, Church of]].
-[^b]: TG [[Bread]].
+[^a]: [[Devil|TG Devil]].  
+[^b]: [[Bread|TG Bread]].  

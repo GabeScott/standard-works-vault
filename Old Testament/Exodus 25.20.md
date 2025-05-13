@@ -5,4 +5,4 @@
 [Exodus 25:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.20?lang=eng#p20)
 
 
-[^a]: OR they shall face one another (see next line).
+[^a]: OR they shall face one another (see next line).  

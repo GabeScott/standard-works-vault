@@ -5,4 +5,4 @@
 [1 Samuel 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/1.15?lang=eng#p15)
 
 
-[^a]: [[Enos 1.9|Enos 1:9]]; [[Alma 34.26|Alma 34:26 (26-27).]]
+[^a]: [[Enos 1.9|Enos 1:9]]; [[Alma 34.26|Alma 34:26 (26–27)]][[Alma 34.27|]].  

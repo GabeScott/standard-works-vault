@@ -5,5 +5,5 @@
 [2 Corinthians 8:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.14?lang=eng#p14)
 
 
-[^a]: [[Alma 1.30|Alma 1:30 (29-30).]]
-[^b]: TG [[Consecration]].
+[^a]: [[Alma 1.29|Alma 1:30 (29–30)]][[Alma 1.30|]].  
+[^b]: [[Consecration|TG Consecration]].  

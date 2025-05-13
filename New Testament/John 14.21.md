@@ -5,6 +5,6 @@
 [John 14:21](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.21?lang=eng#p21)
 
 
-[^a]: TG [[Obedience, Obedient, Obey]].
-[^b]: TG [[God, Love of]].
-[^c]: TG [[God, Privilege of Seeing]]; [[Revelation]].
+[^a]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^b]: [[God, Love of|TG God, Love of]].  
+[^c]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]]; [[Revelation|Revelation]].  

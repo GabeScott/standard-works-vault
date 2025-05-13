@@ -5,5 +5,5 @@
 [Mark 9:31](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.31?lang=eng#p31)
 
 
-[^a]: TG [[Jesus Christ, Son of Man]].
-[^b]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Jesus Christ, Son of Man|TG Jesus Christ, Son of Man]].  
+[^b]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

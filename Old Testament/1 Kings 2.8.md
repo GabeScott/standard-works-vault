@@ -5,4 +5,4 @@
 [1 Kings 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.8?lang=eng#p8)
 
 
-[^a]: [[2 Samuel 16.5|2 Sam. 16:5]]; [[1 Kings 2.36|1 Kgs. 2:36 (36, 44).]]
+[^a]: [[2 Samuel 16.5|2 Sam. 16:5]]; [[1 Kings 2.36|1 Kgs. 2:36 (36, 44)]][[1 Kings 2.44|]].  

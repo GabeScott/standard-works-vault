@@ -5,4 +5,4 @@
 [Luke 14:31](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.31?lang=eng#p31)
 
 
-[^a]: [[Proverbs 20.18|Prov. 20:18.]]
+[^a]: [[Proverbs 20.18|Prov. 20:18]].  

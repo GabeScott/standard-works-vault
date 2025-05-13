@@ -5,6 +5,6 @@
 [Ezekiel 44:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.23?lang=eng#p23)
 
 
-[^a]: [[Mosiah 23.14|Mosiah 23:14.]]
-[^c]: TG [[Sacred]].
-[^d]: TG [[Uncleanness, Unclean]].
+[^a]: [[Mosiah 23.14|Mosiah 23:14]].  
+[^c]: [[Sacred|TG Sacred]].  
+[^d]: [[Uncleanness, Unclean|TG Uncleanness]].  

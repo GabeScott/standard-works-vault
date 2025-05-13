@@ -5,5 +5,5 @@
 [Jeremiah 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/21.9?lang=eng#p9)
 
 
-[^a]: OR surrenders.
-[^b]: [[Jeremiah 39.18|Jer. 39:18]]; [[Jeremiah 45.5|45:5.]]
+[^a]: OR surrenders.  
+[^b]: [[Jeremiah 39.18|Jer. 39:18]]; [[Jeremiah 45.5|45:5]].  

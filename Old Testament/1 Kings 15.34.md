@@ -5,4 +5,4 @@
 [1 Kings 15:34](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.34?lang=eng#p34)
 
 
-[^a]: TG [[Unrighteous Dominion]].
+[^a]: [[Unrighteous Dominion|TG Unrighteous Dominion]].  

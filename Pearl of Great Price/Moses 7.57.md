@@ -5,5 +5,5 @@
 [Moses 7:57](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.57?lang=eng#p57)
 
 
-[^a]: TG [[Spirits, Disembodied]].
-[^b]: [[D&C 76.73|D&C 76:73 (71-74)]]; [[D&C 88.99|88:99]]. TG [[Salvation for the Dead]]; [[Spirits in Prison]].
+[^a]: [[Spirits, Disembodied|TG Spirits, Disembodied]].  
+[^b]: [[D&C 76.73|D&C 76:73 (71–74)]]; [[D&C 88.99|88:99]]. [[Salvation for the Dead|TG Salvation for the Dead]]; [[Spirits in Prison|Spirits in Prison]].  

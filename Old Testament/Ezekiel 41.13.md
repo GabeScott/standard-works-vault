@@ -5,4 +5,4 @@
 [Ezekiel 41:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 40.47|Ezek. 40:47]]; [[Ezekiel 42.8|42:8.]]
+[^a]: [[Ezekiel 40.47|Ezek. 40:47]]; [[Ezekiel 42.8|42:8]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 12:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/12.23?lang=eng#p23)
 
 
-[^a]: [[2 Samuel 2.4|2 Sam. 2:4 (3-4)]]; [[2 Samuel 5.3|5:3 (1-3).]]
+[^a]: [[2 Samuel 2.3|2 Sam. 2:4 (3–4)]][[2 Samuel 2.4|]]; [[2 Samuel 5.1|5:3 (1–3)]][[2 Samuel 5.2|]][[2 Samuel 5.3|]].  

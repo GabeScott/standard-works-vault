@@ -5,6 +5,6 @@
 [Psalms 120:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/120.5?lang=eng#p5)
 
 
-[^a]: [[Genesis 10.2|Gen. 10:2]]; [[Ezekiel 27.13|Ezek. 27:13.]]
-[^b]: [[Jeremiah 49.29|Jer. 49:29 (28-29).]]
-[^c]: [[Isaiah 60.7|Isa. 60:7.]]
+[^a]: [[Genesis 10.2|Gen. 10:2]]; [[Ezekiel 27.13|Ezek. 27:13]].  
+[^b]: [[Jeremiah 49.28|Jer. 49:29 (28–29)]][[Jeremiah 49.29|]].  
+[^c]: [[Isaiah 60.7|Isa. 60:7]].  

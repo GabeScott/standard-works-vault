@@ -5,4 +5,4 @@
 [Jeremiah 31:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.22?lang=eng#p22)
 
 
-[^a]: HEB unruly or apostate.
+[^a]: HEB unruly or apostate.  

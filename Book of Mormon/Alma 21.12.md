@@ -5,5 +5,5 @@
 [Alma 21:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 23.10|Alma 23:10.]]
-[^b]: [[Matthew 7.14|Matt. 7:14.]]
+[^a]: [[Alma 23.10|Alma 23:10]].  
+[^b]: [[Matthew 7.14|Matt. 7:14]].  

@@ -5,4 +5,4 @@
 [Isaiah 44:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.22?lang=eng#p22)
 
 
-[^a]: TG [[Transgressor]].
+[^a]: [[Transgress, Transgression|TG Transgress]].  

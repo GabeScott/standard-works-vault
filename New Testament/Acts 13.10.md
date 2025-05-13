@@ -5,6 +5,6 @@
 [Acts 13:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.10?lang=eng#p10)
 
 
-[^a]: 1 Jn. 3:10 (10-18); [[Alma 11.23|Alma 11:23.]]
-[^b]: TG [[Enemies, Enemy]].
-[^c]: TG [[God, the Standard of Righteousness]].
+[^a]: [[1 John 3.10|1 Jn. 3:10 (10–18)]][[1 John 3.11|]][[1 John 3.12|]][[1 John 3.13|]][[1 John 3.14|]][[1 John 3.15|]][[1 John 3.16|]][[1 John 3.17|]][[1 John 3.18|]]; [[Alma 11.23|Alma 11:23]].  
+[^b]: [[Enemies, Enemy|TG Enemies]].  
+[^c]: [[Righteousness|TG Righteousness]].  

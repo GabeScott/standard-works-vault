@@ -5,5 +5,5 @@
 [1 Nephi 14:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p3#p3)
 
 
-[^a]: [[Psalms 57.6|Ps. 57:6]]; [[Matthew 7.2|Matt. 7:2 (1-2)]]; [[1 Nephi 22.14|1 Ne. 22:14 (13-14)]]; [[D&C 10.26|D&C 10:26 (25-27)]]; [[D&C 109.25|109:25.]]
-[^b]: [[Alma 19.29|Alma 19:29]]. TG [[Damnation, Damned]]; [[Hell]].
+[^a]: [[Psalms 57.6|Ps. 57:6]]; [[Matthew 7.1|Matt. 7:2 (1–2)]][[Matthew 7.2|]]; [[1 Nephi 22.13|1 Ne. 22:14 (13–14)]][[1 Nephi 22.14|]]; [[D&C 10.25|D&C 10:26 (25–27)]][[D&C 10.26|]][[D&C 10.27|]]; [[D&C 109.25|109:25]].  
+[^b]: [[Alma 19.29|Alma 19:29]]. [[Damnation, Damned|TG Damnation]]; [[Hell|Hell]].  

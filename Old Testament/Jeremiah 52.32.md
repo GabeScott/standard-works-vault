@@ -5,5 +5,5 @@
 [Jeremiah 52:32](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.32?lang=eng#p32)
 
 
-[^a]: [[2 Kings 25.28|2 Kgs. 25:28 (27-30).]]
-[^b]: [[Jeremiah 27.3|Jer. 27:3.]]
+[^a]: [[2 Kings 25.27|2 Kgs. 25:28 (27–30)]][[2 Kings 25.28|]][[2 Kings 25.29|]][[2 Kings 25.30|]].  
+[^b]: [[Jeremiah 27.3|Jer. 27:3]].  

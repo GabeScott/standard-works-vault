@@ -5,5 +5,5 @@
 [1 Corinthians 11:29](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.29?lang=eng#p29)
 
 
-[^a]: TG [[Sacrament]].
-[^b]: GR condemnation, judgment. TG [[Damnation, Damned]].
+[^a]: [[Sacrament|TG Sacrament]].  
+[^b]: GR condemnation, judgment. [[Damnation, Damned|TG Damnation]].  

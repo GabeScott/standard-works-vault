@@ -5,5 +5,5 @@
 [Ecclesiastes 10:18](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.18?lang=eng#p18)
 
 
-[^a]: TG [[Laziness]].
-[^b]: TG [[Idleness, Idle, Idler]].
+[^a]: [[Laziness|TG Laziness]].  
+[^b]: [[Idleness, Idle, Idler|TG Idleness]].  

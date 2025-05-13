@@ -5,4 +5,4 @@
 [Deuteronomy 28:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.18?lang=eng#p18)
 
 
-[^a]: [[Haggai 1.10|Hag. 1:10.]]
+[^a]: [[Haggai 1.10|Hag. 1:10]].  

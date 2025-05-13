@@ -5,7 +5,7 @@
 [Ezekiel 24:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.17?lang=eng#p17)
 
 
-[^a]: [[Jeremiah 16.5|Jer. 16:5 (5, 7).]]
-[^b]: HEB headdress (turban). Ex. 33:4.
-[^c]: [[Leviticus 10.6|Lev. 10:6.]]
-[^d]: [[Leviticus 13.45|Lev. 13:45.]]
+[^a]: [[Jeremiah 16.5|Jer. 16:5 (5, 7)]][[Jeremiah 16.7|]].  
+[^b]: HEB headdress (turban). [[Exodus 33.4|Ex. 33:4]].  
+[^c]: [[Leviticus 10.6|Lev. 10:6]].  
+[^d]: [[Leviticus 13.45|Lev. 13:45]].  

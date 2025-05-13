@@ -5,7 +5,7 @@
 [Mosiah 29:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p20#p20)
 
 
-[^a]: [[Mosiah 21.14|Mosiah 21:14.]]
-[^b]: [[Exodus 2.23|Ex. 2:23 (23-25)]]; [[Alma 43.49|Alma 43:49 (49-50).]]
-[^c]: [[Ezekiel 33.11|Ezek. 33:11 (11, 15-16)]]; [[Mosiah 26.30|Mosiah 26:30.]]
-[^d]: TG [[Trust in God]].
+[^a]: [[Mosiah 21.14|Mosiah 21:14]].  
+[^b]: [[Exodus 2.23|Ex. 2:23 (23–25)]][[Exodus 2.24|]][[Exodus 2.25|]]; [[Alma 43.49|Alma 43:49 (49–50)]][[Alma 43.50|]].  
+[^c]: [[Ezekiel 33.11|Ezek. 33:11 (11, 15–16)]][[Ezekiel 33.15|]][[Ezekiel 33.16|]]; [[Mosiah 26.30|Mosiah 26:30]].  
+[^d]: [[Trust in God|TG Trust in God]].  

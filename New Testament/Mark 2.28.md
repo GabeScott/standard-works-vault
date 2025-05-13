@@ -5,5 +5,5 @@
 [Mark 2:28](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/2.28?lang=eng#p28)
 
 
-[^a]: JST Mark 2:26-27 (Appendix).
-[^b]: TG [[Jesus Christ, Son of Man]].
+[^a]: [[JST Mark 2.26|JST Mark 2:26–27 (Appendix)]][[JST Mark 2.27|]].  
+[^b]: [[Jesus Christ, Son of Man|TG Jesus Christ, Son of Man]].  

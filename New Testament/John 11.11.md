@@ -5,4 +5,4 @@
 [John 11:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.11?lang=eng#p11)
 
 
-[^a]: [[2 Kings 4.31|2 Kgs. 4:31.]]
+[^a]: [[2 Kings 4.31|2 Kgs. 4:31]].  

@@ -5,4 +5,4 @@
 [Jeremiah 6:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.21?lang=eng#p21)
 
 
-[^a]: [[Ezekiel 3.20|Ezek. 3:20]]; [[Mosiah 7.29|Mosiah 7:29.]]
+[^a]: [[Ezekiel 3.20|Ezek. 3:20]]; [[Mosiah 7.29|Mosiah 7:29]].  

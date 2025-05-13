@@ -5,4 +5,4 @@
 [1 Chronicles 16:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.31?lang=eng#p31)
 
 
-[^a]: [[Psalms 97.1|Ps. 97:1.]]
+[^a]: [[Psalms 97.1|Ps. 97:1]].  

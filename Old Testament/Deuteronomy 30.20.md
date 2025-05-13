@@ -5,5 +5,5 @@
 [Deuteronomy 30:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.20?lang=eng#p20)
 
 
-[^a]: TG [[Obedience, Obedient, Obey]].
-[^b]: [[Acts 17.28|Acts 17:28]]; [[D&C 88.13|D&C 88:13 (7, 13).]]
+[^a]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^b]: [[Acts 17.28|Acts 17:28]]; [[D&C 88.7|D&C 88:13 (7, 13)]][[D&C 88.13|]].  

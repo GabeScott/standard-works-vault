@@ -5,4 +5,4 @@
 [Judges 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 25.6|Gen. 25:6.]]
+[^a]: [[Genesis 25.6|Gen. 25:6]].  

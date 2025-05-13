@@ -5,4 +5,4 @@
 [Mosiah 29:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p21#p21)
 
 
-[^a]: [[1 Samuel 8.9|1 Sam. 8:9]]; [[Proverbs 25.5|Prov. 25:5 (4-5).]]
+[^a]: [[1 Samuel 8.9|1 Sam. 8:9]]; [[Proverbs 25.4|Prov. 25:5 (4–5)]][[Proverbs 25.5|]].  

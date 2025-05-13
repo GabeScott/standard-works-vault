@@ -5,4 +5,4 @@
 [2 Samuel 19:31](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.31?lang=eng#p31)
 
 
-[^a]: [[1 Kings 2.7|1 Kgs. 2:7.]]
+[^a]: [[1 Kings 2.7|1 Kgs. 2:7]].  

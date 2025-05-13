@@ -5,5 +5,5 @@
 [Zechariah 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/10.12?lang=eng#p12)
 
 
-[^a]: [[D&C 31.8|D&C 31:8]]; [[D&C 37.2|37:2.]]
-[^b]: [[Micah 4.5|Micah 4:5.]]
+[^a]: [[D&C 31.8|D&C 31:8]]; [[D&C 37.2|37:2]].  
+[^b]: [[Micah 4.5|Micah 4:5]].  

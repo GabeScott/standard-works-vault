@@ -5,4 +5,4 @@
 [3 Nephi 17:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p25#p25)
 
 
-[^a]: [[Exodus 19.9|Ex. 19:9 (9-13).]]
+[^a]: [[Exodus 19.9|Ex. 19:9 (9–13)]][[Exodus 19.10|]][[Exodus 19.11|]][[Exodus 19.12|]][[Exodus 19.13|]].  

@@ -5,5 +5,5 @@
 [Acts 17:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.4?lang=eng#p4)
 
 
-[^a]: [[John 12.20|John 12:20.]]
-[^b]: [[Acts 13.50|Acts 13:50.]]
+[^a]: [[John 12.20|John 12:20]].  
+[^b]: [[Acts 13.50|Acts 13:50]].  

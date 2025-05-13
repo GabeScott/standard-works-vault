@@ -5,5 +5,5 @@
 [Alma 37:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p41#p41)
 
 
-[^a]: [[1 Nephi 16.29|1 Ne. 16:29]]; [[Alma 37.7|Alma 37:7 (6-8).]]
-[^b]: TG [[Apathy]]; [[Laziness]].
+[^a]: [[1 Nephi 16.29|1 Ne. 16:29]]; [[Alma 37.6|Alma 37:7 (6–8)]][[Alma 37.7|]][[Alma 37.8|]].  
+[^b]: [[Apathy|TG Apathy]]; [[Laziness|Laziness]].  

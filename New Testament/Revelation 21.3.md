@@ -5,5 +5,5 @@
 [Revelation 21:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.3?lang=eng#p3)
 
 
-[^a]: TG [[God, Presence of]].
-[^b]: [[Ezekiel 48.35|Ezek. 48:35.]]
+[^a]: [[God, Presence of|TG God, Presence of]].  
+[^b]: [[Ezekiel 48.35|Ezek. 48:35]].  

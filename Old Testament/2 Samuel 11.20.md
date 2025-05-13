@@ -5,4 +5,4 @@
 [2 Samuel 11:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/11.20?lang=eng#p20)
 
 
-[^a]: Joab had not followed the king’s plan (see v. 15) but sent Uriah and his men right up to the city gate and wall. He feared David might be angry because so many were killed with Uriah.
+[^a]: Joab had not followed the king’s plan (see [[2 Samuel 11.15|v. 15]]) but sent Uriah and his men right up to the city gate and wall. He feared David might be angry because so many were killed with Uriah.  

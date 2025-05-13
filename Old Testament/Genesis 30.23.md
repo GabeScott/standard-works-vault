@@ -5,4 +5,4 @@
 [Genesis 30:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.23?lang=eng#p23)
 
 
-[^a]: TG [[Barren, Barrenness]]; [[Reproach]].
+[^a]: [[Barren, Barrenness|TG Barren]]; [[Reproach|Reproach]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.3?lang=eng#p3)
 
 
-[^a]: [[Numbers 21.35|Num. 21:35 (33-35).]]
+[^a]: [[Numbers 21.33|Num. 21:35 (33–35)]][[Numbers 21.34|]][[Numbers 21.35|]].  

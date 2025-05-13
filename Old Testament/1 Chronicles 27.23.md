@@ -5,4 +5,4 @@
 [1 Chronicles 27:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/27.23?lang=eng#p23)
 
 
-[^a]: [[Genesis 15.5|Gen. 15:5]]; [[D&C 132.30|D&C 132:30 (30-31).]]
+[^a]: [[Genesis 15.5|Gen. 15:5]]; [[D&C 132.30|D&C 132:30 (30–31)]][[D&C 132.31|]].  

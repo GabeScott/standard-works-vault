@@ -5,5 +5,5 @@
 [Isaiah 23:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/23.3?lang=eng#p3)
 
 
-[^a]: IE grain from the Nile.
-[^b]: [[1 Chronicles 13.5|1 Chr. 13:5.]]
+[^a]: IE grain from the Nile.  
+[^b]: [[1 Chronicles 13.5|1 Chr. 13:5]].  

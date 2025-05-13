@@ -5,4 +5,4 @@
 [Deuteronomy 28:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.26?lang=eng#p26)
 
 
-[^a]: [[Jeremiah 16.4|Jer. 16:4]]; [[Mosiah 12.2|Mosiah 12:2]]; JS—M 1:27.
+[^a]: [[Jeremiah 16.4|Jer. 16:4]]; [[Mosiah 12.2|Mosiah 12:2]]; [[Joseph Smith Matthew 1.27|JS—M 1:27]].  

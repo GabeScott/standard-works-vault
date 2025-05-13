@@ -5,4 +5,4 @@
 [2 Corinthians 5:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.11?lang=eng#p11)
 
 
-[^a]: TG [[Conscience]].
+[^a]: [[Conscience|TG Conscience]].  

@@ -5,4 +5,4 @@
 [Psalms 63:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/63.3?lang=eng#p3)
 
 
-[^a]: [[D&C 25.10|D&C 25:10 (10, 16).]]
+[^a]: [[D&C 25.10|D&C 25:10 (10, 16)]][[D&C 25.16|]].  

@@ -5,5 +5,5 @@
 [Ecclesiastes 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/12.1?lang=eng#p1)
 
 
-[^a]: [[Alma 37.35|Alma 37:35.]]
-[^b]: [[Ecclesiastes 11.8|Eccl. 11:8.]]
+[^a]: [[Alma 37.35|Alma 37:35]].  
+[^b]: [[Ecclesiastes 11.8|Eccl. 11:8]].  

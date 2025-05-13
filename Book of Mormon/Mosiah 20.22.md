@@ -5,5 +5,5 @@
 [Mosiah 20:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/20?lang=eng&id=p22#p22)
 
 
-[^a]: [[Mosiah 19.26|Mosiah 19:26.]]
-[^b]: TG [[Life, Sanctity of]].
+[^a]: [[Mosiah 19.26|Mosiah 19:26]].  
+[^b]: [[Life, Sanctity of|TG Life, Sanctity of]].  

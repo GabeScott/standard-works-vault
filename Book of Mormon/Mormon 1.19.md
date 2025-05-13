@@ -5,5 +5,5 @@
 [Mormon 1:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/1?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Sorcery]].
-[^b]: [[Mormon 2.10|Morm. 2:10 (10-15).]]
+[^a]: [[Sorcery|TG Sorcery]].  
+[^b]: [[Mormon 2.10|Morm. 2:10 (10–15)]][[Mormon 2.11|]][[Mormon 2.12|]][[Mormon 2.13|]][[Mormon 2.14|]][[Mormon 2.15|]].  

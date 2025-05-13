@@ -5,7 +5,7 @@
 [Psalms 81:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/81.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 50.15|Ps. 50:15]]; [[Alma 9.17|Alma 9:17]]; [[Alma 38.5|38:5]]; [[D&C 3.8|D&C 3:8.]]
-[^b]: [[Exodus 19.18|Ex. 19:18 (18-19).]]
-[^c]: HEB tested.
-[^d]: [[Exodus 17.7|Ex. 17:7 (6-7).]]
+[^a]: [[Psalms 50.15|Ps. 50:15]]; [[Alma 9.17|Alma 9:17]]; [[Alma 38.5|38:5]]; [[D&C 3.8|D&C 3:8]].  
+[^b]: [[Exodus 19.18|Ex. 19:18 (18–19)]][[Exodus 19.19|]].  
+[^c]: HEB tested.  
+[^d]: [[Exodus 17.6|Ex. 17:7 (6–7)]][[Exodus 17.7|]].  

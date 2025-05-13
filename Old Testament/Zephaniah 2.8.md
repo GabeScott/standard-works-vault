@@ -5,5 +5,5 @@
 [Zephaniah 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.8?lang=eng#p8)
 
 
-[^a]: TG [[Reviling, Revile]].
-[^b]: [[Jeremiah 48.42|Jer. 48:42 (29, 42).]]
+[^a]: [[Reviling, Revile|TG Reviling]].  
+[^b]: [[Jeremiah 48.29|Jer. 48:42 (29, 42)]][[Jeremiah 48.42|]].  

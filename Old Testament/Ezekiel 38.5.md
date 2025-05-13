@@ -5,4 +5,4 @@
 [Ezekiel 38:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.5?lang=eng#p5)
 
 
-[^a]: HEB Cush and Phut.
+[^a]: HEB Cush and Phut.  

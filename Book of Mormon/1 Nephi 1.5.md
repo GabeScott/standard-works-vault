@@ -5,4 +5,4 @@
 [1 Nephi 1:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p5#p5)
 
 
-[^a]: [[Jeremiah 29.13|Jer. 29:13]]; [[James 5.16|James 5:16]]; [[2 Nephi 4.24|2 Ne. 4:24 (23-25).]]
+[^a]: [[Jeremiah 29.13|Jer. 29:13]]; [[James 5.16|James 5:16]]; [[2 Nephi 4.23|2 Ne. 4:24 (23–25)]][[2 Nephi 4.24|]][[2 Nephi 4.25|]].  

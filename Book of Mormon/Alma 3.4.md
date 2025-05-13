@@ -5,5 +5,5 @@
 [Alma 3:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p4#p4)
 
 
-[^a]: Alma 2:11, 24.
-[^b]: [[Alma 3.13|Alma 3:13 (13-19).]]
+[^a]: [[Alma 2.11|Alma 2:11, 24]][[Alma 2.24|]].  
+[^b]: [[Alma 3.13|Alma 3:13 (13–19)]][[Alma 3.14|]][[Alma 3.15|]][[Alma 3.16|]][[Alma 3.17|]][[Alma 3.18|]][[Alma 3.19|]].  

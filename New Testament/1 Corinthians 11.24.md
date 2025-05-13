@@ -5,4 +5,4 @@
 [1 Corinthians 11:24](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.24?lang=eng#p24)
 
 
-[^a]: TG [[Jesus Christ, Types of, in Memory]].
+[^a]: [[Jesus Christ, Types of, in Memory|TG Jesus Christ, Types of, in Memory]].  

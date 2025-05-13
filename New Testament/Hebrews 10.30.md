@@ -5,6 +5,6 @@
 [Hebrews 10:30](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.30?lang=eng#p30)
 
 
-[^a]: TG [[Retribution]].
-[^b]: TG [[God, Justice of]].
-[^c]: TG [[Jesus Christ, Judge]].
+[^a]: [[Retribution|TG Retribution]].  
+[^b]: [[God, Justice of|TG God, Justice of]].  
+[^c]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

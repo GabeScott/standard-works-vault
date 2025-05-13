@@ -5,4 +5,4 @@
 [Numbers 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.9?lang=eng#p9)
 
 
-[^a]: [[1 Nephi 17.41|1 Ne. 17:41]]; [[Alma 33.19|Alma 33:19 (18-22).]]
+[^a]: [[1 Nephi 17.41|1 Ne. 17:41]]; [[Alma 33.18|Alma 33:19 (18–22)]][[Alma 33.19|]][[Alma 33.20|]][[Alma 33.21|]][[Alma 33.22|]].  

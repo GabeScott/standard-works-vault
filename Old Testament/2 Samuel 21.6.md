@@ -5,5 +5,5 @@
 [2 Samuel 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/21.6?lang=eng#p6)
 
 
-[^a]: [[Deuteronomy 24.16|Deut. 24:16]]; [[Helaman 11.9|Hel. 11:9.]]
-[^b]: [[Joshua 18.28|Josh. 18:28.]]
+[^a]: [[Deuteronomy 24.16|Deut. 24:16]]; [[Helaman 11.9|Hel. 11:9]].  
+[^b]: [[Joshua 18.28|Josh. 18:28]].  

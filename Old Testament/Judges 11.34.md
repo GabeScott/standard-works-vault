@@ -5,5 +5,5 @@
 [Judges 11:34](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.34?lang=eng#p34)
 
 
-[^a]: [[1 Samuel 18.6|1 Sam. 18:6.]]
-[^b]: IE small hand drums.
+[^a]: [[1 Samuel 18.6|1 Sam. 18:6]].  
+[^b]: IE small hand drums.  

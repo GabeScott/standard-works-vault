@@ -5,6 +5,6 @@
 [3 Nephi 5:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p4#p4)
 
 
-[^a]: [[3 Nephi 6.3|3 Ne. 6:3.]]
-[^b]: [[Alma 44.15|Alma 44:15]]; [[Alma 62.16|62:16 (16-17).]]
-[^c]: TG [[Liberty]].
+[^a]: [[3 Nephi 6.3|3 Ne. 6:3]].  
+[^b]: [[Alma 44.15|Alma 44:15]]; [[Alma 62.16|62:16 (16–17)]][[Alma 62.17|]].  
+[^c]: [[Liberty|TG Liberty]].  

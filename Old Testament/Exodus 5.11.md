@@ -5,4 +5,4 @@
 [Exodus 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/5.11?lang=eng#p11)
 
 
-[^a]: OR none of.
+[^a]: OR none of.  

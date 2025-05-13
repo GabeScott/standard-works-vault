@@ -5,4 +5,4 @@
 [Numbers 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.10?lang=eng#p10)
 
 
-[^a]: JST Num. 16:10 … high priesthood … TG [[Priesthood, Melchizedek]].
+[^a]: JST Num. 16:10 … high priesthood … [[Priesthood, Melchizedek|TG Priesthood, Melchizedek]].  

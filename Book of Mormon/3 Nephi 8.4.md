@@ -5,5 +5,5 @@
 [3 Nephi 8:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/8?lang=eng&id=p4#p4)
 
 
-[^a]: TG [[Doubt, Doubtful]].
-[^b]: TG [[Disputations, Dispute]].
+[^a]: [[Doubt, Doubtful|TG Doubt]].  
+[^b]: [[Disputations, Dispute|TG Disputations]].  

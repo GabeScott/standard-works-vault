@@ -5,5 +5,5 @@
 [2 Nephi 3:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Birthright]].
-[^b]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[Birthright|TG Birthright]].  
+[^b]: [[Obedience, Obedient, Obey|TG Obedience]].  

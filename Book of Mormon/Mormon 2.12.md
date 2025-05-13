@@ -5,5 +5,5 @@
 [Mormon 2:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/2?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Mourning, Mourn]].
-[^b]: [[Helaman 11.9|Hel. 11:9 (8-17).]]
+[^a]: [[Mourning, Mourn|TG Mourning]].  
+[^b]: [[Helaman 11.8|Hel. 11:9 (8–17)]][[Helaman 11.9|]][[Helaman 11.10|]][[Helaman 11.11|]][[Helaman 11.12|]][[Helaman 11.13|]][[Helaman 11.14|]][[Helaman 11.15|]][[Helaman 11.16|]][[Helaman 11.17|]].  

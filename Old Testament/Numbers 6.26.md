@@ -5,4 +5,4 @@
 [Numbers 6:26](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.26?lang=eng#p26)
 
 
-[^a]: TG [[Peace of God]].
+[^a]: [[Peace of God|TG Peace of God]].  

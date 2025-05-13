@@ -5,4 +5,4 @@
 [Job 11:20](https://www.churchofjesuschrist.org/study/scriptures/ot/job/11.20?lang=eng#p20)
 
 
-[^a]: [[D&C 122.9|D&C 122:9.]]
+[^a]: [[D&C 122.9|D&C 122:9]].  

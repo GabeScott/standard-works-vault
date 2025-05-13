@@ -5,4 +5,4 @@
 [Job 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/job/8.9?lang=eng#p9)
 
 
-[^a]: [[Job 7.6|Job 7:6.]]
+[^a]: [[Job 7.6|Job 7:6]].  

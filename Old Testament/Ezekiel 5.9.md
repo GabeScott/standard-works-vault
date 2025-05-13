@@ -5,5 +5,5 @@
 [Ezekiel 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/5.9?lang=eng#p9)
 
 
-[^a]: Dan. 9:12.
-[^b]: [[D&C 29.21|D&C 29:21.]]
+[^a]: [[Daniel 9.12|Dan. 9:12]].  
+[^b]: [[D&C 29.21|D&C 29:21]].  

@@ -5,4 +5,4 @@
 [Mark 4:16](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.16?lang=eng#p16)
 
 
-[^a]: [[D&C 40.2|D&C 40:2.]]
+[^a]: [[D&C 40.2|D&C 40:2]].  

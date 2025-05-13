@@ -5,6 +5,6 @@
 [1 Nephi 12:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/12?lang=eng&id=p17#p17)
 
 
-[^a]: 2 Pet. 2:17; [[1 Nephi 8.23|1 Ne. 8:23]]; [[1 Nephi 15.24|15:24 (23-24).]]
-[^b]: TG [[Apostasy of Individuals]].
-[^c]: [[Proverbs 4.14|Prov. 4:14]]; [[Luke 13.24|Luke 13:24.]]
+[^a]: [[2 Peter 2.17|2 Pet. 2:17]]; [[1 Nephi 8.23|1 Ne. 8:23]]; [[1 Nephi 15.23|15:24 (23–24)]][[1 Nephi 15.24|]].  
+[^b]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  
+[^c]: [[Proverbs 4.14|Prov. 4:14]]; [[Luke 13.24|Luke 13:24]].  

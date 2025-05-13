@@ -5,4 +5,4 @@
 [Acts 26:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.24?lang=eng#p24)
 
 
-[^a]: JS—H 1:24 (24-25).
+[^a]: [[Joseph Smith History 1.24|JS—H 1:24 (24–25)]][[Joseph Smith History 1.25|]].  

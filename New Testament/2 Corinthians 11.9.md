@@ -5,6 +5,6 @@
 [2 Corinthians 11:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.9?lang=eng#p9)
 
 
-[^a]: [[2 Corinthians 12.13|2 Cor. 12:13 (13, 16)]]; 1 Thes. 2:9.
-[^b]: [[1 Corinthians 16.17|1 Cor. 16:17.]]
-[^c]: Philip. 4:10.
+[^a]: [[2 Corinthians 12.13|2 Cor. 12:13 (13, 16)]][[2 Corinthians 12.16|]]; [[1 Thessalonians 2.9|1 Thes. 2:9]].  
+[^b]: [[1 Corinthians 16.17|1 Cor. 16:17]].  
+[^c]: [[Philippians 4.10|Philip. 4:10]].  

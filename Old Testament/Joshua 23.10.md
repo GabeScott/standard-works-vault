@@ -5,5 +5,5 @@
 [Joshua 23:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.10?lang=eng#p10)
 
 
-[^a]: [[Deuteronomy 20.4|Deut. 20:4.]]
-[^b]: TG [[Promise]].
+[^a]: [[Deuteronomy 20.4|Deut. 20:4]].  
+[^b]: [[Promise|TG Promise]].  

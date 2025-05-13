@@ -5,5 +5,5 @@
 [2 Nephi 1:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Bondage, Spiritual]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Bondage, Spiritual|TG Bondage, Spiritual]].  

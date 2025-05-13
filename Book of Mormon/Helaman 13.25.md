@@ -5,5 +5,5 @@
 [Helaman 13:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p25#p25)
 
 
-[^a]: [[Matthew 23.32|Matt. 23:32]]; [[Acts 7.51|Acts 7:51 (51-52).]]
-[^b]: TG [[Prophets, Rejection of]].
+[^a]: [[Matthew 23.32|Matt. 23:32]]; [[Acts 7.51|Acts 7:51 (51–52)]][[Acts 7.52|]].  
+[^b]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

@@ -5,7 +5,7 @@
 [3 Nephi 24:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/24?lang=eng&id=p1#p1)
 
 
-[^a]: Mal. 3:1 (1-18).
-[^b]: [[D&C 45.9|D&C 45:9.]]
-[^c]: [[Isaiah 59.20|Isa. 59:20 (20-21)]]; [[3 Nephi 20.22|3 Ne. 20:22]]; [[3 Nephi 21.25|21:25.]]
-[^d]: TG [[Jesus Christ, Messenger of the Covenant]].
+[^a]: [[Malachi 3.1|Mal. 3:1 (1–18)]][[Malachi 3.2|]][[Malachi 3.3|]][[Malachi 3.4|]][[Malachi 3.5|]][[Malachi 3.6|]][[Malachi 3.7|]][[Malachi 3.8|]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]][[Malachi 3.13|]][[Malachi 3.14|]][[Malachi 3.15|]][[Malachi 3.16|]][[Malachi 3.17|]][[Malachi 3.18|]].  
+[^b]: [[D&C 45.9|D&C 45:9]].  
+[^c]: [[Isaiah 59.20|Isa. 59:20 (20–21)]][[Isaiah 59.21|]]; [[3 Nephi 20.22|3 Ne. 20:22]]; [[3 Nephi 21.25|21:25]].  
+[^d]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  

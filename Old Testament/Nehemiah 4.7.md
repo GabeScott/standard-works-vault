@@ -5,4 +5,4 @@
 [Nehemiah 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/4.7?lang=eng#p7)
 
 
-[^a]: [[Nehemiah 6.16|Neh. 6:16.]]
+[^a]: [[Nehemiah 6.16|Neh. 6:16]].  

@@ -5,5 +5,5 @@
 [Moses 4:31](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.31?lang=eng#p31)
 
 
-[^a]: TG [[Eden]].
-[^b]: [[Alma 42.3|Alma 42:3]]. TG [[Cherubim]].
+[^a]: [[Eden|TG Eden]].  
+[^b]: [[Alma 42.3|Alma 42:3]]. [[Cherubim|TG Cherubim]].  

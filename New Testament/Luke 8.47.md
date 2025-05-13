@@ -5,4 +5,4 @@
 [Luke 8:47](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.47?lang=eng#p47)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Heal, Healing|TG Heal]].  

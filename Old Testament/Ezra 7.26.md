@@ -5,4 +5,4 @@
 [Ezra 7:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/7.26?lang=eng#p26)
 
 
-[^a]: TG [[Capital Punishment]].
+[^a]: [[Capital Punishment|TG Capital Punishment]].  

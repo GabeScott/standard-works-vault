@@ -5,7 +5,7 @@
 [Titus 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/3.3?lang=eng#p3)
 
 
-[^a]: GR once, formerly.
-[^b]: TG [[Disobedience, Disobey]].
-[^c]: TG [[Lust]].
-[^d]: TG [[Malice]].
+[^a]: GR once, formerly.  
+[^b]: [[Disobedience, Disobey|TG Disobedience]].  
+[^c]: [[Lust|TG Lust]].  
+[^d]: [[Malice|TG Malice]].  

@@ -5,4 +5,4 @@
 [Moses 4:30](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.30?lang=eng#p30)
 
 
-[^a]: [[1 Kings 8.56|1 Kgs. 8:56]]; [[Jeremiah 44.28|Jer. 44:28.]]
+[^a]: [[1 Kings 8.56|1 Kgs. 8:56]]; [[Jeremiah 44.28|Jer. 44:28]].  

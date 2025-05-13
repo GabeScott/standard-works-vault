@@ -5,5 +5,5 @@
 [Genesis 32:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.2?lang=eng#p2)
 
 
-[^a]: HEB mahneh, “camp.” D&C 64:24.
-[^b]: IE Two hosts, or camps.
+[^a]: HEB mahneh, “camp.” [[D&C 64.24|D&C 64:24]].  
+[^b]: IE Two hosts, or camps.  

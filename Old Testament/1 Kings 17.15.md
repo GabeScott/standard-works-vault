@@ -5,4 +5,4 @@
 [1 Kings 17:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/17.15?lang=eng#p15)
 
 
-[^a]: [[1 Nephi 3.7|1 Ne. 3:7.]]
+[^a]: [[1 Nephi 3.7|1 Ne. 3:7]].  

@@ -5,5 +5,5 @@
 [Genesis 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.16?lang=eng#p16)
 
 
-[^a]: [[D&C 76.71|D&C 76:71 (70-71)]]; [[D&C 88.45|88:45]]; [[Moses 2.16|Moses 2:16]]; [[Abraham 4.16|Abr. 4:16.]]
-[^b]: [[Abraham 3.2|Abr. 3:2]]. TG [[Astronomy]].
+[^a]: [[D&C 76.70|D&C 76:71 (70–71)]][[D&C 76.71|]]; [[D&C 88.45|88:45]]; [[Moses 2.16|Moses 2:16]]; [[Abraham 4.16|Abr. 4:16]].  
+[^b]: [[Abraham 3.2|Abr. 3:2]]. [[Astronomy|TG Astronomy]].  

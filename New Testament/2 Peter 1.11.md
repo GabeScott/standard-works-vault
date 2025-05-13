@@ -5,5 +5,5 @@
 [2 Peter 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.11?lang=eng#p11)
 
 
-[^a]: TG [[Immortality, Immortal]].
-[^b]: TG [[Kingdom of God, on Earth]].
+[^a]: [[Immortality, Immortal|TG Immortality]].  
+[^b]: [[Kingdom of God, on Earth|TG Kingdom of God, on Earth]].  

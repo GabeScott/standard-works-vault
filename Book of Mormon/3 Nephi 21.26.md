@@ -5,6 +5,6 @@
 [3 Nephi 21:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p26#p26)
 
 
-[^a]: [[3 Nephi 20.31|3 Ne. 20:31 (29-34)]]; [[Mormon 5.14|Morm. 5:14.]]
-[^b]: [[1 Nephi 14.17|1 Ne. 14:17]]; [[3 Nephi 21.6|3 Ne. 21:6 (6-7).]]
-[^c]: TG [[Israel, Ten Lost Tribes of]].
+[^a]: [[3 Nephi 20.29|3 Ne. 20:31 (29–34)]][[3 Nephi 20.30|]][[3 Nephi 20.31|]][[3 Nephi 20.32|]][[3 Nephi 20.33|]][[3 Nephi 20.34|]]; [[Mormon 5.14|Morm. 5:14]].  
+[^b]: [[1 Nephi 14.17|1 Ne. 14:17]]; [[3 Nephi 21.6|3 Ne. 21:6 (6–7)]][[3 Nephi 21.7|]].  
+[^c]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  

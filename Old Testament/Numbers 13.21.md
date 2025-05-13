@@ -5,4 +5,4 @@
 [Numbers 13:21](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.21?lang=eng#p21)
 
 
-[^a]: OR by the access to.
+[^a]: OR by the access to.  

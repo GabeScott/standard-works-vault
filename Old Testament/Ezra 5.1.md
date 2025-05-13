@@ -5,6 +5,6 @@
 [Ezra 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/5.1?lang=eng#p1)
 
 
-[^a]: [[Zechariah 8.9|Zech. 8:9.]]
-[^b]: [[Ezra 6.14|Ezra 6:14.]]
-[^c]: [[Zechariah 1.1|Zech. 1:1.]]
+[^a]: [[Zechariah 8.9|Zech. 8:9]].  
+[^b]: [[Ezra 6.14|Ezra 6:14]].  
+[^c]: [[Zechariah 1.1|Zech. 1:1]].  

@@ -5,5 +5,5 @@
 [Luke 1:59](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.59?lang=eng#p59)
 
 
-[^a]: [[D&C 84.28|D&C 84:28 (27-28).]]
-[^b]: TG [[Circumcision]].
+[^a]: [[D&C 84.27|D&C 84:28 (27–28)]][[D&C 84.28|]].  
+[^b]: [[Circumcision|TG Circumcision]].  

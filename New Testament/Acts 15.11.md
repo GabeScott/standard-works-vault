@@ -5,4 +5,4 @@
 [Acts 15:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.11?lang=eng#p11)
 
 
-[^a]: TG [[Grace]].
+[^a]: [[Grace|TG Grace]].  

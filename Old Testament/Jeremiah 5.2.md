@@ -5,4 +5,4 @@
 [Jeremiah 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.2?lang=eng#p2)
 
 
-[^a]: TG [[Swearing, Swear, Sware, Sworn]].
+[^a]: [[Swearing, Swear, Sware, Sworn|TG Swearing]].  

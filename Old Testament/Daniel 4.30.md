@@ -5,4 +5,4 @@
 [Daniel 4:30](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.30?lang=eng#p30)
 
 
-[^a]: OR as a royal residence.
+[^a]: OR as a royal residence.  

@@ -5,5 +5,5 @@
 [Matthew 8:34](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.34?lang=eng#p34)
 
 
-[^a]: [[John 12.18|John 12:18.]]
-[^b]: GR lands, regions.
+[^a]: [[John 12.18|John 12:18]].  
+[^b]: GR lands, regions.  

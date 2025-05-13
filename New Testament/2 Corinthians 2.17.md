@@ -5,6 +5,6 @@
 [2 Corinthians 2:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/2.17?lang=eng#p17)
 
 
-[^a]: [[2 Corinthians 4.2|2 Cor. 4:2]]. TG [[Apostasy of the Early Christian Church]].
-[^b]: TG [[Scriptures, Preservation of]].
-[^c]: TG [[Sincere, Sincerity]].
+[^a]: [[2 Corinthians 4.2|2 Cor. 4:2]]. [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  
+[^b]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  
+[^c]: [[Sincere, Sincerity|TG Sincere]].  

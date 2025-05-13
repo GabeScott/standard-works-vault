@@ -5,4 +5,4 @@
 [Helaman 5:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p21#p21)
 
 
-[^a]: [[Mosiah 7.7|Mosiah 7:7 (6-8)]]; [[Mosiah 21.23|21:23 (22-24).]]
+[^a]: [[Mosiah 7.6|Mosiah 7:7 (6–8)]][[Mosiah 7.7|]][[Mosiah 7.8|]]; [[Mosiah 21.22|21:23 (22–24)]][[Mosiah 21.23|]][[Mosiah 21.24|]].  

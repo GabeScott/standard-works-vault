@@ -5,4 +5,4 @@
 [Mark 11:7](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/11.7?lang=eng#p7)
 
 
-[^a]: [[Zechariah 9.9|Zech. 9:9.]]
+[^a]: [[Zechariah 9.9|Zech. 9:9]].  

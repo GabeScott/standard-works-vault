@@ -5,4 +5,4 @@
 [2 Samuel 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.6?lang=eng#p6)
 
 
-[^a]: [[Exodus 22.1|Ex. 22:1]]; [[Luke 19.8|Luke 19:8.]]
+[^a]: [[Exodus 22.1|Ex. 22:1]]; [[Luke 19.8|Luke 19:8]].  

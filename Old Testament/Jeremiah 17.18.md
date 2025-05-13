@@ -5,5 +5,5 @@
 [Jeremiah 17:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.18?lang=eng#p18)
 
 
-[^a]: HEB ashamed or disappointed.
-[^b]: [[Isaiah 40.2|Isa. 40:2]]; [[Jeremiah 16.18|Jer. 16:18.]]
+[^a]: HEB ashamed or disappointed.  
+[^b]: [[Isaiah 40.2|Isa. 40:2]]; [[Jeremiah 16.18|Jer. 16:18]].  

@@ -5,4 +5,4 @@
 [3 Nephi 12:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p25#p25)
 
 
-[^a]: [[Matthew 5.25|Matt. 5:25 (25-26).]]
+[^a]: [[Matthew 5.25|Matt. 5:25 (25–26)]][[Matthew 5.26|]].  

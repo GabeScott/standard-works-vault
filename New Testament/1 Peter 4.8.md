@@ -5,5 +5,5 @@
 [1 Peter 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.8?lang=eng#p8)
 
 
-[^a]: JST 1 Pet. 4:8 … for charity preventeth a multitude of sins.
-[^b]: TG [[Charity]].
+[^a]: [[JST 1 Peter 4.8|JST 1 Pet. 4:8]] … for charity preventeth a multitude of sins.  
+[^b]: [[Charity|TG Charity]].  

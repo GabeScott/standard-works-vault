@@ -5,4 +5,4 @@
 [2 Kings 12:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/12.18?lang=eng#p18)
 
 
-[^a]: [[1 Kings 15.18|1 Kgs. 15:18 (18-22).]]
+[^a]: [[1 Kings 15.18|1 Kgs. 15:18 (18–22)]][[1 Kings 15.19|]][[1 Kings 15.20|]][[1 Kings 15.21|]][[1 Kings 15.22|]].  

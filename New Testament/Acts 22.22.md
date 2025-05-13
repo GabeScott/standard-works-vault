@@ -5,4 +5,4 @@
 [Acts 22:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.22?lang=eng#p22)
 
 
-[^a]: [[2 Nephi 27.32|2 Ne. 27:32.]]
+[^a]: [[2 Nephi 27.32|2 Ne. 27:32]].  

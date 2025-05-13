@@ -5,5 +5,5 @@
 [Jacob 5:46](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p46#p46)
 
 
-[^a]: [[Luke 3.9|Luke 3:9.]]
-[^b]: [[Alma 5.52|Alma 5:52]]; [[3 Nephi 27.11|3 Ne. 27:11.]]
+[^a]: [[Luke 3.9|Luke 3:9]].  
+[^b]: [[Alma 5.52|Alma 5:52]]; [[3 Nephi 27.11|3 Ne. 27:11]].  

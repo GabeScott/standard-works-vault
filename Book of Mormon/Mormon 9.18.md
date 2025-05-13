@@ -5,5 +5,5 @@
 [Mormon 9:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p18#p18)
 
 
-[^a]: [[John 6.14|John 6:14]]; [[3 Nephi 8.1|3 Ne. 8:1.]]
-[^b]: [[Mark 6.5|Mark 6:5.]]
+[^a]: [[John 6.14|John 6:14]]; [[3 Nephi 8.1|3 Ne. 8:1]].  
+[^b]: [[Mark 6.5|Mark 6:5]].  

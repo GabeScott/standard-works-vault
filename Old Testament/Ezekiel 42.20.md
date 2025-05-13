@@ -5,6 +5,6 @@
 [Ezekiel 42:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/42.20?lang=eng#p20)
 
 
-[^a]: [[Ezekiel 40.5|Ezek. 40:5.]]
-[^b]: [[Ezekiel 45.2|Ezek. 45:2.]]
-[^c]: OR common. Ezek. 45:6; 48:15.
+[^a]: [[Ezekiel 40.5|Ezek. 40:5]].  
+[^b]: [[Ezekiel 45.2|Ezek. 45:2]].  
+[^c]: OR common. [[Ezekiel 45.6|Ezek. 45:6]]; [[Ezekiel 48.15|48:15]].  

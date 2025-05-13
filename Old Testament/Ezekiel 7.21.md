@@ -5,4 +5,4 @@
 [Ezekiel 7:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.21?lang=eng#p21)
 
 
-[^a]: Dan. 8:11; 11:31.
+[^a]: [[Daniel 8.11|Dan. 8:11]]; [[Daniel 11.31|11:31]].  

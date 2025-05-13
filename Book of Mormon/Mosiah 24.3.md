@@ -5,4 +5,4 @@
 [Mosiah 24:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p3#p3)
 
 
-[^a]: [[Mosiah 9.10|Mosiah 9:10 (10-11)]]; [[Mosiah 10.6|10:6.]]
+[^a]: [[Mosiah 9.10|Mosiah 9:10 (10–11)]][[Mosiah 9.11|]]; [[Mosiah 10.6|10:6]].  

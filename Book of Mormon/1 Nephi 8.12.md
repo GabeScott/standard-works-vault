@@ -5,6 +5,6 @@
 [1 Nephi 8:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Joy]].
-[^b]: [[Enos 1.9|Enos 1:9]]; [[Alma 36.24|Alma 36:24]]. TG [[Family, Love within]].
-[^c]: [[Genesis 3.6|Gen. 3:6]]; [[1 Nephi 15.36|1 Ne. 15:36.]]
+[^a]: [[Joy|TG Joy]].  
+[^b]: [[Enos 1.9|Enos 1:9]]; [[Alma 36.24|Alma 36:24]]. [[Family, Love within|TG Family, Love within]].  
+[^c]: [[Genesis 3.6|Gen. 3:6]]; [[1 Nephi 15.36|1 Ne. 15:36]].  

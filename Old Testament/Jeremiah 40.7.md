@@ -5,4 +5,4 @@
 [Jeremiah 40:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/40.7?lang=eng#p7)
 
 
-[^a]: [[2 Kings 25.12|2 Kgs. 25:12.]]
+[^a]: [[2 Kings 25.12|2 Kgs. 25:12]].  

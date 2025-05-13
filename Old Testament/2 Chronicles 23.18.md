@@ -5,4 +5,4 @@
 [2 Chronicles 23:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/23.18?lang=eng#p18)
 
 
-[^a]: [[Mosiah 2.3|Mosiah 2:3.]]
+[^a]: [[Mosiah 2.3|Mosiah 2:3]].  

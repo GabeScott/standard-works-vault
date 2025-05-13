@@ -5,6 +5,6 @@
 [2 Thessalonians 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.2?lang=eng#p2)
 
 
-[^a]: JST 2 Thes. 2:2 … or be troubled by letter, except ye receive it from us; neither by spirit, nor by word, as that the day of Christ is at hand.
-[^b]: 1 Thes. 4:15 (13-17).
-[^c]: [[Luke 19.11|Luke 19:11.]]
+[^a]: [[JST 2 Thessalonians 2.2|JST 2 Thes. 2:2]] … or be troubled by letter, except ye receive it from us; neither by spirit, nor by word, as that the day of Christ is at hand.  
+[^b]: [[1 Thessalonians 4.13|1 Thes. 4:15 (13–17)]][[1 Thessalonians 4.14|]][[1 Thessalonians 4.15|]][[1 Thessalonians 4.16|]][[1 Thessalonians 4.17|]].  
+[^c]: [[Luke 19.11|Luke 19:11]].  

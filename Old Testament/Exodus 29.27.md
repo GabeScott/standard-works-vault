@@ -5,6 +5,6 @@
 [Exodus 29:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.27?lang=eng#p27)
 
 
-[^a]: [[Numbers 18.11|Num. 18:11.]]
-[^b]: OR lifted up.
-[^c]: OR elevated.
+[^a]: [[Numbers 18.11|Num. 18:11]].  
+[^b]: OR lifted up.  
+[^c]: OR elevated.  

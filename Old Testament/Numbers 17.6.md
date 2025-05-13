@@ -5,4 +5,4 @@
 [Numbers 17:6](https://www.churchofjesuschrist.org/study/scriptures/ot/num/17.6?lang=eng#p6)
 
 
-[^a]: HEB leaders, heads, rulers.
+[^a]: HEB leaders, heads, rulers.  

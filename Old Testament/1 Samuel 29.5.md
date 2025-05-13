@@ -5,4 +5,4 @@
 [1 Samuel 29:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/29.5?lang=eng#p5)
 
 
-[^a]: [[1 Samuel 18.6|1 Sam. 18:6.]]
+[^a]: [[1 Samuel 18.6|1 Sam. 18:6]].  

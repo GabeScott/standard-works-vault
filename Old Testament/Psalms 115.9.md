@@ -5,4 +5,4 @@
 [Psalms 115:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/115.9?lang=eng#p9)
 
 
-[^a]: TG [[Trust in God]].
+[^a]: [[Trust in God|TG Trust in God]].  

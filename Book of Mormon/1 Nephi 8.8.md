@@ -5,4 +5,4 @@
 [1 Nephi 8:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[God, Mercy of]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  

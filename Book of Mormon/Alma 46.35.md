@@ -5,5 +5,5 @@
 [Alma 46:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p35#p35)
 
 
-[^a]: [[Alma 43.30|Alma 43:30.]]
-[^b]: TG [[Governments]].
+[^a]: [[Alma 43.30|Alma 43:30]].  
+[^b]: [[Governments|TG Governments]].  

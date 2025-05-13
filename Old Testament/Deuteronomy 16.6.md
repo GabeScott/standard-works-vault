@@ -5,5 +5,5 @@
 [Deuteronomy 16:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.6?lang=eng#p6)
 
 
-[^a]: [[Exodus 12.42|Ex. 12:42.]]
-[^b]: OR time.
+[^a]: [[Exodus 12.42|Ex. 12:42]].  
+[^b]: OR time.  

@@ -5,4 +5,4 @@
 [Psalms 146:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/146.7?lang=eng#p7)
 
 
-[^a]: TG [[Oppression, Oppress]].
+[^a]: [[Oppression, Oppress|TG Oppression]].  

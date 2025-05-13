@@ -5,8 +5,8 @@
 [Isaiah 43:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.3?lang=eng#p3)
 
 
-[^a]: TG [[Holiness]].
-[^b]: TG [[Jesus Christ, Savior]].
-[^c]: [[Isaiah 45.14|Isa. 45:14.]]
-[^d]: [[Proverbs 21.18|Prov. 21:18.]]
-[^e]: [[Psalms 72.10|Ps. 72:10.]]
+[^a]: [[Holiness|TG Holiness]].  
+[^b]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]].  
+[^c]: [[Isaiah 45.14|Isa. 45:14]].  
+[^d]: [[Proverbs 21.18|Prov. 21:18]].  
+[^e]: [[Psalms 72.10|Ps. 72:10]].  

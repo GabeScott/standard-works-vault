@@ -5,4 +5,4 @@
 [Mosiah 27:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p10#p10)
 
 
-[^a]: [[Acts 8.3|Acts 8:3]]; [[Mosiah 28.4|Mosiah 28:4 (3-4).]]
+[^a]: [[Acts 8.3|Acts 8:3]]; [[Mosiah 28.3|Mosiah 28:4 (3–4)]][[Mosiah 28.4|]].  

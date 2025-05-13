@@ -5,4 +5,4 @@
 [Proverbs 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/2.13?lang=eng#p13)
 
 
-[^a]: TG [[Walking in Darkness]].
+[^a]: [[Walking in Darkness|TG Walking in Darkness]].  

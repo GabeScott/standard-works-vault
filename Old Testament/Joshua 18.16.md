@@ -5,5 +5,5 @@
 [Joshua 18:16](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/18.16?lang=eng#p16)
 
 
-[^a]: [[Jeremiah 19.2|Jer. 19:2 (2, 6).]]
-[^b]: [[2 Kings 23.10|2 Kgs. 23:10]]; [[Jeremiah 7.31|Jer. 7:31 (31-32).]]
+[^a]: [[Jeremiah 19.2|Jer. 19:2 (2, 6)]][[Jeremiah 19.6|]].  
+[^b]: [[2 Kings 23.10|2 Kgs. 23:10]]; [[Jeremiah 7.31|Jer. 7:31 (31–32)]][[Jeremiah 7.32|]].  

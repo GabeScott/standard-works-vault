@@ -5,6 +5,6 @@
 [1 Samuel 15:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.24?lang=eng#p24)
 
 
-[^a]: TG [[Confession]].
-[^b]: [[2 Samuel 12.13|2 Sam. 12:13 (9-14).]]
-[^c]: TG [[Peer Influence]].
+[^a]: [[Confession|TG Confession]].  
+[^b]: [[2 Samuel 12.9|2 Sam. 12:13 (9–14)]][[2 Samuel 12.10|]][[2 Samuel 12.11|]][[2 Samuel 12.12|]][[2 Samuel 12.13|]][[2 Samuel 12.14|]].  
+[^c]: [[Peer Influence|TG Peer Influence]].  

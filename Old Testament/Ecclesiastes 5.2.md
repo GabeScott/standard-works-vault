@@ -5,7 +5,7 @@
 [Ecclesiastes 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.2?lang=eng#p2)
 
 
-[^a]: TG [[Rashness]].
-[^b]: TG [[Haste, Hasten, Hasty]].
-[^c]: [[Matthew 12.36|Matt. 12:36]]; [[Ephesians 5.4|Eph. 5:4.]]
-[^d]: [[Matthew 6.7|Matt. 6:7.]]
+[^a]: [[Rashness|TG Rashness]].  
+[^b]: [[Haste, Hasten, Hasty|TG Haste]].  
+[^c]: [[Matthew 12.36|Matt. 12:36]]; [[Ephesians 5.4|Eph. 5:4]].  
+[^d]: [[Matthew 6.7|Matt. 6:7]].  

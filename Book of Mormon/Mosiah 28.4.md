@@ -5,5 +5,5 @@
 [Mosiah 28:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/28?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mosiah 27.10|Mosiah 27:10]]; [[Alma 26.18|Alma 26:18 (17-18).]]
-[^b]: TG [[God, Mercy of]].
+[^a]: [[Mosiah 27.10|Mosiah 27:10]]; [[Alma 26.17|Alma 26:18 (17–18)]][[Alma 26.18|]].  
+[^b]: [[God, Mercy of|TG God, Mercy of]].  

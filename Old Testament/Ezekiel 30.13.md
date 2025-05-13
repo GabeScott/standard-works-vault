@@ -5,6 +5,6 @@
 [Ezekiel 30:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/30.13?lang=eng#p13)
 
 
-[^a]: [[Jeremiah 43.12|Jer. 43:12.]]
-[^b]: IE Memphis.
-[^c]: [[Zechariah 10.11|Zech. 10:11.]]
+[^a]: [[Jeremiah 43.12|Jer. 43:12]].  
+[^b]: IE Memphis.  
+[^c]: [[Zechariah 10.11|Zech. 10:11]].  

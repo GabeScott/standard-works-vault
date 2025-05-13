@@ -5,5 +5,5 @@
 [Zechariah 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/6.15?lang=eng#p15)
 
 
-[^a]: [[Isaiah 60.10|Isa. 60:10.]]
-[^b]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[Isaiah 60.10|Isa. 60:10]].  
+[^b]: [[Obedience, Obedient, Obey|TG Obedience]].  

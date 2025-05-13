@@ -5,5 +5,5 @@
 [Ruth 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.5?lang=eng#p5)
 
 
-[^a]: TG [[Widows]].
-[^b]: [[Deuteronomy 25.5|Deut. 25:5 (5-6)]]. TG [[Name of the Lord]].
+[^a]: [[Widows|TG Widows]].  
+[^b]: [[Deuteronomy 25.5|Deut. 25:5 (5–6)]][[Deuteronomy 25.6|]]. [[Name|TG Name]].  

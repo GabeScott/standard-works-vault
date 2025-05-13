@@ -5,7 +5,7 @@
 [Leviticus 19:31](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.31?lang=eng#p31)
 
 
-[^a]: HEB Do not turn to magic or necromancy.
-[^b]: TG [[Spirits, Evil or Unclean]].
-[^c]: TG [[Sorcery]].
-[^d]: TG [[Superstitions]].
+[^a]: HEB Do not turn to magic or necromancy.  
+[^b]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  
+[^c]: [[Sorcery|TG Sorcery]].  
+[^d]: [[Superstitions|TG Superstitions]].  

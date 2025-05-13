@@ -5,5 +5,5 @@
 [1 Corinthians 14:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.3?lang=eng#p3)
 
 
-[^a]: TG [[Prophecy]].
-[^b]: TG [[Edification, Edify]].
+[^a]: [[Prophecy|TG Prophecy]].  
+[^b]: [[Edification, Edify|TG Edification]].  

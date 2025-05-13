@@ -5,4 +5,4 @@
 [Romans 9:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.21?lang=eng#p21)
 
 
-[^a]: [[Isaiah 45.9|Isa. 45:9]]; [[Jeremiah 18.6|Jer. 18:6.]]
+[^a]: [[Isaiah 45.9|Isa. 45:9]]; [[Jeremiah 18.6|Jer. 18:6]].  

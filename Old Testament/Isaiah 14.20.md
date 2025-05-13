@@ -5,6 +5,6 @@
 [Isaiah 14:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.20?lang=eng#p20)
 
 
-[^a]: [[Ecclesiastes 6.3|Eccl. 6:3.]]
-[^b]: [[Psalms 109.13|Ps. 109:13.]]
-[^c]: TG [[Wickedness, Wicked]].
+[^a]: [[Ecclesiastes 6.3|Eccl. 6:3]].  
+[^b]: [[Psalms 109.13|Ps. 109:13]].  
+[^c]: [[Wickedness, Wicked|TG Wickedness]].  

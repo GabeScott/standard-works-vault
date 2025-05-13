@@ -5,4 +5,4 @@
 [Luke 20:37](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.37?lang=eng#p37)
 
 
-[^a]: [[Exodus 3.2|Ex. 3:2 (2-6).]]
+[^a]: [[Exodus 3.2|Ex. 3:2 (2–6)]][[Exodus 3.3|]][[Exodus 3.4|]][[Exodus 3.5|]][[Exodus 3.6|]].  

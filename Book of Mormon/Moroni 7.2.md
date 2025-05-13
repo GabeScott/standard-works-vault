@@ -5,5 +5,5 @@
 [Moroni 7:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Grace]].
-[^b]: [[3 Nephi 5.13|3 Ne. 5:13]]. TG [[Called of God]].
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[3 Nephi 5.13|3 Ne. 5:13]]. [[Called of God|TG Called of God]].  

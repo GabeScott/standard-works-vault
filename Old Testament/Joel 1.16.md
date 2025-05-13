@@ -5,4 +5,4 @@
 [Joel 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/1.16?lang=eng#p16)
 
 
-[^a]: OR food.
+[^a]: OR food.  

@@ -5,5 +5,5 @@
 [Philippians 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.12?lang=eng#p12)
 
 
-[^a]: [[Alma 34.37|Alma 34:37]]; [[Mormon 9.27|Morm. 9:27]]. TG [[Good Works]].
-[^b]: TG [[Salvation for the Dead]].
+[^a]: [[Alma 34.37|Alma 34:37]]; [[Mormon 9.27|Morm. 9:27]]. [[Good Works|TG Good Works]].  
+[^b]: [[Salvation|TG Salvation]].  

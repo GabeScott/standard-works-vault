@@ -5,5 +5,5 @@
 [2 Chronicles 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/2.4?lang=eng#p4)
 
 
-[^a]: [[D&C 97.15|D&C 97:15 (13-15).]]
-[^b]: TG [[Bread, Shewbread]].
+[^a]: [[D&C 97.13|D&C 97:15 (13–15)]][[D&C 97.14|]][[D&C 97.15|]].  
+[^b]: [[Bread, Shewbread|TG Bread, Shewbread]].  

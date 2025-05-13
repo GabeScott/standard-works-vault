@@ -5,5 +5,5 @@
 [Exodus 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.9?lang=eng#p9)
 
 
-[^a]: [[Exodus 35.2|Ex. 35:2.]]
-[^b]: TG [[Industry, Industrious]]; [[Labor]].
+[^a]: [[Exodus 35.2|Ex. 35:2]].  
+[^b]: [[Industry, Industrious|TG Industry]]; [[Labor|Labor]].  

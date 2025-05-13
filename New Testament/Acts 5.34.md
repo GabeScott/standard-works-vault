@@ -5,4 +5,4 @@
 [Acts 5:34](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.34?lang=eng#p34)
 
 
-[^a]: [[Acts 22.3|Acts 22:3.]]
+[^a]: [[Acts 22.3|Acts 22:3]].  

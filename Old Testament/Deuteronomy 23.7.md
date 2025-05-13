@@ -5,5 +5,5 @@
 [Deuteronomy 23:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 25.25|Gen. 25:25 (24-27).]]
-[^b]: HEB sojourner. Ex. 22:21.
+[^a]: [[Genesis 25.24|Gen. 25:25 (24–27)]][[Genesis 25.25|]][[Genesis 25.26|]][[Genesis 25.27|]].  
+[^b]: HEB sojourner. [[Exodus 22.21|Ex. 22:21]].  

@@ -5,4 +5,4 @@
 [Judges 11:25](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.25?lang=eng#p25)
 
 
-[^a]: [[Numbers 22.2|Num. 22:2.]]
+[^a]: [[Numbers 22.2|Num. 22:2]].  

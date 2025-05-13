@@ -5,4 +5,4 @@
 [1 Chronicles 12:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/12.29?lang=eng#p29)
 
 
-[^a]: [[1 Samuel 9.2|1 Sam. 9:2 (1-2).]]
+[^a]: [[1 Samuel 9.1|1 Sam. 9:2 (1–2)]][[1 Samuel 9.2|]].  

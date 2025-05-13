@@ -5,5 +5,5 @@
 [Ephesians 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.5?lang=eng#p5)
 
 
-[^a]: TG [[Revelation]].
-[^b]: TG [[Prophets, Mission of]].
+[^a]: [[Revelation|TG Revelation]].  
+[^b]: [[Prophets, Mission of|TG Prophets, Mission of]].  

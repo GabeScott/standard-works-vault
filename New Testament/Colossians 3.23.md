@@ -5,4 +5,4 @@
 [Colossians 3:23](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.23?lang=eng#p23)
 
 
-[^a]: TG [[Commitment]]; [[Industry, Industrious]]; [[Laziness]].
+[^a]: [[Commitment|TG Commitment]]; [[Industry, Industrious|Industry]]; [[Laziness|Laziness]].  

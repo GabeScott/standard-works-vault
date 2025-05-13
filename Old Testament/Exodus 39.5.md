@@ -5,4 +5,4 @@
 [Exodus 39:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.5?lang=eng#p5)
 
 
-[^a]: OR skillfully woven band (also vv. 20-21).
+[^a]: OR skillfully woven band (also [[Exodus 39.20|vv. 20–21]][[Exodus 39.21|]]).  

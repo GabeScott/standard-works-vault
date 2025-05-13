@@ -5,4 +5,4 @@
 [Genesis 50:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.21?lang=eng#p21)
 
 
-[^a]: TG [[Family, Love within]].
+[^a]: [[Family, Love within|TG Family, Love within]].  

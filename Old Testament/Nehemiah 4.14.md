@@ -5,7 +5,7 @@
 [Nehemiah 4:14](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/4.14?lang=eng#p14)
 
 
-[^a]: [[D&C 98.14|D&C 98:14]]; [[D&C 122.9|122:9.]]
-[^b]: OR feared, revered.
-[^c]: TG [[War]].
-[^d]: [[Alma 46.12|Alma 46:12.]]
+[^a]: [[D&C 98.14|D&C 98:14]]; [[D&C 122.9|122:9]].  
+[^b]: OR feared, revered.  
+[^c]: [[War|TG War]].  
+[^d]: [[Alma 46.12|Alma 46:12]].  

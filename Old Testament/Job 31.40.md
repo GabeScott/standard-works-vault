@@ -5,4 +5,4 @@
 [Job 31:40](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.40?lang=eng#p40)
 
 
-[^a]: OR noxious weeds.
+[^a]: OR noxious weeds.  

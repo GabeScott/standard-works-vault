@@ -5,6 +5,6 @@
 [Deuteronomy 4:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.19?lang=eng#p19)
 
 
-[^a]: TG [[Astronomy]].
-[^b]: TG [[Idolatry, Idol]].
-[^c]: OR those things.
+[^a]: [[Astronomy|TG Astronomy]].  
+[^b]: [[Idolatry, Idol|TG Idolatry]].  
+[^c]: OR those things.  

@@ -5,5 +5,5 @@
 [1 Chronicles 9:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/9.22?lang=eng#p22)
 
 
-[^a]: TG [[Seer]].
-[^b]: TG [[Priesthood, Ordination]].
+[^a]: [[Seer|TG Seer]].  
+[^b]: [[Priesthood, Ordination|TG Priesthood, Ordination]].  

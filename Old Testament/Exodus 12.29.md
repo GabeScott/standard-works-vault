@@ -5,5 +5,5 @@
 [Exodus 12:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.29?lang=eng#p29)
 
 
-[^a]: [[Exodus 13.15|Ex. 13:15.]]
-[^b]: [[Numbers 8.17|Num. 8:17 (17-18)]]; [[Psalms 105.36|Ps. 105:36]]. TG [[Plague]].
+[^a]: [[Exodus 13.15|Ex. 13:15]].  
+[^b]: [[Numbers 8.17|Num. 8:17 (17–18)]][[Numbers 8.18|]]; [[Psalms 105.36|Ps. 105:36]]. [[Plague|TG Plague]].  

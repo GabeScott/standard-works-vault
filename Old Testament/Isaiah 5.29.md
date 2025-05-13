@@ -5,5 +5,5 @@
 [Isaiah 5:29](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.29?lang=eng#p29)
 
 
-[^a]: TG [[Israel, Deliverance of]].
-[^b]: [[3 Nephi 21.12|3 Ne. 21:12 (12-13).]]
+[^a]: [[Israel, Deliverance of|TG Israel, Deliverance of]].  
+[^b]: [[3 Nephi 21.12|3 Ne. 21:12 (12–13)]][[3 Nephi 21.13|]].  

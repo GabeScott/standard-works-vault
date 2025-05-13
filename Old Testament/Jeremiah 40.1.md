@@ -5,4 +5,4 @@
 [Jeremiah 40:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/40.1?lang=eng#p1)
 
 
-[^a]: [[Matthew 2.18|Matt. 2:18.]]
+[^a]: [[Matthew 2.18|Matt. 2:18]].  

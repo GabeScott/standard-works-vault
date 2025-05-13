@@ -5,4 +5,4 @@
 [Deuteronomy 2:32](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.32?lang=eng#p32)
 
 
-[^a]: [[Deuteronomy 29.7|Deut. 29:7 (7-8).]]
+[^a]: [[Deuteronomy 29.7|Deut. 29:7 (7–8)]][[Deuteronomy 29.8|]].  

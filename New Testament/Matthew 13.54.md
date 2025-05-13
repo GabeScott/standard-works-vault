@@ -5,5 +5,5 @@
 [Matthew 13:54](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.54?lang=eng#p54)
 
 
-[^a]: [[Matthew 7.28|Matt. 7:28.]]
-[^b]: TG [[God, Wisdom of]]; [[Jesus Christ, Teaching Mode of]].
+[^a]: [[Matthew 7.28|Matt. 7:28]].  
+[^b]: [[God, Wisdom of|TG God, Wisdom of]]; [[Jesus Christ, Teaching Mode of|Jesus Christ, Teaching Mode of]].  

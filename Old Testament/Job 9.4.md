@@ -5,4 +5,4 @@
 [Job 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/9.4?lang=eng#p4)
 
 
-[^a]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

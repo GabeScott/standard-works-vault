@@ -5,4 +5,4 @@
 [Exodus 29:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.26?lang=eng#p26)
 
 
-[^a]: [[Leviticus 10.14|Lev. 10:14.]]
+[^a]: [[Leviticus 10.14|Lev. 10:14]].  

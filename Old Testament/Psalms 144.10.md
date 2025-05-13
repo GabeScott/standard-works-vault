@@ -5,4 +5,4 @@
 [Psalms 144:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/144.10?lang=eng#p10)
 
 
-[^a]: OR victory.
+[^a]: OR victory.  

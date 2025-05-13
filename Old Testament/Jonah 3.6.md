@@ -5,4 +5,4 @@
 [Jonah 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/3.6?lang=eng#p6)
 
 
-[^a]: [[Mosiah 11.25|Mosiah 11:25.]]
+[^a]: [[Mosiah 11.25|Mosiah 11:25]].  

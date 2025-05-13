@@ -5,5 +5,5 @@
 [Mosiah 26:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Delegation of Responsibility]].
-[^b]: TG [[Church Organization]].
+[^a]: [[Delegation of Responsibility|TG Delegation of Responsibility]].  
+[^b]: [[Church Organization|TG Church Organization]].  

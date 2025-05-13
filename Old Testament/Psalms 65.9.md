@@ -5,4 +5,4 @@
 [Psalms 65:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/65.9?lang=eng#p9)
 
 
-[^a]: HEB grain.
+[^a]: HEB grain.  

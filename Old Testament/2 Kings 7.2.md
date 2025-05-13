@@ -5,5 +5,5 @@
 [2 Kings 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/7.2?lang=eng#p2)
 
 
-[^a]: OR officer, aide.
-[^b]: Mal. 3:10.
+[^a]: OR officer, aide.  
+[^b]: [[Malachi 3.10|Mal. 3:10]].  

@@ -5,4 +5,4 @@
 [Exodus 26:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/26.7?lang=eng#p7)
 
 
-[^a]: HEB as a tent.
+[^a]: HEB as a tent.  

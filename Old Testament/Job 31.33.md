@@ -5,5 +5,5 @@
 [Job 31:33](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.33?lang=eng#p33)
 
 
-[^a]: [[Proverbs 28.13|Prov. 28:13.]]
-[^b]: OR as some men do.
+[^a]: [[Proverbs 28.13|Prov. 28:13]].  
+[^b]: OR as some men do.  

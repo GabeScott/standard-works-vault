@@ -5,4 +5,4 @@
 [Zephaniah 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.15?lang=eng#p15)
 
 
-[^a]: [[Jeremiah 18.16|Jer. 18:16.]]
+[^a]: [[Jeremiah 18.16|Jer. 18:16]].  

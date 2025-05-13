@@ -5,4 +5,4 @@
 [Leviticus 20:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.14?lang=eng#p14)
 
 
-[^a]: OR lewdness or an evil device.
+[^a]: OR lewdness or an evil device.  

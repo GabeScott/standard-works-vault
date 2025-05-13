@@ -5,6 +5,6 @@
 [Mormon 8:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p5#p5)
 
 
-[^a]: [[Mormon 2.17|Morm. 2:17 (17-18).]]
-[^b]: [[Mormon 6.6|Morm. 6:6.]]
-[^c]: [[Moroni 1.1|Moro. 1:1]]; [[Moroni 10.1|10:1 (1-2).]]
+[^a]: [[Mormon 2.17|Morm. 2:17 (17–18)]][[Mormon 2.18|]].  
+[^b]: [[Mormon 6.6|Morm. 6:6]].  
+[^c]: [[Moroni 1.1|Moro. 1:1]]; [[Moroni 10.1|10:1 (1–2)]][[Moroni 10.2|]].  

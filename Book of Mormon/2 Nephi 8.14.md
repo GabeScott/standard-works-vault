@@ -5,4 +5,4 @@
 [2 Nephi 8:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p14#p14)
 
 
-[^a]: [[Isaiah 52.2|Isa. 52:2.]]
+[^a]: [[Isaiah 52.2|Isa. 52:2]].  

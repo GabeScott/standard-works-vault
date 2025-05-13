@@ -5,4 +5,4 @@
 [Psalms 40:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/40.6?lang=eng#p6)
 
 
-[^a]: [[1 Samuel 15.22|1 Sam. 15:22.]]
+[^a]: [[1 Samuel 15.22|1 Sam. 15:22]].  

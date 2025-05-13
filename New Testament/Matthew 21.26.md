@@ -5,4 +5,4 @@
 [Matthew 21:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.26?lang=eng#p26)
 
 
-[^a]: [[Matthew 11.9|Matt. 11:9]]; [[Matthew 14.5|14:5]]; [[Luke 20.6|Luke 20:6.]]
+[^a]: [[Matthew 11.9|Matt. 11:9]]; [[Matthew 14.5|14:5]]; [[Luke 20.6|Luke 20:6]].  

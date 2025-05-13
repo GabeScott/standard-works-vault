@@ -5,4 +5,4 @@
 [Exodus 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.18?lang=eng#p18)
 
 
-[^a]: OR get rid of the lice.
+[^a]: OR get rid of the lice.  

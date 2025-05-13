@@ -5,5 +5,5 @@
 [Job 19:26](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.26?lang=eng#p26)
 
 
-[^b]: TG [[Flesh]]; [[Immortality, Immortal]]; [[Jesus Christ, Resurrection]].
-[^c]: 1 Jn. 3:2.
+[^b]: [[Flesh|TG Flesh]]; [[Immortality, Immortal|Immortality]]; [[Resurrection|Resurrection]].  
+[^c]: [[1 John 3.2|1 Jn. 3:2]].  

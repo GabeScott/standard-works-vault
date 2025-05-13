@@ -5,5 +5,5 @@
 [Exodus 13:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.12?lang=eng#p12)
 
 
-[^a]: IE all the firstborn (see also v. 15).
-[^b]: [[Mosiah 2.3|Mosiah 2:3]]; [[Moses 5.5|Moses 5:5 (5-8).]]
+[^a]: IE all the firstborn (see also [[Exodus 13.15|v. 15]]).  
+[^b]: [[Mosiah 2.3|Mosiah 2:3]]; [[Moses 5.5|Moses 5:5 (5–8)]][[Moses 5.6|]][[Moses 5.7|]][[Moses 5.8|]].  

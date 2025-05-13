@@ -5,5 +5,5 @@
 [Ether 12:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p21#p21)
 
 
-[^a]: [[Ether 3.26|Ether 3:26 (25-26).]]
-[^b]: [[Ether 3.20|Ether 3:20]]; [[D&C 67.10|D&C 67:10 (10-13).]]
+[^a]: [[Ether 3.25|Ether 3:26 (25–26)]][[Ether 3.26|]].  
+[^b]: [[Ether 3.20|Ether 3:20]]; [[D&C 67.10|D&C 67:10 (10–13)]][[D&C 67.11|]][[D&C 67.12|]][[D&C 67.13|]].  

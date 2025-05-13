@@ -5,6 +5,6 @@
 [Exodus 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.19?lang=eng#p19)
 
 
-[^a]: HEB I know.
-[^b]: OR except by power.
-[^c]: [[Exodus 6.1|Ex. 6:1.]]
+[^a]: HEB I know.  
+[^b]: OR except by power.  
+[^c]: [[Exodus 6.1|Ex. 6:1]].  

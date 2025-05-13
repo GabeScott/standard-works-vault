@@ -5,4 +5,4 @@
 [1 Kings 19:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/19.4?lang=eng#p4)
 
 
-[^a]: HEB broom-bush (a desert shrub); so also in v. 5.
+[^a]: HEB broom-bush (a desert shrub); so also in [[1 Kings 19.5|v. 5]].  

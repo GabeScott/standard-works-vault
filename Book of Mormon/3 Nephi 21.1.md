@@ -5,5 +5,5 @@
 [3 Nephi 21:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p1#p1)
 
 
-[^a]: [[Isaiah 66.19|Isa. 66:19.]]
-[^b]: TG [[Last Days]].
+[^a]: [[Isaiah 66.19|Isa. 66:19]].  
+[^b]: [[Last Days|TG Last Days]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 26:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/26.29?lang=eng#p29)
 
 
-[^a]: [[Nehemiah 11.16|Neh. 11:16.]]
+[^a]: [[Nehemiah 11.16|Neh. 11:16]].  

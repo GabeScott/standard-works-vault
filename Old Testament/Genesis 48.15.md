@@ -5,6 +5,6 @@
 [Genesis 48:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.15?lang=eng#p15)
 
 
-[^a]: Septuagint: them.
-[^b]: TG [[Walking with God]].
-[^c]: HEB shepherded; i.e., who was my shepherd.
+[^a]: Septuagint: them.  
+[^b]: [[Walking with God|TG Walking with God]].  
+[^c]: HEB shepherded; i.e., who was my shepherd.  

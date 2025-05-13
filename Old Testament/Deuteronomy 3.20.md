@@ -5,4 +5,4 @@
 [Deuteronomy 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.20?lang=eng#p20)
 
 
-[^a]: [[Joshua 21.44|Josh. 21:44.]]
+[^a]: [[Joshua 21.44|Josh. 21:44]].  

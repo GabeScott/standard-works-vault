@@ -5,4 +5,4 @@
 [Job 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/18.6?lang=eng#p6)
 
 
-[^a]: HEB tent.
+[^a]: HEB tent.  

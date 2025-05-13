@@ -5,4 +5,4 @@
 [John 14:10](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.10?lang=eng#p10)
 
 
-[^a]: [[D&C 93.3|D&C 93:3.]]
+[^a]: [[D&C 93.3|D&C 93:3]].  

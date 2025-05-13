@@ -5,8 +5,8 @@
 [Matthew 10:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.8?lang=eng#p8)
 
 
-[^a]: [[Luke 9.2|Luke 9:2]]; [[D&C 84.68|D&C 84:68.]]
-[^b]: TG [[Leprosy, Leper, Leprous]].
-[^c]: [[D&C 84.67|D&C 84:67.]]
-[^d]: GR without payment. Isa. 55:1.
-[^e]: TG [[Generosity]].
+[^a]: [[Luke 9.2|Luke 9:2]]; [[D&C 84.68|D&C 84:68]].  
+[^b]: [[Leprosy, Leper, Leprous|TG Leprosy]].  
+[^c]: [[D&C 84.67|D&C 84:67]].  
+[^d]: GR without payment. [[Isaiah 55.1|Isa. 55:1]].  
+[^e]: [[Generosity|TG Generosity]].  

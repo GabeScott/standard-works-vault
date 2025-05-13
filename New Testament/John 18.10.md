@@ -5,5 +5,5 @@
 [John 18:10](https://www.churchofjesuschrist.org/study/scriptures/nt/john/18.10?lang=eng#p10)
 
 
-[^a]: TG [[Rashness]].
-[^b]: [[Matthew 26.51|Matt. 26:51.]]
+[^a]: [[Rashness|TG Rashness]].  
+[^b]: [[Matthew 26.51|Matt. 26:51]].  

@@ -5,5 +5,5 @@
 [Proverbs 28:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.23?lang=eng#p23)
 
 
-[^a]: [[Proverbs 27.5|Prov. 27:5.]]
-[^b]: TG [[Flatter, Flattery]].
+[^a]: [[Proverbs 27.5|Prov. 27:5]].  
+[^b]: [[Flatter, Flattery|TG Flatter]].  

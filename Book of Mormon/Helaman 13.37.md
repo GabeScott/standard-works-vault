@@ -5,4 +5,4 @@
 [Helaman 13:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p37#p37)
 
 
-[^a]: [[Mosiah 2.32|Mosiah 2:32.]]
+[^a]: [[Mosiah 2.32|Mosiah 2:32]].  

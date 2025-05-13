@@ -5,5 +5,5 @@
 [Zephaniah 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.9?lang=eng#p9)
 
 
-[^a]: [[Genesis 19.24|Gen. 19:24.]]
-[^b]: IE occupied by weeds and salt pits.
+[^a]: [[Genesis 19.24|Gen. 19:24]].  
+[^b]: IE occupied by weeds and salt pits.  

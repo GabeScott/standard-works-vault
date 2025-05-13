@@ -5,5 +5,5 @@
 [Deuteronomy 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.12?lang=eng#p12)
 
 
-[^a]: HEB troubles.
-[^b]: TG [[Strife]].
+[^a]: HEB troubles.  
+[^b]: [[Strife|TG Strife]].  

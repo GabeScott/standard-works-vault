@@ -5,5 +5,5 @@
 [1 Samuel 28:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/28.3?lang=eng#p3)
 
 
-[^a]: IE he had banished spiritualists as required by Lev. 20:27; Deut. 18:9-11.
-[^b]: TG [[Sorcery]].
+[^a]: IE he had banished spiritualists as required by [[Leviticus 20.27|Lev. 20:27]]; [[Deuteronomy 18.9|Deut. 18:9–11]][[Deuteronomy 18.10|]][[Deuteronomy 18.11|]].  
+[^b]: [[Sorcery|TG Sorcery]].  

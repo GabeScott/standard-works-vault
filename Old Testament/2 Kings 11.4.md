@@ -5,4 +5,4 @@
 [2 Kings 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/11.4?lang=eng#p4)
 
 
-[^a]: [[2 Chronicles 23.1|2 Chr. 23:1.]]
+[^a]: [[2 Chronicles 23.1|2 Chr. 23:1]].  

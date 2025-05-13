@@ -5,5 +5,5 @@
 [Psalms 43:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/43.1?lang=eng#p1)
 
 
-[^a]: OR Vindicate.
-[^b]: TG [[Deceit, Deceive]].
+[^a]: OR Vindicate.  
+[^b]: [[Deceit, Deceive|TG Deceit]].  

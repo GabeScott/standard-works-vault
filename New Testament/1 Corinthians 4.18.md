@@ -5,4 +5,4 @@
 [1 Corinthians 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.18?lang=eng#p18)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

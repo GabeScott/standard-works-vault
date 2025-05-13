@@ -5,5 +5,5 @@
 [James 2:24](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.24?lang=eng#p24)
 
 
-[^a]: [[2 Nephi 25.23|2 Ne. 25:23]]. TG [[Commitment]].
-[^b]: TG [[Justification, Justify]].
+[^a]: [[2 Nephi 25.23|2 Ne. 25:23]]. [[Commitment|TG Commitment]].  
+[^b]: [[Justification, Justify|TG Justification]].  

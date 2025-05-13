@@ -5,5 +5,5 @@
 [Jeremiah 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.6?lang=eng#p6)
 
 
-[^a]: [[Jeremiah 22.3|Jer. 22:3.]]
-[^b]: TG [[Charity]].
+[^a]: [[Jeremiah 22.3|Jer. 22:3]].  
+[^b]: [[Charity|TG Charity]].  

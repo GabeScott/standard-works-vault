@@ -5,5 +5,5 @@
 [Genesis 21:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.21?lang=eng#p21)
 
 
-[^a]: TG [[Marriage, Interfaith]].
-[^b]: [[Genesis 16.1|Gen. 16:1.]]
+[^a]: [[Marriage, Interfaith|TG Marriage, Interfaith]].  
+[^b]: [[Genesis 16.1|Gen. 16:1]].  

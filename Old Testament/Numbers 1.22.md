@@ -5,4 +5,4 @@
 [Numbers 1:22](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.22?lang=eng#p22)
 
 
-[^a]: [[1 Chronicles 23.24|1 Chr. 23:24.]]
+[^a]: [[1 Chronicles 23.24|1 Chr. 23:24]].  

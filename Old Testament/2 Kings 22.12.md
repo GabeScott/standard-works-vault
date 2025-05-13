@@ -5,4 +5,4 @@
 [2 Kings 22:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/22.12?lang=eng#p12)
 
 
-[^a]: [[Jeremiah 26.24|Jer. 26:24.]]
+[^a]: [[Jeremiah 26.24|Jer. 26:24]].  

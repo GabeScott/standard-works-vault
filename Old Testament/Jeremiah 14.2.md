@@ -5,4 +5,4 @@
 [Jeremiah 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.2?lang=eng#p2)
 
 
-[^a]: OR dejected.
+[^a]: OR dejected.  

@@ -5,4 +5,4 @@
 [Exodus 35:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.30?lang=eng#p30)
 
 
-[^a]: [[Exodus 31.2|Ex. 31:2 (2-6).]]
+[^a]: [[Exodus 31.2|Ex. 31:2 (2–6)]][[Exodus 31.3|]][[Exodus 31.4|]][[Exodus 31.5|]][[Exodus 31.6|]].  

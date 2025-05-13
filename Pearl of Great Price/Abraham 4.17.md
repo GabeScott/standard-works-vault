@@ -5,4 +5,4 @@
 [Abraham 4:17](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.17?lang=eng#p17)
 
 
-[^a]: TG [[Darkness, Physical]].
+[^a]: [[Darkness, Physical|TG Darkness, Physical]].  

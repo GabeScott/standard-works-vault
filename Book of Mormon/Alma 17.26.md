@@ -5,4 +5,4 @@
 [Alma 17:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p26#p26)
 
 
-[^a]: [[Exodus 2.17|Ex. 2:17 (15-20).]]
+[^a]: [[Exodus 2.15|Ex. 2:17 (15–20)]][[Exodus 2.16|]][[Exodus 2.17|]][[Exodus 2.18|]][[Exodus 2.19|]][[Exodus 2.20|]].  

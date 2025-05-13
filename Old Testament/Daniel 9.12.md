@@ -5,5 +5,5 @@
 [Daniel 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.12?lang=eng#p12)
 
 
-[^a]: OR calamity.
-[^b]: [[Ezekiel 5.9|Ezek. 5:9.]]
+[^a]: OR calamity.  
+[^b]: [[Ezekiel 5.9|Ezek. 5:9]].  

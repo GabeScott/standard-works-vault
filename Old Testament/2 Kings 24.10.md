@@ -5,4 +5,4 @@
 [2 Kings 24:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.10?lang=eng#p10)
 
 
-[^a]: [[1 Nephi 7.13|1 Ne. 7:13 (13-15).]]
+[^a]: [[1 Nephi 7.13|1 Ne. 7:13 (13–15)]][[1 Nephi 7.14|]][[1 Nephi 7.15|]].  

@@ -5,4 +5,4 @@
 [John 15:6](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.6?lang=eng#p6)
 
 
-[^a]: Col. 1:23.
+[^a]: [[Colossians 1.23|Col. 1:23]].  

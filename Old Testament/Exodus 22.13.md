@@ -5,4 +5,4 @@
 [Exodus 22:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 31.39|Gen. 31:39.]]
+[^a]: [[Genesis 31.39|Gen. 31:39]].  

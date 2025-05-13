@@ -5,5 +5,5 @@
 [Joshua 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.2?lang=eng#p2)
 
 
-[^a]: HEB flint knives.
-[^b]: TG [[Circumcision]].
+[^a]: HEB flint knives.  
+[^b]: [[Circumcision|TG Circumcision]].  

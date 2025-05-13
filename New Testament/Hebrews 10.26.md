@@ -5,5 +5,5 @@
 [Hebrews 10:26](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.26?lang=eng#p26)
 
 
-[^a]: TG [[Apostasy of Individuals]]; [[Sin]].
-[^b]: TG [[Holy Ghost, Unpardonable Sin against]].
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]]; [[Sin|Sin]].  
+[^b]: [[Holy Ghost, Unpardonable Sin against|TG Holy Ghost, Unpardonable Sin against]].  

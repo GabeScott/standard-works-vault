@@ -5,8 +5,8 @@
 [Genesis 10:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.5?lang=eng#p5)
 
 
-[^a]: HEB From these.
-[^b]: OR coasts, continents.
-[^c]: TG [[Gentiles]].
-[^d]: TG [[Nations]].
-[^e]: TG [[Family]].
+[^a]: HEB From these.  
+[^b]: OR coasts, continents.  
+[^c]: [[Gentiles|TG Gentiles]].  
+[^d]: [[Nations|TG Nations]].  
+[^e]: [[Family|TG Family]].  

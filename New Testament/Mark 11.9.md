@@ -5,4 +5,4 @@
 [Mark 11:9](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/11.9?lang=eng#p9)
 
 
-[^a]: [[Psalms 118.26|Ps. 118:26.]]
+[^a]: [[Psalms 118.26|Ps. 118:26]].  

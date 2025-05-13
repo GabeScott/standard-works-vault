@@ -5,4 +5,4 @@
 [Matthew 21:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.2?lang=eng#p2)
 
 
-[^a]: GR in front of you.
+[^a]: GR in front of you.  

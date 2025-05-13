@@ -5,6 +5,6 @@
 [Mosiah 4:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p22#p22)
 
 
-[^a]: [[Matthew 7.2|Matt. 7:2 (1-2)]]; [[John 7.24|John 7:24.]]
-[^b]: 1 Jn. 3:17.
-[^c]: [[Mosiah 2.25|Mosiah 2:25.]]
+[^a]: [[Matthew 7.1|Matt. 7:2 (1–2)]][[Matthew 7.2|]]; [[John 7.24|John 7:24]].  
+[^b]: [[1 John 3.17|1 Jn. 3:17]].  
+[^c]: [[Mosiah 2.25|Mosiah 2:25]].  

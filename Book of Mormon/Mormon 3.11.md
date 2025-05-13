@@ -5,4 +5,4 @@
 [Mormon 3:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p11#p11)
 
 
-[^a]: [[Mormon 5.1|Morm. 5:1.]]
+[^a]: [[Mormon 5.1|Morm. 5:1]].  

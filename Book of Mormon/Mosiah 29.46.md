@@ -5,5 +5,5 @@
 [Mosiah 29:46](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p46#p46)
 
 
-[^a]: [[Alma 1.1|Alma 1:1.]]
-[^b]: [[Mosiah 6.4|Mosiah 6:4.]]
+[^a]: [[Alma 1.1|Alma 1:1]].  
+[^b]: [[Mosiah 6.4|Mosiah 6:4]].  

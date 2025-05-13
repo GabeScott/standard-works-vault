@@ -5,5 +5,5 @@
 [Mosiah 7:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p14#p14)
 
 
-[^a]: [[Mosiah 21.24|Mosiah 21:24.]]
-[^b]: [[Mosiah 21.25|Mosiah 21:25 (25-26).]]
+[^a]: [[Mosiah 21.24|Mosiah 21:24]].  
+[^b]: [[Mosiah 21.25|Mosiah 21:25 (25–26)]][[Mosiah 21.26|]].  

@@ -5,4 +5,4 @@
 [Job 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/14.4?lang=eng#p4)
 
 
-[^a]: TG [[Uncleanness, Unclean]].
+[^a]: [[Uncleanness, Unclean|TG Uncleanness]].  

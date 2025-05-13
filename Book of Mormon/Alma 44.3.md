@@ -5,4 +5,4 @@
 [Alma 44:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 38.1|Alma 38:1]]. TG [[Protection, Divine]].
+[^a]: [[Alma 38.1|Alma 38:1]]. [[Protection, Divine|TG Protection, Divine]].  

@@ -5,7 +5,7 @@
 [Jacob 3:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p1#p1)
 
 
-[^a]: [[2 Nephi 32.8|2 Ne. 32:8.]]
-[^b]: TG [[Holy Ghost, Comforter]]; [[Consolation]]; [[Purity, Pure]].
-[^c]: TG [[Affliction]].
-[^d]: TG [[Deliver, Deliverance]]; [[Protection, Divine]].
+[^a]: [[2 Nephi 32.8|2 Ne. 32:8]].  
+[^b]: [[Comfort|TG Comfort]]; [[Consolation|Consolation]]; [[Purity, Pure|Purity]].  
+[^c]: [[Affliction|TG Affliction]].  
+[^d]: [[Deliver, Deliverance|TG Deliver]]; [[Protection, Divine|Protection, Divine]].  

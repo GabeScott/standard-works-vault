@@ -5,4 +5,4 @@
 [Alma 8:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p9#p9)
 
 
-[^a]: [[2 Nephi 28.20|2 Ne. 28:20 (19-22)]]; [[D&C 10.20|D&C 10:20.]]
+[^a]: [[2 Nephi 28.19|2 Ne. 28:20 (19–22)]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]]; [[D&C 10.20|D&C 10:20]].  

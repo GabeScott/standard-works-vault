@@ -5,4 +5,4 @@
 [Esther 9:24](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/9.24?lang=eng#p24)
 
 
-[^a]: [[Esther 3.9|Esth. 3:9 (6-10).]]
+[^a]: [[Esther 3.6|Esth. 3:9 (6–10)]][[Esther 3.7|]][[Esther 3.8|]][[Esther 3.9|]][[Esther 3.10|]].  

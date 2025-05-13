@@ -5,5 +5,5 @@
 [Exodus 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 26.14|Ex. 26:14.]]
-[^b]: OR acacia.
+[^a]: [[Exodus 26.14|Ex. 26:14]].  
+[^b]: OR acacia.  

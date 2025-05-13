@@ -5,4 +5,4 @@
 [Genesis 16:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.11?lang=eng#p11)
 
 
-[^a]: IE God hears.
+[^a]: IE God hears.  

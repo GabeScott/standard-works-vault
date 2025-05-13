@@ -5,5 +5,5 @@
 [Mosiah 21:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p17#p17)
 
 
-[^a]: [[Mosiah 4.26|Mosiah 4:26 (16, 26).]]
-[^b]: TG [[Widows]].
+[^a]: [[Mosiah 4.16|Mosiah 4:26 (16, 26)]][[Mosiah 4.26|]].  
+[^b]: [[Widows|TG Widows]].  

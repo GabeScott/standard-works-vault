@@ -5,4 +5,4 @@
 [Alma 3:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 2.30|Alma 2:30 (29-33).]]
+[^a]: [[Alma 2.29|Alma 2:30 (29–33)]][[Alma 2.30|]][[Alma 2.31|]][[Alma 2.32|]][[Alma 2.33|]].  

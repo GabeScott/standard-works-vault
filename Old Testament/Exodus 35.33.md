@@ -5,4 +5,4 @@
 [Exodus 35:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.33?lang=eng#p33)
 
 
-[^a]: OR do … of skilled craftsmanship.
+[^a]: OR do … of skilled craftsmanship.  

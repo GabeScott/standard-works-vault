@@ -5,4 +5,4 @@
 [Job 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.4?lang=eng#p4)
 
 
-[^a]: [[Job 1.18|Job 1:18.]]
+[^a]: [[Job 1.18|Job 1:18]].  

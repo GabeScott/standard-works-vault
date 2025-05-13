@@ -5,4 +5,4 @@
 [Proverbs 25:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.7?lang=eng#p7)
 
 
-[^a]: [[Luke 14.10|Luke 14:10 (7-14).]]
+[^a]: [[Luke 14.7|Luke 14:10 (7–14)]][[Luke 14.8|]][[Luke 14.9|]][[Luke 14.10|]][[Luke 14.11|]][[Luke 14.12|]][[Luke 14.13|]][[Luke 14.14|]].  

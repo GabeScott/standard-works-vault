@@ -5,4 +5,4 @@
 [Joel 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.11?lang=eng#p11)
 
 
-[^a]: [[Isaiah 13.3|Isa. 13:3.]]
+[^a]: [[Isaiah 13.3|Isa. 13:3]].  

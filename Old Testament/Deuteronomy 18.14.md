@@ -5,5 +5,5 @@
 [Deuteronomy 18:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.14?lang=eng#p14)
 
 
-[^a]: OR dispossess.
-[^b]: [[Leviticus 19.26|Lev. 19:26.]]
+[^a]: OR dispossess.  
+[^b]: [[Leviticus 19.26|Lev. 19:26]].  

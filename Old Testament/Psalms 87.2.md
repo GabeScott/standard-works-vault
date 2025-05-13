@@ -5,5 +5,5 @@
 [Psalms 87:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/87.2?lang=eng#p2)
 
 
-[^a]: IE cities.
-[^b]: TG [[Zion, Sion]].
+[^a]: IE cities.  
+[^b]: [[Zion, Sion|TG Zion]].  

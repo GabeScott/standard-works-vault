@@ -5,4 +5,4 @@
 [1 Nephi 4:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/4?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Drunkenness]].
+[^a]: [[Drunkenness|TG Drunkenness]].  

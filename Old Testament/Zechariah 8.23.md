@@ -5,4 +5,4 @@
 [Zechariah 8:23](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.23?lang=eng#p23)
 
 
-[^a]: HEB you (plural).
+[^a]: HEB you (plural).  

@@ -5,4 +5,4 @@
 [Jeremiah 51:60](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.60?lang=eng#p60)
 
 
-[^a]: [[Jeremiah 50.1|Jer. 50:1.]]
+[^a]: [[Jeremiah 50.1|Jer. 50:1]].  

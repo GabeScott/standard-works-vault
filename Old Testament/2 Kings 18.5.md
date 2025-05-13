@@ -5,4 +5,4 @@
 [2 Kings 18:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/18.5?lang=eng#p5)
 
 
-[^a]: [[2 Kings 23.25|2 Kgs. 23:25.]]
+[^a]: [[2 Kings 23.25|2 Kgs. 23:25]].  

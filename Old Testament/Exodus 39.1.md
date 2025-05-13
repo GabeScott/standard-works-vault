@@ -5,6 +5,6 @@
 [Exodus 39:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.1?lang=eng#p1)
 
 
-[^a]: TG [[Skill]].
-[^b]: HEB officiating garments. Ex. 35:19.
-[^c]: Ex. 28:2, 4 (1-5).
+[^a]: [[Skill|TG Skill]].  
+[^b]: HEB officiating garments. [[Exodus 35.19|Ex. 35:19]].  
+[^c]: [[Exodus 28.1|Ex. 28:2, 4 (1–5)]][[Exodus 28.2|]][[Exodus 28.3|]][[Exodus 28.4|]][[Exodus 28.5|]].  

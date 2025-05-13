@@ -5,5 +5,5 @@
 [Proverbs 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.5?lang=eng#p5)
 
 
-[^a]: [[Proverbs 20.8|Prov. 20:8.]]
-[^b]: [[Mosiah 29.21|Mosiah 29:21 (21-24).]]
+[^a]: [[Proverbs 20.8|Prov. 20:8]].  
+[^b]: [[Mosiah 29.21|Mosiah 29:21 (21–24)]][[Mosiah 29.22|]][[Mosiah 29.23|]][[Mosiah 29.24|]].  

@@ -5,4 +5,4 @@
 [Romans 11:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.16?lang=eng#p16)
 
 
-[^a]: TG [[Israel, Mission of]].
+[^a]: [[Israel, Mission of|TG Israel, Mission of]].  

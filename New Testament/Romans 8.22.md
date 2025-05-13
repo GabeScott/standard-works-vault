@@ -5,4 +5,4 @@
 [Romans 8:22](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.22?lang=eng#p22)
 
 
-[^a]: TG [[Earth, Curse of]].
+[^a]: [[Earth, Curse of|TG Earth, Curse of]].  

@@ -5,6 +5,6 @@
 [Mosiah 27:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p35#p35)
 
 
-[^a]: [[Mosiah 1.10|Mosiah 1:10]]; [[Mosiah 28.18|28:18.]]
-[^b]: TG [[Zeal, Zealous]].
-[^c]: [[Alma 39.13|Alma 39:13.]]
+[^a]: [[Mosiah 1.10|Mosiah 1:10]]; [[Mosiah 28.18|28:18]].  
+[^b]: [[Zeal, Zealous|TG Zeal]].  
+[^c]: [[Alma 39.13|Alma 39:13]].  

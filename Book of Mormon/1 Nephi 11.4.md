@@ -5,5 +5,5 @@
 [1 Nephi 11:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mosiah 5.1|Mosiah 5:1 (1-2).]]
-[^b]: [[1 Nephi 8.10|1 Ne. 8:10 (10-12)]]; [[1 Nephi 15.22|15:22 (21-22).]]
+[^a]: [[Mosiah 5.1|Mosiah 5:1 (1–2)]][[Mosiah 5.2|]].  
+[^b]: [[1 Nephi 8.10|1 Ne. 8:10 (10–12)]][[1 Nephi 8.11|]][[1 Nephi 8.12|]]; [[1 Nephi 15.21|15:22 (21–22)]][[1 Nephi 15.22|]].  

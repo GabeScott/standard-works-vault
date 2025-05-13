@@ -5,5 +5,5 @@
 [Exodus 37:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/37.16?lang=eng#p16)
 
 
-[^a]: OR utensils.
-[^b]: HEB the jugs for pouring libations.
+[^a]: OR utensils.  
+[^b]: HEB the jugs for pouring libations.  

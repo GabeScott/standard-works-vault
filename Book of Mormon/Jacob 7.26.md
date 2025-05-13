@@ -5,8 +5,8 @@
 [Jacob 7:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p26#p26)
 
 
-[^a]: [[1 Nephi 19.1|1 Ne. 19:1 (1-6)]]; [[Jarom 1.14|Jarom 1:14 (1, 14-15).]]
-[^b]: [[James 4.14|James 4:14.]]
-[^c]: [[1 Chronicles 29.15|1 Chr. 29:15]]; [[Psalms 144.4|Ps. 144:4.]]
-[^d]: [[Alma 13.23|Alma 13:23.]]
-[^e]: [[Alma 26.36|Alma 26:36.]]
+[^a]: [[1 Nephi 19.1|1 Ne. 19:1 (1–6)]][[1 Nephi 19.2|]][[1 Nephi 19.3|]][[1 Nephi 19.4|]][[1 Nephi 19.5|]][[1 Nephi 19.6|]]; [[Jarom 1.1|Jarom 1:14 (1, 14–15)]][[Jarom 1.14|]][[Jarom 1.15|]].  
+[^b]: [[James 4.14|James 4:14]].  
+[^c]: [[1 Chronicles 29.15|1 Chr. 29:15]]; [[Psalms 144.4|Ps. 144:4]].  
+[^d]: [[Alma 13.23|Alma 13:23]].  
+[^e]: [[Alma 26.36|Alma 26:36]].  

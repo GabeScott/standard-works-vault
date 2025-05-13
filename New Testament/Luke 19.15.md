@@ -5,4 +5,4 @@
 [Luke 19:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.15?lang=eng#p15)
 
 
-[^a]: [[D&C 72.3|D&C 72:3 (3-4).]]
+[^a]: [[D&C 72.3|D&C 72:3 (3–4)]][[D&C 72.4|]].  

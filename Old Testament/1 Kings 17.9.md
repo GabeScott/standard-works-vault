@@ -5,4 +5,4 @@
 [1 Kings 17:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/17.9?lang=eng#p9)
 
 
-[^a]: [[Luke 4.25|Luke 4:25 (25-26)]]; [[Mosiah 21.10|Mosiah 21:10 (10, 17)]]; [[Moroni 9.16|Moro. 9:16.]]
+[^a]: [[Luke 4.25|Luke 4:25 (25–26)]][[Luke 4.26|]]; [[Mosiah 21.10|Mosiah 21:10 (10, 17)]][[Mosiah 21.17|]]; [[Moroni 9.16|Moro. 9:16]].  

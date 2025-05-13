@@ -5,4 +5,4 @@
 [Psalms 136:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 10.17|Deut. 10:17 (17-21).]]
+[^a]: [[Deuteronomy 10.17|Deut. 10:17 (17–21)]][[Deuteronomy 10.18|]][[Deuteronomy 10.19|]][[Deuteronomy 10.20|]][[Deuteronomy 10.21|]].  

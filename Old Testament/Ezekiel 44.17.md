@@ -5,5 +5,5 @@
 [Ezekiel 44:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.17?lang=eng#p17)
 
 
-[^a]: [[Exodus 28.43|Ex. 28:43.]]
-[^b]: [[Exodus 28.39|Ex. 28:39]]; [[Exodus 39.27|39:27.]]
+[^a]: [[Exodus 28.43|Ex. 28:43]].  
+[^b]: [[Exodus 28.39|Ex. 28:39]]; [[Exodus 39.27|39:27]].  

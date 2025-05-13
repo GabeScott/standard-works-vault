@@ -5,4 +5,4 @@
 [1 Nephi 20:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p12#p12)
 
 
-[^a]: [[Revelation 1.17|Rev. 1:17]]; [[Revelation 22.13|22:13]]. TG [[Jesus Christ, Firstborn]]; [[Jesus Christ, Jehovah]].
+[^a]: [[Revelation 1.17|Rev. 1:17]]; [[Revelation 22.13|22:13]]. [[Jesus Christ, Firstborn|TG Jesus Christ, Firstborn]]; [[Jesus Christ, Jehovah|Jesus Christ, Jehovah]].  

@@ -5,6 +5,6 @@
 [Psalms 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/30.9?lang=eng#p9)
 
 
-[^a]: JST Ps. 30:9 When I go down to the pit, my blood shall return to the dust. I will praise thee; my soul shall declare thy truth; for what profit am I, if I do it not?
-[^b]: IE death.
-[^c]: [[Psalms 6.5|Ps. 6:5.]]
+[^a]: JST Ps. 30:9 When I go down to the pit, my blood shall return to the dust. I will praise thee; my soul shall declare thy truth; for what profit am I, if I do it not?  
+[^b]: IE death.  
+[^c]: [[Psalms 6.5|Ps. 6:5]].  

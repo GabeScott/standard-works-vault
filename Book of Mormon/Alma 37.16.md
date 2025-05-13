@@ -5,4 +5,4 @@
 [Alma 37:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p16#p16)
 
 
-[^a]: JS—H 1:59.
+[^a]: [[Joseph Smith History 1.59|JS—H 1:59]].  

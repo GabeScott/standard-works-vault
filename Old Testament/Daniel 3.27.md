@@ -5,5 +5,5 @@
 [Daniel 3:27](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/3.27?lang=eng#p27)
 
 
-[^a]: [[Isaiah 43.2|Isa. 43:2]]; [[Hebrews 11.34|Heb. 11:34 (32-34)]]; 4 Ne. 1:32.
-[^b]: OR damaged.
+[^a]: [[Isaiah 43.2|Isa. 43:2]]; [[Hebrews 11.32|Heb. 11:34 (32–34)]][[Hebrews 11.33|]][[Hebrews 11.34|]]; [[4 Nephi 1.32|4 Ne. 1:32]].  
+[^b]: OR damaged.  

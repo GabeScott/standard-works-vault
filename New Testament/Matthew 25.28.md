@@ -5,4 +5,4 @@
 [Matthew 25:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.28?lang=eng#p28)
 
 
-[^a]: [[D&C 82.18|D&C 82:18.]]
+[^a]: [[D&C 82.18|D&C 82:18]].  

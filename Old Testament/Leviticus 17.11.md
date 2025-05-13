@@ -5,7 +5,7 @@
 [Leviticus 17:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/17.11?lang=eng#p11)
 
 
-[^a]: [[Genesis 9.4|Gen. 9:4.]]
-[^b]: TG [[Mortality]].
-[^c]: TG [[Blood, Symbolism of]].
-[^d]: TG [[Jesus Christ, Atonement through]].
+[^a]: [[Genesis 9.4|Gen. 9:4]].  
+[^b]: [[Mortality|TG Mortality]].  
+[^c]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  
+[^d]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  

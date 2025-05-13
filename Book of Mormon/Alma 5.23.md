@@ -5,5 +5,5 @@
 [Alma 5:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p23#p23)
 
 
-[^a]: [[Isaiah 59.12|Isa. 59:12.]]
-[^b]: TG [[Guiltless]].
+[^a]: [[Isaiah 59.12|Isa. 59:12]].  
+[^b]: [[Guilt, Guilty|TG Guilt]].  

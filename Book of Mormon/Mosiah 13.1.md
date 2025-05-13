@@ -5,4 +5,4 @@
 [Mosiah 13:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p1#p1)
 
 
-[^a]: [[John 10.20|John 10:20 (19-20).]]
+[^a]: [[John 10.19|John 10:20 (19–20)]][[John 10.20|]].  

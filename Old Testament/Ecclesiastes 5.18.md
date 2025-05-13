@@ -5,5 +5,5 @@
 [Ecclesiastes 5:18](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.18?lang=eng#p18)
 
 
-[^a]: TG [[Industry, Industrious]].
-[^b]: [[Ecclesiastes 2.10|Eccl. 2:10.]]
+[^a]: [[Industry, Industrious|TG Industry]].  
+[^b]: [[Ecclesiastes 2.10|Eccl. 2:10]].  

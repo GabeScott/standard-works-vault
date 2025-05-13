@@ -5,4 +5,4 @@
 [Psalms 71:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/71.16?lang=eng#p16)
 
 
-[^a]: TG [[Strength]].
+[^a]: [[Strength|TG Strength]].  

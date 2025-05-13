@@ -5,4 +5,4 @@
 [Daniel 4:17](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.17?lang=eng#p17)
 
 
-[^a]: OR humblest.
+[^a]: OR humblest.  

@@ -5,4 +5,4 @@
 [Isaiah 21:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/21.3?lang=eng#p3)
 
 
-[^a]: IE Isaiah was astonished at the cataclysmic scene he saw in vision, even though an enemy was the nation destroyed.
+[^a]: IE Isaiah was astonished at the cataclysmic scene he saw in vision, even though an enemy was the nation destroyed.  

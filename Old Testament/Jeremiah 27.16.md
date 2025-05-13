@@ -5,4 +5,4 @@
 [Jeremiah 27:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.16?lang=eng#p16)
 
 
-[^a]: [[2 Kings 24.13|2 Kgs. 24:13.]]
+[^a]: [[2 Kings 24.13|2 Kgs. 24:13]].  

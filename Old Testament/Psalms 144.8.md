@@ -5,4 +5,4 @@
 [Psalms 144:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/144.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 44.20|Isa. 44:20.]]
+[^a]: [[Isaiah 44.20|Isa. 44:20]].  

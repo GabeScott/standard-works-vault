@@ -5,5 +5,5 @@
 [Romans 10:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.18?lang=eng#p18)
 
 
-[^a]: [[Psalms 19.4|Ps. 19:4.]]
-[^b]: [[D&C 23.2|D&C 23:2]]; [[D&C 24.10|24:10.]]
+[^a]: [[Psalms 19.4|Ps. 19:4]].  
+[^b]: [[D&C 23.2|D&C 23:2]]; [[D&C 24.10|24:10]].  

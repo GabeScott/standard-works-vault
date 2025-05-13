@@ -5,4 +5,4 @@
 [Ecclesiastes 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/6.3?lang=eng#p3)
 
 
-[^a]: [[Isaiah 14.20|Isa. 14:20]]; [[Jeremiah 22.19|Jer. 22:19.]]
+[^a]: [[Isaiah 14.20|Isa. 14:20]]; [[Jeremiah 22.19|Jer. 22:19]].  

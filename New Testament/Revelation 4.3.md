@@ -5,4 +5,4 @@
 [Revelation 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/4.3?lang=eng#p3)
 
 
-[^a]: [[Ezekiel 1.28|Ezek. 1:28.]]
+[^a]: [[Ezekiel 1.28|Ezek. 1:28]].  

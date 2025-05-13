@@ -5,4 +5,4 @@
 [Deuteronomy 28:64](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.64?lang=eng#p64)
 
 
-[^a]: TG [[Israel, Scattering of]].
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  

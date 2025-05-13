@@ -5,4 +5,4 @@
 [Mormon 5:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p13#p13)
 
 
-[^a]: [[2 Nephi 3.18|2 Ne. 3:18.]]
+[^a]: [[2 Nephi 3.18|2 Ne. 3:18]].  

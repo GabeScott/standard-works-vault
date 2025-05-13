@@ -5,4 +5,4 @@
 [2 Kings 17:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 34.13|Ex. 34:13.]]
+[^a]: [[Exodus 34.13|Ex. 34:13]].  

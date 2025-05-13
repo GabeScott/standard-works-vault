@@ -5,4 +5,4 @@
 [Isaiah 43:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.7?lang=eng#p7)
 
 
-[^a]: TG [[Man, New, Spiritually Reborn]].
+[^a]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  

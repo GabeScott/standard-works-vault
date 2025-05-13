@@ -5,6 +5,6 @@
 [Isaiah 59:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.8?lang=eng#p8)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: OR equity, justice.
-[^c]: TG [[Wickedness, Wicked]].
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: OR equity, justice.  
+[^c]: [[Wickedness, Wicked|TG Wickedness]].  

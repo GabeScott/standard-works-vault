@@ -5,4 +5,4 @@
 [Helaman 5:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Stiffnecked, Stiffneckedness]].
+[^a]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  

@@ -5,4 +5,4 @@
 [Acts 25:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/25.3?lang=eng#p3)
 
 
-[^a]: [[Acts 23.12|Acts 23:12.]]
+[^a]: [[Acts 23.12|Acts 23:12]].  

@@ -5,4 +5,4 @@
 [Psalms 68:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.3?lang=eng#p3)
 
 
-[^a]: [[Matthew 13.43|Matt. 13:43.]]
+[^a]: [[Matthew 13.43|Matt. 13:43]].  

@@ -5,7 +5,7 @@
 [1 Kings 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 132.12|Ps. 132:12.]]
-[^b]: [[D&C 84.43|D&C 84:43 (43-44).]]
-[^c]: [[D&C 64.34|D&C 64:34.]]
-[^d]: [[2 Samuel 7.12|2 Sam. 7:12.]]
+[^a]: [[Psalms 132.12|Ps. 132:12]].  
+[^b]: [[D&C 84.43|D&C 84:43 (43–44)]][[D&C 84.44|]].  
+[^c]: [[D&C 64.34|D&C 64:34]].  
+[^d]: [[2 Samuel 7.12|2 Sam. 7:12]].  

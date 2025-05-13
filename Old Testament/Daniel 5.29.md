@@ -5,4 +5,4 @@
 [Daniel 5:29](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.29?lang=eng#p29)
 
 
-[^a]: [[Genesis 41.42|Gen. 41:42]]; [[Esther 8.15|Esth. 8:15.]]
+[^a]: [[Genesis 41.42|Gen. 41:42]]; [[Esther 8.15|Esth. 8:15]].  

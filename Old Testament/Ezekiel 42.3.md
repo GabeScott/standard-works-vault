@@ -5,5 +5,5 @@
 [Ezekiel 42:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/42.3?lang=eng#p3)
 
 
-[^a]: OR Adjoining.
-[^b]: [[Ezekiel 41.16|Ezek. 41:16 (15-16).]]
+[^a]: OR Adjoining.  
+[^b]: [[Ezekiel 41.15|Ezek. 41:16 (15–16)]][[Ezekiel 41.16|]].  

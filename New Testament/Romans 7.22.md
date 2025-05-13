@@ -5,4 +5,4 @@
 [Romans 7:22](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.22?lang=eng#p22)
 
 
-[^a]: TG [[Spirituality]].
+[^a]: [[Spirituality|TG Spirituality]].  

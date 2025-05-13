@@ -5,4 +5,4 @@
 [Ezekiel 40:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.16?lang=eng#p16)
 
 
-[^a]: [[Ezekiel 41.18|Ezek. 41:18.]]
+[^a]: [[Ezekiel 41.18|Ezek. 41:18]].  

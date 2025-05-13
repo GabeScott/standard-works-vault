@@ -5,4 +5,4 @@
 [Matthew 24:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.21?lang=eng#p21)
 
 
-[^a]: JS—M 1:18. TG [[Tribulation]].
+[^a]: [[Joseph Smith Matthew 1.18|JS—M 1:18]]. [[Tribulation|TG Tribulation]].  

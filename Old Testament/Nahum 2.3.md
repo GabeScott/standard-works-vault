@@ -5,4 +5,4 @@
 [Nahum 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/2.3?lang=eng#p3)
 
 
-[^a]: [[Zechariah 11.2|Zech. 11:2.]]
+[^a]: [[Zechariah 11.2|Zech. 11:2]].  

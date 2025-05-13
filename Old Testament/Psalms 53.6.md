@@ -5,4 +5,4 @@
 [Psalms 53:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/53.6?lang=eng#p6)
 
 
-[^a]: OR delivers His people from captivity.
+[^a]: OR delivers His people from captivity.  

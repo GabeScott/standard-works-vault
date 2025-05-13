@@ -5,5 +5,5 @@
 [Galatians 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.2?lang=eng#p2)
 
 
-[^a]: [[Alma 8.16|Alma 8:16]]; [[Helaman 13.3|Hel. 13:3.]]
-[^b]: GR reported.
+[^a]: [[Alma 8.16|Alma 8:16]]; [[Helaman 13.3|Hel. 13:3]].  
+[^b]: GR reported.  

@@ -5,6 +5,6 @@
 [Psalms 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/2.2?lang=eng#p2)
 
 
-[^a]: [[Acts 4.26|Acts 4:26 (25-27).]]
-[^b]: TG [[Counsel]].
-[^c]: TG [[Anointing, Anoint]].
+[^a]: [[Acts 4.25|Acts 4:26 (25–27)]][[Acts 4.26|]][[Acts 4.27|]].  
+[^b]: [[Counsel|TG Counsel]].  
+[^c]: [[Anointing, Anoint|TG Anointing]].  

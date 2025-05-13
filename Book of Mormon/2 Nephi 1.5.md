@@ -5,8 +5,8 @@
 [2 Nephi 1:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Promised Lands]].
-[^b]: [[Ether 2.10|Ether 2:10 (7-12).]]
-[^c]: TG [[Vow]].
-[^d]: TG [[Covenants]].
-[^e]: [[Ezra 8.22|Ezra 8:22.]]
+[^a]: [[Promised Lands|TG Promised Lands]].  
+[^b]: [[Ether 2.7|Ether 2:10 (7–12)]][[Ether 2.8|]][[Ether 2.9|]][[Ether 2.10|]][[Ether 2.11|]][[Ether 2.12|]].  
+[^c]: [[Vow|TG Vow]].  
+[^d]: [[Covenants|TG Covenants]].  
+[^e]: [[Ezra 8.22|Ezra 8:22]].  

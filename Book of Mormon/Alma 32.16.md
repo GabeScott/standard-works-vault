@@ -5,6 +5,6 @@
 [Alma 32:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[Humility, Humble]].
-[^b]: TG [[Initiative]].
-[^c]: TG [[Stubbornness, Stubborn]].
+[^a]: [[Humility, Humble|TG Humility]].  
+[^b]: [[Initiative|TG Initiative]].  
+[^c]: [[Stubbornness, Stubborn|TG Stubbornness]].  

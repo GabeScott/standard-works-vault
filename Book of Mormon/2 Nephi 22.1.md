@@ -5,4 +5,4 @@
 [2 Nephi 22:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/22?lang=eng&id=p1#p1)
 
 
-[^a]: [[Isaiah 12.1|Isa. 12:1 (1-6).]]
+[^a]: [[Isaiah 12.1|Isa. 12:1 (1–6)]].  

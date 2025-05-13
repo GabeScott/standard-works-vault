@@ -5,4 +5,4 @@
 [Judges 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/12.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 119.109|Ps. 119:109.]]
+[^a]: [[Psalms 119.109|Ps. 119:109]].  

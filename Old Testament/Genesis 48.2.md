@@ -5,5 +5,5 @@
 [Genesis 48:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.2?lang=eng#p2)
 
 
-[^a]: [[Hebrews 11.21|Heb. 11:21.]]
-[^b]: [[Genesis 47.31|Gen. 47:31.]]
+[^a]: [[Hebrews 11.21|Heb. 11:21]].  
+[^b]: [[Genesis 47.31|Gen. 47:31]].  

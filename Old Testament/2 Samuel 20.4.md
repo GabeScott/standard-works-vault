@@ -5,4 +5,4 @@
 [2 Samuel 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/20.4?lang=eng#p4)
 
 
-[^a]: [[2 Samuel 19.13|2 Sam. 19:13.]]
+[^a]: [[2 Samuel 19.13|2 Sam. 19:13]].  

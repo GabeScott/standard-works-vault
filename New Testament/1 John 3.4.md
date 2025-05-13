@@ -5,5 +5,5 @@
 [1 John 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.4?lang=eng#p4)
 
 
-[^a]: TG [[Transgressor]].
-[^b]: TG [[Sin]].
+[^a]: [[Transgress, Transgression|TG Transgress]].  
+[^b]: [[Sin|TG Sin]].  

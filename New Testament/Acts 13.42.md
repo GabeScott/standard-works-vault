@@ -5,4 +5,4 @@
 [Acts 13:42](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.42?lang=eng#p42)
 
 
-[^a]: TG [[Sabbath]].
+[^a]: [[Sabbath|TG Sabbath]].  

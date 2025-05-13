@@ -5,4 +5,4 @@
 [Genesis 41:48](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.48?lang=eng#p48)
 
 
-[^a]: TG [[Food]].
+[^a]: [[Food|TG Food]].  

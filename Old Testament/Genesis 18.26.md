@@ -5,4 +5,4 @@
 [Genesis 18:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.26?lang=eng#p26)
 
 
-[^a]: [[Jeremiah 5.1|Jer. 5:1]]; [[Ezekiel 22.30|Ezek. 22:30]]; [[3 Nephi 9.13|3 Ne. 9:13]]. TG [[God, the Standard of Righteousness]].
+[^a]: [[Jeremiah 5.1|Jer. 5:1]]; [[Ezekiel 22.30|Ezek. 22:30]]; [[3 Nephi 9.13|3 Ne. 9:13]]. [[Righteousness|TG Righteousness]].  

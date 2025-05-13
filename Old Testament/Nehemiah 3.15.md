@@ -5,5 +5,5 @@
 [Nehemiah 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/3.15?lang=eng#p15)
 
 
-[^a]: [[Nehemiah 2.14|Neh. 2:14.]]
-[^b]: [[Isaiah 8.6|Isa. 8:6]]; [[John 9.7|John 9:7 (6-7).]]
+[^a]: [[Nehemiah 2.14|Neh. 2:14]].  
+[^b]: [[Isaiah 8.6|Isa. 8:6]]; [[John 9.6|John 9:7 (6–7)]][[John 9.7|]].  

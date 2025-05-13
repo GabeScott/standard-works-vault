@@ -5,4 +5,4 @@
 [Leviticus 13:49](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.49?lang=eng#p49)
 
 
-[^a]: [[Luke 17.14|Luke 17:14.]]
+[^a]: [[Luke 17.14|Luke 17:14]].  

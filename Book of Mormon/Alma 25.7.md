@@ -5,5 +5,5 @@
 [Alma 25:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/25?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 21.3|Alma 21:3 (2-4)]]; [[Alma 24.1|24:1 (1, 28-30).]]
-[^b]: TG [[Martyrdom]].
+[^a]: [[Alma 21.2|Alma 21:3 (2–4)]][[Alma 21.3|]][[Alma 21.4|]]; [[Alma 24.1|24:1 (1, 28–30)]][[Alma 24.28|]][[Alma 24.29|]][[Alma 24.30|]].  
+[^b]: [[Martyrdom|TG Martyrdom]].  

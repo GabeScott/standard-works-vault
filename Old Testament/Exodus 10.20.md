@@ -5,4 +5,4 @@
 [Exodus 10:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 10.20|JST Ex. 10:20 But Pharaoh hardened his heart …]]
+[^a]: JST Ex. 10:20 But Pharaoh hardened his heart …  

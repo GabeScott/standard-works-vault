@@ -5,4 +5,4 @@
 [Exodus 6:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.25?lang=eng#p25)
 
 
-[^a]: [[Joshua 17.4|Josh. 17:4.]]
+[^a]: [[Joshua 17.4|Josh. 17:4]].  

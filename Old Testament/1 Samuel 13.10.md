@@ -5,4 +5,4 @@
 [1 Samuel 13:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/13.10?lang=eng#p10)
 
 
-[^a]: [[Judges 18.15|Judg. 18:15.]]
+[^a]: [[Judges 18.15|Judg. 18:15]].  

@@ -5,4 +5,4 @@
 [Judges 18:1](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.1?lang=eng#p1)
 
 
-[^a]: [[Judges 17.6|Judg. 17:6]]; [[Judges 21.25|21:25.]]
+[^a]: [[Judges 17.6|Judg. 17:6]]; [[Judges 21.25|21:25]].  

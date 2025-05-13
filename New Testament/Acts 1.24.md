@@ -5,7 +5,7 @@
 [Acts 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.24?lang=eng#p24)
 
 
-[^a]: [[D&C 9.8|D&C 9:8 (7-9).]]
-[^b]: TG [[God, Omniscience of]].
-[^c]: GR which one.
-[^d]: TG [[Called of God]].
+[^a]: [[D&C 9.7|D&C 9:8 (7–9)]][[D&C 9.8|]][[D&C 9.9|]].  
+[^b]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^c]: GR which one.  
+[^d]: [[Called of God|TG Called of God]].  

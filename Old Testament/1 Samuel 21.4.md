@@ -5,5 +5,5 @@
 [1 Samuel 21:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/21.4?lang=eng#p4)
 
 
-[^a]: [[Moroni 4.3|Moro. 4:3.]]
-[^b]: TG [[Bread, Shewbread]].
+[^a]: [[Moroni 4.3|Moro. 4:3]].  
+[^b]: [[Bread, Shewbread|TG Bread, Shewbread]].  

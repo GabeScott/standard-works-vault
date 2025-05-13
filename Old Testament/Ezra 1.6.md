@@ -5,4 +5,4 @@
 [Ezra 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/1.6?lang=eng#p6)
 
 
-[^a]: IE assisted them.
+[^a]: IE assisted them.  

@@ -5,5 +5,5 @@
 [Titus 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.10?lang=eng#p10)
 
 
-[^a]: GR misappropriating, robbing. TG [[Stealing, Stolen]].
-[^b]: GR honor, put in order.
+[^a]: GR misappropriating, robbing. [[Stealing, Stolen|TG Stealing]].  
+[^b]: GR honor, put in order.  

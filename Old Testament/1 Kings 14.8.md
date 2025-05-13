@@ -5,4 +5,4 @@
 [1 Kings 14:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.8?lang=eng#p8)
 
 
-[^a]: [[1 Kings 15.5|1 Kgs. 15:5.]]
+[^a]: [[1 Kings 15.5|1 Kgs. 15:5]].  

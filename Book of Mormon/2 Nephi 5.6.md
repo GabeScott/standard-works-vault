@@ -5,5 +5,5 @@
 [2 Nephi 5:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Nephi 4.35|1 Ne. 4:35]]; [[1 Nephi 16.7|16:7]]; [[2 Nephi 1.31|2 Ne. 1:31 (30-32).]]
-[^b]: TG [[Warn, Warnings]].
+[^a]: [[1 Nephi 4.35|1 Ne. 4:35]]; [[1 Nephi 16.7|16:7]]; [[2 Nephi 1.30|2 Ne. 1:31 (30–32)]][[2 Nephi 1.31|]][[2 Nephi 1.32|]].  
+[^b]: [[Warn, Warnings|TG Warn]].  

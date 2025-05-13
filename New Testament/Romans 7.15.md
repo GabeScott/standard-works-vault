@@ -5,7 +5,7 @@
 [Romans 7:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.15?lang=eng#p15)
 
 
-[^a]: JST Rom. 7:15-17 (Appendix).
-[^b]: GR what I produce, achieve.
-[^c]: GR know, understand.
-[^d]: GR choose, intend, design.
+[^a]: [[JST Romans 7.15|JST Rom. 7:15–17 (Appendix)]][[JST Romans 7.16|]][[JST Romans 7.17|]].  
+[^b]: GR what I produce, achieve.  
+[^c]: GR know, understand.  
+[^d]: GR choose, intend, design.  

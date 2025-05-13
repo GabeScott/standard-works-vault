@@ -5,4 +5,4 @@
 [Psalms 105:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 12.17|Gen. 12:17]]; [[Genesis 20.3|20:3.]]
+[^a]: [[Genesis 12.17|Gen. 12:17]]; [[Genesis 20.3|20:3]].  

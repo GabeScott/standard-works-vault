@@ -5,5 +5,5 @@
 [Alma 7:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p25#p25)
 
 
-[^a]: [[D&C 27.10|D&C 27:10.]]
-[^b]: 2 Pet. 3:14.
+[^a]: [[D&C 27.10|D&C 27:10]].  
+[^b]: [[2 Peter 3.14|2 Pet. 3:14]].  

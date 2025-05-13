@@ -5,4 +5,4 @@
 [Ezekiel 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.9?lang=eng#p9)
 
 
-[^a]: OR polished.
+[^a]: OR polished.  

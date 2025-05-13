@@ -5,4 +5,4 @@
 [Helaman 13:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p8#p8)
 
 
-[^a]: [[Exodus 23.21|Ex. 23:21 (20-21).]]
+[^a]: [[Exodus 23.20|Ex. 23:21 (20–21)]][[Exodus 23.21|]].  

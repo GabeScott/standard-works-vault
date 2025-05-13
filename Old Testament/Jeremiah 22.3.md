@@ -5,6 +5,6 @@
 [Jeremiah 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.3?lang=eng#p3)
 
 
-[^a]: TG [[God, Justice of]].
-[^b]: [[Jeremiah 7.6|Jer. 7:6.]]
-[^c]: [[D&C 132.19|D&C 132:19.]]
+[^a]: [[Justice|TG Justice]].  
+[^b]: [[Jeremiah 7.6|Jer. 7:6]].  
+[^c]: [[D&C 132.19|D&C 132:19]].  

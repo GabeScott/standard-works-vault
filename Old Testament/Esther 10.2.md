@@ -5,5 +5,5 @@
 [Esther 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/10.2?lang=eng#p2)
 
 
-[^a]: Dan. 3:30.
-[^b]: [[1 Kings 14.19|1 Kgs. 14:19]]; [[1 Chronicles 27.24|1 Chr. 27:24]]; [[Esther 6.1|Esth. 6:1.]]
+[^a]: [[Daniel 3.30|Dan. 3:30]].  
+[^b]: [[1 Kings 14.19|1 Kgs. 14:19]]; [[1 Chronicles 27.24|1 Chr. 27:24]]; [[Esther 6.1|Esth. 6:1]].  

@@ -5,4 +5,4 @@
 [Acts 3:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.26?lang=eng#p26)
 
 
-[^a]: TG [[God, Body of, Corporeal Nature]].
+[^a]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  

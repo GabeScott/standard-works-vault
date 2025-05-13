@@ -5,4 +5,4 @@
 [John 21:19](https://www.churchofjesuschrist.org/study/scriptures/nt/john/21.19?lang=eng#p19)
 
 
-[^a]: 2 Pet. 1:14.
+[^a]: [[2 Peter 1.14|2 Pet. 1:14]].  

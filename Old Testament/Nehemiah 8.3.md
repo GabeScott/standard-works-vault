@@ -5,4 +5,4 @@
 [Nehemiah 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.3?lang=eng#p3)
 
 
-[^a]: [[Ezra 7.10|Ezra 7:10.]]
+[^a]: [[Ezra 7.10|Ezra 7:10]].  

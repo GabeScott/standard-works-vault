@@ -5,6 +5,6 @@
 [Jeremiah 48:36](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.36?lang=eng#p36)
 
 
-[^a]: [[Isaiah 15.5|Isa. 15:5]]; [[Isaiah 16.11|16:11.]]
-[^b]: OR flutes.
-[^c]: [[Helaman 13.31|Hel. 13:31 (18, 31, 33).]]
+[^a]: [[Isaiah 15.5|Isa. 15:5]]; [[Isaiah 16.11|16:11]].  
+[^b]: OR flutes.  
+[^c]: [[Helaman 13.18|Hel. 13:31 (18, 31, 33)]][[Helaman 13.31|]][[Helaman 13.33|]].  

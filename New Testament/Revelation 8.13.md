@@ -5,5 +5,5 @@
 [Revelation 8:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/8.13?lang=eng#p13)
 
 
-[^a]: [[D&C 88.92|D&C 88:92.]]
-[^b]: [[Helaman 7.22|Hel. 7:22]]; [[D&C 5.5|D&C 5:5.]]
+[^a]: [[D&C 88.92|D&C 88:92]].  
+[^b]: [[Helaman 7.22|Hel. 7:22]]; [[D&C 5.5|D&C 5:5]].  

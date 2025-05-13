@@ -5,5 +5,5 @@
 [3 Nephi 23:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/23?lang=eng&id=p14#p14)
 
 
-[^a]: [[Luke 24.44|Luke 24:44 (27, 44).]]
-[^b]: TG [[Scriptures, Study of]]; [[Teaching with the Spirit]].
+[^a]: [[Luke 24.27|Luke 24:44 (27, 44)]][[Luke 24.44|]].  
+[^b]: [[Scriptures, Study of|TG Scriptures, Study of]]; [[Teaching, Teach, Taught|Teaching]].  

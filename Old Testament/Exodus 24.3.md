@@ -5,5 +5,5 @@
 [Exodus 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.3?lang=eng#p3)
 
 
-[^a]: OR ordinances.
-[^b]: TG [[Common Consent]].
+[^a]: OR ordinances.  
+[^b]: [[Common Consent|TG Common Consent]].  

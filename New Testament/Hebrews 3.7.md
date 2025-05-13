@@ -5,5 +5,5 @@
 [Hebrews 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.7?lang=eng#p7)
 
 
-[^a]: [[Hebrews 10.15|Heb. 10:15.]]
-[^b]: [[Psalms 95.7|Ps. 95:7 (7-11).]]
+[^a]: [[Hebrews 10.15|Heb. 10:15]].  
+[^b]: [[Psalms 95.7|Ps. 95:7 (7–11)]][[Psalms 95.8|]][[Psalms 95.9|]][[Psalms 95.10|]][[Psalms 95.11|]].  

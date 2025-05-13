@@ -5,5 +5,5 @@
 [Ezekiel 45:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.5?lang=eng#p5)
 
 
-[^a]: [[Ezekiel 48.13|Ezek. 48:13.]]
-[^b]: [[Ezekiel 44.11|Ezek. 44:11]]; [[Ezekiel 46.24|46:24.]]
+[^a]: [[Ezekiel 48.13|Ezek. 48:13]].  
+[^b]: [[Ezekiel 44.11|Ezek. 44:11]]; [[Ezekiel 46.24|46:24]].  

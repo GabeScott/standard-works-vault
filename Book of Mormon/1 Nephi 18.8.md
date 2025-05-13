@@ -5,5 +5,5 @@
 [1 Nephi 18:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p8#p8)
 
 
-[^a]: [[Psalms 8.8|Ps. 8:8]]; [[2 Nephi 10.20|2 Ne. 10:20.]]
-[^b]: [[1 Nephi 2.20|1 Ne. 2:20]]; [[1 Nephi 5.5|5:5 (5, 22)]]. TG [[Promised Lands]].
+[^a]: [[Psalms 8.8|Ps. 8:8]]; [[2 Nephi 10.20|2 Ne. 10:20]].  
+[^b]: [[1 Nephi 2.20|1 Ne. 2:20]]; [[1 Nephi 5.5|5:5 (5, 22)]][[1 Nephi 5.22|]]. [[Promised Lands|TG Promised Lands]].  

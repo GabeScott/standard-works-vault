@@ -5,4 +5,4 @@
 [Luke 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.16?lang=eng#p16)
 
 
-[^a]: TG [[Haste, Hasten, Hasty]].
+[^a]: [[Haste, Hasten, Hasty|TG Haste]].  

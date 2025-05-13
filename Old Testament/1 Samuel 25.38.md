@@ -5,4 +5,4 @@
 [1 Samuel 25:38](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.38?lang=eng#p38)
 
 
-[^a]: [[2 Chronicles 13.20|2 Chr. 13:20]]; [[Abraham 1.20|Abr. 1:20.]]
+[^a]: [[2 Chronicles 13.20|2 Chr. 13:20]]; [[Abraham 1.20|Abr. 1:20]].  

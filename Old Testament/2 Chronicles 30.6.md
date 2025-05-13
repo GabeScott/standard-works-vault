@@ -5,5 +5,5 @@
 [2 Chronicles 30:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.6?lang=eng#p6)
 
 
-[^a]: IE couriers, runners (also v. 10).
-[^b]: [[Isaiah 10.21|Isa. 10:21 (21-23)]]; [[Joel 2.12|Joel 2:12 (12-13).]]
+[^a]: IE couriers, runners (also [[2 Chronicles 30.10|v. 10]]).  
+[^b]: [[Isaiah 10.21|Isa. 10:21 (21–23)]][[Isaiah 10.22|]][[Isaiah 10.23|]]; [[Joel 2.12|Joel 2:12 (12–13)]][[Joel 2.13|]].  

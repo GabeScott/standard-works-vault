@@ -5,4 +5,4 @@
 [Judges 5:23](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.23?lang=eng#p23)
 
 
-[^a]: [[Judges 21.5|Judg. 21:5 (5-6).]]
+[^a]: [[Judges 21.5|Judg. 21:5 (5–6)]][[Judges 21.6|]].  

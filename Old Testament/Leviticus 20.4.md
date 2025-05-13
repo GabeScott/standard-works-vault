@@ -5,4 +5,4 @@
 [Leviticus 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.4?lang=eng#p4)
 
 
-[^a]: [[Deuteronomy 17.5|Deut. 17:5 (2-3, 5).]]
+[^a]: [[Deuteronomy 17.2|Deut. 17:5 (2–3, 5)]][[Deuteronomy 17.3|]][[Deuteronomy 17.5|]].  

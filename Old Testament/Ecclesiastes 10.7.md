@@ -5,4 +5,4 @@
 [Ecclesiastes 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.7?lang=eng#p7)
 
 
-[^a]: [[Proverbs 19.10|Prov. 19:10.]]
+[^a]: [[Proverbs 19.10|Prov. 19:10]].  

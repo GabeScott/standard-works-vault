@@ -5,5 +5,5 @@
 [Psalms 131:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/131.1?lang=eng#p1)
 
 
-[^a]: TG [[Haughtiness, Haughty]].
-[^b]: [[Proverbs 30.13|Prov. 30:13.]]
+[^a]: [[Haughtiness, Haughty|TG Haughtiness]].  
+[^b]: [[Proverbs 30.13|Prov. 30:13]].  

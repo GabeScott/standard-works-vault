@@ -5,4 +5,4 @@
 [Luke 19:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.8?lang=eng#p8)
 
 
-[^a]: [[2 Samuel 12.6|2 Sam. 12:6.]]
+[^a]: [[2 Samuel 12.6|2 Sam. 12:6]].  

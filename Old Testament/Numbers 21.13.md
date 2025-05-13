@@ -5,5 +5,5 @@
 [Numbers 21:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.13?lang=eng#p13)
 
 
-[^a]: OR extends from the boundary of.
-[^b]: [[Judges 11.13|Judg. 11:13]]; [[Isaiah 16.2|Isa. 16:2.]]
+[^a]: OR extends from the boundary of.  
+[^b]: [[Judges 11.13|Judg. 11:13]]; [[Isaiah 16.2|Isa. 16:2]].  

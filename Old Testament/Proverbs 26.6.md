@@ -5,4 +5,4 @@
 [Proverbs 26:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.6?lang=eng#p6)
 
 
-[^a]: OR violence, injury.
+[^a]: OR violence, injury.  

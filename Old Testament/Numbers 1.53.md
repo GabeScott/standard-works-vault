@@ -5,5 +5,5 @@
 [Numbers 1:53](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.53?lang=eng#p53)
 
 
-[^a]: [[1 Chronicles 23.32|1 Chr. 23:32.]]
-[^b]: [[2 Chronicles 24.6|2 Chr. 24:6.]]
+[^a]: [[1 Chronicles 23.32|1 Chr. 23:32]].  
+[^b]: [[2 Chronicles 24.6|2 Chr. 24:6]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 15:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/15.9?lang=eng#p9)
 
 
-[^a]: IE foreigners. Alma 10:3.
+[^a]: IE foreigners. [[Alma 10.3|Alma 10:3]].  

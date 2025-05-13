@@ -5,4 +5,4 @@
 [2 Chronicles 15:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/15.16?lang=eng#p16)
 
 
-[^a]: IE grandmother.
+[^a]: IE grandmother.  

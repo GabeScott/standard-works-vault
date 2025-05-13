@@ -5,4 +5,4 @@
 [Hosea 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/1.5?lang=eng#p5)
 
 
-[^a]: [[2 Kings 15.29|2 Kgs. 15:29.]]
+[^a]: [[2 Kings 15.29|2 Kgs. 15:29]].  

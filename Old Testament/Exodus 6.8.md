@@ -5,4 +5,4 @@
 [Exodus 6:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 13.5|Ex. 13:5.]]
+[^a]: [[Exodus 13.5|Ex. 13:5]].  

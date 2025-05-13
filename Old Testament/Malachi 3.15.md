@@ -5,5 +5,5 @@
 [Malachi 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.15?lang=eng#p15)
 
 
-[^a]: [[D&C 64.24|D&C 64:24.]]
-[^b]: TG [[Worldliness]].
+[^a]: [[D&C 64.24|D&C 64:24]].  
+[^b]: [[Worldliness|TG Worldliness]].  

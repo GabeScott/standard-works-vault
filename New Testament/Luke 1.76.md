@@ -5,4 +5,4 @@
 [Luke 1:76](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.76?lang=eng#p76)
 
 
-[^a]: [[Luke 1.17|Luke 1:17.]]
+[^a]: [[Luke 1.17|Luke 1:17]].  

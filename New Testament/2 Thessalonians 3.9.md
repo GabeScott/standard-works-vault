@@ -5,5 +5,5 @@
 [2 Thessalonians 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.9?lang=eng#p9)
 
 
-[^a]: GR authority.
-[^b]: TG [[Example, Ensample]].
+[^a]: GR authority.  
+[^b]: [[Example, Ensample|TG Example]].  

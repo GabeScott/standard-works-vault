@@ -5,4 +5,4 @@
 [Ezekiel 20:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.21?lang=eng#p21)
 
 
-[^a]: TG [[Rebellion, Rebel]].
+[^a]: [[Rebellion, Rebel|TG Rebellion]].  

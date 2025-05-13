@@ -5,4 +5,4 @@
 [Psalms 103:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/103.21?lang=eng#p21)
 
 
-[^a]: TG [[Pleasure]].
+[^a]: [[Pleasure|TG Pleasure]].  

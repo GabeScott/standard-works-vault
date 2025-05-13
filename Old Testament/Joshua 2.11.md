@@ -5,7 +5,7 @@
 [Joshua 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/2.11?lang=eng#p11)
 
 
-[^a]: [[Exodus 15.14|Ex. 15:14 (14-15).]]
-[^b]: [[Joshua 5.1|Josh. 5:1.]]
-[^c]: [[Deuteronomy 4.39|Deut. 4:39]]; [[2 Nephi 10.14|2 Ne. 10:14]]; [[D&C 20.17|D&C 20:17]]; [[D&C 65.6|65:6.]]
-[^d]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Exodus 15.14|Ex. 15:14 (14–15)]][[Exodus 15.15|]].  
+[^b]: [[Joshua 5.1|Josh. 5:1]].  
+[^c]: [[Deuteronomy 4.39|Deut. 4:39]]; [[2 Nephi 10.14|2 Ne. 10:14]]; [[D&C 20.17|D&C 20:17]]; [[D&C 65.6|65:6]].  
+[^d]: [[Heaven|TG Heaven]].  

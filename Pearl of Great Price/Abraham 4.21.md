@@ -5,4 +5,4 @@
 [Abraham 4:21](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.21?lang=eng#p21)
 
 
-[^a]: [[Genesis 1.21|Gen. 1:21]]; [[Moses 2.21|Moses 2:21.]]
+[^a]: [[Genesis 1.21|Gen. 1:21]]; [[Moses 2.21|Moses 2:21]].  

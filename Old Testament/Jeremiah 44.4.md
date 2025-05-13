@@ -5,5 +5,5 @@
 [Jeremiah 44:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.4?lang=eng#p4)
 
 
-[^a]: [[2 Chronicles 36.15|2 Chr. 36:15]]; [[D&C 133.71|D&C 133:71.]]
-[^b]: [[Deuteronomy 12.31|Deut. 12:31.]]
+[^a]: [[2 Chronicles 36.15|2 Chr. 36:15]]; [[D&C 133.71|D&C 133:71]].  
+[^b]: [[Deuteronomy 12.31|Deut. 12:31]].  

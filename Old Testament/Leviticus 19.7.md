@@ -5,4 +5,4 @@
 [Leviticus 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.7?lang=eng#p7)
 
 
-[^a]: [[Leviticus 7.18|Lev. 7:18]]; [[Ezekiel 4.14|Ezek. 4:14.]]
+[^a]: [[Leviticus 7.18|Lev. 7:18]]; [[Ezekiel 4.14|Ezek. 4:14]].  

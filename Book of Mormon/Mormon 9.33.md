@@ -5,5 +5,5 @@
 [Mormon 9:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p33#p33)
 
 
-[^a]: [[Jarom 1.14|Jarom 1:14 (2, 14).]]
-[^b]: [[3 Nephi 5.18|3 Ne. 5:18.]]
+[^a]: [[Jarom 1.2|Jarom 1:14 (2, 14)]][[Jarom 1.14|]].  
+[^b]: [[3 Nephi 5.18|3 Ne. 5:18]].  

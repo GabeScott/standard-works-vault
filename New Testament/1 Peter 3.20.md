@@ -5,9 +5,9 @@
 [1 Peter 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.20?lang=eng#p20)
 
 
-[^a]: JST 1 Pet. 3:20 Some of whom were disobedient in the days of Noah, while the long-suffering of God waited, while the ark was preparing …
-[^b]: TG [[Disobedience, Disobey]].
-[^c]: TG [[Forbear, Forbearance]].
-[^d]: [[Genesis 7.1|Gen. 7:1]]. TG [[Earth, Cleansing of]].
-[^e]: [[Genesis 8.1|Gen. 8:1]]; [[Hebrews 11.7|Heb. 11:7]]; 2 Pet. 2:5.
-[^f]: TG [[Flood, Noah’s]].
+[^a]: [[JST 1 Peter 3.20|JST 1 Pet. 3:20]] Some of whom were disobedient in the days of Noah, while the long-suffering of God waited, while the ark was preparing …  
+[^b]: [[Disobedience, Disobey|TG Disobedience]].  
+[^c]: [[Forbear, Forbearance|TG Forbear]].  
+[^d]: [[Genesis 7.1|Gen. 7:1]]. [[Earth, Cleansing of|TG Earth, Cleansing of]].  
+[^e]: [[Genesis 8.1|Gen. 8:1]]; [[Hebrews 11.7|Heb. 11:7]]; [[2 Peter 2.5|2 Pet. 2:5]].  
+[^f]: [[Flood|TG Flood]].  

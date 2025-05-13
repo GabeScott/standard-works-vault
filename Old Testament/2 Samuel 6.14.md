@@ -5,4 +5,4 @@
 [2 Samuel 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.14?lang=eng#p14)
 
 
-[^a]: [[D&C 136.28|D&C 136:28.]]
+[^a]: [[D&C 136.28|D&C 136:28]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 5:25](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.25?lang=eng#p25)
 
 
-[^a]: [[Exodus 20.19|Ex. 20:19]]; [[Deuteronomy 18.16|Deut. 18:16.]]
+[^a]: [[Exodus 20.19|Ex. 20:19]]; [[Deuteronomy 18.16|Deut. 18:16]].  

@@ -5,4 +5,4 @@
 [Alma 8:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p4#p4)
 
 
-[^a]: [[D&C 107.3|D&C 107:3 (2-4)]]. TG [[Priesthood, History of]].
+[^a]: [[D&C 107.2|D&C 107:3 (2–4)]][[D&C 107.3|]][[D&C 107.4|]]. [[Priesthood|TG Priesthood]].  

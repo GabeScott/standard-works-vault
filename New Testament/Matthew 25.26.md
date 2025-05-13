@@ -5,5 +5,5 @@
 [Matthew 25:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.26?lang=eng#p26)
 
 
-[^a]: TG [[Laziness]].
-[^b]: TG [[Harvest]].
+[^a]: [[Laziness|TG Laziness]].  
+[^b]: [[Harvest|TG Harvest]].  

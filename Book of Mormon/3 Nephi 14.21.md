@@ -5,4 +5,4 @@
 [3 Nephi 14:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p21#p21)
 
 
-[^a]: 1 Jn. 2:17.
+[^a]: [[1 John 2.17|1 Jn. 2:17]].  

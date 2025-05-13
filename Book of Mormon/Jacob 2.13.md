@@ -5,4 +5,4 @@
 [Jacob 2:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p13#p13)
 
 
-[^a]: [[2 Kings 14.10|2 Kgs. 14:10]]; [[Alma 1.32|Alma 1:32]]; [[Alma 31.25|31:25]]; [[Mormon 8.28|Morm. 8:28 (28, 36-40).]]
+[^a]: [[2 Kings 14.10|2 Kgs. 14:10]]; [[Alma 1.32|Alma 1:32]]; [[Alma 31.25|31:25]]; [[Mormon 8.28|Morm. 8:28 (28, 36–40)]][[Mormon 8.36|]][[Mormon 8.37|]][[Mormon 8.38|]][[Mormon 8.39|]][[Mormon 8.40|]].  

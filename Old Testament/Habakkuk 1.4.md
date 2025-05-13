@@ -5,4 +5,4 @@
 [Habakkuk 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/1.4?lang=eng#p4)
 
 
-[^a]: HEB grows cold.
+[^a]: HEB grows cold.  

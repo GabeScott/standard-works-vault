@@ -5,6 +5,6 @@
 [Ether 12:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p24#p24)
 
 
-[^a]: [[Jacob 4.1|Jacob 4:1.]]
-[^b]: TG [[Language]].
-[^c]: [[Ether 4.1|Ether 4:1.]]
+[^a]: [[Jacob 4.1|Jacob 4:1]].  
+[^b]: [[Language|TG Language]].  
+[^c]: [[Ether 4.1|Ether 4:1]].  

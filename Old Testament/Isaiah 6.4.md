@@ -5,5 +5,5 @@
 [Isaiah 6:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.4?lang=eng#p4)
 
 
-[^a]: HEB foundations of the thresholds trembled.
-[^b]: [[Exodus 19.18|Ex. 19:18.]]
+[^a]: HEB foundations of the thresholds trembled.  
+[^b]: [[Exodus 19.18|Ex. 19:18]].  

@@ -5,6 +5,6 @@
 [3 Nephi 3:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p22#p22)
 
 
-[^a]: [[3 Nephi 4.4|3 Ne. 4:4.]]
-[^b]: [[Mormon 2.7|Morm. 2:7.]]
-[^c]: [[3 Nephi 3.13|3 Ne. 3:13.]]
+[^a]: [[3 Nephi 4.4|3 Ne. 4:4]].  
+[^b]: [[Mormon 2.7|Morm. 2:7]].  
+[^c]: [[3 Nephi 3.13|3 Ne. 3:13]].  

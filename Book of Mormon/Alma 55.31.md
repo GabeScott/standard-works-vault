@@ -5,4 +5,4 @@
 [Alma 55:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/55?lang=eng&id=p31#p31)
 
 
-[^a]: [[Hosea 5.15|Hosea 5:15]]; [[Alma 62.49|Alma 62:49 (49-51).]]
+[^a]: [[Hosea 5.15|Hosea 5:15]]; [[Alma 62.49|Alma 62:49 (49–51)]][[Alma 62.50|]][[Alma 62.51|]].  

@@ -5,4 +5,4 @@
 [1 Corinthians 16:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.3?lang=eng#p3)
 
 
-[^a]: GR gift. TG [[Generosity]].
+[^a]: GR gift. [[Generosity|TG Generosity]].  

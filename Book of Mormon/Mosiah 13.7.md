@@ -5,4 +5,4 @@
 [Mosiah 13:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p7#p7)
 
 
-[^a]: [[Proverbs 15.10|Prov. 15:10]]; [[1 Nephi 16.2|1 Ne. 16:2 (1-3)]]; [[2 Nephi 9.40|2 Ne. 9:40.]]
+[^a]: [[Proverbs 15.10|Prov. 15:10]]; [[1 Nephi 16.1|1 Ne. 16:2 (1–3)]][[1 Nephi 16.2|]][[1 Nephi 16.3|]]; [[2 Nephi 9.40|2 Ne. 9:40]].  

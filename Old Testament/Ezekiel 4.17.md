@@ -5,5 +5,5 @@
 [Ezekiel 4:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/4.17?lang=eng#p17)
 
 
-[^a]: HEB appalled.
-[^b]: [[Helaman 12.3|Hel. 12:3.]]
+[^a]: HEB appalled.  
+[^b]: [[Helaman 12.3|Hel. 12:3]].  

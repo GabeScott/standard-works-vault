@@ -5,4 +5,4 @@
 [Psalms 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/9.7?lang=eng#p7)
 
 
-[^a]: TG [[Judgment, the Last]].
+[^a]: [[Judgment, the Last|TG Judgment, the Last]].  

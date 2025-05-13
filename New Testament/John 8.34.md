@@ -5,6 +5,6 @@
 [John 8:34](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.34?lang=eng#p34)
 
 
-[^a]: [[D&C 29.40|D&C 29:40.]]
-[^b]: TG [[Sin]].
-[^c]: [[Romans 6.16|Rom. 6:16]]; [[Alma 12.11|Alma 12:11 (9-11, 17)]]. TG [[Servant]].
+[^a]: [[D&C 29.40|D&C 29:40]].  
+[^b]: [[Sin|TG Sin]].  
+[^c]: [[Romans 6.16|Rom. 6:16]]; [[Alma 12.9|Alma 12:11 (9–11, 17)]][[Alma 12.10|]][[Alma 12.11|]][[Alma 12.17|]]. [[Servant|TG Servant]].  

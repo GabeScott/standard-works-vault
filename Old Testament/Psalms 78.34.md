@@ -5,6 +5,6 @@
 [Psalms 78:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.34?lang=eng#p34)
 
 
-[^a]: [[Helaman 12.3|Hel. 12:3.]]
-[^b]: OR repented.
-[^c]: OR earnestly sought.
+[^a]: [[Helaman 12.3|Hel. 12:3]].  
+[^b]: OR repented.  
+[^c]: OR earnestly sought.  

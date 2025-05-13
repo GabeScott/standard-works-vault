@@ -5,7 +5,7 @@
 [Nehemiah 10:31](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.31?lang=eng#p31)
 
 
-[^a]: OR merchandise.
-[^b]: OR grain.
-[^c]: TG [[Sabbath]].
-[^d]: TG [[Sabbatical Year]].
+[^a]: OR merchandise.  
+[^b]: OR grain.  
+[^c]: [[Sabbath|TG Sabbath]].  
+[^d]: [[Sabbatical Year|TG Sabbatical Year]].  

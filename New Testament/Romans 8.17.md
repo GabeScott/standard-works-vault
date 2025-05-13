@@ -5,5 +5,5 @@
 [Romans 8:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.17?lang=eng#p17)
 
 
-[^a]: [[Luke 12.44|Luke 12:44 (42-44)]]. TG [[Birthright]]; [[Election, Elect]]; [[Eternal Life]]; [[Exaltation]]; [[Man, Potential to Become like Heavenly Father]].
-[^b]: TG [[Persecution, Persecute]]; [[Suffering]].
+[^a]: [[Luke 12.42|Luke 12:44 (42–44)]][[Luke 12.43|]][[Luke 12.44|]]. [[Birthright|TG Birthright]]; [[Election, Elect|Election]]; [[Eternal Life|Eternal Life]]; [[Exaltation|Exaltation]]; [[Man, Potential to Become like Heavenly Father|Man, Potential to Become like Heavenly Father]].  
+[^b]: [[Persecution, Persecute|TG Persecution]]; [[Suffering|Suffering]].  

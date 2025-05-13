@@ -5,6 +5,6 @@
 [Romans 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.4?lang=eng#p4)
 
 
-[^a]: GR May it not be!
-[^b]: [[Alma 30.42|Alma 30:42 (37-42).]]
-[^c]: [[Psalms 51.4|Ps. 51:4.]]
+[^a]: GR May it not be!  
+[^b]: [[Alma 30.37|Alma 30:42 (37–42)]][[Alma 30.38|]][[Alma 30.39|]][[Alma 30.40|]][[Alma 30.41|]][[Alma 30.42|]].  
+[^c]: [[Psalms 51.4|Ps. 51:4]].  

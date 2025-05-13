@@ -5,4 +5,4 @@
 [Numbers 16:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.15?lang=eng#p15)
 
 
-[^a]: [[Genesis 4.5|Gen. 4:5 (4-5).]]
+[^a]: [[Genesis 4.4|Gen. 4:5 (4–5)]][[Genesis 4.5|]].  

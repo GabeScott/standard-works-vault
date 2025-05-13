@@ -5,4 +5,4 @@
 [1 Samuel 2:34](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.34?lang=eng#p34)
 
 
-[^a]: [[1 Samuel 4.11|1 Sam. 4:11.]]
+[^a]: [[1 Samuel 4.11|1 Sam. 4:11]].  

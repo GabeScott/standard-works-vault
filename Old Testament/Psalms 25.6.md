@@ -5,4 +5,4 @@
 [Psalms 25:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.6?lang=eng#p6)
 
 
-[^a]: TG [[God, Mercy of]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  

@@ -5,4 +5,4 @@
 [Numbers 29:17](https://www.churchofjesuschrist.org/study/scriptures/ot/num/29.17?lang=eng#p17)
 
 
-[^a]: OR blemish, defect (also v. 26).
+[^a]: OR blemish, defect (also [[Numbers 29.26|v. 26]]).  

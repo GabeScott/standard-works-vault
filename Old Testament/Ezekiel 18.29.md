@@ -5,4 +5,4 @@
 [Ezekiel 18:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.29?lang=eng#p29)
 
 
-[^a]: HEB right or just.
+[^a]: HEB right or just.  

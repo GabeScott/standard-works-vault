@@ -5,5 +5,5 @@
 [Proverbs 12:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.24?lang=eng#p24)
 
 
-[^a]: TG [[Diligence, Diligent, Diligently]].
-[^b]: TG [[Laziness]].
+[^a]: [[Diligence, Diligent, Diligently|TG Diligence]].  
+[^b]: [[Laziness|TG Laziness]].  

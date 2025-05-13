@@ -5,4 +5,4 @@
 [Ether 3:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p22#p22)
 
 
-[^a]: [[Mosiah 8.11|Mosiah 8:11 (11-12)]]. TG [[Language]].
+[^a]: [[Mosiah 8.11|Mosiah 8:11 (11–12)]][[Mosiah 8.12|]]. [[Language|TG Language]].  

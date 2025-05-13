@@ -5,5 +5,5 @@
 [Nehemiah 10:34](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.34?lang=eng#p34)
 
 
-[^a]: [[1 Nephi 3.11|1 Ne. 3:11.]]
-[^b]: [[Genesis 22.3|Gen. 22:3 (3, 6-7, 9)]]; [[Nehemiah 13.31|Neh. 13:31.]]
+[^a]: [[1 Nephi 3.11|1 Ne. 3:11]].  
+[^b]: [[Genesis 22.3|Gen. 22:3 (3, 6–7, 9)]][[Genesis 22.6|]][[Genesis 22.7|]][[Genesis 22.9|]]; [[Nehemiah 13.31|Neh. 13:31]].  

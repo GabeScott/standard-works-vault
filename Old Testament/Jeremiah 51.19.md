@@ -5,4 +5,4 @@
 [Jeremiah 51:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.19?lang=eng#p19)
 
 
-[^a]: OR creator.
+[^a]: OR creator.  

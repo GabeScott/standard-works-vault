@@ -5,4 +5,4 @@
 [Genesis 34:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/34.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 49.7|Gen. 49:7.]]
+[^a]: [[Genesis 49.7|Gen. 49:7]].  

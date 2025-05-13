@@ -5,5 +5,5 @@
 [Mosiah 26:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p15#p15)
 
 
-[^a]: [[Mosiah 18.30|Mosiah 18:30.]]
-[^b]: [[Mosiah 17.2|Mosiah 17:2]]; [[D&C 46.14|D&C 46:14]]. TG [[Faith]].
+[^a]: [[Mosiah 18.30|Mosiah 18:30]].  
+[^b]: [[Mosiah 17.2|Mosiah 17:2]]; [[D&C 46.14|D&C 46:14]]. [[Faith|TG Faith]].  

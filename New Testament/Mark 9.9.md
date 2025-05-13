@@ -5,4 +5,4 @@
 [Mark 9:9](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.9?lang=eng#p9)
 
 
-[^a]: [[Matthew 17.9|Matt. 17:9 (9-12).]]
+[^a]: [[Matthew 17.9|Matt. 17:9 (9–12)]][[Matthew 17.10|]][[Matthew 17.11|]][[Matthew 17.12|]].  

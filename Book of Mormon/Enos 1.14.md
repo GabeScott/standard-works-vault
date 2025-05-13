@@ -5,5 +5,5 @@
 [Enos 1:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p14#p14)
 
 
-[^a]: [[Jacob 7.24|Jacob 7:24.]]
-[^b]: [[2 Nephi 26.17|2 Ne. 26:17]]; [[Mormon 6.6|Morm. 6:6.]]
+[^a]: [[Jacob 7.24|Jacob 7:24]].  
+[^b]: [[2 Nephi 26.17|2 Ne. 26:17]]; [[Mormon 6.6|Morm. 6:6]].  

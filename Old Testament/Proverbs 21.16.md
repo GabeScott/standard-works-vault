@@ -5,4 +5,4 @@
 [Proverbs 21:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 53.6|Isa. 53:6]]; 2 Pet. 2:15 (12-15).
+[^a]: [[Isaiah 53.6|Isa. 53:6]]; [[2 Peter 2.12|2 Pet. 2:15 (12–15)]][[2 Peter 2.13|]][[2 Peter 2.14|]][[2 Peter 2.15|]].  

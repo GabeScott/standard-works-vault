@@ -5,4 +5,4 @@
 [Lamentations 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/4.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 52.6|Jer. 52:6.]]
+[^a]: [[Jeremiah 52.6|Jer. 52:6]].  

@@ -5,5 +5,5 @@
 [Moses 6:48](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.48?lang=eng#p48)
 
 
-[^a]: [[2 Nephi 2.25|2 Ne. 2:25]]. TG [[Fall of Man]].
-[^b]: TG [[Death]]; [[Mortality]].
+[^a]: [[2 Nephi 2.25|2 Ne. 2:25]]. [[Fall of Man|TG Fall of Man]].  
+[^b]: [[Death|TG Death]]; [[Mortality|Mortality]].  

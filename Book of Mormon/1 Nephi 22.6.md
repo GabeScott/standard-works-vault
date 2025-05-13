@@ -5,6 +5,6 @@
 [1 Nephi 22:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Nephi 21.23|1 Ne. 21:23.]]
-[^b]: TG [[Gentiles]].
-[^c]: [[1 Nephi 15.13|1 Ne. 15:13]]; [[2 Nephi 30.3|2 Ne. 30:3 (1-7).]]
+[^a]: [[1 Nephi 21.23|1 Ne. 21:23]].  
+[^b]: [[Gentiles|TG Gentiles]].  
+[^c]: [[1 Nephi 15.13|1 Ne. 15:13]]; [[2 Nephi 30.1|2 Ne. 30:3 (1–7)]][[2 Nephi 30.2|]][[2 Nephi 30.3|]][[2 Nephi 30.4|]][[2 Nephi 30.5|]][[2 Nephi 30.6|]][[2 Nephi 30.7|]].  

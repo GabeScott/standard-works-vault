@@ -5,4 +5,4 @@
 [Genesis 50:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.11?lang=eng#p11)
 
 
-[^a]: IE The mourning of the Egyptians.
+[^a]: IE The mourning of the Egyptians.  

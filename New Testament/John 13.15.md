@@ -5,4 +5,4 @@
 [John 13:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.15?lang=eng#p15)
 
 
-[^a]: TG [[Example, Ensample]]; [[God, the Standard of Righteousness]]; [[Jesus Christ, Exemplar]]; [[Leadership]].
+[^a]: [[Example, Ensample|TG Example]]; [[God, the Standard of Righteousness|God, the Standard of Righteousness]]; [[Jesus Christ, Exemplar|Jesus Christ, Exemplar]]; [[Leadership|Leadership]].  

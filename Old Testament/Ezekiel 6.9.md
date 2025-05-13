@@ -5,6 +5,6 @@
 [Ezekiel 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/6.9?lang=eng#p9)
 
 
-[^a]: [[Ezekiel 23.30|Ezek. 23:30.]]
-[^b]: TG [[Repent, Repentance]].
-[^c]: [[Ezekiel 36.31|Ezek. 36:31.]]
+[^a]: [[Ezekiel 23.30|Ezek. 23:30]].  
+[^b]: [[Repent, Repentance|TG Repent]].  
+[^c]: [[Ezekiel 36.31|Ezek. 36:31]].  

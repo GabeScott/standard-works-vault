@@ -5,4 +5,4 @@
 [Proverbs 8:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.12?lang=eng#p12)
 
 
-[^a]: TG [[Prudence, Prudent]].
+[^a]: [[Prudence, Prudent|TG Prudence]].  

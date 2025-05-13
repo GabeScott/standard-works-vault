@@ -5,6 +5,6 @@
 [Alma 1:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Apparel]].
-[^b]: TG [[Unrighteous Dominion]].
-[^c]: TG [[Devil, Church of]].
+[^a]: [[Apparel|TG Apparel]].  
+[^b]: [[Unrighteous Dominion|TG Unrighteous Dominion]].  
+[^c]: [[Devil, Church of|TG Devil, Church of]].  

@@ -5,7 +5,7 @@
 [Mark 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.4?lang=eng#p4)
 
 
-[^a]: TG [[Missionary Work]].
-[^b]: TG [[Holy Ghost, Baptism of]].
-[^c]: TG [[Repent, Repentance]].
-[^d]: TG [[Remission of Sins]].
+[^a]: [[Missionary Work|TG Missionary Work]].  
+[^b]: [[Baptism|TG Baptism]].  
+[^c]: [[Repent, Repentance|TG Repent]].  
+[^d]: [[Remission of Sins|TG Remission of Sins]].  

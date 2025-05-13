@@ -5,5 +5,5 @@
 [Mark 9:23](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.23?lang=eng#p23)
 
 
-[^a]: Dan. 3:29. TG [[God, Power of]].
-[^b]: TG [[Faith]].
+[^a]: [[Daniel 3.29|Dan. 3:29]]. [[God, Power of|TG God, Power of]].  
+[^b]: [[Faith|TG Faith]].  

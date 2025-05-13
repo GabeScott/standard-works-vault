@@ -5,4 +5,4 @@
 [Leviticus 24:19](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.19?lang=eng#p19)
 
 
-[^a]: HEB defect; i.e., maims him.
+[^a]: HEB defect; i.e., maims him.  

@@ -5,5 +5,5 @@
 [James 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.12?lang=eng#p12)
 
 
-[^a]: TG [[Swearing, Swear, Sware, Sworn]].
-[^b]: TG [[Oath]].
+[^a]: [[Swearing, Swear, Sware, Sworn|TG Swearing]].  
+[^b]: [[Oath|TG Oath]].  

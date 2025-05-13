@@ -5,5 +5,5 @@
 [2 Chronicles 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/1.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 38.2|Ex. 38:2 (1-2).]]
-[^b]: OR Him, i.e., the Lord.
+[^a]: [[Exodus 38.1|Ex. 38:2 (1–2)]][[Exodus 38.2|]].  
+[^b]: OR Him, i.e., the Lord.  

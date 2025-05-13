@@ -5,7 +5,7 @@
 [Isaiah 46:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.4?lang=eng#p4)
 
 
-[^a]: TG [[Old Age]].
-[^b]: OR gray hairs.
-[^c]: [[Isaiah 63.9|Isa. 63:9.]]
-[^d]: TG [[Deliver, Deliverance]].
+[^a]: [[Old Age|TG Old Age]].  
+[^b]: OR gray hairs.  
+[^c]: [[Isaiah 63.9|Isa. 63:9]].  
+[^d]: [[Deliver, Deliverance|TG Deliver]].  

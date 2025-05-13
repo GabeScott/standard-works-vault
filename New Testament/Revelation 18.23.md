@@ -5,5 +5,5 @@
 [Revelation 18:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.23?lang=eng#p23)
 
 
-[^a]: [[Jeremiah 7.34|Jer. 7:34.]]
-[^b]: TG [[Sorcery]].
+[^a]: [[Jeremiah 7.34|Jer. 7:34]].  
+[^b]: [[Sorcery|TG Sorcery]].  

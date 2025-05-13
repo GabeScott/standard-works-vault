@@ -5,7 +5,7 @@
 [3 Nephi 9:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 21.1|Alma 21:1]]; [[Alma 24.1|24:1.]]
-[^b]: [[Ezekiel 26.19|Ezek. 26:19.]]
-[^c]: [[Revelation 16.6|Rev. 16:6 (5-7).]]
-[^d]: [[Jonah 1.2|Jonah 1:2.]]
+[^a]: [[Alma 21.1|Alma 21:1]]; [[Alma 24.1|24:1]].  
+[^b]: [[Ezekiel 26.19|Ezek. 26:19]].  
+[^c]: [[Revelation 16.5|Rev. 16:6 (5–7)]][[Revelation 16.6|]][[Revelation 16.7|]].  
+[^d]: [[Jonah 1.2|Jonah 1:2]].  

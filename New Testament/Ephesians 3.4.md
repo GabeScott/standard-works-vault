@@ -5,4 +5,4 @@
 [Ephesians 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.4?lang=eng#p4)
 
 
-[^a]: [[Romans 16.25|Rom. 16:25]]; [[Ephesians 1.9|Eph. 1:9 (9-11).]]
+[^a]: [[Romans 16.25|Rom. 16:25]]; [[Ephesians 1.9|Eph. 1:9 (9–11)]][[Ephesians 1.10|]][[Ephesians 1.11|]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 26:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 23.19|Ex. 23:19]]; [[Exodus 34.26|34:26]]; [[Numbers 18.13|Num. 18:13.]]
-[^b]: [[Deuteronomy 12.5|Deut. 12:5]]; [[1 Kings 8.29|1 Kgs. 8:29 (26-30).]]
+[^a]: [[Exodus 23.19|Ex. 23:19]]; [[Exodus 34.26|34:26]]; [[Numbers 18.13|Num. 18:13]].  
+[^b]: [[Deuteronomy 12.5|Deut. 12:5]]; [[1 Kings 8.26|1 Kgs. 8:29 (26–30)]][[1 Kings 8.27|]][[1 Kings 8.28|]][[1 Kings 8.29|]][[1 Kings 8.30|]].  

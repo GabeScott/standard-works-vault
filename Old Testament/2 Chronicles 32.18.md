@@ -5,4 +5,4 @@
 [2 Chronicles 32:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.18?lang=eng#p18)
 
 
-[^a]: [[2 Kings 18.28|2 Kgs. 18:28 (28-35).]]
+[^a]: [[2 Kings 18.28|2 Kgs. 18:28 (28–35)]][[2 Kings 18.29|]][[2 Kings 18.30|]][[2 Kings 18.31|]][[2 Kings 18.32|]][[2 Kings 18.33|]][[2 Kings 18.34|]][[2 Kings 18.35|]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 26:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.20?lang=eng#p20)
 
 
-[^a]: TG [[Punish, Punishment]].
+[^a]: [[Punish, Punishment|TG Punish]].  

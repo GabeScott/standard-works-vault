@@ -5,7 +5,7 @@
 [Romans 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.18?lang=eng#p18)
 
 
-[^a]: TG [[God, Indignation of]].
-[^b]: JST Rom. 1:18 … who love not the truth, but remain in unrighteousness,
-[^c]: IE restrain the truth by unrighteousness.
-[^d]: TG [[Unrighteous Dominion]].
+[^a]: [[God, Indignation of|TG God, Indignation of]].  
+[^b]: JST Rom. 1:18 … who love not the truth, but remain in unrighteousness,  
+[^c]: IE restrain the truth by unrighteousness.  
+[^d]: [[Unrighteous Dominion|TG Unrighteous Dominion]].  

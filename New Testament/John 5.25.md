@@ -5,6 +5,6 @@
 [John 5:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.25?lang=eng#p25)
 
 
-[^a]: TG [[Death]]; [[Genealogy and Temple Work]]; [[Salvation for the Dead]]; [[Spirits, Disembodied]].
-[^b]: [[Isaiah 24.22|Isa. 24:22]]; [[Isaiah 61.1|61:1.]]
-[^c]: TG [[Immortality, Immortal]].
+[^a]: [[Death|TG Death]]; [[Genealogy and Temple Work|Genealogy and Temple Work]]; [[Salvation for the Dead|Salvation for the Dead]]; [[Spirits, Disembodied|Spirits, Disembodied]].  
+[^b]: [[Isaiah 24.22|Isa. 24:22]]; [[Isaiah 61.1|61:1]].  
+[^c]: [[Immortality, Immortal|TG Immortality]].  

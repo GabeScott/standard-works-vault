@@ -5,7 +5,7 @@
 [1 Peter 4:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.13?lang=eng#p13)
 
 
-[^a]: [[Acts 5.41|Acts 5:41.]]
-[^b]: TG [[Persecution, Persecute]].
-[^c]: TG [[Suffering]].
-[^d]: [[D&C 66.2|D&C 66:2.]]
+[^a]: [[Acts 5.41|Acts 5:41]].  
+[^b]: [[Persecution, Persecute|TG Persecution]].  
+[^c]: [[Suffering|TG Suffering]].  
+[^d]: [[D&C 66.2|D&C 66:2]].  

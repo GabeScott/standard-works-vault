@@ -5,4 +5,4 @@
 [Micah 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/5.3?lang=eng#p3)
 
 
-[^a]: [[D&C 113.10|D&C 113:10.]]
+[^a]: [[D&C 113.10|D&C 113:10]].  

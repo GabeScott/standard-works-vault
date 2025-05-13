@@ -5,4 +5,4 @@
 [Psalms 35:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.19?lang=eng#p19)
 
 
-[^a]: TG [[Hate]].
+[^a]: [[Hate|TG Hate]].  

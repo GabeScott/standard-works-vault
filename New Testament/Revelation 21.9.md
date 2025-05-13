@@ -5,4 +5,4 @@
 [Revelation 21:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.9?lang=eng#p9)
 
 
-[^a]: TG [[Plague]].
+[^a]: [[Plague|TG Plague]].  

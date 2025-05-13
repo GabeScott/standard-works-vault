@@ -5,4 +5,4 @@
 [Ezekiel 12:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.15?lang=eng#p15)
 
 
-[^a]: TG [[Israel, Scattering of]].
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  

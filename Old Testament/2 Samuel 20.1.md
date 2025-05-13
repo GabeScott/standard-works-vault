@@ -5,4 +5,4 @@
 [2 Samuel 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/20.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 13.13|Deut. 13:13.]]
+[^a]: [[Deuteronomy 13.13|Deut. 13:13]].  

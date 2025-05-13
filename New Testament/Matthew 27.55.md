@@ -5,4 +5,4 @@
 [Matthew 27:55](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.55?lang=eng#p55)
 
 
-[^a]: TG [[Woman, Women]].
+[^a]: [[Woman, Women|TG Woman]].  

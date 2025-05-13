@@ -5,4 +5,4 @@
 [Psalms 22:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.27?lang=eng#p27)
 
 
-[^a]: TG [[World, End of]].
+[^a]: [[World|TG World]].  

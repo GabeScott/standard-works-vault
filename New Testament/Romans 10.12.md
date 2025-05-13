@@ -5,6 +5,6 @@
 [Romans 10:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.12?lang=eng#p12)
 
 
-[^a]: [[Acts 10.35|Acts 10:35 (34-35)]]; [[Romans 2.11|Rom. 2:11]]; [[Galatians 3.28|Gal. 3:28 (26-29).]]
-[^b]: TG [[Treasure]].
-[^c]: TG [[God, Access to]].
+[^a]: [[Acts 10.34|Acts 10:35 (34–35)]][[Acts 10.35|]]; [[Romans 2.11|Rom. 2:11]]; [[Galatians 3.26|Gal. 3:28 (26–29)]][[Galatians 3.27|]][[Galatians 3.28|]][[Galatians 3.29|]].  
+[^b]: [[Treasure|TG Treasure]].  
+[^c]: [[God, Access to|TG God, Access to]].  

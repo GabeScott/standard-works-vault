@@ -5,6 +5,6 @@
 [2 Kings 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/3.18?lang=eng#p18)
 
 
-[^a]: [[1 Nephi 21.6|1 Ne. 21:6.]]
-[^b]: [[1 Nephi 3.29|1 Ne. 3:29]]; [[3 Nephi 3.21|3 Ne. 3:21.]]
-[^c]: [[Judges 3.30|Judg. 3:30 (28-30).]]
+[^a]: [[1 Nephi 21.6|1 Ne. 21:6]].  
+[^b]: [[1 Nephi 3.29|1 Ne. 3:29]]; [[3 Nephi 3.21|3 Ne. 3:21]].  
+[^c]: [[Judges 3.28|Judg. 3:30 (28–30)]][[Judges 3.29|]][[Judges 3.30|]].  

@@ -5,4 +5,4 @@
 [Daniel 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.4?lang=eng#p4)
 
 
-[^a]: OR prospering.
+[^a]: OR prospering.  

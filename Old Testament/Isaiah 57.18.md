@@ -5,6 +5,6 @@
 [Isaiah 57:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.18?lang=eng#p18)
 
 
-[^a]: [[D&C 112.10|D&C 112:10.]]
-[^b]: TG [[Holy Ghost, Comforter]].
-[^c]: TG [[Sorrow]].
+[^a]: [[D&C 112.10|D&C 112:10]].  
+[^b]: [[Comfort|TG Comfort]].  
+[^c]: [[Sorrow|TG Sorrow]].  

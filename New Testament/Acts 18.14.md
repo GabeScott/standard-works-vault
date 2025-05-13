@@ -5,5 +5,5 @@
 [Acts 18:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.14?lang=eng#p14)
 
 
-[^a]: [[Acts 25.5|Acts 25:5.]]
-[^b]: GR crime.
+[^a]: [[Acts 25.5|Acts 25:5]].  
+[^b]: GR crime.  

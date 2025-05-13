@@ -5,4 +5,4 @@
 [Jeremiah 25:28](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.28?lang=eng#p28)
 
 
-[^a]: Obad. 1:16.
+[^a]: [[Obadiah 1.16|Obad. 1:16]].  

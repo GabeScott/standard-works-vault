@@ -5,5 +5,5 @@
 [Judges 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.17?lang=eng#p17)
 
 
-[^a]: TG [[Grace]].
-[^b]: [[Genesis 15.8|Gen. 15:8 (7-9).]]
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[Genesis 15.7|Gen. 15:8 (7–9)]][[Genesis 15.8|]][[Genesis 15.9|]].  

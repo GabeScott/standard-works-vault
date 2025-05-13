@@ -5,5 +5,5 @@
 [Exodus 23:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.26?lang=eng#p26)
 
 
-[^a]: OR None shall miscarry.
-[^b]: TG [[Barren, Barrenness]].
+[^a]: OR None shall miscarry.  
+[^b]: [[Barren, Barrenness|TG Barren]].  

@@ -5,4 +5,4 @@
 [Ezra 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/10.4?lang=eng#p4)
 
 
-[^a]: TG [[Courage, Courageous]].
+[^a]: [[Courage, Courageous|TG Courage]].  

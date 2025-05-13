@@ -5,4 +5,4 @@
 [Proverbs 22:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.16?lang=eng#p16)
 
 
-[^a]: TG [[Oppression, Oppress]].
+[^a]: [[Oppression, Oppress|TG Oppression]].  

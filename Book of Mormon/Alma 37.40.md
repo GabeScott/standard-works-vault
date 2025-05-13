@@ -5,4 +5,4 @@
 [Alma 37:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p40#p40)
 
 
-[^a]: [[1 Nephi 16.28|1 Ne. 16:28.]]
+[^a]: [[1 Nephi 16.28|1 Ne. 16:28]].  

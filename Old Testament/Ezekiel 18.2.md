@@ -5,4 +5,4 @@
 [Ezekiel 18:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.2?lang=eng#p2)
 
 
-[^a]: [[Jeremiah 31.29|Jer. 31:29]]; Lam. 5:7.
+[^a]: [[Jeremiah 31.29|Jer. 31:29]]; [[Lamentations 5.7|Lam. 5:7]].  

@@ -5,4 +5,4 @@
 [1 Kings 15:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.3?lang=eng#p3)
 
 
-[^a]: JST 1 Kgs. 15:3 … as the Lord commanded David his father.
+[^a]: JST 1 Kgs. 15:3 … as the Lord commanded David his father.  

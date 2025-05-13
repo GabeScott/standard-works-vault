@@ -5,5 +5,5 @@
 [Alma 5:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p6#p6)
 
 
-[^a]: 2 Pet. 3:1 (1-2).
-[^b]: TG [[Deliver, Deliverance]].
+[^a]: [[2 Peter 3.1|2 Pet. 3:1 (1–2)]][[2 Peter 3.2|]].  
+[^b]: [[Deliver, Deliverance|TG Deliver]].  

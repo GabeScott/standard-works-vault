@@ -5,4 +5,4 @@
 [Deuteronomy 29:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 5.3|Deut. 5:3 (2-3).]]
+[^a]: [[Deuteronomy 5.2|Deut. 5:3 (2–3)]][[Deuteronomy 5.3|]].  

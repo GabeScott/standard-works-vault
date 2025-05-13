@@ -5,4 +5,4 @@
 [Psalms 90:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/90.13?lang=eng#p13)
 
 
-[^a]: HEB have pity on Thy servants.
+[^a]: HEB have pity on Thy servants.  

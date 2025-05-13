@@ -5,4 +5,4 @@
 [Acts 7:30](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.30?lang=eng#p30)
 
 
-[^a]: [[Exodus 3.2|Ex. 3:2.]]
+[^a]: [[Exodus 3.2|Ex. 3:2]].  

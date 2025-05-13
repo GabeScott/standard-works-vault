@@ -5,5 +5,5 @@
 [3 Nephi 18:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p11#p11)
 
 
-[^a]: [[Moroni 5.1|Moro. 5:1.]]
-[^b]: TG [[Blood, Symbolism of]].
+[^a]: [[Moroni 5.1|Moro. 5:1]].  
+[^b]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  

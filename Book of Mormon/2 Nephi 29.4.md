@@ -5,7 +5,7 @@
 [2 Nephi 29:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p4#p4)
 
 
-[^a]: [[Romans 3.2|Rom. 3:2 (1-3).]]
-[^b]: [[Nehemiah 1.10|Neh. 1:10]]; [[1 Nephi 13.25|1 Ne. 13:25 (23-25)]]; [[D&C 3.16|D&C 3:16.]]
-[^c]: TG [[Ingratitude]]; [[Thanksgiving]].
-[^d]: TG [[Israel, Judah, People of]].
+[^a]: [[Romans 3.1|Rom. 3:2 (1–3)]][[Romans 3.2|]][[Romans 3.3|]].  
+[^b]: [[Nehemiah 1.10|Neh. 1:10]]; [[1 Nephi 13.23|1 Ne. 13:25 (23–25)]][[1 Nephi 13.24|]][[1 Nephi 13.25|]]; [[D&C 3.16|D&C 3:16]].  
+[^c]: [[Ingratitude|TG Ingratitude]]; [[Thanksgiving|Thanksgiving]].  
+[^d]: [[Israel, Judah, People of|TG Israel, Judah, People of]].  

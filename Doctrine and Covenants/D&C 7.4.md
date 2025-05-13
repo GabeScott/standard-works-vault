@@ -5,5 +5,5 @@
 [D&C 7:4](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/7.4?lang=eng#p4)
 
 
-[^a]: TG [[Conversion, Convert]]; [[Worth of Souls]].
-[^b]: TG [[Kingdom of God, in Heaven]].
+[^a]: [[Conversion, Convert|TG Conversion]]; [[Worth of Souls|Worth of Souls]].  
+[^b]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  

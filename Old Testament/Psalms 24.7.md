@@ -5,5 +5,5 @@
 [Psalms 24:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/24.7?lang=eng#p7)
 
 
-[^a]: JST Ps. 24:7-10 (Appendix).
-[^b]: TG [[Jesus Christ, Second Coming]].
+[^a]: [[JST Psalm 24.7|JST Ps. 24:7–10 (Appendix)]][[JST Psalm 24.8|]][[JST Psalm 24.9|]][[JST Psalm 24.10|]].  
+[^b]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  

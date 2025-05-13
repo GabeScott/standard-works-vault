@@ -5,5 +5,5 @@
 [Deuteronomy 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 18.21|Ex. 18:21.]]
-[^b]: [[D&C 136.15|D&C 136:15 (12-18).]]
+[^a]: [[Exodus 18.21|Ex. 18:21]].  
+[^b]: [[D&C 136.12|D&C 136:15 (12–18)]][[D&C 136.13|]][[D&C 136.14|]][[D&C 136.15|]][[D&C 136.16|]][[D&C 136.17|]][[D&C 136.18|]].  

@@ -5,6 +5,6 @@
 [Moses 6:58](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.58?lang=eng#p58)
 
 
-[^a]: TG [[Authority]].
-[^b]: TG [[Education]].
-[^c]: TG [[Family, Children, Responsibilities toward]].
+[^a]: [[Authority|TG Authority]].  
+[^b]: [[Education|TG Education]].  
+[^c]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  

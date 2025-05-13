@@ -5,4 +5,4 @@
 [Numbers 4:34](https://www.churchofjesuschrist.org/study/scriptures/ot/num/4.34?lang=eng#p34)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Church|TG Church]].  

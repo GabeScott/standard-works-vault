@@ -5,4 +5,4 @@
 [1 Corinthians 15:58](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.58?lang=eng#p58)
 
 
-[^a]: TG [[Perseverance]]; [[Steadfastness, Steadfast]].
+[^a]: [[Perseverance|TG Perseverance]]; [[Steadfastness, Steadfast|Steadfastness]].  

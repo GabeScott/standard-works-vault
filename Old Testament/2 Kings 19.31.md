@@ -5,4 +5,4 @@
 [2 Kings 19:31](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.31?lang=eng#p31)
 
 
-[^a]: TG [[Zeal, Zealous]].
+[^a]: [[Zeal, Zealous|TG Zeal]].  

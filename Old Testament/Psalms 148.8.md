@@ -5,4 +5,4 @@
 [Psalms 148:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/148.8?lang=eng#p8)
 
 
-[^a]: TG [[Nature, Earth]].
+[^a]: [[Nature, Earth|TG Nature, Earth]].  

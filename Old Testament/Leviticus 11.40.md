@@ -5,4 +5,4 @@
 [Leviticus 11:40](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.40?lang=eng#p40)
 
 
-[^a]: [[Leviticus 17.15|Lev. 17:15.]]
+[^a]: [[Leviticus 17.15|Lev. 17:15]].  

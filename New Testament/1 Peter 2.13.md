@@ -5,6 +5,6 @@
 [1 Peter 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.13?lang=eng#p13)
 
 
-[^a]: TG [[Citizenship]]; [[Submissiveness, Submit]].
-[^b]: TG [[Governments]].
-[^c]: GR superior.
+[^a]: [[Citizenship|TG Citizenship]]; [[Submissiveness, Submit|Submissiveness]].  
+[^b]: [[Governments|TG Governments]].  
+[^c]: GR superior.  

@@ -5,4 +5,4 @@
 [Proverbs 14:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.24?lang=eng#p24)
 
 
-[^a]: TG [[Foolishness]].
+[^a]: [[Foolishness|TG Foolishness]].  

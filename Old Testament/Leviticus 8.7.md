@@ -5,5 +5,5 @@
 [Leviticus 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.7?lang=eng#p7)
 
 
-[^a]: [[Exodus 28.4|Ex. 28:4]]; [[Exodus 29.5|29:5.]]
-[^b]: [[2 Nephi 9.14|2 Ne. 9:14]]; [[D&C 109.76|D&C 109:76.]]
+[^a]: [[Exodus 28.4|Ex. 28:4]]; [[Exodus 29.5|29:5]].  
+[^b]: [[2 Nephi 9.14|2 Ne. 9:14]]; [[D&C 109.76|D&C 109:76]].  

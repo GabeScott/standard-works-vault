@@ -5,6 +5,6 @@
 [Jarom 1:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/jarom/1?lang=eng&id=p7#p7)
 
 
-[^a]: [[2 Nephi 5.18|2 Ne. 5:18]]; [[2 Nephi 6.2|6:2]]; [[Jacob 1.9|Jacob 1:9 (9, 11, 15)]]; [[Mosiah 1.10|Mosiah 1:10.]]
-[^b]: TG [[Leadership]].
-[^c]: W of M 1:14.
+[^a]: [[2 Nephi 5.18|2 Ne. 5:18]]; [[2 Nephi 6.2|6:2]]; [[Jacob 1.9|Jacob 1:9 (9, 11, 15)]][[Jacob 1.11|]][[Jacob 1.15|]]; [[Mosiah 1.10|Mosiah 1:10]].  
+[^b]: [[Leadership|TG Leadership]].  
+[^c]: [[Words of Mormon 1.14|W of M 1:14]].  

@@ -5,4 +5,4 @@
 [Matthew 7:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.11?lang=eng#p11)
 
 
-[^a]: GR although you are wicked.
+[^a]: GR although you are wicked.  

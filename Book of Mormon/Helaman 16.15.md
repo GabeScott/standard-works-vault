@@ -5,4 +5,4 @@
 [Helaman 16:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/16?lang=eng&id=p15#p15)
 
 
-[^a]: [[Isaiah 5.21|Isa. 5:21.]]
+[^a]: [[Isaiah 5.21|Isa. 5:21]].  

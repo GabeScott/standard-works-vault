@@ -5,4 +5,4 @@
 [Psalms 69:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.4?lang=eng#p4)
 
 
-[^a]: TG [[Hate]].
+[^a]: [[Hate|TG Hate]].  

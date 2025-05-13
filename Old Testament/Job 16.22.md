@@ -5,4 +5,4 @@
 [Job 16:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/16.22?lang=eng#p22)
 
 
-[^a]: TG [[Death]].
+[^a]: [[Death|TG Death]].  

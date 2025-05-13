@@ -5,5 +5,5 @@
 [Acts 17:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.28?lang=eng#p28)
 
 
-[^a]: [[Deuteronomy 30.20|Deut. 30:20]]; [[D&C 45.1|D&C 45:1.]]
-[^b]: TG [[Man, Antemortal Existence of]].
+[^a]: [[Deuteronomy 30.20|Deut. 30:20]]; [[D&C 45.1|D&C 45:1]].  
+[^b]: [[Man, Antemortal Existence of|TG Man, Antemortal Existence of]].  

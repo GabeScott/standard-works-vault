@@ -5,5 +5,5 @@
 [Deuteronomy 11:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.21?lang=eng#p21)
 
 
-[^a]: [[Psalms 89.29|Ps. 89:29.]]
-[^b]: OR as long as there is a heaven above.
+[^a]: [[Psalms 89.29|Ps. 89:29]].  
+[^b]: OR as long as there is a heaven above.  

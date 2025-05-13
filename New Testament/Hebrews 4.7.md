@@ -5,6 +5,6 @@
 [Hebrews 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.7?lang=eng#p7)
 
 
-[^a]: GR appoints, decrees, constitutes.
-[^b]: [[Psalms 95.7|Ps. 95:7.]]
-[^c]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: GR appoints, decrees, constitutes.  
+[^b]: [[Psalms 95.7|Ps. 95:7]].  
+[^c]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

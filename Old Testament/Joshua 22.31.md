@@ -5,4 +5,4 @@
 [Joshua 22:31](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/22.31?lang=eng#p31)
 
 
-[^a]: [[Leviticus 26.12|Lev. 26:12 (11-12)]]; [[D&C 101.18|D&C 101:18 (16-18).]]
+[^a]: [[Leviticus 26.11|Lev. 26:12 (11–12)]][[Leviticus 26.12|]]; [[D&C 101.16|D&C 101:18 (16–18)]][[D&C 101.17|]][[D&C 101.18|]].  

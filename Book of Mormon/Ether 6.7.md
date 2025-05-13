@@ -5,5 +5,5 @@
 [Ether 6:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/6?lang=eng&id=p7#p7)
 
 
-[^a]: [[Ether 2.17|Ether 2:17.]]
-[^b]: [[Genesis 6.14|Gen. 6:14]]; [[Moses 7.43|Moses 7:43.]]
+[^a]: [[Ether 2.17|Ether 2:17]].  
+[^b]: [[Genesis 6.14|Gen. 6:14]]; [[Moses 7.43|Moses 7:43]].  

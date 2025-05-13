@@ -5,4 +5,4 @@
 [Alma 50:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p40#p40)
 
 
-[^a]: [[Alma 59.3|Alma 59:3]]; [[Alma 61.1|61:1]]; [[Helaman 1.2|Hel. 1:2.]]
+[^a]: [[Alma 59.3|Alma 59:3]]; [[Alma 61.1|61:1]]; [[Helaman 1.2|Hel. 1:2]].  

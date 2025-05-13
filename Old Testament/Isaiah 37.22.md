@@ -5,4 +5,4 @@
 [Isaiah 37:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/37.22?lang=eng#p22)
 
 
-[^a]: IE The unconquered people of Jerusalem.
+[^a]: IE The unconquered people of Jerusalem.  

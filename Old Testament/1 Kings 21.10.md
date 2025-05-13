@@ -5,5 +5,5 @@
 [1 Kings 21:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/21.10?lang=eng#p10)
 
 
-[^a]: TG [[Tyranny]].
-[^b]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^a]: [[Tyranny|TG Tyranny]].  
+[^b]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  

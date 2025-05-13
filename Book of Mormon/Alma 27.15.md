@@ -5,4 +5,4 @@
 [Alma 27:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p15#p15)
 
 
-[^a]: [[Judges 7.4|Judg. 7:4.]]
+[^a]: [[Judges 7.4|Judg. 7:4]].  

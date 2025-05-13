@@ -5,4 +5,4 @@
 [Luke 10:3](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.3?lang=eng#p3)
 
 
-[^a]: [[Matthew 10.16|Matt. 10:16.]]
+[^a]: [[Matthew 10.16|Matt. 10:16]].  

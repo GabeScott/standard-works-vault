@@ -5,7 +5,7 @@
 [Joshua 21:44](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.44?lang=eng#p44)
 
 
-[^a]: [[Deuteronomy 3.20|Deut. 3:20]]; [[Joshua 22.4|Josh. 22:4.]]
-[^b]: [[Joshua 23.9|Josh. 23:9.]]
-[^c]: [[Joshua 10.8|Josh. 10:8.]]
-[^d]: [[Mosiah 9.17|Mosiah 9:17]]; [[Alma 46.7|Alma 46:7.]]
+[^a]: [[Deuteronomy 3.20|Deut. 3:20]]; [[Joshua 22.4|Josh. 22:4]].  
+[^b]: [[Joshua 23.9|Josh. 23:9]].  
+[^c]: [[Joshua 10.8|Josh. 10:8]].  
+[^d]: [[Mosiah 9.17|Mosiah 9:17]]; [[Alma 46.7|Alma 46:7]].  

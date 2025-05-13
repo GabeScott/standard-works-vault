@@ -5,4 +5,4 @@
 [Psalms 73:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.11?lang=eng#p11)
 
 
-[^a]: [[Job 22.13|Job 22:13.]]
+[^a]: [[Job 22.13|Job 22:13]].  

@@ -5,5 +5,5 @@
 [Genesis 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.19?lang=eng#p19)
 
 
-[^a]: [[Moses 1.34|Moses 1:34]]; [[Moses 3.19|3:19]]; [[Abraham 1.3|Abr. 1:3]]; [[Abraham 5.20|5:20.]]
-[^b]: TG [[Language]].
+[^a]: [[Moses 1.34|Moses 1:34]]; [[Moses 3.19|3:19]]; [[Abraham 1.3|Abr. 1:3]]; [[Abraham 5.20|5:20]].  
+[^b]: [[Language|TG Language]].  

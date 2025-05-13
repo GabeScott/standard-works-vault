@@ -5,4 +5,4 @@
 [John 1:42](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.42?lang=eng#p42)
 
 
-[^a]: GR Stone, Pebble. JST John 1:42 … Cephas, which is, by interpretation, a seer, or a stone. And they were fishermen. And they straightway left all, and followed Jesus. Matt. 16:18; [[Luke 6.14|Luke 6:14]]; [[Galatians 2.9|Gal. 2:9.]]
+[^a]: GR Stone, Pebble. [[JST John 1.42|JST John 1:42]] … Cephas, which is, by interpretation, a seer, or a stone. And they were fishermen. And they straightway left all, and followed Jesus. [[Matthew 16.18|Matt. 16:18]]; [[Luke 6.14|Luke 6:14]]; [[Galatians 2.9|Gal. 2:9]].  

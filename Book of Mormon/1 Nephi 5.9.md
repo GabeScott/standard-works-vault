@@ -5,5 +5,5 @@
 [1 Nephi 5:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p9#p9)
 
 
-[^a]: [[1 Nephi 7.22|1 Ne. 7:22]]; [[Mosiah 2.3|Mosiah 2:3]]; [[3 Nephi 9.19|3 Ne. 9:19]]. TG [[Law of Moses]].
-[^b]: TG [[Thanksgiving]].
+[^a]: [[1 Nephi 7.22|1 Ne. 7:22]]; [[Mosiah 2.3|Mosiah 2:3]]; [[3 Nephi 9.19|3 Ne. 9:19]]. [[Law of Moses|TG Law of Moses]].  
+[^b]: [[Thanksgiving|TG Thanksgiving]].  

@@ -5,6 +5,6 @@
 [Mosiah 24:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 17.2|Mosiah 17:2 (1-4)]]; [[Mosiah 23.9|23:9.]]
-[^b]: [[Mosiah 21.3|Mosiah 21:3 (3-6).]]
-[^c]: [[Mosiah 23.37|Mosiah 23:37 (37-39).]]
+[^a]: [[Mosiah 17.1|Mosiah 17:2 (1–4)]][[Mosiah 17.2|]][[Mosiah 17.3|]][[Mosiah 17.4|]]; [[Mosiah 23.9|23:9]].  
+[^b]: [[Mosiah 21.3|Mosiah 21:3 (3–6)]][[Mosiah 21.4|]][[Mosiah 21.5|]][[Mosiah 21.6|]].  
+[^c]: [[Mosiah 23.37|Mosiah 23:37 (37–39)]][[Mosiah 23.38|]][[Mosiah 23.39|]].  

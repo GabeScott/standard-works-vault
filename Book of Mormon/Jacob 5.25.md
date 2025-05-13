@@ -5,6 +5,6 @@
 [Jacob 5:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p25#p25)
 
 
-[^a]: [[Ezekiel 17.8|Ezek. 17:8]]; [[1 Nephi 2.20|1 Ne. 2:20]]; [[Jacob 5.43|Jacob 5:43.]]
-[^b]: [[Helaman 15.3|Hel. 15:3 (3-4).]]
-[^c]: [[Alma 26.36|Alma 26:36.]]
+[^a]: [[Ezekiel 17.8|Ezek. 17:8]]; [[1 Nephi 2.20|1 Ne. 2:20]]; [[Jacob 5.43|Jacob 5:43]].  
+[^b]: [[Helaman 15.3|Hel. 15:3 (3–4)]][[Helaman 15.4|]].  
+[^c]: [[Alma 26.36|Alma 26:36]].  

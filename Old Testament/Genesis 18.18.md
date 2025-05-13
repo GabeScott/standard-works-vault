@@ -5,6 +5,6 @@
 [Genesis 18:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.18?lang=eng#p18)
 
 
-[^a]: TG [[Nations]].
-[^b]: TG [[Abrahamic Covenant]].
-[^c]: [[Zechariah 8.13|Zech. 8:13]]; [[D&C 110.12|D&C 110:12]]; [[D&C 115.5|115:5]]. TG [[Israel, Mission of]].
+[^a]: [[Nations|TG Nations]].  
+[^b]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  
+[^c]: [[Zechariah 8.13|Zech. 8:13]]; [[D&C 110.12|D&C 110:12]]; [[D&C 115.5|115:5]]. [[Israel, Mission of|TG Israel, Mission of]].  

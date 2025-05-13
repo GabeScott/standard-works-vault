@@ -5,4 +5,4 @@
 [Exodus 22:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.4?lang=eng#p4)
 
 
-[^a]: [[Proverbs 6.31|Prov. 6:31 (30-31).]]
+[^a]: [[Proverbs 6.30|Prov. 6:31 (30–31)]][[Proverbs 6.31|]].  

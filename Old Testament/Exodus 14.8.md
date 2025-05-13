@@ -5,6 +5,6 @@
 [Exodus 14:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 14.8|JST Ex. 14:8 And Pharaoh hardened his heart, and he pursued …]]
-[^b]: IE in defiance.
-[^c]: [[Numbers 33.3|Num. 33:3.]]
+[^a]: JST Ex. 14:8 And Pharaoh hardened his heart, and he pursued …  
+[^b]: IE in defiance.  
+[^c]: [[Numbers 33.3|Num. 33:3]].  

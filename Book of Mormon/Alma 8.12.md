@@ -5,4 +5,4 @@
 [Alma 8:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 4.20|Alma 4:20.]]
+[^a]: [[Alma 4.20|Alma 4:20]].  

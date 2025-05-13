@@ -5,4 +5,4 @@
 [Job 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/job/3.14?lang=eng#p14)
 
 
-[^a]: HEB who rebuilt ruins.
+[^a]: HEB who rebuilt ruins.  

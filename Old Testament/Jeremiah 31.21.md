@@ -5,4 +5,4 @@
 [Jeremiah 31:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.21?lang=eng#p21)
 
 
-[^a]: HEB signposts.
+[^a]: HEB signposts.  

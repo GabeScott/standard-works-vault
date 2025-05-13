@@ -5,6 +5,6 @@
 [Romans 5:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.3?lang=eng#p3)
 
 
-[^a]: [[2 Corinthians 4.17|2 Cor. 4:17.]]
-[^b]: TG [[Tribulation]].
-[^c]: TG [[Patience, Patient, Patiently]].
+[^a]: [[2 Corinthians 4.17|2 Cor. 4:17]].  
+[^b]: [[Tribulation|TG Tribulation]].  
+[^c]: [[Patience, Patient, Patiently|TG Patience]].  

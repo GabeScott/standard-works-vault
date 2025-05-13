@@ -5,4 +5,4 @@
 [Isaiah 55:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.11?lang=eng#p11)
 
 
-[^a]: [[Deuteronomy 32.2|Deut. 32:2]]; [[Ezekiel 12.25|Ezek. 12:25]]; [[D&C 121.45|D&C 121:45.]]
+[^a]: [[Deuteronomy 32.2|Deut. 32:2]]; [[Ezekiel 12.25|Ezek. 12:25]]; [[D&C 121.45|D&C 121:45]].  

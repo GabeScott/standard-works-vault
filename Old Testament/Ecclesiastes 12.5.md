@@ -5,4 +5,4 @@
 [Ecclesiastes 12:5](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/12.5?lang=eng#p5)
 
 
-[^a]: [[Job 17.13|Job 17:13]]; [[Alma 40.11|Alma 40:11.]]
+[^a]: [[Job 17.13|Job 17:13]]; [[Alma 40.11|Alma 40:11]].  

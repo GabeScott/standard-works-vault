@@ -5,5 +5,5 @@
 [Acts 22:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.16?lang=eng#p16)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential; [[Conversion, Convert]].
-[^b]: TG [[Wash, Washing]].
+[^a]: [[Baptism|TG Baptism]]; [[Baptism, Essential|Baptism, Essential]]; [[Conversion, Convert|Conversion]].  
+[^b]: [[Wash, Washing|TG Wash]].  

@@ -5,4 +5,4 @@
 [Jeremiah 33:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/33.7?lang=eng#p7)
 
 
-[^a]: [[Isaiah 1.26|Isa. 1:26.]]
+[^a]: [[Isaiah 1.26|Isa. 1:26]].  

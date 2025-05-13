@@ -5,4 +5,4 @@
 [Deuteronomy 31:23](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.23?lang=eng#p23)
 
 
-[^a]: [[Deuteronomy 3.28|Deut. 3:28.]]
+[^a]: [[Deuteronomy 3.28|Deut. 3:28]].  

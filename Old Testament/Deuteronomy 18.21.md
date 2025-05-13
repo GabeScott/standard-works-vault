@@ -5,4 +5,4 @@
 [Deuteronomy 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.21?lang=eng#p21)
 
 
-[^a]: [[Jeremiah 28.9|Jer. 28:9 (8-9)]]; [[D&C 64.39|D&C 64:39.]]
+[^a]: [[Jeremiah 28.8|Jer. 28:9 (8–9)]][[Jeremiah 28.9|]]; [[D&C 64.39|D&C 64:39]].  

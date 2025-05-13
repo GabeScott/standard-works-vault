@@ -5,5 +5,5 @@
 [Deuteronomy 25:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.19?lang=eng#p19)
 
 
-[^a]: [[Alma 5.57|Alma 5:57.]]
-[^b]: [[Exodus 17.14|Ex. 17:14 (8-16).]]
+[^a]: [[Alma 5.57|Alma 5:57]].  
+[^b]: [[Exodus 17.8|Ex. 17:14 (8–16)]][[Exodus 17.9|]][[Exodus 17.10|]][[Exodus 17.11|]][[Exodus 17.12|]][[Exodus 17.13|]][[Exodus 17.14|]][[Exodus 17.15|]][[Exodus 17.16|]].  

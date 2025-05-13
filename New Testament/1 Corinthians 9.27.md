@@ -5,5 +5,5 @@
 [1 Corinthians 9:27](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.27?lang=eng#p27)
 
 
-[^a]: GR rigorously discipline.
-[^b]: TG [[Chastity, Chaste]].
+[^a]: GR rigorously discipline.  
+[^b]: [[Chastity, Chaste|TG Chastity]].  

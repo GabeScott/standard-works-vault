@@ -5,5 +5,5 @@
 [James 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.15?lang=eng#p15)
 
 
-[^a]: TG [[Brotherhood and Sisterhood]].
-[^b]: TG [[Food]].
+[^a]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  
+[^b]: [[Food|TG Food]].  

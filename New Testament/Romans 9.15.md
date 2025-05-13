@@ -5,4 +5,4 @@
 [Romans 9:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.15?lang=eng#p15)
 
 
-[^a]: TG [[Compassion]].
+[^a]: [[Compassion|TG Compassion]].  

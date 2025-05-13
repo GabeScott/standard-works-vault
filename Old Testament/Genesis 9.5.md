@@ -5,5 +5,5 @@
 [Genesis 9:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9.5?lang=eng#p5)
 
 
-[^a]: OR your life blood will …
-[^b]: [[Psalms 9.12|Ps. 9:12.]]
+[^a]: OR your life blood will …  
+[^b]: [[Psalms 9.12|Ps. 9:12]].  

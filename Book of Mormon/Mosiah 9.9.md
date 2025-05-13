@@ -5,4 +5,4 @@
 [Mosiah 9:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/9?lang=eng&id=p9#p9)
 
 
-[^a]: [[1 Nephi 8.1|1 Ne. 8:1]]; [[Enos 1.21|Enos 1:21]]; [[Mosiah 10.4|Mosiah 10:4.]]
+[^a]: [[1 Nephi 8.1|1 Ne. 8:1]]; [[Enos 1.21|Enos 1:21]]; [[Mosiah 10.4|Mosiah 10:4]].  

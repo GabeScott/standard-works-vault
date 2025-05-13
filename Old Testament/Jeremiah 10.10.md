@@ -5,7 +5,7 @@
 [Jeremiah 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.10?lang=eng#p10)
 
 
-[^a]: [[Joshua 22.34|Josh. 22:34]]; [[D&C 76.1|D&C 76:1.]]
-[^b]: JS—H 1:17.
-[^c]: TG [[Kingdom of God, in Heaven]].
-[^d]: TG [[God, Indignation of]].
+[^a]: [[Joshua 22.34|Josh. 22:34]]; [[D&C 76.1|D&C 76:1]].  
+[^b]: [[Joseph Smith History 1.17|JS—H 1:17]].  
+[^c]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  
+[^d]: [[God, Indignation of|TG God, Indignation of]].  

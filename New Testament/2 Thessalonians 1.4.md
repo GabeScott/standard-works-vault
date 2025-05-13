@@ -5,6 +5,6 @@
 [2 Thessalonians 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/1.4?lang=eng#p4)
 
 
-[^a]: 1 Thes. 1:8.
-[^b]: GR endurance. D&C 58:2.
-[^c]: 1 Thes. 2:14.
+[^a]: [[1 Thessalonians 1.8|1 Thes. 1:8]].  
+[^b]: GR endurance. [[D&C 58.2|D&C 58:2]].  
+[^c]: [[1 Thessalonians 2.14|1 Thes. 2:14]].  

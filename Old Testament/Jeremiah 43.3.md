@@ -5,4 +5,4 @@
 [Jeremiah 43:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/43.3?lang=eng#p3)
 
 
-[^a]: [[Jeremiah 32.12|Jer. 32:12.]]
+[^a]: [[Jeremiah 32.12|Jer. 32:12]].  

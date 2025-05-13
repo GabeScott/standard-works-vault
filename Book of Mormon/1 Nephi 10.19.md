@@ -5,7 +5,7 @@
 [1 Nephi 10:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Objectives]].
-[^b]: TG [[Mysteries of Godliness]].
-[^c]: TG [[Holy Ghost, Source of Testimony]].
-[^d]: [[Alma 7.20|Alma 7:20]]; [[Alma 37.12|37:12]]; [[D&C 3.2|D&C 3:2]]; [[D&C 35.1|35:1]]. TG [[God, Eternal Nature of]].
+[^a]: [[Objectives|TG Objectives]].  
+[^b]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  
+[^c]: [[Holy Ghost, Source of Testimony|TG Holy Ghost, Source of Testimony]].  
+[^d]: [[Alma 7.20|Alma 7:20]]; [[Alma 37.12|37:12]]; [[D&C 3.2|D&C 3:2]]; [[D&C 35.1|35:1]]. [[God, Eternal Nature of|TG God, Eternal Nature of]].  

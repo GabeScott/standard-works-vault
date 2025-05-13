@@ -5,5 +5,5 @@
 [2 Nephi 14:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/14?lang=eng&id=p1#p1)
 
 
-[^a]: [[Isaiah 4.1|Isa. 4:1 (1-6).]]
-[^b]: TG [[Reproach]].
+[^a]: [[Isaiah 4.1|Isa. 4:1 (1–6)]][[Isaiah 4.2|]][[Isaiah 4.3|]][[Isaiah 4.4|]][[Isaiah 4.5|]][[Isaiah 4.6|]].  
+[^b]: [[Reproach|TG Reproach]].  

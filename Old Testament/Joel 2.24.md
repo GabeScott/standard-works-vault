@@ -5,4 +5,4 @@
 [Joel 2:24](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.24?lang=eng#p24)
 
 
-[^a]: OR vats.
+[^a]: OR vats.  

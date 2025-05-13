@@ -5,5 +5,5 @@
 [Proverbs 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.19?lang=eng#p19)
 
 
-[^a]: [[Abraham 4.1|Abr. 4:1.]]
-[^b]: TG [[Understanding]].
+[^a]: [[Abraham 4.1|Abr. 4:1]].  
+[^b]: [[Understanding|TG Understanding]].  

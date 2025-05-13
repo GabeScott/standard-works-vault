@@ -5,4 +5,4 @@
 [Leviticus 9:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/9.5?lang=eng#p5)
 
 
-[^a]: TG [[God, Access to]].
+[^a]: [[God, Access to|TG God, Access to]].  

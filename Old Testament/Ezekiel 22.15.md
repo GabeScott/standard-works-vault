@@ -5,5 +5,5 @@
 [Ezekiel 22:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.15?lang=eng#p15)
 
 
-[^a]: TG [[Israel, Scattering of]]; [[Israel, Ten Lost Tribes of]].
-[^b]: TG [[Filthiness, Filthy]].
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]]; [[Israel, Ten Lost Tribes of|Israel, Ten Lost Tribes of]].  
+[^b]: [[Filthiness, Filthy|TG Filthiness]].  

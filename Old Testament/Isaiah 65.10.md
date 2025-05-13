@@ -5,4 +5,4 @@
 [Isaiah 65:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.10?lang=eng#p10)
 
 
-[^a]: [[Hosea 2.15|Hosea 2:15.]]
+[^a]: [[Hosea 2.15|Hosea 2:15]].  

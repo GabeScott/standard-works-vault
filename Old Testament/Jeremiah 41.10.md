@@ -5,4 +5,4 @@
 [Jeremiah 41:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/41.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 43.6|Jer. 43:6.]]
+[^a]: [[Jeremiah 43.6|Jer. 43:6]].  

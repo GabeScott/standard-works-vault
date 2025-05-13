@@ -5,4 +5,4 @@
 [Acts 15:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.16?lang=eng#p16)
 
 
-[^a]: [[Amos 9.11|Amos 9:11 (11-12).]]
+[^a]: [[Amos 9.11|Amos 9:11 (11–12)]][[Amos 9.12|]].  

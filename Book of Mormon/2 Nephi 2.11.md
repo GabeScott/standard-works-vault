@@ -5,4 +5,4 @@
 [2 Nephi 2:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p11#p11)
 
 
-[^a]: [[Job 2.10|Job 2:10]]; [[Matthew 5.45|Matt. 5:45]]; [[D&C 29.39|D&C 29:39]]; [[D&C 122.7|122:7 (5-9)]]; [[Moses 6.55|Moses 6:55]]. TG [[Adversity]]; [[Agency]]; [[Mortality]]; [[Opposition]].
+[^a]: [[Job 2.10|Job 2:10]]; [[Matthew 5.45|Matt. 5:45]]; [[D&C 29.39|D&C 29:39]]; [[D&C 122.5|122:7 (5–9)]][[D&C 122.6|]][[D&C 122.7|]][[D&C 122.8|]][[D&C 122.9|]]; [[Moses 6.55|Moses 6:55]]. [[Adversity|TG Adversity]]; [[Agency|Agency]]; [[Mortality|Mortality]]; [[Opposition|Opposition]].  

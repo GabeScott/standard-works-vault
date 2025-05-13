@@ -5,5 +5,5 @@
 [Psalms 62:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/62.7?lang=eng#p7)
 
 
-[^a]: TG [[Telestial Glory]].
-[^b]: TG [[Refuge]].
+[^a]: [[Glory|TG Glory]].  
+[^b]: [[Refuge|TG Refuge]].  

@@ -5,5 +5,5 @@
 [Revelation 7:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.1?lang=eng#p1)
 
 
-[^a]: [[D&C 77.8|D&C 77:8.]]
-[^b]: [[Ezekiel 37.9|Ezek. 37:9]]; Dan. 11:4.
+[^a]: [[D&C 77.8|D&C 77:8]].  
+[^b]: [[Ezekiel 37.9|Ezek. 37:9]]; [[Daniel 11.4|Dan. 11:4]].  

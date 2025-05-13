@@ -5,4 +5,4 @@
 [Zechariah 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/9.3?lang=eng#p3)
 
 
-[^a]: [[Amos 1.10|Amos 1:10 (9-10).]]
+[^a]: [[Amos 1.9|Amos 1:10 (9–10)]][[Amos 1.10|]].  

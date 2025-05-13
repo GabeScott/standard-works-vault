@@ -5,4 +5,4 @@
 [Numbers 20:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 32.34|Ex. 32:34]]. TG [[Angels]].
+[^a]: [[Exodus 32.34|Ex. 32:34]]. [[Angels|TG Angels]].  

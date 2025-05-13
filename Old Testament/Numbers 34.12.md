@@ -5,5 +5,5 @@
 [Numbers 34:12](https://www.churchofjesuschrist.org/study/scriptures/ot/num/34.12?lang=eng#p12)
 
 
-[^a]: [[Joshua 3.16|Josh. 3:16.]]
-[^b]: [[Deuteronomy 3.17|Deut. 3:17]]; [[Deuteronomy 4.49|4:49 (47-49).]]
+[^a]: [[Joshua 3.16|Josh. 3:16]].  
+[^b]: [[Deuteronomy 3.17|Deut. 3:17]]; [[Deuteronomy 4.47|4:49 (47–49)]][[Deuteronomy 4.48|]][[Deuteronomy 4.49|]].  

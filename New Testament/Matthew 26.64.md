@@ -5,6 +5,6 @@
 [Matthew 26:64](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.64?lang=eng#p64)
 
 
-[^a]: TG [[Jesus Christ, Son of Man]].
-[^b]: TG [[Celestial Glory]].
-[^c]: TG [[Jesus Christ, Second Coming]].
+[^a]: [[Jesus Christ, Son of Man|TG Jesus Christ, Son of Man]].  
+[^b]: [[Celestial Glory|TG Celestial Glory]].  
+[^c]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  

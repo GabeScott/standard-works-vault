@@ -5,5 +5,5 @@
 [Romans 12:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.14?lang=eng#p14)
 
 
-[^a]: TG [[Enemies, Enemy]]; [[Persecution, Persecute]].
-[^b]: TG [[Curse]].
+[^a]: [[Enemies, Enemy|TG Enemies]]; [[Persecution, Persecute|Persecution]].  
+[^b]: [[Curse|TG Curse]].  

@@ -5,4 +5,4 @@
 [Jeremiah 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/21.5?lang=eng#p5)
 
 
-[^a]: [[Deuteronomy 4.34|Deut. 4:34.]]
+[^a]: [[Deuteronomy 4.34|Deut. 4:34]].  

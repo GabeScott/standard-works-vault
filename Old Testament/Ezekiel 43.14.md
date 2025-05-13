@@ -5,4 +5,4 @@
 [Ezekiel 43:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.14?lang=eng#p14)
 
 
-[^a]: OR ledge, border.
+[^a]: OR ledge, border.  

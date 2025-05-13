@@ -5,4 +5,4 @@
 [Judges 6:24](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 17.15|Ex. 17:15.]]
+[^a]: [[Exodus 17.15|Ex. 17:15]].  

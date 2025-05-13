@@ -5,7 +5,7 @@
 [Moroni 7:44](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p44#p44)
 
 
-[^a]: [[1 Corinthians 13.13|1 Cor. 13:13 (1-13)]]; [[Alma 7.24|Alma 7:24]]; [[Ether 12.31|Ether 12:31 (28-35).]]
-[^b]: [[Leviticus 10.19|Lev. 10:19.]]
-[^c]: TG [[Meek, Meekness]].
-[^d]: [[Luke 12.8|Luke 12:8 (8-9)]]. TG [[Holy Ghost, Gifts of]]; [[Testimony]].
+[^a]: [[1 Corinthians 13.1|1 Cor. 13:13 (1–13)]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]]; [[Alma 7.24|Alma 7:24]]; [[Ether 12.28|Ether 12:31 (28–35)]][[Ether 12.29|]][[Ether 12.30|]][[Ether 12.31|]][[Ether 12.32|]][[Ether 12.33|]][[Ether 12.34|]][[Ether 12.35|]].  
+[^b]: [[Leviticus 10.19|Lev. 10:19]].  
+[^c]: [[Meek, Meekness|TG Meek]].  
+[^d]: [[Luke 12.8|Luke 12:8 (8–9)]][[Luke 12.9|]]. [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]]; [[Testimony|Testimony]].  

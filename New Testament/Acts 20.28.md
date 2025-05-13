@@ -5,7 +5,7 @@
 [Acts 20:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.28?lang=eng#p28)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
-[^b]: OR bishops. TG [[Bishop]].
-[^c]: TG [[Apostasy of the Early Christian Church]].
-[^d]: [[Hebrews 9.12|Heb. 9:12]]; 1 Jn. 1:7.
+[^a]: [[Church|TG Church]].  
+[^b]: OR bishops. [[Bishop|TG Bishop]].  
+[^c]: [[Church|TG Church]].  
+[^d]: [[Hebrews 9.12|Heb. 9:12]]; [[1 John 1.7|1 Jn. 1:7]].  

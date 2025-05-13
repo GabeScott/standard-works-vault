@@ -5,6 +5,6 @@
 [Matthew 9:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.6?lang=eng#p6)
 
 
-[^a]: TG [[Jesus Christ, Son of Man]].
-[^b]: GR authority. TG [[Jesus Christ, Authority of]].
-[^c]: TG [[Forgive, Forgiveness]].
+[^a]: [[Jesus Christ, Son of Man|TG Jesus Christ, Son of Man]].  
+[^b]: GR authority. [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^c]: [[Forgive, Forgiveness|TG Forgive]].  

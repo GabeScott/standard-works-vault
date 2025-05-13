@@ -5,4 +5,4 @@
 [1 Nephi 11:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p19#p19)
 
 
-[^a]: [[Matthew 1.20|Matt. 1:20.]]
+[^a]: [[Matthew 1.20|Matt. 1:20]].  

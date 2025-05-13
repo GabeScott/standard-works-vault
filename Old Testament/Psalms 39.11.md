@@ -5,5 +5,5 @@
 [Psalms 39:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/39.11?lang=eng#p11)
 
 
-[^a]: OR chasten.
-[^b]: TG [[Vanity]].
+[^a]: OR chasten.  
+[^b]: [[Vanity|TG Vanity]].  

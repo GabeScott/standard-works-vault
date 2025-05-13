@@ -5,4 +5,4 @@
 [Leviticus 24:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.21?lang=eng#p21)
 
 
-[^a]: [[D&C 98.47|D&C 98:47.]]
+[^a]: [[D&C 98.47|D&C 98:47]].  

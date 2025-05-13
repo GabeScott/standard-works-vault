@@ -5,4 +5,4 @@
 [Daniel 8:5](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.5?lang=eng#p5)
 
 
-[^a]: Dan. 8:21.
+[^a]: [[Daniel 8.21|Dan. 8:21]].  

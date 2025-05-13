@@ -5,4 +5,4 @@
 [Psalms 102:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/102.26?lang=eng#p26)
 
 
-[^a]: [[Isaiah 34.4|Isa. 34:4]]; [[Isaiah 51.6|51:6]]; 2 Pet. 3:10 (10-12).
+[^a]: [[Isaiah 34.4|Isa. 34:4]]; [[Isaiah 51.6|51:6]]; [[2 Peter 3.10|2 Pet. 3:10 (10–12)]][[2 Peter 3.11|]][[2 Peter 3.12|]].  

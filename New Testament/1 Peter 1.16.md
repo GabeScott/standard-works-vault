@@ -5,4 +5,4 @@
 [1 Peter 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.16?lang=eng#p16)
 
 
-[^a]: 1 Jn. 3:3.
+[^a]: [[1 John 3.3|1 Jn. 3:3]].  

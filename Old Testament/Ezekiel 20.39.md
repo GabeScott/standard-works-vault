@@ -5,5 +5,5 @@
 [Ezekiel 20:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.39?lang=eng#p39)
 
 
-[^a]: [[Ezekiel 39.7|Ezek. 39:7]]; [[Ezekiel 43.7|43:7.]]
-[^b]: [[D&C 1.16|D&C 1:16.]]
+[^a]: [[Ezekiel 39.7|Ezek. 39:7]]; [[Ezekiel 43.7|43:7]].  
+[^b]: [[D&C 1.16|D&C 1:16]].  

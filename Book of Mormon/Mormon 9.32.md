@@ -5,4 +5,4 @@
 [Mormon 9:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p32#p32)
 
 
-[^a]: [[1 Nephi 1.2|1 Ne. 1:2]]; [[Mosiah 1.2|Mosiah 1:2 (2-4).]]
+[^a]: [[1 Nephi 1.2|1 Ne. 1:2]]; [[Mosiah 1.2|Mosiah 1:2 (2–4)]][[Mosiah 1.3|]][[Mosiah 1.4|]].  

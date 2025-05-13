@@ -5,4 +5,4 @@
 [Psalms 112:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/112.3?lang=eng#p3)
 
 
-[^a]: TG [[Abundant Life]].
+[^a]: [[Abundant Life|TG Abundant Life]].  

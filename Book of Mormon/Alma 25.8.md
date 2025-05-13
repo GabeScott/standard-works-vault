@@ -5,4 +5,4 @@
 [Alma 25:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/25?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mosiah 17.18|Mosiah 17:18.]]
+[^a]: [[Mosiah 17.18|Mosiah 17:18]].  

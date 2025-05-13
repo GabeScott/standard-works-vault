@@ -5,5 +5,5 @@
 [Isaiah 35:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/35.3?lang=eng#p3)
 
 
-[^a]: [[Romans 14.1|Rom. 14:1 (1-3).]]
-[^b]: [[Hebrews 12.12|Heb. 12:12]]; [[D&C 81.5|D&C 81:5.]]
+[^a]: [[Romans 14.1|Rom. 14:1 (1–3)]][[Romans 14.2|]][[Romans 14.3|]].  
+[^b]: [[Hebrews 12.12|Heb. 12:12]]; [[D&C 81.5|D&C 81:5]].  

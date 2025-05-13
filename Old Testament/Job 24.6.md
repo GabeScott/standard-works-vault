@@ -5,4 +5,4 @@
 [Job 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/24.6?lang=eng#p6)
 
 
-[^a]: HEB fodder.
+[^a]: HEB fodder.  

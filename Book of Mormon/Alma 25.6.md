@@ -5,6 +5,6 @@
 [Alma 25:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/25?lang=eng&id=p6#p6)
 
 
-[^a]: IE the Lamanites.
-[^b]: [[Alma 21.9|Alma 21:9 (5-12).]]
-[^c]: [[Alma 26.24|Alma 26:24.]]
+[^a]: IE the Lamanites.  
+[^b]: [[Alma 21.5|Alma 21:9 (5–12)]][[Alma 21.6|]][[Alma 21.7|]][[Alma 21.8|]][[Alma 21.9|]][[Alma 21.10|]][[Alma 21.11|]][[Alma 21.12|]].  
+[^c]: [[Alma 26.24|Alma 26:24]].  

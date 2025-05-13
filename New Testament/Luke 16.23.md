@@ -5,4 +5,4 @@
 [Luke 16:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.23?lang=eng#p23)
 
 
-[^a]: TG [[Hell]]; [[Spirits in Prison]].
+[^a]: [[Hell|TG Hell]]; [[Spirits in Prison|Spirits in Prison]].  

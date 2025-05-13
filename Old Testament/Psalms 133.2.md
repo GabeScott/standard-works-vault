@@ -5,4 +5,4 @@
 [Psalms 133:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/133.2?lang=eng#p2)
 
 
-[^a]: OR collar.
+[^a]: OR collar.  

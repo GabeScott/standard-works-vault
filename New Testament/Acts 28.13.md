@@ -5,4 +5,4 @@
 [Acts 28:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.13?lang=eng#p13)
 
 
-[^a]: GR went around, took a circuitous course.
+[^a]: GR went around, took a circuitous course.  

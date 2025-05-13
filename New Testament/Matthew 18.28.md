@@ -5,4 +5,4 @@
 [Matthew 18:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.28?lang=eng#p28)
 
 
-[^a]: IE approximately three months’ wages of a poor working man.
+[^a]: IE approximately three months’ wages of a poor working man.  

@@ -5,5 +5,5 @@
 [Joshua 17:18](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/17.18?lang=eng#p18)
 
 
-[^a]: [[2 Samuel 18.6|2 Sam. 18:6.]]
-[^b]: [[Deuteronomy 20.1|Deut. 20:1.]]
+[^a]: [[2 Samuel 18.6|2 Sam. 18:6]].  
+[^b]: [[Deuteronomy 20.1|Deut. 20:1]].  

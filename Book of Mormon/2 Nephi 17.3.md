@@ -5,4 +5,4 @@
 [2 Nephi 17:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/17?lang=eng&id=p3#p3)
 
 
-[^a]: [[2 Kings 18.17|2 Kgs. 18:17]]; [[Isaiah 36.2|Isa. 36:2.]]
+[^a]: [[2 Kings 18.17|2 Kgs. 18:17]]; [[Isaiah 36.2|Isa. 36:2]].  

@@ -5,4 +5,4 @@
 [Alma 46:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p12#p12)
 
 
-[^a]: [[2 Samuel 10.12|2 Sam. 10:12]]; [[Nehemiah 4.14|Neh. 4:14 (10-14)]]; [[Alma 44.5|Alma 44:5]]; [[Alma 48.10|48:10 (10, 24).]]
+[^a]: [[2 Samuel 10.12|2 Sam. 10:12]]; [[Nehemiah 4.10|Neh. 4:14 (10–14)]][[Nehemiah 4.11|]][[Nehemiah 4.12|]][[Nehemiah 4.13|]][[Nehemiah 4.14|]]; [[Alma 44.5|Alma 44:5]]; [[Alma 48.10|48:10 (10, 24)]][[Alma 48.24|]].  

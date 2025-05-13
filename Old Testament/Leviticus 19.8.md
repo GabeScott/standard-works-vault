@@ -5,4 +5,4 @@
 [Leviticus 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.8?lang=eng#p8)
 
 
-[^a]: [[Leviticus 5.1|Lev. 5:1 (1-6).]]
+[^a]: [[Leviticus 5.1|Lev. 5:1 (1–6)]][[Leviticus 5.2|]][[Leviticus 5.3|]][[Leviticus 5.4|]][[Leviticus 5.5|]][[Leviticus 5.6|]].  

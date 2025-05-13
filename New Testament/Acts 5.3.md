@@ -5,5 +5,5 @@
 [Acts 5:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.3?lang=eng#p3)
 
 
-[^a]: TG [[Honesty]].
-[^b]: TG [[Selfishness]].
+[^a]: [[Honesty|TG Honesty]].  
+[^b]: [[Selfishness|TG Selfishness]].  

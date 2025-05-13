@@ -5,4 +5,4 @@
 [Luke 2:47](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.47?lang=eng#p47)
 
 
-[^a]: TG [[Understanding]].
+[^a]: [[Understanding|TG Understanding]].  

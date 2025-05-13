@@ -5,4 +5,4 @@
 [Leviticus 14:19](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.19?lang=eng#p19)
 
 
-[^a]: [[Ezekiel 45.17|Ezek. 45:17.]]
+[^a]: [[Ezekiel 45.17|Ezek. 45:17]].  

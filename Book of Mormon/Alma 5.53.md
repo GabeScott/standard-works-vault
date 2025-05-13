@@ -5,7 +5,7 @@
 [Alma 5:53](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p53#p53)
 
 
-[^a]: TG [[Sacrilege]].
-[^b]: [[1 Corinthians 5.2|1 Cor. 5:2.]]
-[^c]: [[2 Nephi 28.13|2 Ne. 28:13 (11-14)]]; [[Mormon 8.36|Morm. 8:36 (36-39).]]
-[^d]: [[Psalms 62.10|Ps. 62:10]]; [[D&C 56.16|D&C 56:16 (16-18).]]
+[^a]: [[Sacrilege|TG Sacrilege]].  
+[^b]: [[1 Corinthians 5.2|1 Cor. 5:2]].  
+[^c]: [[2 Nephi 28.11|2 Ne. 28:13 (11–14)]][[2 Nephi 28.12|]][[2 Nephi 28.13|]][[2 Nephi 28.14|]]; [[Mormon 8.36|Morm. 8:36 (36–39)]][[Mormon 8.37|]][[Mormon 8.38|]][[Mormon 8.39|]].  
+[^d]: [[Psalms 62.10|Ps. 62:10]]; [[D&C 56.16|D&C 56:16 (16–18)]][[D&C 56.17|]][[D&C 56.18|]].  

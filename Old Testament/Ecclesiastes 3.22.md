@@ -5,4 +5,4 @@
 [Ecclesiastes 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.22?lang=eng#p22)
 
 
-[^a]: [[Ecclesiastes 2.10|Eccl. 2:10.]]
+[^a]: [[Ecclesiastes 2.10|Eccl. 2:10]].  

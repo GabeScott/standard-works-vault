@@ -5,4 +5,4 @@
 [Ecclesiastes 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.13?lang=eng#p13)
 
 
-[^a]: [[Ecclesiastes 1.15|Eccl. 1:15.]]
+[^a]: [[Ecclesiastes 1.15|Eccl. 1:15]].  

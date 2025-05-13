@@ -5,5 +5,5 @@
 [Jeremiah 35:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/35.15?lang=eng#p15)
 
 
-[^a]: [[D&C 98.17|D&C 98:17 (15-18).]]
-[^b]: TG [[Repent, Repentance]].
+[^a]: [[D&C 98.15|D&C 98:17 (15–18)]][[D&C 98.16|]][[D&C 98.17|]][[D&C 98.18|]].  
+[^b]: [[Repent, Repentance|TG Repent]].  

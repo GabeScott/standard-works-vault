@@ -5,4 +5,4 @@
 [Jeremiah 41:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/41.14?lang=eng#p14)
 
 
-[^a]: HEB turned around and came back.
+[^a]: HEB turned around and came back.  

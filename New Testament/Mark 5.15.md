@@ -5,5 +5,5 @@
 [Mark 5:15](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.15?lang=eng#p15)
 
 
-[^a]: [[1 Nephi 11.31|1 Ne. 11:31]]; [[Mormon 9.24|Morm. 9:24.]]
-[^b]: TG [[Mind, Minded]].
+[^a]: [[1 Nephi 11.31|1 Ne. 11:31]]; [[Mormon 9.24|Morm. 9:24]].  
+[^b]: [[Mind, Minded|TG Mind]].  

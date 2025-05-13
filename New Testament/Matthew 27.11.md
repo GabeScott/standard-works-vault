@@ -5,4 +5,4 @@
 [Matthew 27:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.11?lang=eng#p11)
 
 
-[^a]: JST Matt. 27:12 … Thou sayest truly; for thus it is written of me.
+[^a]: JST Matt. 27:12 … Thou sayest truly; for thus it is written of me.  

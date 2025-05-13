@@ -5,4 +5,4 @@
 [Alma 53:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p20#p20)
 
 
-[^a]: TG [[Courage, Courageous]]; [[Dependability]]; [[Integrity]].
+[^a]: [[Courage, Courageous|TG Courage]]; [[Dependability|Dependability]]; [[Integrity|Integrity]].  

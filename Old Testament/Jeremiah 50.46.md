@@ -5,4 +5,4 @@
 [Jeremiah 50:46](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.46?lang=eng#p46)
 
 
-[^a]: [[Jeremiah 49.29|Jer. 49:29.]]
+[^a]: [[Jeremiah 49.29|Jer. 49:29]].  

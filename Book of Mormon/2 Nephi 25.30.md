@@ -5,5 +5,5 @@
 [2 Nephi 25:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p30#p30)
 
 
-[^a]: 4 Ne. 1:12.
-[^b]: TG [[Ordinance]].
+[^a]: [[4 Nephi 1.12|4 Ne. 1:12]].  
+[^b]: [[Ordinance|TG Ordinance]].  

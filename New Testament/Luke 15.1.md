@@ -5,4 +5,4 @@
 [Luke 15:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.1?lang=eng#p1)
 
 
-[^a]: [[Mark 2.16|Mark 2:16 (15-16).]]
+[^a]: [[Mark 2.15|Mark 2:16 (15–16)]][[Mark 2.16|]].  

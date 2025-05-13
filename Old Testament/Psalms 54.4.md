@@ -5,4 +5,4 @@
 [Psalms 54:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/54.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 118.7|Ps. 118:7.]]
+[^a]: [[Psalms 118.7|Ps. 118:7]].  

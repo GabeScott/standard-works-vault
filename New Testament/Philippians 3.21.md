@@ -5,8 +5,8 @@
 [Philippians 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.21?lang=eng#p21)
 
 
-[^a]: [[1 Corinthians 15.51|1 Cor. 15:51]]. TG [[Jesus Christ, Resurrection]].
-[^b]: GR humble, of low estate.
-[^c]: TG [[Jesus Christ, Resurrection]].
-[^d]: TG [[God, Body of, Corporeal Nature]].
-[^e]: [[1 Corinthians 15.28|1 Cor. 15:28]]; [[D&C 19.2|D&C 19:2]]; [[D&C 76.106|76:106.]]
+[^a]: [[1 Corinthians 15.51|1 Cor. 15:51]]. [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  
+[^b]: GR humble, of low estate.  
+[^c]: [[Resurrection|TG Resurrection]].  
+[^d]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  
+[^e]: [[1 Corinthians 15.28|1 Cor. 15:28]]; [[D&C 19.2|D&C 19:2]]; [[D&C 76.106|76:106]].  

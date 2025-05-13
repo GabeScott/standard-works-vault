@@ -5,6 +5,6 @@
 [Moses 5:15](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.15?lang=eng#p15)
 
 
-[^a]: TG [[Faith]].
-[^b]: TG [[Jesus Christ, Savior]].
-[^c]: [[D&C 42.60|D&C 42:60.]]
+[^a]: [[Faith|TG Faith]].  
+[^b]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]].  
+[^c]: [[D&C 42.60|D&C 42:60]].  

@@ -5,4 +5,4 @@
 [3 Nephi 22:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/22?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Servant]].
+[^a]: [[Servant|TG Servant]].  

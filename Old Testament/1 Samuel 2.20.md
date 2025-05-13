@@ -5,6 +5,6 @@
 [1 Samuel 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.20?lang=eng#p20)
 
 
-[^a]: [[Numbers 6.23|Num. 6:23]]; [[Alma 8.22|Alma 8:22]]; [[Alma 10.11|10:11.]]
-[^b]: HEB the petition which she asked.
-[^c]: [[1 Samuel 1.28|1 Sam. 1:28.]]
+[^a]: [[Numbers 6.23|Num. 6:23]]; [[Alma 8.22|Alma 8:22]]; [[Alma 10.11|10:11]].  
+[^b]: HEB the petition which she asked.  
+[^c]: [[1 Samuel 1.28|1 Sam. 1:28]].  

@@ -5,6 +5,6 @@
 [Jeremiah 31:35](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.35?lang=eng#p35)
 
 
-[^a]: TG [[Astronomy]].
-[^b]: [[Genesis 1.18|Gen. 1:18.]]
-[^c]: OR established courses. Job 38:33.
+[^a]: [[Astronomy|TG Astronomy]].  
+[^b]: [[Genesis 1.18|Gen. 1:18]].  
+[^c]: OR established courses. [[Job 38.33|Job 38:33]].  

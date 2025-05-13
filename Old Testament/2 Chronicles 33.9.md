@@ -5,5 +5,5 @@
 [2 Chronicles 33:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.9?lang=eng#p9)
 
 
-[^a]: [[Alma 24.30|Alma 24:30.]]
-[^b]: TG [[Heathen]].
+[^a]: [[Alma 24.30|Alma 24:30]].  
+[^b]: [[Heathen|TG Heathen]].  

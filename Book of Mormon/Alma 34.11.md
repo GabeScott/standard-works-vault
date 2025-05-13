@@ -5,4 +5,4 @@
 [Alma 34:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p11#p11)
 
 
-[^a]: [[Deuteronomy 24.16|Deut. 24:16]]; [[Mosiah 29.25|Mosiah 29:25.]]
+[^a]: [[Deuteronomy 24.16|Deut. 24:16]]; [[Mosiah 29.25|Mosiah 29:25]].  

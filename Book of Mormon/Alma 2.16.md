@@ -5,5 +5,5 @@
 [Alma 2:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p16#p16)
 
 
-[^a]: [[Mosiah 29.42|Mosiah 29:42.]]
-[^b]: [[Mosiah 1.10|Mosiah 1:10.]]
+[^a]: [[Mosiah 29.42|Mosiah 29:42]].  
+[^b]: [[Mosiah 1.10|Mosiah 1:10]].  

@@ -5,6 +5,6 @@
 [Isaiah 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/25.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 35.10|Ps. 35:10]]; [[D&C 56.18|D&C 56:18 (18-19).]]
-[^b]: [[Psalms 4.1|Ps. 4:1.]]
-[^c]: TG [[Holy Ghost, Comforter]]; [[Refuge]].
+[^a]: [[Psalms 35.10|Ps. 35:10]]; [[D&C 56.18|D&C 56:18 (18–19)]][[D&C 56.19|]].  
+[^b]: [[Psalms 4.1|Ps. 4:1]].  
+[^c]: [[Comfort|TG Comfort]]; [[Refuge|Refuge]].  

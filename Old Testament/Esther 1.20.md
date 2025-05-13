@@ -5,4 +5,4 @@
 [Esther 1:20](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.20?lang=eng#p20)
 
 
-[^a]: [[Ephesians 5.22|Eph. 5:22 (22-24).]]
+[^a]: [[Ephesians 5.22|Eph. 5:22 (22–24)]][[Ephesians 5.23|]][[Ephesians 5.24|]].  

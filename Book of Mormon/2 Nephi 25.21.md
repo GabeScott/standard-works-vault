@@ -5,5 +5,5 @@
 [2 Nephi 25:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p21#p21)
 
 
-[^a]: [[2 Nephi 27.6|2 Ne. 27:6.]]
-[^b]: [[Amos 5.15|Amos 5:15]]; [[Alma 46.24|Alma 46:24 (24-27).]]
+[^a]: [[2 Nephi 27.6|2 Ne. 27:6]].  
+[^b]: [[Amos 5.15|Amos 5:15]]; [[Alma 46.24|Alma 46:24 (24–27)]][[Alma 46.25|]][[Alma 46.26|]][[Alma 46.27|]].  

@@ -5,5 +5,5 @@
 [Exodus 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 7.20|Ex. 7:20 (20-21).]]
-[^b]: OR with which you struck the Nile.
+[^a]: [[Exodus 7.20|Ex. 7:20 (20–21)]][[Exodus 7.21|]].  
+[^b]: OR with which you struck the Nile.  

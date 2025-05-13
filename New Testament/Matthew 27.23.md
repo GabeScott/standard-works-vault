@@ -5,4 +5,4 @@
 [Matthew 27:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.23?lang=eng#p23)
 
 
-[^a]: GR exceedingly, beyond measure.
+[^a]: GR exceedingly, beyond measure.  

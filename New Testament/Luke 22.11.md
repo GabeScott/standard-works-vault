@@ -5,4 +5,4 @@
 [Luke 22:11](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.11?lang=eng#p11)
 
 
-[^a]: GR master; i.e., head of house or family.
+[^a]: GR master; i.e., head of house or family.  

@@ -5,4 +5,4 @@
 [Psalms 107:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.18?lang=eng#p18)
 
 
-[^a]: HEB food.
+[^a]: HEB food.  

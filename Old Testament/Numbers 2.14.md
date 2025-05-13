@@ -5,4 +5,4 @@
 [Numbers 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/2.14?lang=eng#p14)
 
 
-[^a]: Deuel in Num. 1:14; 7:42, 47; 10:20. Hebrew “r” and “d” look much alike.
+[^a]: Deuel in [[Numbers 1.14|Num. 1:14]]; [[Numbers 7.42|7:42, 47]][[Numbers 7.47|]]; [[Numbers 10.20|10:20]]. Hebrew “r” and “d” look much alike.  

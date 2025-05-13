@@ -5,4 +5,4 @@
 [D&C 1:5](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.5?lang=eng#p5)
 
 
-[^a]: TG [[Missionary Work]].
+[^a]: [[Missionary Work|TG Missionary Work]].  

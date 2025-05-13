@@ -5,4 +5,4 @@
 [Hosea 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.7?lang=eng#p7)
 
 
-[^a]: [[Ezekiel 16.32|Ezek. 16:32 (8, 32, 38).]]
+[^a]: [[Ezekiel 16.8|Ezek. 16:32 (8, 32, 38)]][[Ezekiel 16.32|]][[Ezekiel 16.38|]].  

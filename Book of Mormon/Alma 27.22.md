@@ -5,5 +5,5 @@
 [Alma 27:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 43.12|Alma 43:12.]]
-[^b]: [[Alma 28.1|Alma 28:1 (1, 8).]]
+[^a]: [[Alma 43.12|Alma 43:12]].  
+[^b]: [[Alma 28.1|Alma 28:1 (1, 8)]][[Alma 28.8|]].  

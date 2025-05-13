@@ -5,4 +5,4 @@
 [Matthew 15:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.1?lang=eng#p1)
 
 
-[^a]: TG [[Scribe]].
+[^a]: [[Scribe|TG Scribe]].  

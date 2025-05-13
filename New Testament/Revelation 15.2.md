@@ -5,5 +5,5 @@
 [Revelation 15:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/15.2?lang=eng#p2)
 
 
-[^a]: [[D&C 130.7|D&C 130:7 (1-11).]]
-[^b]: TG [[Earth, Destiny of]].
+[^a]: [[D&C 130.1|D&C 130:7 (1–11)]][[D&C 130.2|]][[D&C 130.3|]][[D&C 130.4|]][[D&C 130.5|]][[D&C 130.6|]][[D&C 130.7|]][[D&C 130.8|]][[D&C 130.9|]][[D&C 130.10|]][[D&C 130.11|]].  
+[^b]: [[Earth, Destiny of|TG Earth, Destiny of]].  

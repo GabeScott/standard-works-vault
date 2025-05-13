@@ -5,5 +5,5 @@
 [Moses 4:27](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.27?lang=eng#p27)
 
 
-[^a]: [[Genesis 27.16|Gen. 27:16]]; [[Alma 49.6|Alma 49:6.]]
-[^b]: TG [[Apparel]]; [[Clothing]]; [[Modesty]].
+[^a]: [[Genesis 27.16|Gen. 27:16]]; [[Alma 49.6|Alma 49:6]].  
+[^b]: [[Apparel|TG Apparel]]; [[Clothing|Clothing]]; [[Modesty|Modesty]].  

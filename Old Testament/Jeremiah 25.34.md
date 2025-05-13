@@ -5,5 +5,5 @@
 [Jeremiah 25:34](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.34?lang=eng#p34)
 
 
-[^a]: [[Jeremiah 23.1|Jer. 23:1.]]
-[^b]: [[Ezekiel 36.19|Ezek. 36:19.]]
+[^a]: [[Jeremiah 23.1|Jer. 23:1]].  
+[^b]: [[Ezekiel 36.19|Ezek. 36:19]].  

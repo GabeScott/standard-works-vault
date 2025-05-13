@@ -5,7 +5,7 @@
 [Matthew 25:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.32?lang=eng#p32)
 
 
-[^a]: TG [[Nations]].
-[^b]: TG [[Jesus Christ, Judge]]; [[Judgment, the Last]]; [[Separation, Separate]].
-[^c]: TG [[Shepherd]].
-[^d]: TG [[Sheep]].
+[^a]: [[Nations|TG Nations]].  
+[^b]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]]; [[Judgment, the Last|Judgment, the Last]]; [[Separation, Separate|Separation]].  
+[^c]: [[Shepherd|TG Shepherd]].  
+[^d]: [[Sheep|TG Sheep]].  

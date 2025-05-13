@@ -5,5 +5,5 @@
 [1 Nephi 18:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p13#p13)
 
 
-[^a]: [[Jonah 1.4|Jonah 1:4]]; [[Matthew 8.24|Matt. 8:24.]]
-[^b]: [[Mosiah 1.17|Mosiah 1:17.]]
+[^a]: [[Jonah 1.4|Jonah 1:4]]; [[Matthew 8.24|Matt. 8:24]].  
+[^b]: [[Mosiah 1.17|Mosiah 1:17]].  

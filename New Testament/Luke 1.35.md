@@ -5,5 +5,5 @@
 [Luke 1:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.35?lang=eng#p35)
 
 
-[^a]: [[Matthew 1.20|Matt. 1:20.]]
-[^b]: [[2 Corinthians 1.19|2 Cor. 1:19.]]
+[^a]: [[Matthew 1.20|Matt. 1:20]].  
+[^b]: [[2 Corinthians 1.19|2 Cor. 1:19]].  

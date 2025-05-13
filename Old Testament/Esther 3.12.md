@@ -5,5 +5,5 @@
 [Esther 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/3.12?lang=eng#p12)
 
 
-[^a]: [[Esther 8.10|Esth. 8:10 (8-10).]]
-[^b]: TG [[Seal]].
+[^a]: [[Esther 8.8|Esth. 8:10 (8–10)]][[Esther 8.9|]][[Esther 8.10|]].  
+[^b]: [[Seal|TG Seal]].  

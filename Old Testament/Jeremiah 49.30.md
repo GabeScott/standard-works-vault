@@ -5,4 +5,4 @@
 [Jeremiah 49:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.30?lang=eng#p30)
 
 
-[^a]: [[Jeremiah 27.12|Jer. 27:12.]]
+[^a]: [[Jeremiah 27.12|Jer. 27:12]].  

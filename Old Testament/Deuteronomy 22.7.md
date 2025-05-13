@@ -5,4 +5,4 @@
 [Deuteronomy 22:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.7?lang=eng#p7)
 
 
-[^a]: [[Deuteronomy 4.40|Deut. 4:40.]]
+[^a]: [[Deuteronomy 4.40|Deut. 4:40]].  

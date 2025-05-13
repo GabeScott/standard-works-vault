@@ -5,4 +5,4 @@
 [Nahum 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/3.19?lang=eng#p19)
 
 
-[^a]: HEB report.
+[^a]: HEB report.  

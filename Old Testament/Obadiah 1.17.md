@@ -5,6 +5,6 @@
 [Obadiah 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/obad/1.17?lang=eng#p17)
 
 
-[^a]: TG [[Zion, Sion]].
-[^b]: [[Joel 2.32|Joel 2:32]]. TG [[Deliver, Deliverance]].
-[^c]: [[Amos 9.12|Amos 9:12.]]
+[^a]: [[Zion, Sion|TG Zion]].  
+[^b]: [[Joel 2.32|Joel 2:32]]. [[Deliver, Deliverance|TG Deliver]].  
+[^c]: [[Amos 9.12|Amos 9:12]].  

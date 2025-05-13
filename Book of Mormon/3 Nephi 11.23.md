@@ -5,6 +5,6 @@
 [3 Nephi 11:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p23#p23)
 
 
-[^a]: [[Mosiah 26.15|Mosiah 26:15 (15-16)]]; [[3 Nephi 12.2|3 Ne. 12:2.]]
-[^b]: TG [[Baptism, Qualifications for]].
-[^c]: [[3 Nephi 19.11|3 Ne. 19:11 (10-13).]]
+[^a]: [[Mosiah 26.15|Mosiah 26:15 (15–16)]][[Mosiah 26.16|]]; [[3 Nephi 12.2|3 Ne. 12:2]].  
+[^b]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  
+[^c]: [[3 Nephi 19.10|3 Ne. 19:11 (10–13)]][[3 Nephi 19.11|]][[3 Nephi 19.12|]][[3 Nephi 19.13|]].  

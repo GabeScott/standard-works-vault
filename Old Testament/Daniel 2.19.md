@@ -5,5 +5,5 @@
 [Daniel 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.19?lang=eng#p19)
 
 
-[^a]: [[Amos 3.7|Amos 3:7.]]
-[^b]: TG [[Dream]].
+[^a]: [[Amos 3.7|Amos 3:7]].  
+[^b]: [[Dream|TG Dream]].  

@@ -5,5 +5,5 @@
 [Ezekiel 12:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.19?lang=eng#p19)
 
 
-[^a]: HEB dismay.
-[^b]: [[Psalms 107.34|Ps. 107:34.]]
+[^a]: HEB dismay.  
+[^b]: [[Psalms 107.34|Ps. 107:34]].  

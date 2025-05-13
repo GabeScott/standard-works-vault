@@ -5,4 +5,4 @@
 [Moroni 8:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p20#p20)
 
 
-[^a]: TG [[Jesus Christ, Atonement through]]; [[Salvation, Plan of]].
+[^a]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Salvation, Plan of|Salvation, Plan of]].  

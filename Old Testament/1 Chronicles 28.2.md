@@ -5,5 +5,5 @@
 [1 Chronicles 28:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/28.2?lang=eng#p2)
 
 
-[^a]: [[2 Chronicles 6.41|2 Chr. 6:41.]]
-[^b]: [[Psalms 99.5|Ps. 99:5]]; Lam. 2:1.
+[^a]: [[2 Chronicles 6.41|2 Chr. 6:41]].  
+[^b]: [[Psalms 99.5|Ps. 99:5]]; [[Lamentations 2.1|Lam. 2:1]].  

@@ -5,6 +5,6 @@
 [Ezekiel 20:46](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.46?lang=eng#p46)
 
 
-[^a]: [[Ezekiel 6.2|Ezek. 6:2]]; [[Ezekiel 21.2|21:2.]]
-[^b]: OR preach.
-[^c]: IE of the Negev.
+[^a]: [[Ezekiel 6.2|Ezek. 6:2]]; [[Ezekiel 21.2|21:2]].  
+[^b]: OR preach.  
+[^c]: IE of the Negev.  

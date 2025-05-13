@@ -5,5 +5,5 @@
 [Mosiah 9:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/9?lang=eng&id=p10#p10)
 
 
-[^a]: [[Mosiah 24.3|Mosiah 24:3.]]
-[^b]: [[Mosiah 7.22|Mosiah 7:22]]; [[Mosiah 10.18|10:18.]]
+[^a]: [[Mosiah 24.3|Mosiah 24:3]].  
+[^b]: [[Mosiah 7.22|Mosiah 7:22]]; [[Mosiah 10.18|10:18]].  

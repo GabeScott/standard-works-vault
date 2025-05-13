@@ -5,4 +5,4 @@
 [Acts 28:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.5?lang=eng#p5)
 
 
-[^a]: [[Luke 10.19|Luke 10:19.]]
+[^a]: [[Luke 10.19|Luke 10:19]].  

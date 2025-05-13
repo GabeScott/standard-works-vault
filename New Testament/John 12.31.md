@@ -5,4 +5,4 @@
 [John 12:31](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.31?lang=eng#p31)
 
 
-[^a]: TG [[Devil, Church of]].
+[^a]: [[Devil|TG Devil]].  

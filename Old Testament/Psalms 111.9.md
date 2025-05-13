@@ -5,4 +5,4 @@
 [Psalms 111:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/111.9?lang=eng#p9)
 
 
-[^a]: TG [[Reverence]].
+[^a]: [[Reverence|TG Reverence]].  

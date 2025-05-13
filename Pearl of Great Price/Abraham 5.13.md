@@ -5,5 +5,5 @@
 [Abraham 5:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.13?lang=eng#p13)
 
 
-[^a]: Abr. 3:4, 10. TG [[Time]].
-[^b]: [[Abraham 3.3|Abr. 3:3 (2-4).]]
+[^a]: [[Abraham 3.4|Abr. 3:4, 10]][[Abraham 3.10|]]. [[Time|TG Time]].  
+[^b]: [[Abraham 3.2|Abr. 3:3 (2–4)]][[Abraham 3.3|]][[Abraham 3.4|]].  

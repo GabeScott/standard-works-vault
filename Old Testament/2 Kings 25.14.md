@@ -5,5 +5,5 @@
 [2 Kings 25:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.14?lang=eng#p14)
 
 
-[^a]: [[Exodus 27.3|Ex. 27:3.]]
-[^b]: IE devices for extinguishing. 1 Kgs. 7:50.
+[^a]: [[Exodus 27.3|Ex. 27:3]].  
+[^b]: IE devices for extinguishing. [[1 Kings 7.50|1 Kgs. 7:50]].  

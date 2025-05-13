@@ -5,4 +5,4 @@
 [Alma 10:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p15#p15)
 
 
-[^a]: [[Luke 20.23|Luke 20:23.]]
+[^a]: [[Luke 20.23|Luke 20:23]].  

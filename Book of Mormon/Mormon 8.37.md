@@ -5,4 +5,4 @@
 [Mormon 8:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p37#p37)
 
 
-[^a]: [[Ezekiel 34.8|Ezek. 34:8]]; [[1 Nephi 13.7|1 Ne. 13:7]]; [[2 Nephi 28.13|2 Ne. 28:13 (9-16).]]
+[^a]: [[Ezekiel 34.8|Ezek. 34:8]]; [[1 Nephi 13.7|1 Ne. 13:7]]; [[2 Nephi 28.9|2 Ne. 28:13 (9–16)]][[2 Nephi 28.10|]][[2 Nephi 28.11|]][[2 Nephi 28.12|]][[2 Nephi 28.13|]][[2 Nephi 28.14|]][[2 Nephi 28.15|]][[2 Nephi 28.16|]].  

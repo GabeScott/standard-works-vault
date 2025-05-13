@@ -5,4 +5,4 @@
 [2 John 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-jn/1.10?lang=eng#p10)
 
 
-[^a]: [[1 Corinthians 5.11|1 Cor. 5:11.]]
+[^a]: [[1 Corinthians 5.11|1 Cor. 5:11]].  

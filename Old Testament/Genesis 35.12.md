@@ -5,4 +5,4 @@
 [Genesis 35:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.12?lang=eng#p12)
 
 
-[^a]: TG [[Israel, Land of]]; [[Promised Lands]].
+[^a]: [[Israel, Land of|TG Israel, Land of]]; [[Promised Lands|Promised Lands]].  

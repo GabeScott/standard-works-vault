@@ -5,5 +5,5 @@
 [Moroni 8:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p12#p12)
 
 
-[^a]: [[D&C 29.46|D&C 29:46]]; [[D&C 93.38|93:38.]]
-[^b]: [[Ephesians 6.9|Eph. 6:9]]; [[D&C 38.16|D&C 38:16.]]
+[^a]: [[D&C 29.46|D&C 29:46]]; [[D&C 93.38|93:38]].  
+[^b]: [[Ephesians 6.9|Eph. 6:9]]; [[D&C 38.16|D&C 38:16]].  

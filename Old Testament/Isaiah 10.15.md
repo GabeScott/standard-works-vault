@@ -5,6 +5,6 @@
 [Isaiah 10:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.15?lang=eng#p15)
 
 
-[^a]: All the metaphors in this verse ask the same question: Can man (e.g., the Assyrian king) prosper against God?
-[^b]: TG [[Boast, Boasting]].
-[^c]: HEB wields, moves.
+[^a]: All the metaphors in this verse ask the same question: Can man (e.g., the Assyrian king) prosper against God?  
+[^b]: [[Boast, Boasting|TG Boast]].  
+[^c]: HEB wields, moves.  

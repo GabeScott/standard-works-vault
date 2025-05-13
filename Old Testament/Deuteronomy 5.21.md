@@ -5,5 +5,5 @@
 [Deuteronomy 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.21?lang=eng#p21)
 
 
-[^a]: TG [[Covet, Covetousness]].
-[^b]: HEB desire.
+[^a]: [[Covet, Covetousness|TG Covet]].  
+[^b]: HEB desire.  

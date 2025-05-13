@@ -5,6 +5,6 @@
 [John 3:35](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.35?lang=eng#p35)
 
 
-[^a]: TG [[Jesus Christ, Divine Sonship]].
-[^b]: TG [[Jesus Christ, Authority of]].
-[^c]: TG [[Jesus Christ, Power of]].
+[^a]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  
+[^b]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^c]: [[Jesus Christ, Power of|TG Jesus Christ, Power of]].  

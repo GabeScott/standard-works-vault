@@ -5,5 +5,5 @@
 [Deuteronomy 22:30](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.30?lang=eng#p30)
 
 
-[^a]: [[Leviticus 20.11|Lev. 20:11.]]
-[^b]: IE uncover her who is his father’s.
+[^a]: [[Leviticus 20.11|Lev. 20:11]].  
+[^b]: IE uncover her who is his father’s.  

@@ -5,5 +5,5 @@
 [3 Nephi 16:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/16?lang=eng&id=p3#p3)
 
 
-[^a]: [[3 Nephi 18.27|3 Ne. 18:27.]]
-[^b]: [[3 Nephi 17.4|3 Ne. 17:4.]]
+[^a]: [[3 Nephi 18.27|3 Ne. 18:27]].  
+[^b]: [[3 Nephi 17.4|3 Ne. 17:4]].  

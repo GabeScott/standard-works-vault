@@ -5,7 +5,7 @@
 [Matthew 11:5](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 146.8|Ps. 146:8]]; [[Isaiah 42.7|Isa. 42:7.]]
-[^b]: TG [[Sight]].
-[^c]: TG [[Leprosy, Leper, Leprous]].
-[^d]: [[D&C 35.15|D&C 35:15.]]
+[^a]: [[Psalms 146.8|Ps. 146:8]]; [[Isaiah 42.7|Isa. 42:7]].  
+[^b]: [[Sight|TG Sight]].  
+[^c]: [[Leprosy, Leper, Leprous|TG Leprosy]].  
+[^d]: [[D&C 35.15|D&C 35:15]].  

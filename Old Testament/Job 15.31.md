@@ -5,4 +5,4 @@
 [Job 15:31](https://www.churchofjesuschrist.org/study/scriptures/ot/job/15.31?lang=eng#p31)
 
 
-[^a]: TG [[Vanity]].
+[^a]: [[Vanity|TG Vanity]].  

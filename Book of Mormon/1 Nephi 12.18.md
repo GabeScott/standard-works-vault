@@ -5,8 +5,8 @@
 [1 Nephi 12:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/12?lang=eng&id=p18#p18)
 
 
-[^a]: [[1 Nephi 8.26|1 Ne. 8:26]]; [[1 Nephi 11.35|11:35 (35-36).]]
-[^b]: [[Jeremiah 7.24|Jer. 7:24]]; [[Jeremiah 9.14|9:14.]]
-[^c]: TG [[Haughtiness, Haughty]]; [[Pride]].
-[^d]: [[Luke 16.26|Luke 16:26]]; [[1 Nephi 15.28|1 Ne. 15:28 (28-30).]]
-[^e]: TG [[God, Justice of]].
+[^a]: [[1 Nephi 8.26|1 Ne. 8:26]]; [[1 Nephi 11.35|11:35 (35–36)]][[1 Nephi 11.36|]].  
+[^b]: [[Jeremiah 7.24|Jer. 7:24]]; [[Jeremiah 9.14|9:14]].  
+[^c]: [[Haughtiness, Haughty|TG Haughtiness]]; [[Pride|Pride]].  
+[^d]: [[Luke 16.26|Luke 16:26]]; [[1 Nephi 15.28|1 Ne. 15:28 (28–30)]][[1 Nephi 15.29|]][[1 Nephi 15.30|]].  
+[^e]: [[God, Justice of|TG God, Justice of]].  

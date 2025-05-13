@@ -5,5 +5,5 @@
 [Isaiah 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.17?lang=eng#p17)
 
 
-[^a]: [[Deuteronomy 32.20|Deut. 32:20.]]
-[^b]: [[Isaiah 54.8|Isa. 54:8 (4-10).]]
+[^a]: [[Deuteronomy 32.20|Deut. 32:20]].  
+[^b]: [[Isaiah 54.4|Isa. 54:8 (4–10)]][[Isaiah 54.5|]][[Isaiah 54.6|]][[Isaiah 54.7|]][[Isaiah 54.8|]][[Isaiah 54.9|]][[Isaiah 54.10|]].  

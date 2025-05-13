@@ -5,4 +5,4 @@
 [2 Chronicles 28:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 34.17|Ex. 34:17.]]
+[^a]: [[Exodus 34.17|Ex. 34:17]].  

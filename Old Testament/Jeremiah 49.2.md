@@ -5,6 +5,6 @@
 [Jeremiah 49:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 21.20|Ezek. 21:20]]; [[Ezekiel 25.5|25:5 (4-5)]]; [[Amos 1.14|Amos 1:14.]]
-[^b]: [[Ezekiel 21.28|Ezek. 21:28.]]
-[^c]: OR villages.
+[^a]: [[Ezekiel 21.20|Ezek. 21:20]]; [[Ezekiel 25.4|25:5 (4–5)]][[Ezekiel 25.5|]]; [[Amos 1.14|Amos 1:14]].  
+[^b]: [[Ezekiel 21.28|Ezek. 21:28]].  
+[^c]: OR villages.  

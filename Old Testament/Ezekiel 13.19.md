@@ -5,4 +5,4 @@
 [Ezekiel 13:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.19?lang=eng#p19)
 
 
-[^a]: [[Proverbs 28.21|Prov. 28:21.]]
+[^a]: [[Proverbs 28.21|Prov. 28:21]].  

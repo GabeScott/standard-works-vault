@@ -5,4 +5,4 @@
 [Exodus 12:44](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.44?lang=eng#p44)
 
 
-[^a]: [[Genesis 17.12|Gen. 17:12 (12-13).]]
+[^a]: [[Genesis 17.12|Gen. 17:12 (12–13)]][[Genesis 17.13|]].  

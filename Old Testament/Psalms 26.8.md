@@ -5,4 +5,4 @@
 [Psalms 26:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/26.8?lang=eng#p8)
 
 
-[^a]: OR glory, presence.
+[^a]: OR glory, presence.  

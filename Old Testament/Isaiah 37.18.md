@@ -5,4 +5,4 @@
 [Isaiah 37:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/37.18?lang=eng#p18)
 
 
-[^a]: OR lands.
+[^a]: OR lands.  

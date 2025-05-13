@@ -5,4 +5,4 @@
 [Ezekiel 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.6?lang=eng#p6)
 
 
-[^a]: [[Matthew 11.21|Matt. 11:21 (21, 23).]]
+[^a]: [[Matthew 11.21|Matt. 11:21 (21, 23)]][[Matthew 11.23|]].  

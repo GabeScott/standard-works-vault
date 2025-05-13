@@ -5,4 +5,4 @@
 [1 Kings 2:36](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.36?lang=eng#p36)
 
 
-[^a]: [[1 Kings 2.8|1 Kgs. 2:8.]]
+[^a]: [[1 Kings 2.8|1 Kgs. 2:8]].  

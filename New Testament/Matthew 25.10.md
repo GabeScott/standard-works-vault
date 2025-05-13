@@ -5,5 +5,5 @@
 [Matthew 25:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.10?lang=eng#p10)
 
 
-[^a]: TG [[Millennium, Preparing a People for]]; [[Procrastination, Procrastinate]].
-[^b]: GR locked.
+[^a]: [[Millennium, Preparing a People for|TG Millennium, Preparing a People for]]; [[Procrastination, Procrastinate|Procrastination]].  
+[^b]: GR locked.  

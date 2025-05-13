@@ -5,4 +5,4 @@
 [Zephaniah 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.7?lang=eng#p7)
 
 
-[^a]: [[Deuteronomy 30.3|Deut. 30:3 (1-5)]]; [[Psalms 14.7|Ps. 14:7]]; [[Amos 9.14|Amos 9:14 (14-15)]]; Zeph. 3:20.
+[^a]: [[Deuteronomy 30.1|Deut. 30:3 (1–5)]][[Deuteronomy 30.2|]][[Deuteronomy 30.3|]][[Deuteronomy 30.4|]][[Deuteronomy 30.5|]]; [[Psalms 14.7|Ps. 14:7]]; [[Amos 9.14|Amos 9:14 (14–15)]][[Amos 9.15|]]; [[Zephaniah 3.20|Zeph. 3:20]].  

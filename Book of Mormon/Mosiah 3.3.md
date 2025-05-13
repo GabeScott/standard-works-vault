@@ -5,5 +5,5 @@
 [Mosiah 3:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3?lang=eng&id=p3#p3)
 
 
-[^a]: [[Isaiah 52.7|Isa. 52:7 (7-10)]]; [[Luke 2.10|Luke 2:10 (10-11)]]; [[Romans 10.15|Rom. 10:15]]; [[D&C 31.3|D&C 31:3.]]
-[^b]: TG [[Joy]].
+[^a]: [[Isaiah 52.7|Isa. 52:7 (7–10)]][[Isaiah 52.8|]][[Isaiah 52.9|]][[Isaiah 52.10|]]; [[Luke 2.10|Luke 2:10 (10–11)]][[Luke 2.11|]]; [[Romans 10.15|Rom. 10:15]]; [[D&C 31.3|D&C 31:3]].  
+[^b]: [[Joy|TG Joy]].  

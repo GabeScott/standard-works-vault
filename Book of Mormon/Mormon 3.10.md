@@ -5,5 +5,5 @@
 [Mormon 3:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Swearing, Swear, Sware, Sworn]].
-[^b]: [[Alma 43.46|Alma 43:46 (46-47)]]; [[Alma 48.14|48:14]]; [[3 Nephi 3.21|3 Ne. 3:21 (20-21)]]; [[Mormon 4.4|Morm. 4:4.]]
+[^a]: [[Swearing, Swear, Sware, Sworn|TG Swearing]].  
+[^b]: [[Alma 43.46|Alma 43:46 (46–47)]][[Alma 43.47|]]; [[Alma 48.14|48:14]]; [[3 Nephi 3.20|3 Ne. 3:21 (20–21)]][[3 Nephi 3.21|]]; [[Mormon 4.4|Morm. 4:4]].  

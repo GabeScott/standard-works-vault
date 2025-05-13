@@ -5,6 +5,6 @@
 [2 Nephi 8:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p7#p7)
 
 
-[^a]: [[Deuteronomy 1.17|Deut. 1:17]]; [[Psalms 56.4|Ps. 56:4 (4, 11)]]; [[Psalms 118.6|118:6]]; [[D&C 122.9|D&C 122:9]]. TG [[Peer Influence]].
-[^b]: TG [[Reproach]].
-[^c]: TG [[Hate]].
+[^a]: [[Deuteronomy 1.17|Deut. 1:17]]; [[Psalms 56.4|Ps. 56:4 (4, 11)]][[Psalms 56.11|]]; [[Psalms 118.6|118:6]]; [[D&C 122.9|D&C 122:9]]. [[Peer Influence|TG Peer Influence]].  
+[^b]: [[Reproach|TG Reproach]].  
+[^c]: [[Hate|TG Hate]].  

@@ -5,4 +5,4 @@
 [Genesis 21:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.13?lang=eng#p13)
 
 
-[^a]: TG [[Seed of Abraham]].
+[^a]: [[Seed of Abraham|TG Seed of Abraham]].  

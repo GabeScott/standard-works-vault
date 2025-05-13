@@ -5,4 +5,4 @@
 [Luke 22:53](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.53?lang=eng#p53)
 
 
-[^a]: TG [[Darkness, Spiritual]].
+[^a]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  

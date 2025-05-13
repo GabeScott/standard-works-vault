@@ -5,4 +5,4 @@
 [Isaiah 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.6?lang=eng#p6)
 
 
-[^a]: OR constant blows.
+[^a]: OR constant blows.  

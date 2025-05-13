@@ -5,4 +5,4 @@
 [1 Nephi 14:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Abrahamic Covenant]]; [[Israel, Mission of]].
+[^a]: [[Abrahamic Covenant|TG Abrahamic Covenant]]; [[Israel, Mission of|Israel, Mission of]].  

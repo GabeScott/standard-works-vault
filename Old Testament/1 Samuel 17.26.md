@@ -5,4 +5,4 @@
 [1 Samuel 17:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.26?lang=eng#p26)
 
 
-[^a]: [[Alma 5.13|Alma 5:13]]; [[Mormon 9.28|Morm. 9:28]]; [[D&C 14.9|D&C 14:9.]]
+[^a]: [[Alma 5.13|Alma 5:13]]; [[Mormon 9.28|Morm. 9:28]]; [[D&C 14.9|D&C 14:9]].  

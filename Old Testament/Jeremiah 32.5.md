@@ -5,4 +5,4 @@
 [Jeremiah 32:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.5?lang=eng#p5)
 
 
-[^a]: TG [[Israel, Bondage of, in Other Lands]].
+[^a]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  

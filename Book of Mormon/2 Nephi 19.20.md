@@ -5,5 +5,5 @@
 [2 Nephi 19:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p20#p20)
 
 
-[^a]: [[Leviticus 26.26|Lev. 26:26 (26, 29).]]
-[^b]: [[Deuteronomy 28.53|Deut. 28:53 (53-57).]]
+[^a]: [[Leviticus 26.26|Lev. 26:26 (26, 29)]][[Leviticus 26.29|]].  
+[^b]: [[Deuteronomy 28.53|Deut. 28:53 (53–57)]][[Deuteronomy 28.54|]][[Deuteronomy 28.55|]][[Deuteronomy 28.56|]][[Deuteronomy 28.57|]].  

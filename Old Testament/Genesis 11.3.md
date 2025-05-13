@@ -5,4 +5,4 @@
 [Genesis 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.3?lang=eng#p3)
 
 
-[^a]: OR bitumen. Gen. 14:10.
+[^a]: OR bitumen. [[Genesis 14.10|Gen. 14:10]].  

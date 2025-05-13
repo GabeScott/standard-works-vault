@@ -5,4 +5,4 @@
 [Genesis 43:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.24?lang=eng#p24)
 
 
-[^a]: TG [[Wash, Washing]].
+[^a]: [[Wash, Washing|TG Wash]].  

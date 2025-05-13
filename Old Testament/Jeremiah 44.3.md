@@ -5,5 +5,5 @@
 [Jeremiah 44:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.3?lang=eng#p3)
 
 
-[^a]: [[Mormon 5.15|Morm. 5:15.]]
-[^b]: [[Galatians 4.8|Gal. 4:8.]]
+[^a]: [[Mormon 5.15|Morm. 5:15]].  
+[^b]: [[Galatians 4.8|Gal. 4:8]].  

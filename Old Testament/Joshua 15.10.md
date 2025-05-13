@@ -5,4 +5,4 @@
 [Joshua 15:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.10?lang=eng#p10)
 
 
-[^a]: IE turned about from.
+[^a]: IE turned about from.  

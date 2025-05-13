@@ -5,4 +5,4 @@
 [Acts 21:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.14?lang=eng#p14)
 
 
-[^a]: [[Matthew 26.42|Matt. 26:42.]]
+[^a]: [[Matthew 26.42|Matt. 26:42]].  

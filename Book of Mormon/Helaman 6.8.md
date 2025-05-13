@@ -5,4 +5,4 @@
 [Helaman 6:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p8#p8)
 
 
-[^a]: [[3 Nephi 6.11|3 Ne. 6:11.]]
+[^a]: [[3 Nephi 6.11|3 Ne. 6:11]].  

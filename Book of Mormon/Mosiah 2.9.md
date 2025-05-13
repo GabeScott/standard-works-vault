@@ -5,9 +5,9 @@
 [Mosiah 2:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 8.3|Mosiah 8:3.]]
-[^b]: [[D&C 6.12|D&C 6:12]]; [[D&C 32.5|32:5]]. TG [[Mocking, Mock, Mocker, Mockery]].
-[^c]: TG [[Teachable]].
-[^d]: [[Proverbs 8.5|Prov. 8:5]]; [[Mosiah 12.27|Mosiah 12:27]]; [[3 Nephi 19.33|3 Ne. 19:33.]]
-[^e]: TG [[Mind, Minded]].
-[^f]: TG [[Mysteries of Godliness]].
+[^a]: [[Mosiah 8.3|Mosiah 8:3]].  
+[^b]: [[D&C 6.12|D&C 6:12]]; [[D&C 32.5|32:5]]. [[Mocking, Mock, Mocker, Mockery|TG Mocking]].  
+[^c]: [[Teachable|TG Teachable]].  
+[^d]: [[Proverbs 8.5|Prov. 8:5]]; [[Mosiah 12.27|Mosiah 12:27]]; [[3 Nephi 19.33|3 Ne. 19:33]].  
+[^e]: [[Mind, Minded|TG Mind]].  
+[^f]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  

@@ -5,4 +5,4 @@
 [Jeremiah 37:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/37.8?lang=eng#p8)
 
 
-[^a]: [[Jeremiah 52.13|Jer. 52:13.]]
+[^a]: [[Jeremiah 52.13|Jer. 52:13]].  

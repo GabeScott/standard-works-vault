@@ -5,4 +5,4 @@
 [Psalms 22:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.4?lang=eng#p4)
 
 
-[^a]: TG [[Trust in God]].
+[^a]: [[Trust in God|TG Trust in God]].  

@@ -5,4 +5,4 @@
 [Ecclesiastes 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.15?lang=eng#p15)
 
 
-[^a]: [[Ecclesiastes 6.11|Eccl. 6:11.]]
+[^a]: [[Ecclesiastes 6.11|Eccl. 6:11]].  

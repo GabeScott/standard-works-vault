@@ -5,4 +5,4 @@
 [3 Nephi 8:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/8?lang=eng&id=p18#p18)
 
 
-[^a]: [[Helaman 14.22|Hel. 14:22 (21-22).]]
+[^a]: [[Helaman 14.21|Hel. 14:22 (21–22)]][[Helaman 14.22|]].  

@@ -5,5 +5,5 @@
 [1 Peter 4:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.9?lang=eng#p9)
 
 
-[^a]: TG [[Hospitality]].
-[^b]: TG [[Motivations]].
+[^a]: [[Hospitality|TG Hospitality]].  
+[^b]: [[Motivations|TG Motivations]].  

@@ -5,9 +5,9 @@
 [1 Corinthians 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.12?lang=eng#p12)
 
 
-[^a]: TG [[Labor]].
-[^b]: TG [[Self-Sacrifice]].
-[^c]: [[D&C 38.40|D&C 38:40.]]
-[^d]: TG [[Malice]]; [[Reviling, Revile]].
-[^e]: TG [[Persecution, Persecute]].
-[^f]: GR endure patiently.
+[^a]: [[Labor|TG Labor]].  
+[^b]: [[Self-Sacrifice|TG Self-Sacrifice]].  
+[^c]: [[D&C 38.40|D&C 38:40]].  
+[^d]: [[Malice|TG Malice]]; [[Reviling, Revile|Reviling]].  
+[^e]: [[Persecution, Persecute|TG Persecution]].  
+[^f]: GR endure patiently.  

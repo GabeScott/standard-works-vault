@@ -5,4 +5,4 @@
 [Ezekiel 33:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.2?lang=eng#p2)
 
 
-[^a]: [[3 Nephi 16.18|3 Ne. 16:18]]; [[D&C 101.45|D&C 101:45 (45, 53-54).]]
+[^a]: [[3 Nephi 16.18|3 Ne. 16:18]]; [[D&C 101.45|D&C 101:45 (45, 53–54)]][[D&C 101.53|]][[D&C 101.54|]].  

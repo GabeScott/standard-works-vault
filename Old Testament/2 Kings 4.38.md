@@ -5,5 +5,5 @@
 [2 Kings 4:38](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.38?lang=eng#p38)
 
 
-[^a]: [[2 Kings 2.1|2 Kgs. 2:1.]]
-[^b]: OR famine.
+[^a]: [[2 Kings 2.1|2 Kgs. 2:1]].  
+[^b]: OR famine.  

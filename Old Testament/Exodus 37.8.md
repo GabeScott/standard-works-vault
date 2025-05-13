@@ -5,4 +5,4 @@
 [Exodus 37:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/37.8?lang=eng#p8)
 
 
-[^a]: OR of one piece with.
+[^a]: OR of one piece with.  

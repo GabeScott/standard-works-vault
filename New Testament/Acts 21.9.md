@@ -5,4 +5,4 @@
 [Acts 21:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.9?lang=eng#p9)
 
 
-[^a]: [[Judges 4.4|Judg. 4:4 (4-5)]]; [[Acts 2.17|Acts 2:17.]]
+[^a]: [[Judges 4.4|Judg. 4:4 (4–5)]][[Judges 4.5|]]; [[Acts 2.17|Acts 2:17]].  

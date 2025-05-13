@@ -5,4 +5,4 @@
 [2 Samuel 16:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/16.21?lang=eng#p21)
 
 
-[^a]: [[2 Samuel 15.16|2 Sam. 15:16.]]
+[^a]: [[2 Samuel 15.16|2 Sam. 15:16]].  

@@ -5,5 +5,5 @@
 [Genesis 30:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.18?lang=eng#p18)
 
 
-[^a]: OR recompense.
-[^b]: IE (perhaps) There is a recompense. Gen. 49:14 (14-15).
+[^a]: OR recompense.  
+[^b]: IE (perhaps) There is a recompense. [[Genesis 49.14|Gen. 49:14 (14–15)]][[Genesis 49.15|]].  

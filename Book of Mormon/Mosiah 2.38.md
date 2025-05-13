@@ -5,10 +5,10 @@
 [Mosiah 2:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p38#p38)
 
 
-[^a]: TG [[Repent, Repentance]].
-[^b]: TG [[God, Justice of]].
-[^c]: [[Mosiah 27.29|Mosiah 27:29 (25-29)]]. TG [[Guiltless]].
-[^d]: TG [[God, Presence of]].
-[^e]: TG [[Pain]].
-[^f]: TG [[Sorrow]].
-[^g]: TG [[Hell]].
+[^a]: [[Repent, Repentance|TG Repent]].  
+[^b]: [[God, Justice of|TG God, Justice of]].  
+[^c]: [[Mosiah 27.25|Mosiah 27:29 (25–29)]][[Mosiah 27.26|]][[Mosiah 27.27|]][[Mosiah 27.28|]][[Mosiah 27.29|]]. [[Guilt, Guilty|TG Guilt]].  
+[^d]: [[God, Presence of|TG God, Presence of]].  
+[^e]: [[Pain|TG Pain]].  
+[^f]: [[Sorrow|TG Sorrow]].  
+[^g]: [[Hell|TG Hell]].  

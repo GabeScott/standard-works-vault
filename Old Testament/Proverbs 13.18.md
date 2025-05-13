@@ -5,6 +5,6 @@
 [Proverbs 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.18?lang=eng#p18)
 
 
-[^a]: TG [[Shame]].
-[^b]: [[Proverbs 15.5|Prov. 15:5.]]
-[^c]: [[D&C 95.1|D&C 95:1]]; [[D&C 121.43|121:43.]]
+[^a]: [[Shame|TG Shame]].  
+[^b]: [[Proverbs 15.5|Prov. 15:5]].  
+[^c]: [[D&C 95.1|D&C 95:1]]; [[D&C 121.43|121:43]].  

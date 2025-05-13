@@ -5,4 +5,4 @@
 [Jeremiah 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.11?lang=eng#p11)
 
 
-[^a]: [[Jeremiah 51.1|Jer. 51:1 (1-2).]]
+[^a]: [[Jeremiah 51.1|Jer. 51:1 (1–2)]][[Jeremiah 51.2|]].  

@@ -5,5 +5,5 @@
 [Joshua 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.8?lang=eng#p8)
 
 
-[^a]: [[1 Nephi 4.16|1 Ne. 4:16]]; [[Mosiah 3.14|Mosiah 3:14 (14-15)]]; [[Mosiah 13.29|13:29 (29-32)]]; [[Alma 25.15|Alma 25:15 (15-16)]]; [[D&C 41.5|D&C 41:5 (4-5)]]; [[D&C 42.59|42:59.]]
-[^b]: TG [[Meditation, Meditate]]; [[Scriptures, Study of]].
+[^a]: [[1 Nephi 4.16|1 Ne. 4:16]]; [[Mosiah 3.14|Mosiah 3:14 (14–15)]][[Mosiah 3.15|]]; [[Mosiah 13.29|13:29 (29–32)]][[Mosiah 13.30|]][[Mosiah 13.31|]][[Mosiah 13.32|]]; [[Alma 25.15|Alma 25:15 (15–16)]][[Alma 25.16|]]; [[D&C 41.4|D&C 41:5 (4–5)]][[D&C 41.5|]]; [[D&C 42.59|42:59]].  
+[^b]: [[Meditation, Meditate|TG Meditation]]; [[Scriptures, Study of|Scriptures, Study of]].  

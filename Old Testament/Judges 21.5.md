@@ -5,5 +5,5 @@
 [Judges 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/21.5?lang=eng#p5)
 
 
-[^a]: [[Judges 5.23|Judg. 5:23.]]
-[^b]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Judges 5.23|Judg. 5:23]].  
+[^b]: [[Church|TG Church]].  

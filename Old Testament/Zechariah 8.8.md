@@ -5,4 +5,4 @@
 [Zechariah 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.8?lang=eng#p8)
 
 
-[^a]: [[D&C 42.9|D&C 42:9.]]
+[^a]: [[D&C 42.9|D&C 42:9]].  

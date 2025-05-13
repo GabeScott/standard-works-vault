@@ -5,5 +5,5 @@
 [Matthew 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.22?lang=eng#p22)
 
 
-[^a]: GR place.
-[^b]: TG [[Dream]].
+[^a]: GR place.  
+[^b]: [[Dream|TG Dream]].  

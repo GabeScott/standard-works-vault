@@ -5,4 +5,4 @@
 [Joshua 23:15](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.15?lang=eng#p15)
 
 
-[^a]: [[Joshua 21.45|Josh. 21:45.]]
+[^a]: [[Joshua 21.45|Josh. 21:45]].  

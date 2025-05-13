@@ -5,4 +5,4 @@
 [Isaiah 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.3?lang=eng#p3)
 
 
-[^a]: HEB Give counsel. This begins Moab’s appeal to Judah (vv. 3-5).
+[^a]: HEB Give counsel. This begins Moab’s appeal to Judah ([[Isaiah 16.3|vv. 3–5]][[Isaiah 16.4|]][[Isaiah 16.5|]]).  

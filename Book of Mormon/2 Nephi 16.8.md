@@ -5,4 +5,4 @@
 [2 Nephi 16:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/16?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Called of God]].
+[^a]: [[Called of God|TG Called of God]].  

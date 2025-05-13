@@ -5,4 +5,4 @@
 [1 Samuel 13:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/13.21?lang=eng#p21)
 
 
-[^a]: IE an implement for digging and grubbing; a grubbing hoe.
+[^a]: IE an implement for digging and grubbing; a grubbing hoe.  

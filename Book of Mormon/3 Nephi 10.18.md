@@ -5,6 +5,6 @@
 [3 Nephi 10:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/10?lang=eng&id=p18#p18)
 
 
-[^a]: 4 Ne. 1:20.
-[^b]: TG [[Israel, Blessings of]].
-[^c]: [[Acts 1.9|Acts 1:9 (9-11).]]
+[^a]: [[4 Nephi 1.20|4 Ne. 1:20]].  
+[^b]: [[Blessing|TG Blessing]].  
+[^c]: [[Acts 1.9|Acts 1:9 (9–11)]][[Acts 1.10|]][[Acts 1.11|]].  

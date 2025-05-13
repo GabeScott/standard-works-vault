@@ -5,4 +5,4 @@
 [Genesis 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 13.10|Gen. 13:10]]; [[Genesis 19.22|19:22 (20-25).]]
+[^a]: [[Genesis 13.10|Gen. 13:10]]; [[Genesis 19.20|19:22 (20–25)]][[Genesis 19.21|]][[Genesis 19.22|]][[Genesis 19.23|]][[Genesis 19.24|]][[Genesis 19.25|]].  

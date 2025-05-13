@@ -5,5 +5,5 @@
 [Words of Mormon 1:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/w-of-m/1?lang=eng&id=p4#p4)
 
 
-[^a]: [[1 Nephi 6.5|1 Ne. 6:5 (3-6).]]
-[^b]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[1 Nephi 6.3|1 Ne. 6:5 (3–6)]][[1 Nephi 6.4|]][[1 Nephi 6.5|]][[1 Nephi 6.6|]].  
+[^b]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

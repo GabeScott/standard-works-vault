@@ -5,4 +5,4 @@
 [1 Samuel 18:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/18.23?lang=eng#p23)
 
 
-[^a]: IE insignificant.
+[^a]: IE insignificant.  

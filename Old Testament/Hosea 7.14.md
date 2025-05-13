@@ -5,4 +5,4 @@
 [Hosea 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/7.14?lang=eng#p14)
 
 
-[^a]: [[Mormon 2.13|Morm. 2:13 (11-13).]]
+[^a]: [[Mormon 2.11|Morm. 2:13 (11–13)]][[Mormon 2.12|]][[Mormon 2.13|]].  

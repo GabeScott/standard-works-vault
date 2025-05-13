@@ -5,5 +5,5 @@
 [Philemon 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/philem/1.6?lang=eng#p6)
 
 
-[^a]: GR participation, fellowship.
-[^b]: GR active.
+[^a]: GR participation, fellowship.  
+[^b]: GR active.  

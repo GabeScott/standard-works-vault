@@ -5,5 +5,5 @@
 [Romans 16:26](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/16.26?lang=eng#p26)
 
 
-[^a]: [[Genesis 21.33|Gen. 21:33.]]
-[^b]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[Genesis 21.33|Gen. 21:33]].  
+[^b]: [[Obedience, Obedient, Obey|TG Obedience]].  

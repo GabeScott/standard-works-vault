@@ -5,4 +5,4 @@
 [Joshua 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.2?lang=eng#p2)
 
 
-[^a]: [[Mormon 7.4|Morm. 7:4]]; [[D&C 98.33|D&C 98:33.]]
+[^a]: [[Mormon 7.4|Morm. 7:4]]; [[D&C 98.33|D&C 98:33]].  

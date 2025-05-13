@@ -5,4 +5,4 @@
 [3 Nephi 16:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/16?lang=eng&id=p1#p1)
 
 
-[^a]: [[1 Nephi 19.10|1 Ne. 19:10]]; [[2 Nephi 21.12|2 Ne. 21:12]]; [[3 Nephi 15.15|3 Ne. 15:15]]. TG [[Israel, Ten Lost Tribes of]].
+[^a]: [[1 Nephi 19.10|1 Ne. 19:10]]; [[2 Nephi 21.12|2 Ne. 21:12]]; [[3 Nephi 15.15|3 Ne. 15:15]]. [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  

@@ -5,4 +5,4 @@
 [2 Nephi 16:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/16?lang=eng&id=p13#p13)
 
 
-[^a]: [[Ezra 9.2|Ezra 9:2.]]
+[^a]: [[Ezra 9.2|Ezra 9:2]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/5.8?lang=eng#p8)
 
 
-[^a]: [[Ezekiel 25.9|Ezek. 25:9.]]
+[^a]: [[Ezekiel 25.9|Ezek. 25:9]].  

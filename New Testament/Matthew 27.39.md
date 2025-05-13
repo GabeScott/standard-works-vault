@@ -5,4 +5,4 @@
 [Matthew 27:39](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.39?lang=eng#p39)
 
 
-[^a]: TG [[Reviling, Revile]].
+[^a]: [[Reviling, Revile|TG Reviling]].  

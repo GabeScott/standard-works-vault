@@ -5,5 +5,5 @@
 [Isaiah 54:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.10?lang=eng#p10)
 
 
-[^a]: TG [[Earth, Renewal of]].
-[^b]: Mal. 2:5.
+[^a]: [[Earth, Renewal of|TG Earth, Renewal of]].  
+[^b]: [[Malachi 2.5|Mal. 2:5]].  

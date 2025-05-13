@@ -5,5 +5,5 @@
 [Deuteronomy 20:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.8?lang=eng#p8)
 
 
-[^a]: [[Judges 7.3|Judg. 7:3.]]
-[^b]: HEB melt like his; i.e., lest they all lost their courage.
+[^a]: [[Judges 7.3|Judg. 7:3]].  
+[^b]: HEB melt like his; i.e., lest they all lost their courage.  

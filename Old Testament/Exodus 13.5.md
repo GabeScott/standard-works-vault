@@ -5,7 +5,7 @@
 [Exodus 13:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 34.11|Ex. 34:11.]]
-[^b]: [[Exodus 33.2|Ex. 33:2.]]
-[^c]: [[Exodus 6.8|Ex. 6:8.]]
-[^d]: [[Exodus 33.3|Ex. 33:3.]]
+[^a]: [[Exodus 34.11|Ex. 34:11]].  
+[^b]: [[Exodus 33.2|Ex. 33:2]].  
+[^c]: [[Exodus 6.8|Ex. 6:8]].  
+[^d]: [[Exodus 33.3|Ex. 33:3]].  

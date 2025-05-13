@@ -5,4 +5,4 @@
 [Helaman 11:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p36#p36)
 
 
-[^a]: [[Mosiah 13.29|Mosiah 13:29.]]
+[^a]: [[Mosiah 13.29|Mosiah 13:29]].  

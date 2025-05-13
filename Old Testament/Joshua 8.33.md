@@ -5,4 +5,4 @@
 [Joshua 8:33](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.33?lang=eng#p33)
 
 
-[^a]: [[Deuteronomy 11.29|Deut. 11:29]]; [[Deuteronomy 27.12|27:12 (12-13).]]
+[^a]: [[Deuteronomy 11.29|Deut. 11:29]]; [[Deuteronomy 27.12|27:12 (12–13)]][[Deuteronomy 27.13|]].  

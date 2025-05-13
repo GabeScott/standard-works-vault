@@ -5,7 +5,7 @@
 [Leviticus 6:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.4?lang=eng#p4)
 
 
-[^a]: TG [[Guiltless]].
-[^b]: [[D&C 98.47|D&C 98:47]]. TG [[Repent, Repentance]].
-[^c]: TG [[Deceit, Deceive]].
-[^d]: [[D&C 136.26|D&C 136:26.]]
+[^a]: [[Guilt, Guilty|TG Guilt]].  
+[^b]: [[D&C 98.47|D&C 98:47]]. [[Repent, Repentance|TG Repent]].  
+[^c]: [[Deceit, Deceive|TG Deceit]].  
+[^d]: [[D&C 136.26|D&C 136:26]].  

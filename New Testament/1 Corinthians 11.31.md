@@ -5,4 +5,4 @@
 [1 Corinthians 11:31](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.31?lang=eng#p31)
 
 
-[^a]: GR scrutinize, examine.
+[^a]: GR scrutinize, examine.  

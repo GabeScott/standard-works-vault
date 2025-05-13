@@ -5,4 +5,4 @@
 [Mark 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.19?lang=eng#p19)
 
 
-[^a]: OR went home.
+[^a]: OR went home.  

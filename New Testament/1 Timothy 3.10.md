@@ -5,4 +5,4 @@
 [1 Timothy 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/3.10?lang=eng#p10)
 
 
-[^a]: [[1 Timothy 5.22|1 Tim. 5:22]]. TG [[Testament]].
+[^a]: [[1 Timothy 5.22|1 Tim. 5:22]]. [[Test, Try, Prove|TG Test]].  

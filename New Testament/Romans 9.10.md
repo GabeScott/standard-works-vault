@@ -5,4 +5,4 @@
 [Romans 9:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 22.23|Gen. 22:23.]]
+[^a]: [[Genesis 22.23|Gen. 22:23]].  

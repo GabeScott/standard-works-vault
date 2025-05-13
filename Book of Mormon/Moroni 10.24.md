@@ -5,5 +5,5 @@
 [Moroni 10:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p24#p24)
 
 
-[^a]: [[Moroni 7.37|Moro. 7:37.]]
-[^b]: TG [[Doubt, Doubtful]]; [[Unbelief, Unbelievers]].
+[^a]: [[Moroni 7.37|Moro. 7:37]].  
+[^b]: [[Doubt, Doubtful|TG Doubt]]; [[Unbelief, Unbelievers|Unbelief]].  

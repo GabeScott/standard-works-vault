@@ -5,4 +5,4 @@
 [Joshua 22:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/22.9?lang=eng#p9)
 
 
-[^a]: [[1 Chronicles 5.9|1 Chr. 5:9 (4-9).]]
+[^a]: [[1 Chronicles 5.4|1 Chr. 5:9 (4–9)]][[1 Chronicles 5.5|]][[1 Chronicles 5.6|]][[1 Chronicles 5.7|]][[1 Chronicles 5.8|]][[1 Chronicles 5.9|]].  

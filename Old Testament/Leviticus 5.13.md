@@ -5,4 +5,4 @@
 [Leviticus 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/5.13?lang=eng#p13)
 
 
-[^a]: IE evening sacrifice.
+[^a]: IE evening sacrifice.  

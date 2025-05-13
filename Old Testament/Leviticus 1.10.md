@@ -5,4 +5,4 @@
 [Leviticus 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/1.10?lang=eng#p10)
 
 
-[^a]: HEB whole, sound.
+[^a]: HEB whole, sound.  

@@ -5,4 +5,4 @@
 [Matthew 12:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.17?lang=eng#p17)
 
 
-[^a]: Isa. 42:1-3.
+[^a]: [[Isaiah 42.1|Isa. 42:1–3]][[Isaiah 42.2|]][[Isaiah 42.3|]].  

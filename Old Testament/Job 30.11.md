@@ -5,4 +5,4 @@
 [Job 30:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/30.11?lang=eng#p11)
 
 
-[^a]: OR God.
+[^a]: OR God.  

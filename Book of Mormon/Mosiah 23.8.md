@@ -5,5 +5,5 @@
 [Mosiah 23:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mosiah 29.13|Mosiah 29:13.]]
-[^b]: TG [[Governments]].
+[^a]: [[Mosiah 29.13|Mosiah 29:13]].  
+[^b]: [[Governments|TG Governments]].  

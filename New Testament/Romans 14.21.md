@@ -5,4 +5,4 @@
 [Romans 14:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.21?lang=eng#p21)
 
 
-[^a]: [[1 Corinthians 8.13|1 Cor. 8:13.]]
+[^a]: [[1 Corinthians 8.13|1 Cor. 8:13]].  

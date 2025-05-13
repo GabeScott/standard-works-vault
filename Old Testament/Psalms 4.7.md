@@ -5,4 +5,4 @@
 [Psalms 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/4.7?lang=eng#p7)
 
 
-[^a]: HEB grain.
+[^a]: HEB grain.  

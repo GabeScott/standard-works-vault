@@ -5,4 +5,4 @@
 [Helaman 6:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p19#p19)
 
 
-[^a]: [[Helaman 6.15|Hel. 6:15.]]
+[^a]: [[Helaman 6.15|Hel. 6:15]].  

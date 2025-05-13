@@ -5,4 +5,4 @@
 [Jeremiah 46:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.7?lang=eng#p7)
 
 
-[^a]: [[Isaiah 8.7|Isa. 8:7 (7-8)]]; [[Jeremiah 47.2|Jer. 47:2]]; Dan. 11:22.
+[^a]: [[Isaiah 8.7|Isa. 8:7 (7–8)]][[Isaiah 8.8|]]; [[Jeremiah 47.2|Jer. 47:2]]; [[Daniel 11.22|Dan. 11:22]].  

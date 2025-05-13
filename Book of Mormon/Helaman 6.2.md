@@ -5,4 +5,4 @@
 [Helaman 6:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p2#p2)
 
 
-[^a]: [[Romans 1.28|Rom. 1:28 (28-32)]]; [[Helaman 6.21|Hel. 6:21]]. TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[Romans 1.28|Rom. 1:28 (28–32)]][[Romans 1.29|]][[Romans 1.30|]][[Romans 1.31|]][[Romans 1.32|]]; [[Helaman 6.21|Hel. 6:21]]. [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

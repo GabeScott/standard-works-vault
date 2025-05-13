@@ -5,4 +5,4 @@
 [2 Kings 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.12?lang=eng#p12)
 
 
-[^a]: [[1 Samuel 3.11|1 Sam. 3:11]]; [[Jeremiah 19.3|Jer. 19:3.]]
+[^a]: [[1 Samuel 3.11|1 Sam. 3:11]]; [[Jeremiah 19.3|Jer. 19:3]].  

@@ -5,4 +5,4 @@
 [Psalms 73:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.7?lang=eng#p7)
 
 
-[^a]: [[D&C 68.31|D&C 68:31.]]
+[^a]: [[D&C 68.31|D&C 68:31]].  

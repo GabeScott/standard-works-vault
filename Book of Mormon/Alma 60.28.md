@@ -5,4 +5,4 @@
 [Alma 60:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p28#p28)
 
 
-[^a]: [[Acts 5.29|Acts 5:29 (26-29).]]
+[^a]: [[Acts 5.26|Acts 5:29 (26–29)]][[Acts 5.27|]][[Acts 5.28|]][[Acts 5.29|]].  

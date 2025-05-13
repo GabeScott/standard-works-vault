@@ -5,5 +5,5 @@
 [Judges 5:30](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.30?lang=eng#p30)
 
 
-[^a]: HEB Are they not finding, dividing spoil?
-[^b]: OR a spoil of dyed stuffs.
+[^a]: HEB Are they not finding, dividing spoil?  
+[^b]: OR a spoil of dyed stuffs.  

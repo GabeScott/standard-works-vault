@@ -5,6 +5,6 @@
 [Exodus 12:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.17?lang=eng#p17)
 
 
-[^b]: TG [[Bread, Unleavened]].
-[^c]: OR hosts (also v. 51).
-[^d]: OR as a permanent law.
+[^b]: [[Bread, Unleavened|TG Bread, Unleavened]].  
+[^c]: OR hosts (also [[Exodus 12.51|v. 51]]).  
+[^d]: OR as a permanent law.  

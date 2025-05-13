@@ -5,7 +5,7 @@
 [Mormon 9:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p28#p28)
 
 
-[^a]: [[Matthew 10.16|Matt. 10:16]]; [[Jacob 6.12|Jacob 6:12.]]
-[^b]: TG [[Probation, Probationary]].
-[^c]: TG [[Covet, Covetousness]]; [[Lust]].
-[^d]: [[Alma 5.13|Alma 5:13.]]
+[^a]: [[Matthew 10.16|Matt. 10:16]]; [[Jacob 6.12|Jacob 6:12]].  
+[^b]: [[Probation, Probationary|TG Probation]].  
+[^c]: [[Covet, Covetousness|TG Covet]]; [[Lust|Lust]].  
+[^d]: [[Alma 5.13|Alma 5:13]].  

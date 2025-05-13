@@ -5,4 +5,4 @@
 [2 Nephi 33:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Kingdom of God, in Heaven]]; [[Kingdom of God, on Earth]].
+[^a]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]]; [[Kingdom of God, on Earth|Kingdom of God, on Earth]].  

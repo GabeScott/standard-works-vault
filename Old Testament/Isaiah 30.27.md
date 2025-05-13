@@ -5,5 +5,5 @@
 [Isaiah 30:27](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.27?lang=eng#p27)
 
 
-[^a]: IE A symbol of His power will come to destroy “Assyria” or wickedness (see v. 31).
-[^b]: TG [[God, Indignation of]].
+[^a]: IE A symbol of His power will come to destroy “Assyria” or wickedness (see [[Isaiah 30.31|v. 31]]).  
+[^b]: [[God, Indignation of|TG God, Indignation of]].  

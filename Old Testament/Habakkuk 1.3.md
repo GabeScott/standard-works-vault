@@ -5,4 +5,4 @@
 [Habakkuk 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/1.3?lang=eng#p3)
 
 
-[^a]: TG [[Strife]].
+[^a]: [[Strife|TG Strife]].  

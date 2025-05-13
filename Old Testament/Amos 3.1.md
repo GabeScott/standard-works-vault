@@ -5,4 +5,4 @@
 [Amos 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.1?lang=eng#p1)
 
 
-[^a]: [[Amos 2.10|Amos 2:10]]; [[1 Nephi 5.15|1 Ne. 5:15]]; [[D&C 136.22|D&C 136:22.]]
+[^a]: [[Amos 2.10|Amos 2:10]]; [[1 Nephi 5.15|1 Ne. 5:15]]; [[D&C 136.22|D&C 136:22]].  

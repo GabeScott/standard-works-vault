@@ -5,5 +5,5 @@
 [Luke 1:55](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.55?lang=eng#p55)
 
 
-[^a]: [[Psalms 132.11|Ps. 132:11]]; [[Micah 7.20|Micah 7:20]]; [[Luke 1.72|Luke 1:72]]; [[Galatians 3.16|Gal. 3:16.]]
-[^b]: TG [[Seed of Abraham]].
+[^a]: [[Psalms 132.11|Ps. 132:11]]; [[Micah 7.20|Micah 7:20]]; [[Luke 1.72|Luke 1:72]]; [[Galatians 3.16|Gal. 3:16]].  
+[^b]: [[Seed of Abraham|TG Seed of Abraham]].  

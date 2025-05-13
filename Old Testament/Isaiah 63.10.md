@@ -5,7 +5,7 @@
 [Isaiah 63:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.10?lang=eng#p10)
 
 
-[^a]: [[Numbers 14.11|Num. 14:11 (11-12).]]
-[^b]: TG [[Holy Ghost, Loss of]].
-[^c]: TG [[Holiness]].
-[^d]: Lam. 2:4 (4-5).
+[^a]: [[Numbers 14.11|Num. 14:11 (11–12)]][[Numbers 14.12|]].  
+[^b]: [[Holy Ghost, Loss of|TG Holy Ghost, Loss of]].  
+[^c]: [[Holiness|TG Holiness]].  
+[^d]: [[Lamentations 2.4|Lam. 2:4 (4–5)]][[Lamentations 2.5|]].  

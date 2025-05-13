@@ -5,4 +5,4 @@
 [Leviticus 25:23](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.23?lang=eng#p23)
 
 
-[^a]: OR proselytes. TG [[Stranger]].
+[^a]: OR proselytes. [[Stranger|TG Stranger]].  

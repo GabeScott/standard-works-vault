@@ -5,4 +5,4 @@
 [Alma 10:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p19#p19)
 
 
-[^a]: [[Mosiah 29.27|Mosiah 29:27]]; [[Alma 2.4|Alma 2:4 (3-7)]]; [[Helaman 5.2|Hel. 5:2.]]
+[^a]: [[Mosiah 29.27|Mosiah 29:27]]; [[Alma 2.3|Alma 2:4 (3–7)]][[Alma 2.4|]][[Alma 2.5|]][[Alma 2.6|]][[Alma 2.7|]]; [[Helaman 5.2|Hel. 5:2]].  

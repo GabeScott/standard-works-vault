@@ -5,5 +5,5 @@
 [Joel 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/1.2?lang=eng#p2)
 
 
-[^a]: HEB elders.
-[^b]: [[D&C 1.6|D&C 1:6.]]
+[^a]: HEB elders.  
+[^b]: [[D&C 1.6|D&C 1:6]].  

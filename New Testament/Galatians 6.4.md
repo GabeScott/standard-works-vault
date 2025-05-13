@@ -5,5 +5,5 @@
 [Galatians 6:4](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/6.4?lang=eng#p4)
 
 
-[^a]: TG [[Testament]].
-[^b]: TG [[Good Works]].
+[^a]: [[Test, Try, Prove|TG Test]].  
+[^b]: [[Good Works|TG Good Works]].  

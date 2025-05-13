@@ -5,6 +5,6 @@
 [Mark 1:34](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.34?lang=eng#p34)
 
 
-[^a]: TG [[Health]]; [[Miracle]].
-[^b]: [[Mosiah 3.6|Mosiah 3:6 (5-6)]]. TG [[Spirits, Evil or Unclean]].
-[^c]: GR did not allow.
+[^a]: [[Heal, Healing|TG Heal]]; [[Miracle|Miracle]].  
+[^b]: [[Mosiah 3.5|Mosiah 3:6 (5–6)]][[Mosiah 3.6|]]. [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  
+[^c]: GR did not allow.  

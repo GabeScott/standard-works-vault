@@ -5,4 +5,4 @@
 [Isaiah 33:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.21?lang=eng#p21)
 
 
-[^a]: OR with us in majesty in a place.
+[^a]: OR with us in majesty in a place.  

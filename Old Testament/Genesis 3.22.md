@@ -5,8 +5,8 @@
 [Genesis 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.22?lang=eng#p22)
 
 
-[^a]: [[Moses 4.28|Moses 4:28.]]
-[^b]: TG [[Man, Potential to Become like Heavenly Father]].
-[^c]: TG [[Godhead]]; [[Jesus Christ, Creator]].
-[^d]: [[Alma 12.31|Alma 12:31]]. TG [[Conscience]]; [[Discernment, Spiritual]]; [[Earth, Purpose of]]; [[Knowledge]]; [[Probation, Probationary]].
-[^e]: TG [[Evil]].
+[^a]: [[Moses 4.28|Moses 4:28]].  
+[^b]: [[Man, Potential to Become like Heavenly Father|TG Man, Potential to Become like Heavenly Father]].  
+[^c]: [[Godhead|TG Godhead]]; [[Jesus Christ, Creator|Jesus Christ, Creator]].  
+[^d]: [[Alma 12.31|Alma 12:31]]. [[Conscience|TG Conscience]]; [[Discernment, Spiritual|Discernment, Spiritual]]; [[Earth, Purpose of|Earth, Purpose of]]; [[Knowledge|Knowledge]]; [[Probation, Probationary|Probation]].  
+[^e]: [[Evil|TG Evil]].  

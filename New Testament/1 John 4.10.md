@@ -5,6 +5,6 @@
 [1 John 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.10?lang=eng#p10)
 
 
-[^a]: 2 Thes. 2:16.
-[^b]: TG [[Jesus Christ, Authority of]].
-[^c]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]].
+[^a]: [[2 Thessalonians 2.16|2 Thes. 2:16]].  
+[^b]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  
+[^c]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer|Jesus Christ, Redeemer]].  

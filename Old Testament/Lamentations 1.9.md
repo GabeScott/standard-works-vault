@@ -5,5 +5,5 @@
 [Lamentations 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.9?lang=eng#p9)
 
 
-[^a]: TG [[Filthiness, Filthy]].
-[^b]: [[Deuteronomy 32.29|Deut. 32:29]]; [[Isaiah 47.7|Isa. 47:7.]]
+[^a]: [[Filthiness, Filthy|TG Filthiness]].  
+[^b]: [[Deuteronomy 32.29|Deut. 32:29]]; [[Isaiah 47.7|Isa. 47:7]].  

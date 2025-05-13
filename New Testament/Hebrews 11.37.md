@@ -5,4 +5,4 @@
 [Hebrews 11:37](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.37?lang=eng#p37)
 
 
-[^a]: TG [[Martyrdom]]; [[Prophets, Rejection of]].
+[^a]: [[Martyrdom|TG Martyrdom]]; [[Prophets, Rejection of|Prophets, Rejection of]].  

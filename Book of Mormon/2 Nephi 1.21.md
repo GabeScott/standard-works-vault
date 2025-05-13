@@ -5,5 +5,5 @@
 [2 Nephi 1:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p21#p21)
 
 
-[^a]: [[1 Samuel 4.9|1 Sam. 4:9]]; [[1 Kings 2.2|1 Kgs. 2:2.]]
-[^b]: [[Moses 7.18|Moses 7:18.]]
+[^a]: [[1 Samuel 4.9|1 Sam. 4:9]]; [[1 Kings 2.2|1 Kgs. 2:2]].  
+[^b]: [[Moses 7.18|Moses 7:18]].  

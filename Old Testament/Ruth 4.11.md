@@ -5,4 +5,4 @@
 [Ruth 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.11?lang=eng#p11)
 
 
-[^a]: OR may you do well.
+[^a]: OR may you do well.  

@@ -5,4 +5,4 @@
 [Jeremiah 52:31](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.31?lang=eng#p31)
 
 
-[^a]: [[Jeremiah 37.1|Jer. 37:1.]]
+[^a]: [[Jeremiah 37.1|Jer. 37:1]].  

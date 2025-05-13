@@ -5,4 +5,4 @@
 [Ezekiel 32:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/32.6?lang=eng#p6)
 
 
-[^a]: IE I will irrigate the land of your flood plains with your blood.
+[^a]: IE I will irrigate the land of your flood plains with your blood.  

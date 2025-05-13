@@ -5,6 +5,6 @@
 [1 Timothy 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.5?lang=eng#p5)
 
 
-[^a]: [[Galatians 5.14|Gal. 5:14.]]
-[^b]: TG [[Charity]].
-[^c]: 2 Tim. 2:22.
+[^a]: [[Galatians 5.14|Gal. 5:14]].  
+[^b]: [[Charity|TG Charity]].  
+[^c]: [[2 Timothy 2.22|2 Tim. 2:22]].  

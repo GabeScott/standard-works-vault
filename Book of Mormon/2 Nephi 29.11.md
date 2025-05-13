@@ -5,7 +5,7 @@
 [2 Nephi 29:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 29.8|Alma 29:8.]]
-[^b]: 2 Tim. 3:16; [[Moses 1.40|Moses 1:40]]. TG [[Scriptures, Preservation of]]; [[Scriptures, Writing of]].
-[^c]: TG [[Book of Life]].
-[^d]: [[2 Nephi 25.22|2 Ne. 25:22 (18, 22)]]; [[2 Nephi 33.14|33:14 (11, 14-15)]]. TG [[Jesus Christ, Judge]].
+[^a]: [[Alma 29.8|Alma 29:8]].  
+[^b]: [[2 Timothy 3.16|2 Tim. 3:16]]; [[Moses 1.40|Moses 1:40]]. [[Scriptures, Preservation of|TG Scriptures, Preservation of]]; [[Scriptures, Writing of|Scriptures, Writing of]].  
+[^c]: [[Book of Life|TG Book of Life]].  
+[^d]: [[2 Nephi 25.18|2 Ne. 25:22 (18, 22)]][[2 Nephi 25.22|]]; [[2 Nephi 33.11|33:14 (11, 14–15)]][[2 Nephi 33.14|]][[2 Nephi 33.15|]]. [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

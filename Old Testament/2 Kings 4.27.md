@@ -5,4 +5,4 @@
 [2 Kings 4:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.27?lang=eng#p27)
 
 
-[^a]: [[D&C 6.16|D&C 6:16.]]
+[^a]: [[D&C 6.16|D&C 6:16]].  

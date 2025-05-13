@@ -5,5 +5,5 @@
 [2 Kings 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.8?lang=eng#p8)
 
 
-[^a]: [[Joshua 19.18|Josh. 19:18.]]
-[^b]: TG [[Woman, Women]].
+[^a]: [[Joshua 19.18|Josh. 19:18]].  
+[^b]: [[Woman, Women|TG Woman]].  

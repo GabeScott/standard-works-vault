@@ -5,7 +5,7 @@
 [Matthew 9:36](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.36?lang=eng#p36)
 
 
-[^a]: TG [[Compassion]].
-[^b]: GR they were harassed.
-[^c]: TG [[Sheep]].
-[^d]: TG [[Jesus Christ, Good Shepherd]]; [[Shepherd]].
+[^a]: [[Compassion|TG Compassion]].  
+[^b]: GR they were harassed.  
+[^c]: [[Sheep|TG Sheep]].  
+[^d]: [[Jesus Christ, Good Shepherd|TG Jesus Christ, Good Shepherd]]; [[Shepherd|Shepherd]].  

@@ -5,4 +5,4 @@
 [Joshua 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/12.2?lang=eng#p2)
 
 
-[^a]: [[Numbers 21.21|Num. 21:21 (21-24).]]
+[^a]: [[Numbers 21.21|Num. 21:21 (21–24)]][[Numbers 21.22|]][[Numbers 21.23|]][[Numbers 21.24|]].  

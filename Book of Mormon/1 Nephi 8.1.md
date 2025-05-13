@@ -5,4 +5,4 @@
 [1 Nephi 8:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p1#p1)
 
 
-[^a]: [[1 Nephi 16.11|1 Ne. 16:11.]]
+[^a]: [[1 Nephi 16.11|1 Ne. 16:11]].  

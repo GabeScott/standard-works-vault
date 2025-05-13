@@ -5,4 +5,4 @@
 [Psalms 78:40](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.40?lang=eng#p40)
 
 
-[^a]: TG [[Provoking, Provoke]].
+[^a]: [[Provoking, Provoke|TG Provoking]].  

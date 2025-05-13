@@ -5,5 +5,5 @@
 [Hosea 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.8?lang=eng#p8)
 
 
-[^a]: [[Proverbs 17.12|Prov. 17:12.]]
-[^b]: IE chamber.
+[^a]: [[Proverbs 17.12|Prov. 17:12]].  
+[^b]: IE chamber.  

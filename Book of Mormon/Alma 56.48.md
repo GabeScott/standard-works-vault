@@ -5,5 +5,5 @@
 [Alma 56:48](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p48#p48)
 
 
-[^a]: TG [[Family, Love within]].
-[^b]: [[D&C 46.14|D&C 46:14.]]
+[^a]: [[Family, Love within|TG Family, Love within]].  
+[^b]: [[D&C 46.14|D&C 46:14]].  

@@ -5,4 +5,4 @@
 [Jeremiah 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/21.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 25.1|2 Kgs. 25:1]]; [[Jeremiah 43.10|Jer. 43:10.]]
+[^a]: [[2 Kings 25.1|2 Kgs. 25:1]]; [[Jeremiah 43.10|Jer. 43:10]].  

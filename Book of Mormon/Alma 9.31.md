@@ -5,4 +5,4 @@
 [Alma 9:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p31#p31)
 
 
-[^a]: [[2 Nephi 25.28|2 Ne. 25:28]]; [[Mosiah 3.14|Mosiah 3:14.]]
+[^a]: [[2 Nephi 25.28|2 Ne. 25:28]]; [[Mosiah 3.14|Mosiah 3:14]].  

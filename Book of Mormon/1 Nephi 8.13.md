@@ -5,4 +5,4 @@
 [1 Nephi 8:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p13#p13)
 
 
-[^a]: [[1 Nephi 12.16|1 Ne. 12:16 (16-18)]]; 15:26-27 (26-29).
+[^a]: [[1 Nephi 12.16|1 Ne. 12:16 (16–18)]][[1 Nephi 12.17|]][[1 Nephi 12.18|]]; [[1 Nephi 15.26|15:26–27 (26–29)]][[1 Nephi 15.27|]][[1 Nephi 15.28|]][[1 Nephi 15.29|]].  

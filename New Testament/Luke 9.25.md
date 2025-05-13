@@ -5,4 +5,4 @@
 [Luke 9:25](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.25?lang=eng#p25)
 
 
-[^a]: [[Matthew 16.26|Matt. 16:26.]]
+[^a]: [[Matthew 16.26|Matt. 16:26]].  

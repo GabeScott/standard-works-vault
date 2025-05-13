@@ -5,6 +5,6 @@
 [Acts 14:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.17?lang=eng#p17)
 
 
-[^a]: [[Romans 1.20|Rom. 1:20.]]
-[^b]: [[Leviticus 26.4|Lev. 26:4 (3-4).]]
-[^c]: TG [[Food]].
+[^a]: [[Romans 1.20|Rom. 1:20]].  
+[^b]: [[Leviticus 26.3|Lev. 26:4 (3–4)]][[Leviticus 26.4|]].  
+[^c]: [[Food|TG Food]].  

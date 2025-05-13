@@ -5,4 +5,4 @@
 [Jeremiah 26:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.11?lang=eng#p11)
 
 
-[^a]: [[Jeremiah 38.4|Jer. 38:4]]; [[Mosiah 17.1|Mosiah 17:1.]]
+[^a]: [[Jeremiah 38.4|Jer. 38:4]]; [[Mosiah 17.1|Mosiah 17:1]].  

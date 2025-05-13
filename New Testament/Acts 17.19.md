@@ -5,4 +5,4 @@
 [Acts 17:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.19?lang=eng#p19)
 
 
-[^a]: GR Hill of Ares (Mars); probably meaning the civil council which met there. Acts 17:34.
+[^a]: GR Hill of Ares (Mars); probably meaning the civil council which met there. [[Acts 17.34|Acts 17:34]].  

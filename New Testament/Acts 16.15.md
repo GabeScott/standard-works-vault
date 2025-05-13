@@ -5,4 +5,4 @@
 [Acts 16:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.15?lang=eng#p15)
 
 
-[^a]: [[1 Timothy 5.10|1 Tim. 5:10.]]
+[^a]: [[1 Timothy 5.10|1 Tim. 5:10]].  

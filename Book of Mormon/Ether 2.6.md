@@ -5,5 +5,5 @@
 [Ether 2:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Skill]].
-[^b]: [[Genesis 6.14|Gen. 6:14 (14-15)]]; [[Ether 2.16|Ether 2:16.]]
+[^a]: [[Skill|TG Skill]].  
+[^b]: [[Genesis 6.14|Gen. 6:14 (14–15)]][[Genesis 6.15|]]; [[Ether 2.16|Ether 2:16]].  

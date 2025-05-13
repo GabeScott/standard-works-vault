@@ -5,4 +5,4 @@
 [Judges 12:9](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/12.9?lang=eng#p9)
 
 
-[^a]: OR outside the family (as in marriage).
+[^a]: OR outside the family (as in marriage).  

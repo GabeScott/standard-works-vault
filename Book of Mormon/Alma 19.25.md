@@ -5,4 +5,4 @@
 [Alma 19:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p25#p25)
 
 
-[^a]: [[Alma 18.5|Alma 18:5 (2-5).]]
+[^a]: [[Alma 18.2|Alma 18:5 (2–5)]][[Alma 18.3|]][[Alma 18.4|]][[Alma 18.5|]].  

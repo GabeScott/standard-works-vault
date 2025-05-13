@@ -5,5 +5,5 @@
 [Jeremiah 8:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.12?lang=eng#p12)
 
 
-[^a]: [[Alma 47.36|Alma 47:36.]]
-[^b]: TG [[Punish, Punishment]].
+[^a]: [[Alma 47.36|Alma 47:36]].  
+[^b]: [[Punish, Punishment|TG Punish]].  

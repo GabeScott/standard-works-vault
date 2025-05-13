@@ -5,4 +5,4 @@
 [Psalms 109:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.28?lang=eng#p28)
 
 
-[^a]: TG [[Curse]].
+[^a]: [[Curse|TG Curse]].  

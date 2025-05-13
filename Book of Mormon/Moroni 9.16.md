@@ -5,4 +5,4 @@
 [Moroni 9:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/9?lang=eng&id=p16#p16)
 
 
-[^a]: [[Mosiah 21.10|Mosiah 21:10 (10, 17)]]. TG [[Widows]].
+[^a]: [[Mosiah 21.10|Mosiah 21:10 (10, 17)]][[Mosiah 21.17|]]. [[Widows|TG Widows]].  

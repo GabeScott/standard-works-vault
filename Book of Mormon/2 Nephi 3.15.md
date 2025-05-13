@@ -5,8 +5,8 @@
 [2 Nephi 3:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p15#p15)
 
 
-[^a]: [[D&C 18.8|D&C 18:8.]]
-[^b]: JS—H 1:3.
-[^c]: [[D&C 28.2|D&C 28:2.]]
-[^d]: [[Enos 1.13|Enos 1:13 (12-18)]]; [[Alma 37.19|Alma 37:19 (1-20).]]
-[^e]: TG [[Scriptures, Value of]].
+[^a]: [[D&C 18.8|D&C 18:8]].  
+[^b]: [[Joseph Smith History 1.3|JS—H 1:3]].  
+[^c]: [[D&C 28.2|D&C 28:2]].  
+[^d]: [[Enos 1.12|Enos 1:13 (12–18)]][[Enos 1.13|]][[Enos 1.14|]][[Enos 1.15|]][[Enos 1.16|]][[Enos 1.17|]][[Enos 1.18|]]; [[Alma 37.1|Alma 37:19 (1–20)]][[Alma 37.2|]][[Alma 37.3|]][[Alma 37.4|]][[Alma 37.5|]][[Alma 37.6|]][[Alma 37.7|]][[Alma 37.8|]][[Alma 37.9|]][[Alma 37.10|]][[Alma 37.11|]][[Alma 37.12|]][[Alma 37.13|]][[Alma 37.14|]][[Alma 37.15|]][[Alma 37.16|]][[Alma 37.17|]][[Alma 37.18|]][[Alma 37.19|]][[Alma 37.20|]].  
+[^e]: [[Scriptures, Value of|TG Scriptures, Value of]].  

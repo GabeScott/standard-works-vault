@@ -5,5 +5,5 @@
 [Ecclesiastes 12:14](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/12.14?lang=eng#p14)
 
 
-[^a]: TG [[Good Works]].
-[^b]: TG [[Jesus Christ, Judge]]; [[Judgment, the Last]].
+[^a]: [[Good Works|TG Good Works]].  
+[^b]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]]; [[Judgment, the Last|Judgment, the Last]].  

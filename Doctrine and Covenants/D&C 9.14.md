@@ -5,6 +5,6 @@
 [D&C 9:14](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/9.14?lang=eng#p14)
 
 
-[^a]: [[1 Corinthians 16.13|1 Cor. 16:13.]]
-[^b]: TG [[Called of God]].
-[^c]: [[D&C 5.35|D&C 5:35]]; [[D&C 17.8|17:8.]]
+[^a]: [[1 Corinthians 16.13|1 Cor. 16:13]].  
+[^b]: [[Called of God|TG Called of God]].  
+[^c]: [[D&C 5.35|D&C 5:35]]; [[D&C 17.8|17:8]].  

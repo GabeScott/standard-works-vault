@@ -5,4 +5,4 @@
 [Alma 60:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p12#p12)
 
 
-[^a]: [[Luke 13.2|Luke 13:2 (1-2).]]
+[^a]: [[Luke 13.1|Luke 13:2 (1–2)]][[Luke 13.2|]].  

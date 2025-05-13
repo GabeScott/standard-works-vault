@@ -5,4 +5,4 @@
 [2 Chronicles 28:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.10?lang=eng#p10)
 
 
-[^a]: OR subjugate.
+[^a]: OR subjugate.  

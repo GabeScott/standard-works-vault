@@ -5,5 +5,5 @@
 [Alma 1:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p24#p24)
 
 
-[^a]: [[Exodus 32.33|Ex. 32:33]]; Mosiah 26:32, 36; [[Alma 6.3|Alma 6:3]]. TG [[Excommunication]].
-[^b]: [[Alma 46.7|Alma 46:7]]. TG [[Apostasy of Individuals]].
+[^a]: [[Exodus 32.33|Ex. 32:33]]; [[Mosiah 26.32|Mosiah 26:32, 36]][[Mosiah 26.36|]]; [[Alma 6.3|Alma 6:3]]. [[Excommunication|TG Excommunication]].  
+[^b]: [[Alma 46.7|Alma 46:7]]. [[Apostasy of Individuals|TG Apostasy of Individuals]].  

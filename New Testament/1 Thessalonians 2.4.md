@@ -5,9 +5,9 @@
 [1 Thessalonians 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/2.4?lang=eng#p4)
 
 
-[^a]: GR approved, found worthy, chosen. 2 Tim. 1:11.
-[^b]: GR entrusted.
-[^c]: [[D&C 12.8|D&C 12:8]]; [[D&C 124.113|124:113.]]
-[^d]: [[Titus 2.1|Titus 2:1]]; [[1 Peter 4.11|1 Pet. 4:11.]]
-[^e]: TG [[Peer Influence]].
-[^f]: GR examines, proves by trial. TG [[Testament]].
+[^a]: GR approved, found worthy, chosen. [[2 Timothy 1.11|2 Tim. 1:11]].  
+[^b]: GR entrusted.  
+[^c]: [[D&C 12.8|D&C 12:8]]; [[D&C 124.113|124:113]].  
+[^d]: [[Titus 2.1|Titus 2:1]]; [[1 Peter 4.11|1 Pet. 4:11]].  
+[^e]: [[Peer Influence|TG Peer Influence]].  
+[^f]: GR examines, proves by trial. [[Test, Try, Prove|TG Test]].  

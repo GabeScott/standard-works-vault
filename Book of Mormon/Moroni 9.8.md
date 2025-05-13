@@ -5,4 +5,4 @@
 [Moroni 9:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/9?lang=eng&id=p8#p8)
 
 
-[^a]: [[Leviticus 26.29|Lev. 26:29]]; [[1 Nephi 21.26|1 Ne. 21:26.]]
+[^a]: [[Leviticus 26.29|Lev. 26:29]]; [[1 Nephi 21.26|1 Ne. 21:26]].  

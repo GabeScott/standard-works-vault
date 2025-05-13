@@ -5,4 +5,4 @@
 [Isaiah 59:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.3?lang=eng#p3)
 
 
-[^a]: [[Alma 5.22|Alma 5:22.]]
+[^a]: [[Alma 5.22|Alma 5:22]].  

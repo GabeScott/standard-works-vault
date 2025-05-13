@@ -5,4 +5,4 @@
 [Galatians 6:2](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/6.2?lang=eng#p2)
 
 
-[^a]: TG [[Compassion]].
+[^a]: [[Compassion|TG Compassion]].  

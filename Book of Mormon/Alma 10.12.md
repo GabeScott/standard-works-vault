@@ -5,4 +5,4 @@
 [Alma 10:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 9.6|Alma 9:6.]]
+[^a]: [[Alma 9.6|Alma 9:6]].  

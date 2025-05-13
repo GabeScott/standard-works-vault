@@ -5,5 +5,5 @@
 [Deuteronomy 24:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.7?lang=eng#p7)
 
 
-[^a]: TG [[Stealing, Stolen]].
-[^b]: [[Deuteronomy 21.14|Deut. 21:14.]]
+[^a]: [[Stealing, Stolen|TG Stealing]].  
+[^b]: [[Deuteronomy 21.14|Deut. 21:14]].  

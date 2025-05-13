@@ -5,4 +5,4 @@
 [Malachi 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.3?lang=eng#p3)
 
 
-[^a]: OR rebuke.
+[^a]: OR rebuke.  

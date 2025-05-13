@@ -5,4 +5,4 @@
 [Acts 2:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.6?lang=eng#p6)
 
 
-[^a]: TG [[Language]].
+[^a]: [[Language|TG Language]].  

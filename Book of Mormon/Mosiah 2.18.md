@@ -5,4 +5,4 @@
 [Mosiah 2:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p18#p18)
 
 
-[^a]: [[Luke 22.26|Luke 22:26.]]
+[^a]: [[Luke 22.26|Luke 22:26]].  

@@ -5,5 +5,5 @@
 [2 Thessalonians 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.12?lang=eng#p12)
 
 
-[^a]: GR brought to account, trial. TG [[Damnation, Damned]].
-[^b]: TG [[Unbelief, Unbelievers]].
+[^a]: GR brought to account, trial. [[Damnation, Damned|TG Damnation]].  
+[^b]: [[Unbelief, Unbelievers|TG Unbelief]].  

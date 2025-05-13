@@ -5,4 +5,4 @@
 [Leviticus 19:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.3?lang=eng#p3)
 
 
-[^a]: [[D&C 59.9|D&C 59:9.]]
+[^a]: [[D&C 59.9|D&C 59:9]].  

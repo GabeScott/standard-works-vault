@@ -5,6 +5,6 @@
 [2 Kings 23:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.27?lang=eng#p27)
 
 
-[^a]: [[2 Kings 24.2|2 Kgs. 24:2.]]
-[^b]: [[2 Kings 17.18|2 Kgs. 17:18 (18, 20).]]
-[^c]: [[1 Nephi 1.13|1 Ne. 1:13 (4, 13).]]
+[^a]: [[2 Kings 24.2|2 Kgs. 24:2]].  
+[^b]: [[2 Kings 17.18|2 Kgs. 17:18 (18, 20)]][[2 Kings 17.20|]].  
+[^c]: [[1 Nephi 1.4|1 Ne. 1:13 (4, 13)]][[1 Nephi 1.13|]].  

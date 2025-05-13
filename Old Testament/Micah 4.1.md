@@ -5,5 +5,5 @@
 [Micah 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/4.1?lang=eng#p1)
 
 
-[^a]: [[Isaiah 2.2|Isa. 2:2 (1-3).]]
-[^b]: TG [[Dispensations]].
+[^a]: [[Isaiah 2.1|Isa. 2:2 (1–3)]][[Isaiah 2.2|]][[Isaiah 2.3|]].  
+[^b]: [[Dispensations|TG Dispensations]].  

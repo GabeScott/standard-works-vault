@@ -5,4 +5,4 @@
 [Genesis 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.4?lang=eng#p4)
 
 
-[^a]: OR an innocent nation. Gen. 18:23.
+[^a]: OR an innocent nation. [[Genesis 18.23|Gen. 18:23]].  

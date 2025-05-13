@@ -5,4 +5,4 @@
 [Psalms 119:81](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.81?lang=eng#p81)
 
 
-[^a]: [[Psalms 84.2|Ps. 84:2.]]
+[^a]: [[Psalms 84.2|Ps. 84:2]].  

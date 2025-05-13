@@ -5,5 +5,5 @@
 [Matthew 15:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.11?lang=eng#p11)
 
 
-[^a]: TG [[Cleanliness]].
-[^b]: TG [[Gossip]]; [[Profanity]].
+[^a]: [[Cleanliness|TG Cleanliness]].  
+[^b]: [[Gossip|TG Gossip]]; [[Profanity|Profanity]].  

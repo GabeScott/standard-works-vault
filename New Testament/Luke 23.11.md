@@ -5,4 +5,4 @@
 [Luke 23:11](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.11?lang=eng#p11)
 
 
-[^a]: TG [[Mocking, Mock, Mocker, Mockery]].
+[^a]: [[Mocking, Mock, Mocker, Mockery|TG Mocking]].  

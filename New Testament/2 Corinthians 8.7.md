@@ -5,4 +5,4 @@
 [2 Corinthians 8:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.7?lang=eng#p7)
 
 
-[^a]: TG [[Diligence, Diligent, Diligently]].
+[^a]: [[Diligence, Diligent, Diligently|TG Diligence]].  

@@ -5,4 +5,4 @@
 [Acts 13:34](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.34?lang=eng#p34)
 
 
-[^a]: [[Isaiah 55.3|Isa. 55:3.]]
+[^a]: [[Isaiah 55.3|Isa. 55:3]].  

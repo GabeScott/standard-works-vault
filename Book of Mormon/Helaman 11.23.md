@@ -5,4 +5,4 @@
 [Helaman 11:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p23#p23)
 
 
-[^a]: [[Jarom 1.4|Jarom 1:4]]; [[Alma 26.22|Alma 26:22]]; [[D&C 107.19|D&C 107:19.]]
+[^a]: [[Jarom 1.4|Jarom 1:4]]; [[Alma 26.22|Alma 26:22]]; [[D&C 107.19|D&C 107:19]].  

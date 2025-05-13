@@ -5,4 +5,4 @@
 [Acts 27:33](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.33?lang=eng#p33)
 
 
-[^a]: TG [[Fast, Fasting]].
+[^a]: [[Fast, Fasting|TG Fast, Fasting]].  

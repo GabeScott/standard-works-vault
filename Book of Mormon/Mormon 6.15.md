@@ -5,5 +5,5 @@
 [Mormon 6:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 9.24|Alma 9:24.]]
-[^b]: [[Mormon 8.2|Morm. 8:2.]]
+[^a]: [[Alma 9.24|Alma 9:24]].  
+[^b]: [[Mormon 8.2|Morm. 8:2]].  

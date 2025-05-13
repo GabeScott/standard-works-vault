@@ -5,4 +5,4 @@
 [Matthew 9:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.21?lang=eng#p21)
 
 
-[^a]: GR free from disease.
+[^a]: GR free from disease.  

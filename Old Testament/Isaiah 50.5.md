@@ -5,5 +5,5 @@
 [Isaiah 50:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.5?lang=eng#p5)
 
 
-[^a]: [[D&C 58.1|D&C 58:1.]]
-[^b]: [[Matthew 26.39|Matt. 26:39]]; Philip. 2:8.
+[^a]: [[D&C 58.1|D&C 58:1]].  
+[^b]: [[Matthew 26.39|Matt. 26:39]]; [[Philippians 2.8|Philip. 2:8]].  

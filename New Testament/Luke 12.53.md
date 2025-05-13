@@ -5,4 +5,4 @@
 [Luke 12:53](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.53?lang=eng#p53)
 
 
-[^a]: [[Micah 7.6|Micah 7:6.]]
+[^a]: [[Micah 7.6|Micah 7:6]].  

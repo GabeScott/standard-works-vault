@@ -5,7 +5,7 @@
 [Exodus 19:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.5?lang=eng#p5)
 
 
-[^a]: TG [[Obedience, Obedient, Obey]].
-[^b]: TG [[Abrahamic Covenant]]; [[Covenants]].
-[^c]: TG [[Israel, Twelve Tribes of]]; [[Peculiar People]].
-[^d]: TG [[Israel, Blessings of]]; [[Treasure]].
+[^a]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^b]: [[Abrahamic Covenant|TG Abrahamic Covenant]]; [[Covenants|Covenants]].  
+[^c]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]]; [[Peculiar People|Peculiar People]].  
+[^d]: [[Israel, Blessings of|TG Israel, Blessings of]]; [[Treasure|Treasure]].  

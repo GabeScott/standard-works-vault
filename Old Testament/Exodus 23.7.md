@@ -5,5 +5,5 @@
 [Exodus 23:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.7?lang=eng#p7)
 
 
-[^a]: OR charge.
-[^b]: TG [[Justification, Justify]].
+[^a]: OR charge.  
+[^b]: [[Justification, Justify|TG Justification]].  

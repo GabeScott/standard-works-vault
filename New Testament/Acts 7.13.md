@@ -5,5 +5,5 @@
 [Acts 7:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 45.3|Gen. 45:3.]]
-[^b]: [[Genesis 47.2|Gen. 47:2.]]
+[^a]: [[Genesis 45.3|Gen. 45:3]].  
+[^b]: [[Genesis 47.2|Gen. 47:2]].  

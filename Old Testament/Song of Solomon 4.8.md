@@ -5,4 +5,4 @@
 [Song of Solomon 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/song/4.8?lang=eng#p8)
 
 
-[^a]: Song 5:1.
+[^a]: [[Song of Solomon 5.1|Song 5:1]].  

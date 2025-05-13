@@ -5,4 +5,4 @@
 [1 Nephi 17:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p7#p7)
 
 
-[^a]: [[Ezekiel 3.22|Ezek. 3:22 (22-27).]]
+[^a]: [[Ezekiel 3.22|Ezek. 3:22 (22–27)]][[Ezekiel 3.23|]][[Ezekiel 3.24|]][[Ezekiel 3.25|]][[Ezekiel 3.26|]][[Ezekiel 3.27|]].  

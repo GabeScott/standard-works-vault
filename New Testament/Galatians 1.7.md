@@ -5,6 +5,6 @@
 [Galatians 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.7?lang=eng#p7)
 
 
-[^a]: GR agitate, raise doubts, perplex.
-[^b]: [[Galatians 5.10|Gal. 5:10.]]
-[^c]: TG [[Gospel]].
+[^a]: GR agitate, raise doubts, perplex.  
+[^b]: [[Galatians 5.10|Gal. 5:10]].  
+[^c]: [[Gospel|TG Gospel]].  

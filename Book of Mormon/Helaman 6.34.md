@@ -5,4 +5,4 @@
 [Helaman 6:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p34#p34)
 
 
-[^a]: [[Moroni 9.20|Moro. 9:20.]]
+[^a]: [[Moroni 9.20|Moro. 9:20]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.17?lang=eng#p17)
 
 
-[^a]: TG [[Diligence, Diligent, Diligently]].
-[^b]: TG [[Commandments of God]].
+[^a]: [[Diligence, Diligent, Diligently|TG Diligence]].  
+[^b]: [[Commandments of God|TG Commandments of God]].  

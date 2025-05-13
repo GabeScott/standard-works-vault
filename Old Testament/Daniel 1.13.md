@@ -5,4 +5,4 @@
 [Daniel 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/1.13?lang=eng#p13)
 
 
-[^a]: [[D&C 89.18|D&C 89:18.]]
+[^a]: [[D&C 89.18|D&C 89:18]].  

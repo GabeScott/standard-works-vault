@@ -5,4 +5,4 @@
 [Proverbs 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.4?lang=eng#p4)
 
 
-[^a]: HEB waste, impurities.
+[^a]: HEB waste, impurities.  

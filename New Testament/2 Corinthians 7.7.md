@@ -5,4 +5,4 @@
 [2 Corinthians 7:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/7.7?lang=eng#p7)
 
 
-[^a]: TG [[Holy Ghost, Comforter]].
+[^a]: [[Comfort|TG Comfort]].  

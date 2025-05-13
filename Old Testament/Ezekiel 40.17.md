@@ -5,5 +5,5 @@
 [Ezekiel 40:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.17?lang=eng#p17)
 
 
-[^a]: [[Ezekiel 41.10|Ezek. 41:10]]; [[Ezekiel 42.4|42:4 (1, 4-5).]]
-[^b]: HEB faced.
+[^a]: [[Ezekiel 41.10|Ezek. 41:10]]; [[Ezekiel 42.1|42:4 (1, 4–5)]][[Ezekiel 42.4|]][[Ezekiel 42.5|]].  
+[^b]: HEB faced.  

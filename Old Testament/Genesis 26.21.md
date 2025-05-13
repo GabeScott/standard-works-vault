@@ -5,4 +5,4 @@
 [Genesis 26:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.21?lang=eng#p21)
 
 
-[^a]: IE Opposition.
+[^a]: IE Opposition.  

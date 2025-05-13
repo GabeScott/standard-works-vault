@@ -5,6 +5,6 @@
 [1 Thessalonians 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/4.15?lang=eng#p15)
 
 
-[^a]: JST 1 Thes. 4:15 … that they who are alive at the coming of the Lord, shall not prevent them who remain unto the coming of the Lord, who are asleep.
-[^b]: 2 Thes. 2:2 (1-3).
-[^c]: GR precede, make progress over.
+[^a]: [[JST 1 Thessalonians 4.15|JST 1 Thes. 4:15]] … that they who are alive at the coming of the Lord, shall not prevent them who remain unto the coming of the Lord, who are asleep.  
+[^b]: [[2 Thessalonians 2.1|2 Thes. 2:2 (1–3)]][[2 Thessalonians 2.2|]][[2 Thessalonians 2.3|]].  
+[^c]: GR precede, make progress over.  

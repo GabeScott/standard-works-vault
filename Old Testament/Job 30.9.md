@@ -5,4 +5,4 @@
 [Job 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/job/30.9?lang=eng#p9)
 
 
-[^a]: [[Psalms 69.12|Ps. 69:12.]]
+[^a]: [[Psalms 69.12|Ps. 69:12]].  

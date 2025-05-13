@@ -5,4 +5,4 @@
 [Acts 7:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.32?lang=eng#p32)
 
 
-[^a]: [[Exodus 3.15|Ex. 3:15.]]
+[^a]: [[Exodus 3.15|Ex. 3:15]].  

@@ -5,8 +5,8 @@
 [Alma 32:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p5#p5)
 
 
-[^a]: [[Proverbs 18.23|Prov. 18:23.]]
-[^b]: TG [[Oppression, Oppress]].
-[^c]: [[Alma 33.10|Alma 33:10.]]
-[^d]: [[Alma 33.2|Alma 33:2.]]
-[^e]: [[Acts 2.37|Acts 2:37 (37-38)]]; [[Alma 34.3|Alma 34:3.]]
+[^a]: [[Proverbs 18.23|Prov. 18:23]].  
+[^b]: [[Oppression, Oppress|TG Oppression]].  
+[^c]: [[Alma 33.10|Alma 33:10]].  
+[^d]: [[Alma 33.2|Alma 33:2]].  
+[^e]: [[Acts 2.37|Acts 2:37 (37–38)]][[Acts 2.38|]]; [[Alma 34.3|Alma 34:3]].  

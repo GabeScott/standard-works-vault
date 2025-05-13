@@ -5,4 +5,4 @@
 [Genesis 28:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.5?lang=eng#p5)
 
 
-[^a]: HEB Aramean. Deut. 26:5; [[Hosea 12.12|Hosea 12:12.]]
+[^a]: HEB Aramean. [[Deuteronomy 26.5|Deut. 26:5]]; [[Hosea 12.12|Hosea 12:12]].  

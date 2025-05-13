@@ -5,4 +5,4 @@
 [Genesis 34:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/34.15?lang=eng#p15)
 
 
-[^a]: TG [[Circumcision]].
+[^a]: [[Circumcision|TG Circumcision]].  

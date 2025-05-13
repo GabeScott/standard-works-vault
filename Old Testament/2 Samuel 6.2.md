@@ -5,5 +5,5 @@
 [2 Samuel 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.2?lang=eng#p2)
 
 
-[^a]: [[1 Chronicles 13.13|1 Chr. 13:13 (6-14).]]
-[^b]: TG [[Cherubim]].
+[^a]: [[1 Chronicles 13.6|1 Chr. 13:13 (6–14)]][[1 Chronicles 13.7|]][[1 Chronicles 13.8|]][[1 Chronicles 13.9|]][[1 Chronicles 13.10|]][[1 Chronicles 13.11|]][[1 Chronicles 13.12|]][[1 Chronicles 13.13|]][[1 Chronicles 13.14|]].  
+[^b]: [[Cherubim|TG Cherubim]].  

@@ -5,4 +5,4 @@
 [Mark 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.13?lang=eng#p13)
 
 
-[^a]: OR drowned.
+[^a]: OR drowned.  

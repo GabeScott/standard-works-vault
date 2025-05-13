@@ -5,4 +5,4 @@
 [Psalms 78:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.33?lang=eng#p33)
 
 
-[^a]: TG [[Vanity]].
+[^a]: [[Vanity|TG Vanity]].  

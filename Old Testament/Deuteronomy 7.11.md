@@ -5,5 +5,5 @@
 [Deuteronomy 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.11?lang=eng#p11)
 
 
-[^a]: HEB ordinances.
-[^b]: TG [[Duty]].
+[^a]: HEB ordinances.  
+[^b]: [[Duty|TG Duty]].  

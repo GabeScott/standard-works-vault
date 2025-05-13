@@ -5,4 +5,4 @@
 [1 Chronicles 6:54](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/6.54?lang=eng#p54)
 
 
-[^a]: [[Joshua 21.4|Josh. 21:4.]]
+[^a]: [[Joshua 21.4|Josh. 21:4]].  

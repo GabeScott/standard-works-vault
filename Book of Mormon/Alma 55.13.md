@@ -5,4 +5,4 @@
 [Alma 55:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/55?lang=eng&id=p13#p13)
 
 
-[^a]: [[Proverbs 20.1|Prov. 20:1]]. TG [[Wine]].
+[^a]: [[Proverbs 20.1|Prov. 20:1]]. [[Wine|TG Wine]].  

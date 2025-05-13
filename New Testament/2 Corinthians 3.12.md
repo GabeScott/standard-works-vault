@@ -5,4 +5,4 @@
 [2 Corinthians 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/3.12?lang=eng#p12)
 
 
-[^a]: GR boldness, frankness.
+[^a]: GR boldness, frankness.  

@@ -5,4 +5,4 @@
 [2 Samuel 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.1?lang=eng#p1)
 
 
-[^a]: [[1 Chronicles 13.5|1 Chr. 13:5.]]
+[^a]: [[1 Chronicles 13.5|1 Chr. 13:5]].  

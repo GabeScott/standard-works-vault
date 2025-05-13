@@ -5,5 +5,5 @@
 [Isaiah 45:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.7?lang=eng#p7)
 
 
-[^a]: TG [[Light]].
-[^b]: [[Amos 3.6|Amos 3:6]]; [[Alma 5.40|Alma 5:40]]; [[Moroni 7.12|Moro. 7:12.]]
+[^a]: [[Light [noun]|TG Light [noun]]].  
+[^b]: [[Amos 3.6|Amos 3:6]]; [[Alma 5.40|Alma 5:40]]; [[Moroni 7.12|Moro. 7:12]].  

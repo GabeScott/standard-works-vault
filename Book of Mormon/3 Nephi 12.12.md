@@ -5,6 +5,6 @@
 [3 Nephi 12:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p12#p12)
 
 
-[^a]: [[Matthew 5.12|Matt. 5:12.]]
-[^b]: TG [[Reward]].
-[^c]: [[2 Corinthians 7.4|2 Cor. 7:4]]. TG [[Prophets, Rejection of]].
+[^a]: [[Matthew 5.12|Matt. 5:12]].  
+[^b]: [[Reward|TG Reward]].  
+[^c]: [[2 Corinthians 7.4|2 Cor. 7:4]]. [[Prophets, Rejection of|TG Prophets, Rejection of]].  

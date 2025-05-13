@@ -5,4 +5,4 @@
 [2 Chronicles 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/2.14?lang=eng#p14)
 
 
-[^a]: OR to execute any design.
+[^a]: OR to execute any design.  

@@ -5,6 +5,6 @@
 [Mormon 8:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p36#p36)
 
 
-[^a]: TG [[Walking in Darkness]].
-[^b]: [[Jacob 2.13|Jacob 2:13]]; [[3 Nephi 16.10|3 Ne. 16:10.]]
-[^c]: [[2 Nephi 28.13|2 Ne. 28:13 (11-14)]]; [[Alma 5.53|Alma 5:53.]]
+[^a]: [[Walking in Darkness|TG Walking in Darkness]].  
+[^b]: [[Jacob 2.13|Jacob 2:13]]; [[3 Nephi 16.10|3 Ne. 16:10]].  
+[^c]: [[2 Nephi 28.11|2 Ne. 28:13 (11–14)]][[2 Nephi 28.12|]][[2 Nephi 28.13|]][[2 Nephi 28.14|]]; [[Alma 5.53|Alma 5:53]].  

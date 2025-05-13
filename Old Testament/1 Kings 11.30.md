@@ -5,4 +5,4 @@
 [1 Kings 11:30](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.30?lang=eng#p30)
 
 
-[^a]: [[1 Kings 12.15|1 Kgs. 12:15.]]
+[^a]: [[1 Kings 12.15|1 Kgs. 12:15]].  

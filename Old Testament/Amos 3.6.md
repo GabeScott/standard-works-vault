@@ -5,5 +5,5 @@
 [Amos 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.6?lang=eng#p6)
 
 
-[^a]: [[Isaiah 45.7|Isa. 45:7]]; [[Alma 5.40|Alma 5:40]]; [[Moroni 7.12|Moro. 7:12.]]
-[^b]: JST Amos 3:6 … known …
+[^a]: [[Isaiah 45.7|Isa. 45:7]]; [[Alma 5.40|Alma 5:40]]; [[Moroni 7.12|Moro. 7:12]].  
+[^b]: JST Amos 3:6 … known …  

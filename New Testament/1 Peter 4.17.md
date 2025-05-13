@@ -5,5 +5,5 @@
 [1 Peter 4:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.17?lang=eng#p17)
 
 
-[^a]: TG [[Judgment]].
-[^b]: [[D&C 18.46|D&C 18:46]]. TG [[Disobedience, Disobey]].
+[^a]: [[Judgment|TG Judgment]].  
+[^b]: [[D&C 18.46|D&C 18:46]]. [[Disobedience, Disobey|TG Disobedience]].  

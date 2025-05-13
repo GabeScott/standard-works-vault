@@ -5,5 +5,5 @@
 [Psalms 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.6?lang=eng#p6)
 
 
-[^a]: TG [[Suffering]].
-[^b]: [[Jonah 2.7|Jonah 2:7.]]
+[^a]: [[Suffering|TG Suffering]].  
+[^b]: [[Jonah 2.7|Jonah 2:7]].  

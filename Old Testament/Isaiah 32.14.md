@@ -5,4 +5,4 @@
 [Isaiah 32:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/32.14?lang=eng#p14)
 
 
-[^a]: OR deserted.
+[^a]: OR deserted.  

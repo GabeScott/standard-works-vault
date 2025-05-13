@@ -5,4 +5,4 @@
 [Mosiah 13:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p35#p35)
 
 
-[^a]: [[Isaiah 26.19|Isa. 26:19]]; [[2 Nephi 2.8|2 Ne. 2:8.]]
+[^a]: [[Isaiah 26.19|Isa. 26:19]]; [[2 Nephi 2.8|2 Ne. 2:8]].  

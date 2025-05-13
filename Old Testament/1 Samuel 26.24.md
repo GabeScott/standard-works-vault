@@ -5,4 +5,4 @@
 [1 Samuel 26:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/26.24?lang=eng#p24)
 
 
-[^a]: TG [[Tribulation]].
+[^a]: [[Tribulation|TG Tribulation]].  

@@ -5,4 +5,4 @@
 [Leviticus 11:29](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.29?lang=eng#p29)
 
 
-[^a]: [[Isaiah 66.17|Isa. 66:17.]]
+[^a]: [[Isaiah 66.17|Isa. 66:17]].  

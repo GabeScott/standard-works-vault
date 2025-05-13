@@ -5,4 +5,4 @@
 [Amos 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.5?lang=eng#p5)
 
 
-[^a]: IE bait, or lure.
+[^a]: IE bait, or lure.  

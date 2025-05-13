@@ -5,4 +5,4 @@
 [Deuteronomy 26:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.15?lang=eng#p15)
 
 
-[^a]: [[Isaiah 63.15|Isa. 63:15.]]
+[^a]: [[Isaiah 63.15|Isa. 63:15]].  

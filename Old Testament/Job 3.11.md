@@ -5,4 +5,4 @@
 [Job 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/3.11?lang=eng#p11)
 
 
-[^a]: [[Job 10.18|Job 10:18 (18-19).]]
+[^a]: [[Job 10.18|Job 10:18 (18–19)]][[Job 10.19|]].  

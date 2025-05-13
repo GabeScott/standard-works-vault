@@ -5,7 +5,7 @@
 [Alma 48:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p24#p24)
 
 
-[^a]: [[Alma 46.12|Alma 46:12.]]
-[^b]: TG [[Martyrdom]].
-[^c]: TG [[Cruelty, Cruel]].
-[^d]: TG [[Apostasy of Individuals]].
+[^a]: [[Alma 46.12|Alma 46:12]].  
+[^b]: [[Martyrdom|TG Martyrdom]].  
+[^c]: [[Cruelty, Cruel|TG Cruelty]].  
+[^d]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  

@@ -5,7 +5,7 @@
 [Abraham 2:11](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/2.11?lang=eng#p11)
 
 
-[^a]: TG [[Israel, Blessings of]].
-[^b]: TG [[Curse]].
-[^c]: [[Isaiah 49.3|Isa. 49:3]]; [[Isaiah 61.9|61:9.]]
-[^d]: TG [[Birthright]]; [[Israel, Mission of]]; [[Priesthood, Melchizedek]].
+[^a]: [[Israel, Blessings of|TG Israel, Blessings of]].  
+[^b]: [[Curse|TG Curse]].  
+[^c]: [[Isaiah 49.3|Isa. 49:3]]; [[Isaiah 61.9|61:9]].  
+[^d]: [[Birthright|TG Birthright]]; [[Israel, Mission of|Israel, Mission of]]; [[Priesthood, Melchizedek|Priesthood, Melchizedek]].  

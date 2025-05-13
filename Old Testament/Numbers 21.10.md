@@ -5,4 +5,4 @@
 [Numbers 21:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.10?lang=eng#p10)
 
 
-[^a]: OR encamped (also vv. 11-13).
+[^a]: OR encamped (also [[Numbers 21.11|vv. 11–13]][[Numbers 21.12|]][[Numbers 21.13|]]).  

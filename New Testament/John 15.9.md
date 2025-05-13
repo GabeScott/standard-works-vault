@@ -5,4 +5,4 @@
 [John 15:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.9?lang=eng#p9)
 
 
-[^a]: TG [[God, Love of]].
+[^a]: [[God, Love of|TG God, Love of]].  

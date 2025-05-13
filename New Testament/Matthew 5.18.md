@@ -5,5 +5,5 @@
 [Matthew 5:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.18?lang=eng#p18)
 
 
-[^a]: TG [[Law of Moses]].
-[^b]: [[D&C 1.38|D&C 1:38.]]
+[^a]: [[Law of Moses|TG Law of Moses]].  
+[^b]: [[D&C 1.38|D&C 1:38]].  

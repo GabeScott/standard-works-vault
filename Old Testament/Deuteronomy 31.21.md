@@ -5,5 +5,5 @@
 [Deuteronomy 31:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.21?lang=eng#p21)
 
 
-[^a]: TG [[Singing, Sing, Sang, Sung]].
-[^b]: HEB their inclinations which are already forming.
+[^a]: [[Singing, Sing, Sang, Sung|TG Singing]].  
+[^b]: HEB their inclinations which are already forming.  

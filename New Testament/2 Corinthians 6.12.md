@@ -5,4 +5,4 @@
 [2 Corinthians 6:12](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/6.12?lang=eng#p12)
 
 
-[^a]: [[D&C 121.45|D&C 121:45.]]
+[^a]: [[D&C 121.45|D&C 121:45]].  

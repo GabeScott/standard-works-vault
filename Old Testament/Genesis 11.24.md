@@ -5,4 +5,4 @@
 [Genesis 11:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.24?lang=eng#p24)
 
 
-[^a]: [[Abraham 2.1|Abr. 2:1 (1-4).]]
+[^a]: [[Abraham 2.1|Abr. 2:1 (1–4)]][[Abraham 2.2|]][[Abraham 2.3|]][[Abraham 2.4|]].  

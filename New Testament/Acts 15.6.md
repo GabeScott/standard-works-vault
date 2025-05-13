@@ -5,5 +5,5 @@
 [Acts 15:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.6?lang=eng#p6)
 
 
-[^a]: TG [[Church Organization]].
-[^b]: TG [[Elder, Melchizedek Priesthood]].
+[^a]: [[Church Organization|TG Church Organization]].  
+[^b]: [[Elder, Melchizedek Priesthood|TG Elder, Melchizedek Priesthood]].  

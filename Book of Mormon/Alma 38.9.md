@@ -5,6 +5,6 @@
 [Alma 38:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 21.9|Alma 21:9.]]
-[^b]: TG [[Jesus Christ, Light of the World]].
-[^c]: [[Ether 4.12|Ether 4:12.]]
+[^a]: [[Alma 21.9|Alma 21:9]].  
+[^b]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]].  
+[^c]: [[Ether 4.12|Ether 4:12]].  

@@ -5,5 +5,5 @@
 [2 Nephi 29:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Scriptures to Come Forth]].
-[^b]: [[2 Nephi 28.29|2 Ne. 28:29.]]
+[^a]: [[Scriptures to Come Forth|TG Scriptures to Come Forth]].  
+[^b]: [[2 Nephi 28.29|2 Ne. 28:29]].  

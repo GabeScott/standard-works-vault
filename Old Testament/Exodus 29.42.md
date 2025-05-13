@@ -5,6 +5,6 @@
 [Exodus 29:42](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.42?lang=eng#p42)
 
 
-[^a]: [[Numbers 28.6|Num. 28:6 (3-8).]]
-[^b]: [[Exodus 33.7|Ex. 33:7.]]
-[^c]: [[Leviticus 16.2|Lev. 16:2.]]
+[^a]: [[Numbers 28.3|Num. 28:6 (3–8)]][[Numbers 28.4|]][[Numbers 28.5|]][[Numbers 28.6|]][[Numbers 28.7|]][[Numbers 28.8|]].  
+[^b]: [[Exodus 33.7|Ex. 33:7]].  
+[^c]: [[Leviticus 16.2|Lev. 16:2]].  

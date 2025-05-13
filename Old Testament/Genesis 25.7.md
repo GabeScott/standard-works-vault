@@ -5,5 +5,5 @@
 [Genesis 25:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 47.9|Gen. 47:9.]]
-[^b]: [[Genesis 35.28|Gen. 35:28]]; [[Genesis 47.28|47:28.]]
+[^a]: [[Genesis 47.9|Gen. 47:9]].  
+[^b]: [[Genesis 35.28|Gen. 35:28]]; [[Genesis 47.28|47:28]].  

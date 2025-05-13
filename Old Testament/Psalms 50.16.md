@@ -5,4 +5,4 @@
 [Psalms 50:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.16?lang=eng#p16)
 
 
-[^a]: OR What authority have you.
+[^a]: OR What authority have you.  

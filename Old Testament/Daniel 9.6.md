@@ -5,4 +5,4 @@
 [Daniel 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.6?lang=eng#p6)
 
 
-[^a]: [[2 Chronicles 36.16|2 Chr. 36:16 (15-16).]]
+[^a]: [[2 Chronicles 36.15|2 Chr. 36:16 (15–16)]][[2 Chronicles 36.16|]].  

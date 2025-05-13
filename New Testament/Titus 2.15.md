@@ -5,6 +5,6 @@
 [Titus 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.15?lang=eng#p15)
 
 
-[^a]: TG [[Chastening]].
-[^b]: TG [[Authority]].
-[^c]: GR disregard.
+[^a]: [[Chastening|TG Chastening]].  
+[^b]: [[Authority|TG Authority]].  
+[^c]: GR disregard.  

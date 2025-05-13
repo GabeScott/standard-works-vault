@@ -5,4 +5,4 @@
 [Jeremiah 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.7?lang=eng#p7)
 
 
-[^a]: [[Ezekiel 16.46|Ezek. 16:46 (45-46, 61)]]; [[Ezekiel 23.2|23:2.]]
+[^a]: [[Ezekiel 16.45|Ezek. 16:46 (45–46, 61)]][[Ezekiel 16.46|]][[Ezekiel 16.61|]]; [[Ezekiel 23.2|23:2]].  

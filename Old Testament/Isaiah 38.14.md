@@ -5,4 +5,4 @@
 [Isaiah 38:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.14?lang=eng#p14)
 
 
-[^a]: HEB be my security.
+[^a]: HEB be my security.  

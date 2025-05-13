@@ -5,6 +5,6 @@
 [Isaiah 10:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.20?lang=eng#p20)
 
 
-[^a]: This prophecy extends to the latter days in the succeeding verse.
-[^b]: [[Isaiah 4.2|Isa. 4:2.]]
-[^c]: OR lean, rely upon. 2 Kgs. 16:7.
+[^a]: This prophecy extends to the latter days in the [[Isaiah 10.21|succeeding verse]].  
+[^b]: [[Isaiah 4.2|Isa. 4:2]].  
+[^c]: OR lean, rely upon. [[2 Kings 16.7|2 Kgs. 16:7]].  

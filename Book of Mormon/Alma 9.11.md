@@ -5,5 +5,5 @@
 [Alma 9:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Long-Suffering]].
-[^b]: [[Mosiah 16.11|Mosiah 16:11.]]
+[^a]: [[Long-Suffering|TG Long-Suffering]].  
+[^b]: [[Mosiah 16.11|Mosiah 16:11]].  

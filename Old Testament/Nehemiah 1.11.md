@@ -5,5 +5,5 @@
 [Nehemiah 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/1.11?lang=eng#p11)
 
 
-[^a]: OR reverence.
-[^b]: [[Genesis 24.12|Gen. 24:12.]]
+[^a]: OR reverence.  
+[^b]: [[Genesis 24.12|Gen. 24:12]].  

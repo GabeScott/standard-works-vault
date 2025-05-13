@@ -5,5 +5,5 @@
 [Jeremiah 36:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.2?lang=eng#p2)
 
 
-[^a]: [[Ezra 6.2|Ezra 6:2]]; [[Ezekiel 2.9|Ezek. 2:9.]]
-[^b]: [[Jeremiah 1.2|Jer. 1:2]]; [[Jeremiah 25.3|25:3.]]
+[^a]: [[Ezra 6.2|Ezra 6:2]]; [[Ezekiel 2.9|Ezek. 2:9]].  
+[^b]: [[Jeremiah 1.2|Jer. 1:2]]; [[Jeremiah 25.3|25:3]].  

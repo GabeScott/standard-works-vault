@@ -5,5 +5,5 @@
 [John 7:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.23?lang=eng#p23)
 
 
-[^a]: TG [[Sabbath]].
-[^b]: [[John 5.8|John 5:8 (8-9).]]
+[^a]: [[Sabbath|TG Sabbath]].  
+[^b]: [[John 5.8|John 5:8 (8–9)]][[John 5.9|]].  

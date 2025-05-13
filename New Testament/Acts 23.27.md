@@ -5,6 +5,6 @@
 [Acts 23:27](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.27?lang=eng#p27)
 
 
-[^a]: JST Acts 23:27 … would …
-[^b]: [[Acts 21.32|Acts 21:32.]]
-[^c]: [[Acts 22.25|Acts 22:25.]]
+[^a]: JST Acts 23:27 … would …  
+[^b]: [[Acts 21.32|Acts 21:32]].  
+[^c]: [[Acts 22.25|Acts 22:25]].  

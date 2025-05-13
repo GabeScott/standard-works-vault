@@ -5,4 +5,4 @@
 [Nehemiah 11:24](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/11.24?lang=eng#p24)
 
 
-[^a]: [[Genesis 38.30|Gen. 38:30.]]
+[^a]: [[Genesis 38.30|Gen. 38:30]].  

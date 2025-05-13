@@ -5,5 +5,5 @@
 [Abraham 1:26](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.26?lang=eng#p26)
 
 
-[^a]: TG [[Order]].
-[^b]: TG [[Israel, Blessings of]].
+[^a]: [[Order|TG Order]].  
+[^b]: [[Blessing|TG Blessing]].  

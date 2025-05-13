@@ -5,4 +5,4 @@
 [Alma 17:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p35#p35)
 
 
-[^a]: [[Mosiah 28.7|Mosiah 28:7]]; [[Alma 19.23|Alma 19:23 (22-23).]]
+[^a]: [[Mosiah 28.7|Mosiah 28:7]]; [[Alma 19.22|Alma 19:23 (22–23)]][[Alma 19.23|]].  

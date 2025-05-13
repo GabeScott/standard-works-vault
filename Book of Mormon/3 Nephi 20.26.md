@@ -5,5 +5,5 @@
 [3 Nephi 20:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p26#p26)
 
 
-[^a]: TG [[Israel, Blessings of]].
-[^b]: [[Proverbs 16.6|Prov. 16:6]]; [[Alma 19.33|Alma 19:33.]]
+[^a]: [[Israel, Blessings of|TG Israel, Blessings of]].  
+[^b]: [[Proverbs 16.6|Prov. 16:6]]; [[Alma 19.33|Alma 19:33]].  

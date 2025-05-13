@@ -5,4 +5,4 @@
 [Acts 12:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/12.3?lang=eng#p3)
 
 
-[^a]: TG [[Bread, Unleavened]].
+[^a]: [[Bread, Unleavened|TG Bread, Unleavened]].  

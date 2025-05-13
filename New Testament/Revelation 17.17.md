@@ -5,5 +5,5 @@
 [Revelation 17:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.17?lang=eng#p17)
 
 
-[^a]: Dan. 8:24.
-[^b]: [[D&C 1.37|D&C 1:37.]]
+[^a]: [[Daniel 8.24|Dan. 8:24]].  
+[^b]: [[D&C 1.37|D&C 1:37]].  

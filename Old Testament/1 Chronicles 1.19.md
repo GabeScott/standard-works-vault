@@ -5,4 +5,4 @@
 [1 Chronicles 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/1.19?lang=eng#p19)
 
 
-[^a]: TG [[Earth, Dividing of]].
+[^a]: [[Earth, Dividing of|TG Earth, Dividing of]].  

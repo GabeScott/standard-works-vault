@@ -5,5 +5,5 @@
 [Alma 63:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/63?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 18.36|Alma 18:36]]; [[3 Nephi 1.2|3 Ne. 1:2.]]
-[^b]: [[Alma 37.27|Alma 37:27 (27-32).]]
+[^a]: [[Alma 18.36|Alma 18:36]]; [[3 Nephi 1.2|3 Ne. 1:2]].  
+[^b]: [[Alma 37.27|Alma 37:27 (27–32)]][[Alma 37.28|]][[Alma 37.29|]][[Alma 37.30|]][[Alma 37.31|]][[Alma 37.32|]].  

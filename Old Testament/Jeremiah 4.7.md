@@ -5,5 +5,5 @@
 [Jeremiah 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.7?lang=eng#p7)
 
 
-[^a]: [[Jeremiah 49.19|Jer. 49:19.]]
-[^b]: TG [[Israel, Land of]].
+[^a]: [[Jeremiah 49.19|Jer. 49:19]].  
+[^b]: [[Israel, Land of|TG Israel, Land of]].  

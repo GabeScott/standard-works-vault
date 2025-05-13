@@ -5,8 +5,8 @@
 [Articles of Faith 1:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/a-of-f/1.6?lang=eng#p6)
 
 
-[^a]: TG [[Church Organization]].
-[^b]: TG [[Prophets, Mission of]].
-[^c]: TG [[Bishop]].
-[^d]: TG [[Teacher]]; [[Teacher]], Aaronic Priesthood.
-[^e]: TG [[Family, Patriarchal]].
+[^a]: [[Church Organization|TG Church Organization]].  
+[^b]: [[Prophets, Mission of|TG Prophets, Mission of]].  
+[^c]: [[Bishop|TG Bishop]].  
+[^d]: [[Teacher|TG Teacher]]; [[Teacher, Aaronic Priesthood|Teacher, Aaronic Priesthood]].  
+[^e]: [[Patriarch|TG Patriarch]].  

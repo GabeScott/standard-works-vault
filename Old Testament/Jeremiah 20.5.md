@@ -5,6 +5,6 @@
 [Jeremiah 20:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.5?lang=eng#p5)
 
 
-[^a]: HEB provision or goods.
-[^b]: [[Ezekiel 22.25|Ezek. 22:25.]]
-[^c]: [[2 Kings 24.12|2 Kgs. 24:12 (12-16)]]; [[2 Kings 25.13|25:13 (13-17).]]
+[^a]: HEB provision or goods.  
+[^b]: [[Ezekiel 22.25|Ezek. 22:25]].  
+[^c]: [[2 Kings 24.12|2 Kgs. 24:12 (12–16)]][[2 Kings 24.13|]][[2 Kings 24.14|]][[2 Kings 24.15|]][[2 Kings 24.16|]]; [[2 Kings 25.13|25:13 (13–17)]][[2 Kings 25.14|]][[2 Kings 25.15|]][[2 Kings 25.16|]][[2 Kings 25.17|]].  

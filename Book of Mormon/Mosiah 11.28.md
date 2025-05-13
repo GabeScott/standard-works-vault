@@ -5,4 +5,4 @@
 [Mosiah 11:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Provoking, Provoke]].
+[^a]: [[Provoking, Provoke|TG Provoking]].  

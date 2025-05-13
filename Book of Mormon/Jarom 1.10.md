@@ -5,4 +5,4 @@
 [Jarom 1:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/jarom/1?lang=eng&id=p10#p10)
 
 
-[^a]: [[1 Nephi 12.19|1 Ne. 12:19 (19-20)]]; [[Omni 1.5|Omni 1:5.]]
+[^a]: [[1 Nephi 12.19|1 Ne. 12:19 (19–20)]][[1 Nephi 12.20|]]; [[Omni 1.5|Omni 1:5]].  

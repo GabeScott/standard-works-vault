@@ -5,4 +5,4 @@
 [2 Nephi 5:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p30#p30)
 
 
-[^a]: [[1 Nephi 19.5|1 Ne. 19:5 (1-6)]]; [[Jacob 3.14|Jacob 3:14.]]
+[^a]: [[1 Nephi 19.1|1 Ne. 19:5 (1–6)]][[1 Nephi 19.2|]][[1 Nephi 19.3|]][[1 Nephi 19.4|]][[1 Nephi 19.5|]][[1 Nephi 19.6|]]; [[Jacob 3.14|Jacob 3:14]].  

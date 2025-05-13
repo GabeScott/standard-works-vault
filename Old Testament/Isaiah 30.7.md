@@ -5,4 +5,4 @@
 [Isaiah 30:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.7?lang=eng#p7)
 
 
-[^a]: Lam. 4:17.
+[^a]: [[Lamentations 4.17|Lam. 4:17]].  

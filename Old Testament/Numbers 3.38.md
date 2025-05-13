@@ -5,5 +5,5 @@
 [Numbers 3:38](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.38?lang=eng#p38)
 
 
-[^a]: [[Numbers 18.5|Num. 18:5 (2-7).]]
-[^b]: [[Numbers 1.51|Num. 1:51.]]
+[^a]: [[Numbers 18.2|Num. 18:5 (2–7)]][[Numbers 18.3|]][[Numbers 18.4|]][[Numbers 18.5|]][[Numbers 18.6|]][[Numbers 18.7|]].  
+[^b]: [[Numbers 1.51|Num. 1:51]].  

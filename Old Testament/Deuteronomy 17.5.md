@@ -5,5 +5,5 @@
 [Deuteronomy 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/17.5?lang=eng#p5)
 
 
-[^a]: [[Leviticus 20.4|Lev. 20:4.]]
-[^b]: TG [[Capital Punishment]].
+[^a]: [[Leviticus 20.4|Lev. 20:4]].  
+[^b]: [[Capital Punishment|TG Capital Punishment]].  

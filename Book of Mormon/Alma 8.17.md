@@ -5,4 +5,4 @@
 [Alma 8:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 1.1|Alma 1:1 (1, 14)]]. TG [[Commandments of God]].
+[^a]: [[Alma 1.1|Alma 1:1 (1, 14)]][[Alma 1.14|]]. [[Commandments of God|TG Commandments of God]].  

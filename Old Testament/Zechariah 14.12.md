@@ -5,5 +5,5 @@
 [Zechariah 14:12](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.12?lang=eng#p12)
 
 
-[^a]: [[D&C 29.18|D&C 29:18 (17-19).]]
-[^b]: TG [[Plague]].
+[^a]: [[D&C 29.17|D&C 29:18 (17–19)]][[D&C 29.18|]][[D&C 29.19|]].  
+[^b]: [[Plague|TG Plague]].  

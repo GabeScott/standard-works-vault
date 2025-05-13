@@ -5,4 +5,4 @@
 [1 Nephi 18:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p21#p21)
 
 
-[^a]: [[Jonah 1.6|Jonah 1:6.]]
+[^a]: [[Jonah 1.6|Jonah 1:6]].  

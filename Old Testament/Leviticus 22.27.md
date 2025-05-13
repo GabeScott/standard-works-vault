@@ -5,7 +5,7 @@
 [Leviticus 22:27](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.27?lang=eng#p27)
 
 
-[^a]: HEB born.
-[^b]: [[Exodus 22.30|Ex. 22:30.]]
-[^c]: HEB its mother.
-[^d]: [[Exodus 28.38|Ex. 28:38.]]
+[^a]: HEB born.  
+[^b]: [[Exodus 22.30|Ex. 22:30]].  
+[^c]: HEB its mother.  
+[^d]: [[Exodus 28.38|Ex. 28:38]].  

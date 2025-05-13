@@ -5,4 +5,4 @@
 [Leviticus 26:39](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.39?lang=eng#p39)
 
 
-[^a]: HEB decay or waste away.
+[^a]: HEB decay or waste away.  

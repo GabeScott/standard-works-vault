@@ -5,4 +5,4 @@
 [1 Kings 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.12?lang=eng#p12)
 
 
-[^a]: [[Ezekiel 37.1|Ezek. 37:1]]; [[1 Nephi 11.29|1 Ne. 11:29 (19, 29)]]; [[1 Nephi 14.30|14:30]]; [[Moses 6.64|Moses 6:64.]]
+[^a]: [[Ezekiel 37.1|Ezek. 37:1]]; [[1 Nephi 11.19|1 Ne. 11:29 (19, 29)]][[1 Nephi 11.29|]]; [[1 Nephi 14.30|14:30]]; [[Moses 6.64|Moses 6:64]].  

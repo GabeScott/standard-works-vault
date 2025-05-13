@@ -5,4 +5,4 @@
 [Psalms 62:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/62.9?lang=eng#p9)
 
 
-[^a]: TG [[Vanity]].
+[^a]: [[Vanity|TG Vanity]].  

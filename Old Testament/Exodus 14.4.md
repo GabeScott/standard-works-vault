@@ -5,7 +5,7 @@
 [Exodus 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.4?lang=eng#p4)
 
 
-[^a]: [[Exodus 14.4|JST Ex. 14:4 And Pharaoh will harden his heart …]]
-[^b]: OR by.
-[^c]: OR army (also vv. 17, 24, 28).
-[^d]: [[Exodus 7.5|Ex. 7:5.]]
+[^a]: JST Ex. 14:4 And Pharaoh will harden his heart …  
+[^b]: OR by.  
+[^c]: OR army (also [[Exodus 14.17|vv. 17, 24, 28]][[Exodus 14.24|]][[Exodus 14.28|]]).  
+[^d]: [[Exodus 7.5|Ex. 7:5]].  

@@ -5,4 +5,4 @@
 [Luke 16:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.10?lang=eng#p10)
 
 
-[^a]: [[Matthew 25.21|Matt. 25:21]]; [[D&C 51.19|D&C 51:19]]; 132:44, 53.
+[^a]: [[Matthew 25.21|Matt. 25:21]]; [[D&C 51.19|D&C 51:19]]; [[D&C 132.44|132:44, 53]][[D&C 132.53|]].  

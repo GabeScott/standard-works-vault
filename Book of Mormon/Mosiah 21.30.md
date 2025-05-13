@@ -5,5 +5,5 @@
 [Mosiah 21:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p30#p30)
 
 
-[^a]: [[Mosiah 17.13|Mosiah 17:13 (12-20).]]
-[^b]: [[Mosiah 18.34|Mosiah 18:34 (34-35).]]
+[^a]: [[Mosiah 17.12|Mosiah 17:13 (12–20)]][[Mosiah 17.13|]][[Mosiah 17.14|]][[Mosiah 17.15|]][[Mosiah 17.16|]][[Mosiah 17.17|]][[Mosiah 17.18|]][[Mosiah 17.19|]][[Mosiah 17.20|]].  
+[^b]: [[Mosiah 18.34|Mosiah 18:34 (34–35)]][[Mosiah 18.35|]].  

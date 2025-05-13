@@ -5,4 +5,4 @@
 [Acts 14:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.26?lang=eng#p26)
 
 
-[^a]: [[Acts 11.26|Acts 11:26 (25-26).]]
+[^a]: [[Acts 11.25|Acts 11:26 (25–26)]][[Acts 11.26|]].  

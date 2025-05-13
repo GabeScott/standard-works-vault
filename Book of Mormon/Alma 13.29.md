@@ -5,6 +5,6 @@
 [Alma 13:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p29#p29)
 
 
-[^a]: [[Alma 7.24|Alma 7:24.]]
-[^b]: [[Psalms 18.1|Ps. 18:1]]; [[D&C 20.31|D&C 20:31]]; [[D&C 76.116|76:116]]. TG [[God, Love of]].
-[^c]: [[D&C 84.24|D&C 84:24.]]
+[^a]: [[Alma 7.24|Alma 7:24]].  
+[^b]: [[Psalms 18.1|Ps. 18:1]]; [[D&C 20.31|D&C 20:31]]; [[D&C 76.116|76:116]]. [[God, Love of|TG God, Love of]].  
+[^c]: [[D&C 84.24|D&C 84:24]].  

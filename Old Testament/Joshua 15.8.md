@@ -5,4 +5,4 @@
 [Joshua 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.8?lang=eng#p8)
 
 
-[^a]: [[Joshua 15.63|Josh. 15:63]]; [[Joshua 18.28|18:28.]]
+[^a]: [[Joshua 15.63|Josh. 15:63]]; [[Joshua 18.28|18:28]].  

@@ -5,6 +5,6 @@
 [2 Nephi 4:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p17#p17)
 
 
-[^a]: [[Exodus 34.6|Ex. 34:6 (5-7)]]; [[2 Nephi 9.10|2 Ne. 9:10]]; [[D&C 86.11|D&C 86:11.]]
-[^b]: [[Romans 7.24|Rom. 7:24.]]
-[^c]: TG [[Poor in Spirit]]; [[Repent, Repentance]]; [[Sorrow]].
+[^a]: [[Exodus 34.5|Ex. 34:6 (5–7)]][[Exodus 34.6|]][[Exodus 34.7|]]; [[2 Nephi 9.10|2 Ne. 9:10]]; [[D&C 86.11|D&C 86:11]].  
+[^b]: [[Romans 7.24|Rom. 7:24]].  
+[^c]: [[Poor in Spirit|TG Poor in Spirit]]; [[Repent, Repentance|Repent]]; [[Sorrow|Sorrow]].  

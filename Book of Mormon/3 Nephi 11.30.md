@@ -5,4 +5,4 @@
 [3 Nephi 11:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p30#p30)
 
 
-[^a]: [[Mark 9.50|Mark 9:50]]; [[John 16.33|John 16:33.]]
+[^a]: [[Mark 9.50|Mark 9:50]]; [[John 16.33|John 16:33]].  

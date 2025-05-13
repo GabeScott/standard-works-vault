@@ -5,5 +5,5 @@
 [2 Nephi 9:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Judgment, the Last]].
-[^b]: [[Job 34.12|Job 34:12]]; [[Psalms 19.9|Ps. 19:9]]; [[2 Nephi 30.9|2 Ne. 30:9.]]
+[^a]: [[Judgment, the Last|TG Judgment, the Last]].  
+[^b]: [[Job 34.12|Job 34:12]]; [[Psalms 19.9|Ps. 19:9]]; [[2 Nephi 30.9|2 Ne. 30:9]].  

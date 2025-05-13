@@ -5,4 +5,4 @@
 [Numbers 30:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/30.4?lang=eng#p4)
 
 
-[^a]: OR pledge (also vv. 5, 7, 10-12).
+[^a]: OR pledge (also [[Numbers 30.5|vv. 5, 7, 10–12]][[Numbers 30.7|]][[Numbers 30.10|]][[Numbers 30.11|]][[Numbers 30.12|]]).  

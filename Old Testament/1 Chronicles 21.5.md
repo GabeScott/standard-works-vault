@@ -5,4 +5,4 @@
 [1 Chronicles 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.5?lang=eng#p5)
 
 
-[^a]: [[2 Samuel 24.9|2 Sam. 24:9.]]
+[^a]: [[2 Samuel 24.9|2 Sam. 24:9]].  

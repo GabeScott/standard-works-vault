@@ -5,6 +5,6 @@
 [Acts 8:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.12?lang=eng#p12)
 
 
-[^a]: TG [[Missionary Work]]; [[Preaching, Preach]].
-[^b]: TG [[Name of the Lord]].
-[^c]: TG [[Baptism, Essential]].
+[^a]: [[Missionary Work|TG Missionary Work]]; [[Preaching, Preach|Preaching]].  
+[^b]: [[Name|TG Name]].  
+[^c]: [[Baptism, Essential|TG Baptism, Essential]].  

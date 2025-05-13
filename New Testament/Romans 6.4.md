@@ -5,8 +5,8 @@
 [Romans 6:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.4?lang=eng#p4)
 
 
-[^a]: TG [[Baptism, Immersion]].
-[^b]: TG [[Holy Ghost, Baptism of]].
-[^c]: TG [[Jesus Christ, Death of]].
-[^d]: TG [[Walking with God]].
-[^e]: TG [[Baptism, Qualifications for]]; [[Man, New, Spiritually Reborn]].
+[^a]: [[Baptism, Immersion|TG Baptism, Immersion]].  
+[^b]: [[Baptism|TG Baptism]].  
+[^c]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  
+[^d]: [[Walking with God|TG Walking with God]].  
+[^e]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]]; [[Man, New, Spiritually Reborn|Man, New, Spiritually Reborn]].  

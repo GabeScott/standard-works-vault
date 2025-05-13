@@ -5,4 +5,4 @@
 [Ruth 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.3?lang=eng#p3)
 
 
-[^a]: OR chance, good fortune.
+[^a]: OR chance, good fortune.  

@@ -5,4 +5,4 @@
 [Ezekiel 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/10.2?lang=eng#p2)
 
 
-[^a]: [[Revelation 8.5|Rev. 8:5.]]
+[^a]: [[Revelation 8.5|Rev. 8:5]].  

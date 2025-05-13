@@ -5,4 +5,4 @@
 [Psalms 82:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/82.3?lang=eng#p3)
 
 
-[^a]: TG [[Citizenship]].
+[^a]: [[Citizenship|TG Citizenship]].  

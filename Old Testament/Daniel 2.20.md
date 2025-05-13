@@ -5,4 +5,4 @@
 [Daniel 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.20?lang=eng#p20)
 
 
-[^a]: Dan. 1:17.
+[^a]: [[Daniel 1.17|Dan. 1:17]].  

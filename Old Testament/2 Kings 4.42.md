@@ -5,4 +5,4 @@
 [2 Kings 4:42](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.42?lang=eng#p42)
 
 
-[^a]: [[1 Samuel 9.7|1 Sam. 9:7.]]
+[^a]: [[1 Samuel 9.7|1 Sam. 9:7]].  

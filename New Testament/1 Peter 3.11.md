@@ -5,6 +5,6 @@
 [1 Peter 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.11?lang=eng#p11)
 
 
-[^a]: GR turn away from, avoid.
-[^b]: TG [[Peacemakers]]; [[Peace of God]].
-[^c]: GR pursue, follow eagerly.
+[^a]: GR turn away from, avoid.  
+[^b]: [[Peacemakers|TG Peacemakers]]; [[Peace of God|Peace of God]].  
+[^c]: GR pursue, follow eagerly.  

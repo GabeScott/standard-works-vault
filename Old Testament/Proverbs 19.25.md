@@ -5,4 +5,4 @@
 [Proverbs 19:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.25?lang=eng#p25)
 
 
-[^a]: [[Proverbs 21.11|Prov. 21:11.]]
+[^a]: [[Proverbs 21.11|Prov. 21:11]].  

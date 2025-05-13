@@ -5,4 +5,4 @@
 [Mark 15:20](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.20?lang=eng#p20)
 
 
-[^a]: TG [[Mocking, Mock, Mocker, Mockery]].
+[^a]: [[Mocking, Mock, Mocker, Mockery|TG Mocking]].  

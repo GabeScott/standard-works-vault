@@ -5,4 +5,4 @@
 [Psalms 37:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.21?lang=eng#p21)
 
 
-[^a]: TG [[Borrow, Borrowing]]; [[Debt]].
+[^a]: [[Borrow, Borrowing|TG Borrow]]; [[Debt|Debt]].  

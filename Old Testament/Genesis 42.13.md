@@ -5,4 +5,4 @@
 [Genesis 42:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 37.30|Gen. 37:30.]]
+[^a]: [[Genesis 37.30|Gen. 37:30]].  

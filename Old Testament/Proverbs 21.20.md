@@ -5,5 +5,5 @@
 [Proverbs 21:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.20?lang=eng#p20)
 
 
-[^a]: TG [[Treasure]].
-[^b]: TG [[Waste]].
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[Waste|TG Waste]].  

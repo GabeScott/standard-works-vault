@@ -5,5 +5,5 @@
 [Exodus 25:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.33?lang=eng#p33)
 
 
-[^a]: IE crown-shaped circlets (also vv. 34-36).
-[^b]: OR thus shall be the …
+[^a]: IE crown-shaped circlets (also [[Exodus 25.34|vv. 34–36]][[Exodus 25.35|]][[Exodus 25.36|]]).  
+[^b]: OR thus shall be the …  

@@ -5,5 +5,5 @@
 [Judges 18:31](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.31?lang=eng#p31)
 
 
-[^a]: TG [[Genealogy and Temple Work]].
-[^b]: [[Psalms 78.60|Ps. 78:60.]]
+[^a]: [[Temple|TG Temple]].  
+[^b]: [[Psalms 78.60|Ps. 78:60]].  

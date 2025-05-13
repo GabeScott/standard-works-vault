@@ -5,5 +5,5 @@
 [Deuteronomy 25:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.3?lang=eng#p3)
 
 
-[^a]: [[2 Corinthians 11.24|2 Cor. 11:24.]]
-[^b]: OR degraded.
+[^a]: [[2 Corinthians 11.24|2 Cor. 11:24]].  
+[^b]: OR degraded.  

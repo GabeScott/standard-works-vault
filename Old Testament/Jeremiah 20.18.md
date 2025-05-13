@@ -5,4 +5,4 @@
 [Jeremiah 20:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.18?lang=eng#p18)
 
 
-[^a]: TG [[Sorrow]].
+[^a]: [[Sorrow|TG Sorrow]].  

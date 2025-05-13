@@ -5,4 +5,4 @@
 [Esther 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.19?lang=eng#p19)
 
 
-[^a]: [[Esther 8.8|Esth. 8:8.]]
+[^a]: [[Esther 8.8|Esth. 8:8]].  

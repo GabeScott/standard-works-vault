@@ -5,6 +5,6 @@
 [Colossians 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.13?lang=eng#p13)
 
 
-[^a]: [[D&C 21.6|D&C 21:6]]; [[D&C 38.11|38:11.]]
-[^b]: TG [[Kingdom of God, in Heaven]].
-[^c]: TG [[Jesus Christ, Divine Sonship]].
+[^a]: [[D&C 21.6|D&C 21:6]]; [[D&C 38.11|38:11]].  
+[^b]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  
+[^c]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  

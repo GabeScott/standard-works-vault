@@ -5,4 +5,4 @@
 [Ezekiel 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.7?lang=eng#p7)
 
 
-[^a]: [[Ezekiel 40.3|Ezek. 40:3.]]
+[^a]: [[Ezekiel 40.3|Ezek. 40:3]].  

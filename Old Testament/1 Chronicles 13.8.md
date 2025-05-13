@@ -5,4 +5,4 @@
 [1 Chronicles 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/13.8?lang=eng#p8)
 
 
-[^a]: [[D&C 25.12|D&C 25:12.]]
+[^a]: [[D&C 25.12|D&C 25:12]].  

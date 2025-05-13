@@ -5,5 +5,5 @@
 [James 2:17](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.17?lang=eng#p17)
 
 
-[^a]: 1 Thes. 1:3.
-[^b]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[1 Thessalonians 1.3|1 Thes. 1:3]].  
+[^b]: [[Obedience, Obedient, Obey|TG Obedience]].  

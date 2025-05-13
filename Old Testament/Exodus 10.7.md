@@ -5,5 +5,5 @@
 [Exodus 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.7?lang=eng#p7)
 
 
-[^a]: [[2 Nephi 18.14|2 Ne. 18:14]]; [[Mosiah 7.29|Mosiah 7:29.]]
-[^b]: OR ruined.
+[^a]: [[2 Nephi 18.14|2 Ne. 18:14]]; [[Mosiah 7.29|Mosiah 7:29]].  
+[^b]: OR ruined.  

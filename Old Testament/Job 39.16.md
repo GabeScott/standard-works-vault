@@ -5,4 +5,4 @@
 [Job 39:16](https://www.churchofjesuschrist.org/study/scriptures/ot/job/39.16?lang=eng#p16)
 
 
-[^a]: Lam. 4:3.
+[^a]: [[Lamentations 4.3|Lam. 4:3]].  

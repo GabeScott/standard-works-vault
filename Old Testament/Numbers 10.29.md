@@ -5,4 +5,4 @@
 [Numbers 10:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/10.29?lang=eng#p29)
 
 
-[^a]: [[Exodus 2.18|Ex. 2:18]]; [[D&C 84.6|D&C 84:6 (6-7).]]
+[^a]: [[Exodus 2.18|Ex. 2:18]]; [[D&C 84.6|D&C 84:6 (6–7)]][[D&C 84.7|]].  

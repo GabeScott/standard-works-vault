@@ -5,4 +5,4 @@
 [Philippians 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.15?lang=eng#p15)
 
 
-[^a]: [[Moroni 10.32|Moro. 10:32 (32-33).]]
+[^a]: [[Moroni 10.32|Moro. 10:32 (32–33)]][[Moroni 10.33|]].  

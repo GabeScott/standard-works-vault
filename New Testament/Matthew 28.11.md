@@ -5,5 +5,5 @@
 [Matthew 28:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.11?lang=eng#p11)
 
 
-[^a]: GR guard.
-[^b]: GR reported.
+[^a]: GR guard.  
+[^b]: GR reported.  

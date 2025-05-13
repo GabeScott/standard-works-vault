@@ -5,4 +5,4 @@
 [Ether 9:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p35#p35)
 
 
-[^a]: [[D&C 5.24|D&C 5:24.]]
+[^a]: [[D&C 5.24|D&C 5:24]].  

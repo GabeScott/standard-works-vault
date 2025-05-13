@@ -5,4 +5,4 @@
 [Ezekiel 40:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 1.3|Ezek. 1:3.]]
+[^a]: [[Ezekiel 1.3|Ezek. 1:3]].  

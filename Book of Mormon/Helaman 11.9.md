@@ -5,4 +5,4 @@
 [Helaman 11:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mormon 2.12|Morm. 2:12.]]
+[^a]: [[Mormon 2.12|Morm. 2:12]].  

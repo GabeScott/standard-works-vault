@@ -5,4 +5,4 @@
 [Joshua 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 18.2|Gen. 18:2.]]
+[^a]: [[Genesis 18.2|Gen. 18:2]].  

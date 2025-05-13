@@ -5,4 +5,4 @@
 [Ether 14:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/14?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[God, Indignation of]].
+[^a]: [[God, Indignation of|TG God, Indignation of]].  

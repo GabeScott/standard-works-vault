@@ -5,4 +5,4 @@
 [John 16:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.25?lang=eng#p25)
 
 
-[^a]: GR figurative discourse, similitudes.
+[^a]: GR figurative discourse, similitudes.  

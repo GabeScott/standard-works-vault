@@ -5,5 +5,5 @@
 [Deuteronomy 1:44](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.44?lang=eng#p44)
 
 
-[^a]: [[Psalms 118.12|Ps. 118:12.]]
-[^b]: HEB beat.
+[^a]: [[Psalms 118.12|Ps. 118:12]].  
+[^b]: HEB beat.  

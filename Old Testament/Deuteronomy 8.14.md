@@ -5,6 +5,6 @@
 [Deuteronomy 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.14?lang=eng#p14)
 
 
-[^a]: TG [[Pride]].
-[^b]: [[2 Kings 14.10|2 Kgs. 14:10.]]
-[^c]: TG [[Ingratitude]].
+[^a]: [[Pride|TG Pride]].  
+[^b]: [[2 Kings 14.10|2 Kgs. 14:10]].  
+[^c]: [[Ingratitude|TG Ingratitude]].  

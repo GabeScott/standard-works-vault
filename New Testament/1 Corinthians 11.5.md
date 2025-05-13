@@ -5,4 +5,4 @@
 [1 Corinthians 11:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.5?lang=eng#p5)
 
 
-[^a]: GR one and the same as.
+[^a]: GR one and the same as.  

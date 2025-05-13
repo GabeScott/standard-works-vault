@@ -5,4 +5,4 @@
 [Ecclesiastes 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.13?lang=eng#p13)
 
 
-[^a]: IE extreme folly.
+[^a]: IE extreme folly.  

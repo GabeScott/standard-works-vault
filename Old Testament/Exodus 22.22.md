@@ -5,4 +5,4 @@
 [Exodus 22:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.22?lang=eng#p22)
 
 
-[^a]: TG [[Widows]].
+[^a]: [[Widows|TG Widows]].  

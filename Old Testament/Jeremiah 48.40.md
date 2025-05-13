@@ -5,4 +5,4 @@
 [Jeremiah 48:40](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.40?lang=eng#p40)
 
 
-[^a]: [[Ezekiel 17.3|Ezek. 17:3.]]
+[^a]: [[Ezekiel 17.3|Ezek. 17:3]].  

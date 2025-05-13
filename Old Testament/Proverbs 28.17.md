@@ -5,5 +5,5 @@
 [Proverbs 28:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.17?lang=eng#p17)
 
 
-[^a]: [[Alma 1.13|Alma 1:13 (13-14).]]
-[^b]: OR flee to the sepulchre (grave); i.e., flee to death.
+[^a]: [[Alma 1.13|Alma 1:13 (13–14)]][[Alma 1.14|]].  
+[^b]: OR flee to the sepulchre (grave); i.e., flee to death.  

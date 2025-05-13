@@ -5,4 +5,4 @@
 [Deuteronomy 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.12?lang=eng#p12)
 
 
-[^a]: [[Alma 46.8|Alma 46:8 (8-9).]]
+[^a]: [[Alma 46.8|Alma 46:8 (8–9)]][[Alma 46.9|]].  

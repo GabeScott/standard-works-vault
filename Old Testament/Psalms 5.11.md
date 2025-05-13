@@ -5,4 +5,4 @@
 [Psalms 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/5.11?lang=eng#p11)
 
 
-[^a]: HEB sing.
+[^a]: HEB sing.  

@@ -5,5 +5,5 @@
 [Ezekiel 40:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.20?lang=eng#p20)
 
 
-[^a]: [[Ezekiel 42.1|Ezek. 42:1.]]
-[^b]: [[Ezekiel 44.4|Ezek. 44:4.]]
+[^a]: [[Ezekiel 42.1|Ezek. 42:1]].  
+[^b]: [[Ezekiel 44.4|Ezek. 44:4]].  

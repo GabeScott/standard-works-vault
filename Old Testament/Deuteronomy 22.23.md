@@ -5,4 +5,4 @@
 [Deuteronomy 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.23?lang=eng#p23)
 
 
-[^a]: HEB a man.
+[^a]: HEB a man.  

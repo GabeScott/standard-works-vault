@@ -5,8 +5,8 @@
 [Hebrews 9:14](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.14?lang=eng#p14)
 
 
-[^a]: TG [[Blood, Symbolism of]].
-[^b]: GR blameless.
-[^c]: [[Leviticus 1.3|Lev. 1:3]]; [[Leviticus 22.20|22:20.]]
-[^d]: TG [[Purification, Purify, Purifying]].
-[^e]: TG [[Conscience]].
+[^a]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  
+[^b]: GR blameless.  
+[^c]: [[Leviticus 1.3|Lev. 1:3]]; [[Leviticus 22.20|22:20]].  
+[^d]: [[Purification, Purify, Purifying|TG Purification]].  
+[^e]: [[Conscience|TG Conscience]].  

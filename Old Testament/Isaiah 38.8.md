@@ -5,5 +5,5 @@
 [Isaiah 38:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.8?lang=eng#p8)
 
 
-[^a]: [[2 Kings 20.10|2 Kgs. 20:10 (9-10).]]
-[^b]: [[Joshua 10.12|Josh. 10:12 (12-14).]]
+[^a]: [[2 Kings 20.9|2 Kgs. 20:10 (9–10)]][[2 Kings 20.10|]].  
+[^b]: [[Joshua 10.12|Josh. 10:12 (12–14)]][[Joshua 10.13|]][[Joshua 10.14|]].  

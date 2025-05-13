@@ -5,4 +5,4 @@
 [1 Nephi 3:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p26#p26)
 
 
-[^a]: [[1 Nephi 4.11|1 Ne. 4:11.]]
+[^a]: [[1 Nephi 4.11|1 Ne. 4:11]].  

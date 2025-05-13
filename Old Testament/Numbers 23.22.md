@@ -5,4 +5,4 @@
 [Numbers 23:22](https://www.churchofjesuschrist.org/study/scriptures/ot/num/23.22?lang=eng#p22)
 
 
-[^a]: HEB a wild ox.
+[^a]: HEB a wild ox.  

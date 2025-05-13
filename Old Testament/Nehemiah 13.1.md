@@ -5,5 +5,5 @@
 [Nehemiah 13:1](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.1?lang=eng#p1)
 
 
-[^a]: [[Exodus 17.14|Ex. 17:14]]; [[Moses 1.40|Moses 1:40.]]
-[^b]: [[Deuteronomy 23.3|Deut. 23:3 (3-5).]]
+[^a]: [[Exodus 17.14|Ex. 17:14]]; [[Moses 1.40|Moses 1:40]].  
+[^b]: [[Deuteronomy 23.3|Deut. 23:3 (3–5)]][[Deuteronomy 23.4|]][[Deuteronomy 23.5|]].  

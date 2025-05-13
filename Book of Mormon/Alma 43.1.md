@@ -5,4 +5,4 @@
 [Alma 43:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p1#p1)
 
 
-[^a]: [[Ether 12.2|Ether 12:2 (2-3).]]
+[^a]: [[Ether 12.2|Ether 12:2 (2–3)]][[Ether 12.3|]].  

@@ -5,4 +5,4 @@
 [Ezekiel 30:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/30.14?lang=eng#p14)
 
 
-[^a]: IE Thebes. Jer. 46:25; [[Nahum 3.8|Nahum 3:8.]]
+[^a]: IE Thebes. [[Jeremiah 46.25|Jer. 46:25]]; [[Nahum 3.8|Nahum 3:8]].  

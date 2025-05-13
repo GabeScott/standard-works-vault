@@ -5,6 +5,6 @@
 [Hebrews 11:5](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.5?lang=eng#p5)
 
 
-[^a]: [[Jude 1.14|Jude 1:14 (14-16).]]
-[^b]: TG [[Translated Beings]]; [[Zion, Sion]].
-[^c]: TG [[Testimony]].
+[^a]: [[Jude 1.14|Jude 1:14 (14–16)]][[Jude 1.15|]][[Jude 1.16|]].  
+[^b]: [[Translated Beings|TG Translated Beings]]; [[Zion, Sion|Zion]].  
+[^c]: [[Testimony|TG Testimony]].  

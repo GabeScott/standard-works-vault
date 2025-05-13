@@ -5,4 +5,4 @@
 [Psalms 150:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/150.4?lang=eng#p4)
 
 
-[^a]: HEB pipes, flutes.
+[^a]: HEB pipes, flutes.  

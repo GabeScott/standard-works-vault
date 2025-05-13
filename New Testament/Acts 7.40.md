@@ -5,4 +5,4 @@
 [Acts 7:40](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.40?lang=eng#p40)
 
 
-[^a]: Ex. 32:1, 23.
+[^a]: [[Exodus 32.1|Ex. 32:1, 23]][[Exodus 32.23|]].  

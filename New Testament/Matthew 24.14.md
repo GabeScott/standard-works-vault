@@ -5,6 +5,6 @@
 [Matthew 24:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.14?lang=eng#p14)
 
 
-[^a]: TG [[Gospel]]; Restoration of the [[Gospel]].
-[^b]: TG [[Kingdom of God, on Earth]].
-[^c]: [[D&C 29.23|D&C 29:23]]; [[D&C 43.31|43:31.]]
+[^a]: [[Gospel|TG Gospel]]; [[Restoration of the Gospel|Restoration of the Gospel]].  
+[^b]: [[Kingdom of God, on Earth|TG Kingdom of God, on Earth]].  
+[^c]: [[D&C 29.23|D&C 29:23]]; [[D&C 43.31|43:31]].  

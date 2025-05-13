@@ -5,7 +5,7 @@
 [2 Nephi 24:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Promised Lands]].
-[^b]: [[Amos 9.12|Amos 9:12.]]
-[^c]: [[Isaiah 60.14|Isa. 60:14 (10-12, 14).]]
-[^d]: TG [[Kingdom of God, on Earth]].
+[^a]: [[Promised Lands|TG Promised Lands]].  
+[^b]: [[Amos 9.12|Amos 9:12]].  
+[^c]: [[Isaiah 60.10|Isa. 60:14 (10–12, 14)]][[Isaiah 60.11|]][[Isaiah 60.12|]][[Isaiah 60.14|]].  
+[^d]: [[Kingdom of God, on Earth|TG Kingdom of God, on Earth]].  

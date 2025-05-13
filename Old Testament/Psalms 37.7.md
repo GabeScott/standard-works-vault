@@ -5,4 +5,4 @@
 [Psalms 37:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.7?lang=eng#p7)
 
 
-[^a]: TG [[Patience, Patient, Patiently]].
+[^a]: [[Patience, Patient, Patiently|TG Patience]].  

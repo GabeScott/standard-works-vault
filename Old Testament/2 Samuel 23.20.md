@@ -5,4 +5,4 @@
 [2 Samuel 23:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/23.20?lang=eng#p20)
 
 
-[^a]: [[1 Chronicles 27.6|1 Chr. 27:6.]]
+[^a]: [[1 Chronicles 27.6|1 Chr. 27:6]].  

@@ -5,4 +5,4 @@
 [Acts 20:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.26?lang=eng#p26)
 
 
-[^a]: [[Jacob 1.19|Jacob 1:19.]]
+[^a]: [[Jacob 1.19|Jacob 1:19]].  

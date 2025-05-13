@@ -5,5 +5,5 @@
 [Ether 11:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p13#p13)
 
 
-[^a]: [[Jeremiah 44.16|Jer. 44:16]]; [[Mosiah 16.2|Mosiah 16:2.]]
-[^b]: TG [[Mourning, Mourn]].
+[^a]: [[Jeremiah 44.16|Jer. 44:16]]; [[Mosiah 16.2|Mosiah 16:2]].  
+[^b]: [[Mourning, Mourn|TG Mourning]].  

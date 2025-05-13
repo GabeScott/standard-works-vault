@@ -5,4 +5,4 @@
 [Alma 51:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 4.16|Alma 4:16]]; [[Helaman 1.5|Hel. 1:5.]]
+[^a]: [[Alma 4.16|Alma 4:16]]; [[Helaman 1.5|Hel. 1:5]].  

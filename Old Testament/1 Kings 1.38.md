@@ -5,5 +5,5 @@
 [1 Kings 1:38](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/1.38?lang=eng#p38)
 
 
-[^a]: [[1 Samuel 30.14|1 Sam. 30:14.]]
-[^b]: [[2 Samuel 8.18|2 Sam. 8:18.]]
+[^a]: [[1 Samuel 30.14|1 Sam. 30:14]].  
+[^b]: [[2 Samuel 8.18|2 Sam. 8:18]].  

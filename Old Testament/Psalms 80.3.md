@@ -5,4 +5,4 @@
 [Psalms 80:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/80.3?lang=eng#p3)
 
 
-[^a]: Lam. 5:21.
+[^a]: [[Lamentations 5.21|Lam. 5:21]].  

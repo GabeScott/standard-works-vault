@@ -5,5 +5,5 @@
 [1 Kings 8:48](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.48?lang=eng#p48)
 
 
-[^a]: [[Jeremiah 29.12|Jer. 29:12 (12-14).]]
-[^b]: [[Psalms 5.7|Ps. 5:7]]; Dan. 6:10.
+[^a]: [[Jeremiah 29.12|Jer. 29:12 (12–14)]][[Jeremiah 29.13|]][[Jeremiah 29.14|]].  
+[^b]: [[Psalms 5.7|Ps. 5:7]]; [[Daniel 6.10|Dan. 6:10]].  

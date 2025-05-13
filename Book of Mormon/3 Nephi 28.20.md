@@ -5,4 +5,4 @@
 [3 Nephi 28:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p20#p20)
 
 
-[^a]: [[1 Nephi 7.17|1 Ne. 7:17 (17-18)]]; [[Jacob 4.6|Jacob 4:6.]]
+[^a]: [[1 Nephi 7.17|1 Ne. 7:17 (17–18)]][[1 Nephi 7.18|]]; [[Jacob 4.6|Jacob 4:6]].  

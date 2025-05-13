@@ -5,5 +5,5 @@
 [Amos 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/1.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 23.1|Isa. 23:1]]; [[Ezekiel 26.2|Ezek. 26:2.]]
-[^b]: TG [[Brotherhood and Sisterhood]].
+[^a]: [[Isaiah 23.1|Isa. 23:1]]; [[Ezekiel 26.2|Ezek. 26:2]].  
+[^b]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  

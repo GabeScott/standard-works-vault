@@ -5,4 +5,4 @@
 [Alma 28:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/28?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 30.1|Alma 30:1.]]
+[^a]: [[Alma 30.1|Alma 30:1]].  

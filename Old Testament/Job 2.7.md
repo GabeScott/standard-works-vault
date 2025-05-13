@@ -5,5 +5,5 @@
 [Job 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/2.7?lang=eng#p7)
 
 
-[^a]: TG [[Suffering]].
-[^b]: [[Isaiah 38.21|Isa. 38:21.]]
+[^a]: [[Suffering|TG Suffering]].  
+[^b]: [[Isaiah 38.21|Isa. 38:21]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 35:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/35.18?lang=eng#p18)
 
 
-[^a]: [[2 Kings 23.22|2 Kgs. 23:22.]]
+[^a]: [[2 Kings 23.22|2 Kgs. 23:22]].  

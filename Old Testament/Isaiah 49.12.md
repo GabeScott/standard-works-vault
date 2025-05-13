@@ -5,4 +5,4 @@
 [Isaiah 49:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.12?lang=eng#p12)
 
 
-[^a]: TG [[Israel, Ten Lost Tribes of]].
+[^a]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  

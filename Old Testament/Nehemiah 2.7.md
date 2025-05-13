@@ -5,4 +5,4 @@
 [Nehemiah 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/2.7?lang=eng#p7)
 
 
-[^a]: IE on the west side of the Euphrates River.
+[^a]: IE on the west side of the Euphrates River.  

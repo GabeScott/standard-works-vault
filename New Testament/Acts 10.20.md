@@ -5,4 +5,4 @@
 [Acts 10:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.20?lang=eng#p20)
 
 
-[^a]: [[Acts 15.7|Acts 15:7.]]
+[^a]: [[Acts 15.7|Acts 15:7]].  

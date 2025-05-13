@@ -5,4 +5,4 @@
 [Proverbs 25:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.2?lang=eng#p2)
 
 
-[^a]: [[Romans 11.33|Rom. 11:33]]; [[D&C 5.3|D&C 5:3.]]
+[^a]: [[Romans 11.33|Rom. 11:33]]; [[D&C 5.3|D&C 5:3]].  

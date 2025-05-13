@@ -5,4 +5,4 @@
 [Numbers 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/4.16?lang=eng#p16)
 
 
-[^a]: HEB continual cereal offering.
+[^a]: HEB continual cereal offering.  

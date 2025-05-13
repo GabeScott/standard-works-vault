@@ -5,4 +5,4 @@
 [Genesis 21:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 18.12|Gen. 18:12 (11-12).]]
+[^a]: [[Genesis 18.11|Gen. 18:12 (11–12)]][[Genesis 18.12|]].  

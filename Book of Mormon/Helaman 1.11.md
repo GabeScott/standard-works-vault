@@ -5,4 +5,4 @@
 [Helaman 1:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p11#p11)
 
 
-[^a]: [[Genesis 24.3|Gen. 24:3]]; [[Ether 8.14|Ether 8:14 (13-14).]]
+[^a]: [[Genesis 24.3|Gen. 24:3]]; [[Ether 8.13|Ether 8:14 (13–14)]][[Ether 8.14|]].  

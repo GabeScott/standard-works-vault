@@ -5,4 +5,4 @@
 [Psalms 22:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.19?lang=eng#p19)
 
 
-[^a]: TG [[Haste, Hasten, Hasty]].
+[^a]: [[Haste, Hasten, Hasty|TG Haste]].  

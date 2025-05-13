@@ -5,4 +5,4 @@
 [Isaiah 34:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/34.9?lang=eng#p9)
 
 
-[^a]: IE of Edom.
+[^a]: IE of Edom.  

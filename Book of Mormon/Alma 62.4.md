@@ -5,5 +5,5 @@
 [Alma 62:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p4#p4)
 
 
-[^a]: [[Alma 46.36|Alma 46:36 (12-13, 36).]]
-[^b]: TG [[Liberty]].
+[^a]: [[Alma 46.12|Alma 46:36 (12–13, 36)]][[Alma 46.13|]][[Alma 46.36|]].  
+[^b]: [[Liberty|TG Liberty]].  

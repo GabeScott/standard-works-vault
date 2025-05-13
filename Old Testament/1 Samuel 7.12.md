@@ -5,5 +5,5 @@
 [1 Samuel 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/7.12?lang=eng#p12)
 
 
-[^a]: [[Joshua 24.26|Josh. 24:26.]]
-[^b]: IE The stone of help. 1 Sam. 4:1; 5:1.
+[^a]: [[Joshua 24.26|Josh. 24:26]].  
+[^b]: IE The stone of help. [[1 Samuel 4.1|1 Sam. 4:1]]; [[1 Samuel 5.1|5:1]].  

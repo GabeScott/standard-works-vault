@@ -5,5 +5,5 @@
 [Ruth 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.4?lang=eng#p4)
 
 
-[^a]: [[Leviticus 25.25|Lev. 25:25.]]
-[^b]: TG [[Redemption]].
+[^a]: [[Leviticus 25.25|Lev. 25:25]].  
+[^b]: [[Redemption|TG Redemption]].  

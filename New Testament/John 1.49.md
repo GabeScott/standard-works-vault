@@ -5,5 +5,5 @@
 [John 1:49](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.49?lang=eng#p49)
 
 
-[^a]: TG [[God, Body of, Corporeal Nature]].
-[^b]: TG [[Jesus Christ, Messiah]].
+[^a]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  
+[^b]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  

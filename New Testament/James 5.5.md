@@ -5,4 +5,4 @@
 [James 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.5?lang=eng#p5)
 
 
-[^a]: GR luxuriously, delicately.
+[^a]: GR luxuriously, delicately.  

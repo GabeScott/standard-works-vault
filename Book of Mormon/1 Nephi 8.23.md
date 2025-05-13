@@ -5,5 +5,5 @@
 [1 Nephi 8:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p23#p23)
 
 
-[^a]: [[Matthew 13.19|Matt. 13:19 (18-19)]]; 2 Pet. 2:17; [[1 Nephi 12.17|1 Ne. 12:17]]; [[1 Nephi 15.24|15:24 (23-24).]]
-[^b]: TG [[Apostasy of Individuals]].
+[^a]: [[Matthew 13.18|Matt. 13:19 (18–19)]][[Matthew 13.19|]]; [[2 Peter 2.17|2 Pet. 2:17]]; [[1 Nephi 12.17|1 Ne. 12:17]]; [[1 Nephi 15.23|15:24 (23–24)]][[1 Nephi 15.24|]].  
+[^b]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  

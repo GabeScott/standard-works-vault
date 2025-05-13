@@ -5,4 +5,4 @@
 [Jeremiah 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.23?lang=eng#p23)
 
 
-[^a]: HEB pitied.
+[^a]: HEB pitied.  

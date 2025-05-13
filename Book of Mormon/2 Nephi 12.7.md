@@ -5,4 +5,4 @@
 [2 Nephi 12:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Treasure]].
+[^a]: [[Treasure|TG Treasure]].  

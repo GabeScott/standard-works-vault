@@ -5,5 +5,5 @@
 [Romans 7:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.23?lang=eng#p23)
 
 
-[^a]: [[Alma 13.28|Alma 13:28.]]
-[^b]: TG [[Bondage, Spiritual]].
+[^a]: [[Alma 13.28|Alma 13:28]].  
+[^b]: [[Bondage, Spiritual|TG Bondage, Spiritual]].  

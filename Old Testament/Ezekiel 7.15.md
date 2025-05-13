@@ -5,4 +5,4 @@
 [Ezekiel 7:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.15?lang=eng#p15)
 
 
-[^a]: [[Deuteronomy 32.25|Deut. 32:25]]; Lam. 1:20.
+[^a]: [[Deuteronomy 32.25|Deut. 32:25]]; [[Lamentations 1.20|Lam. 1:20]].  

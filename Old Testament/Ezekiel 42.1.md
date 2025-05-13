@@ -5,5 +5,5 @@
 [Ezekiel 42:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/42.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 40.20|Ezek. 40:20.]]
-[^b]: OR opposite.
+[^a]: [[Ezekiel 40.20|Ezek. 40:20]].  
+[^b]: OR opposite.  

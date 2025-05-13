@@ -5,4 +5,4 @@
 [Proverbs 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.8?lang=eng#p8)
 
 
-[^a]: TG [[Understanding]].
+[^a]: [[Understanding|TG Understanding]].  

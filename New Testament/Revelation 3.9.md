@@ -5,4 +5,4 @@
 [Revelation 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 49.23|Isa. 49:23]]; [[Isaiah 60.14|60:14]]. TG [[Assembly for Worship]].
+[^a]: [[Isaiah 49.23|Isa. 49:23]]; [[Isaiah 60.14|60:14]]. [[Worship|TG Worship]].  

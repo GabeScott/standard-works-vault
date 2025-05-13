@@ -5,5 +5,5 @@
 [Daniel 10:21](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/10.21?lang=eng#p21)
 
 
-[^a]: IE But I will tell you what is inscribed in the writing of truth: No one supports me against them (Persia and Grecia, which is Macedonia) except Michael your prince.
-[^b]: TG [[Angels]].
+[^a]: IE But I will tell you what is inscribed in the writing of truth: No one supports me against them (Persia and Grecia, which is Macedonia) except Michael your prince.  
+[^b]: [[Angels|TG Angels]].  

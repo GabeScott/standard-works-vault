@@ -5,4 +5,4 @@
 [1 Kings 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.10?lang=eng#p10)
 
 
-[^a]: [[Ecclesiastes 2.8|Eccl. 2:8.]]
+[^a]: [[Ecclesiastes 2.8|Eccl. 2:8]].  

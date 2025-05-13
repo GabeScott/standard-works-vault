@@ -5,4 +5,4 @@
 [John 19:33](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.33?lang=eng#p33)
 
 
-[^a]: TG [[Jesus Christ, Types of, in Anticipation]]; [[Passover]].
+[^a]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]]; [[Passover|Passover]].  

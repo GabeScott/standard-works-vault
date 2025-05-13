@@ -5,4 +5,4 @@
 [Acts 4:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.19?lang=eng#p19)
 
 
-[^a]: [[D&C 3.7|D&C 3:7.]]
+[^a]: [[D&C 3.7|D&C 3:7]].  

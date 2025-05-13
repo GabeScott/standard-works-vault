@@ -5,11 +5,11 @@
 [D&C 4:6](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/4.6?lang=eng#p6)
 
 
-[^a]: TG [[Chastity, Chaste]]; [[Virtue, Virtuous]].
-[^b]: TG [[Temperance, Temperate]].
-[^c]: TG [[Patience, Patient, Patiently]].
-[^d]: TG [[Brotherhood and Sisterhood]].
-[^e]: TG [[Benevolence]]; [[Courtesy]]; [[Kindness]].
-[^f]: TG [[Mysteries of Godliness]].
-[^g]: TG [[Humility, Humble]]; [[Meek, Meekness]]; [[Poor in Spirit]].
-[^h]: TG [[Diligence, Diligent, Diligently]].
+[^a]: [[Chastity, Chaste|TG Chastity]]; [[Virtue, Virtuous|Virtue]].  
+[^b]: [[Temperance, Temperate|TG Temperance]].  
+[^c]: [[Patience, Patient, Patiently|TG Patience]].  
+[^d]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  
+[^e]: [[Benevolence|TG Benevolence]]; [[Courtesy|Courtesy]]; [[Kindness|Kindness]].  
+[^f]: [[Godliness, Godly|TG Godliness]].  
+[^g]: [[Humility, Humble|TG Humility]]; [[Meek, Meekness|Meek]]; [[Poor in Spirit|Poor in Spirit]].  
+[^h]: [[Diligence, Diligent, Diligently|TG Diligence]].  

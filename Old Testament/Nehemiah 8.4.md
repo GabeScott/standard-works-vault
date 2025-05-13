@@ -5,4 +5,4 @@
 [Nehemiah 8:4](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.4?lang=eng#p4)
 
 
-[^a]: [[Mosiah 2.7|Mosiah 2:7 (7-8).]]
+[^a]: [[Mosiah 2.7|Mosiah 2:7 (7–8)]][[Mosiah 2.8|]].  

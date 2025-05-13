@@ -5,5 +5,5 @@
 [Acts 23:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.5?lang=eng#p5)
 
 
-[^a]: OR knew.
-[^b]: TG [[Citizenship]].
+[^a]: OR knew.  
+[^b]: [[Citizenship|TG Citizenship]].  

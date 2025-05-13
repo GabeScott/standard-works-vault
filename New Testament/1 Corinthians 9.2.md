@@ -5,4 +5,4 @@
 [1 Corinthians 9:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.2?lang=eng#p2)
 
 
-[^a]: GR certification, proof, token. 2 Cor. 3:2.
+[^a]: GR certification, proof, token. [[2 Corinthians 3.2|2 Cor. 3:2]].  

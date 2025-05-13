@@ -5,5 +5,5 @@
 [Psalms 85:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/85.8?lang=eng#p8)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: 2 Pet. 2:20; [[D&C 42.26|D&C 42:26.]]
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: [[2 Peter 2.20|2 Pet. 2:20]]; [[D&C 42.26|D&C 42:26]].  

@@ -5,5 +5,5 @@
 [Zephaniah 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.7?lang=eng#p7)
 
 
-[^a]: Hab. 2:20.
-[^b]: TG [[Day of the Lord]].
+[^a]: [[Habakkuk 2.20|Hab. 2:20]].  
+[^b]: [[Day of the Lord|TG Day of the Lord]].  

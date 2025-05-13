@@ -5,4 +5,4 @@
 [Psalms 145:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/145.13?lang=eng#p13)
 
 
-[^a]: TG [[Immortality, Immortal]].
+[^a]: [[Immortality, Immortal|TG Immortality]].  

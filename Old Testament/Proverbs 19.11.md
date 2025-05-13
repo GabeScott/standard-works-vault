@@ -5,7 +5,7 @@
 [Proverbs 19:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.11?lang=eng#p11)
 
 
-[^a]: TG [[Rashness]].
-[^b]: TG [[Anger]].
-[^c]: TG [[Telestial Glory]].
-[^d]: TG [[Transgressor]].
+[^a]: [[Rashness|TG Rashness]].  
+[^b]: [[Anger|TG Anger]].  
+[^c]: [[Glory|TG Glory]].  
+[^d]: [[Transgress, Transgression|TG Transgress]].  

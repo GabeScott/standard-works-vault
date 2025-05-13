@@ -5,4 +5,4 @@
 [Haggai 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.3?lang=eng#p3)
 
 
-[^a]: [[Ezra 3.12|Ezra 3:12 (11-13).]]
+[^a]: [[Ezra 3.11|Ezra 3:12 (11–13)]][[Ezra 3.12|]][[Ezra 3.13|]].  

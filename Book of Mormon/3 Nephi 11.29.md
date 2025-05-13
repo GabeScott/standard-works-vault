@@ -5,5 +5,5 @@
 [3 Nephi 11:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p29#p29)
 
 
-[^a]: 2 Tim. 2:24 (23-24); [[Mosiah 23.15|Mosiah 23:15]]. TG [[Contention]].
-[^b]: [[Ephesians 4.27|Eph. 4:27 (26-27)]]; [[Mosiah 2.32|Mosiah 2:32 (32-33)]]; [[Alma 2.5|Alma 2:5]]; [[Alma 45.23|45:23]]; [[Helaman 4.1|Hel. 4:1.]]
+[^a]: [[2 Timothy 2.23|2 Tim. 2:24 (23–24)]][[2 Timothy 2.24|]]; [[Mosiah 23.15|Mosiah 23:15]]. [[Contention|TG Contention]].  
+[^b]: [[Ephesians 4.26|Eph. 4:27 (26–27)]][[Ephesians 4.27|]]; [[Mosiah 2.32|Mosiah 2:32 (32–33)]][[Mosiah 2.33|]]; [[Alma 2.5|Alma 2:5]]; [[Alma 45.23|45:23]]; [[Helaman 4.1|Hel. 4:1]].  

@@ -5,4 +5,4 @@
 [Joshua 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.14?lang=eng#p14)
 
 
-[^a]: [[Numbers 18.20|Num. 18:20.]]
+[^a]: [[Numbers 18.20|Num. 18:20]].  

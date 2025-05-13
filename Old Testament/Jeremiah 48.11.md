@@ -5,5 +5,5 @@
 [Jeremiah 48:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.11?lang=eng#p11)
 
 
-[^a]: HEB relaxed his guard.
-[^b]: Zeph. 1:12.
+[^a]: HEB relaxed his guard.  
+[^b]: [[Zephaniah 1.12|Zeph. 1:12]].  

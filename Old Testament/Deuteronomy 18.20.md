@@ -5,5 +5,5 @@
 [Deuteronomy 18:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.20?lang=eng#p20)
 
 
-[^a]: TG [[False Prophets]].
-[^b]: [[Zechariah 10.2|Zech. 10:2.]]
+[^a]: [[False Prophets|TG False Prophets]].  
+[^b]: [[Zechariah 10.2|Zech. 10:2]].  

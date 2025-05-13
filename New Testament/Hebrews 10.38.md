@@ -5,4 +5,4 @@
 [Hebrews 10:38](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.38?lang=eng#p38)
 
 
-[^a]: TG [[Apostasy of Individuals]].
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  

@@ -5,5 +5,5 @@
 [Daniel 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.5?lang=eng#p5)
 
 
-[^a]: Persian: sure with me; i.e., he knew his dream and desired to test them. See vv. 8-9.
-[^b]: Dan. 3:29.
+[^a]: Persian: sure with me; i.e., he knew his dream and desired to test them. See [[Daniel 2.8|vv. 8–9]][[Daniel 2.9|]].  
+[^b]: [[Daniel 3.29|Dan. 3:29]].  

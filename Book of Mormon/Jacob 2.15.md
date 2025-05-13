@@ -5,4 +5,4 @@
 [Jacob 2:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[God, Indignation of]]; [[God, Omniscience of]].
+[^a]: [[God, Indignation of|TG God, Indignation of]]; [[God, Omniscience of|God, Omniscience of]].  

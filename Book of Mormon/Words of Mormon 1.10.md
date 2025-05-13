@@ -5,6 +5,6 @@
 [Words of Mormon 1:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/w-of-m/1?lang=eng&id=p10#p10)
 
 
-[^a]: [[Omni 1.25|Omni 1:25 (25, 30).]]
-[^b]: [[1 Nephi 9.4|1 Ne. 9:4]]; Omni 1:11, 18; W of M 1:3; [[Mosiah 28.11|Mosiah 28:11.]]
-[^c]: [[Jarom 1.14|Jarom 1:14.]]
+[^a]: [[Omni 1.25|Omni 1:25 (25, 30)]][[Omni 1.30|]].  
+[^b]: [[1 Nephi 9.4|1 Ne. 9:4]]; [[Omni 1.11|Omni 1:11, 18]][[Omni 1.18|]]; [[Words of Mormon 1.3|W of M 1:3]]; [[Mosiah 28.11|Mosiah 28:11]].  
+[^c]: [[Jarom 1.14|Jarom 1:14]].  

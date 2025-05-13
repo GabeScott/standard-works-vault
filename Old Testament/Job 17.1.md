@@ -5,4 +5,4 @@
 [Job 17:1](https://www.churchofjesuschrist.org/study/scriptures/ot/job/17.1?lang=eng#p1)
 
 
-[^a]: HEB spirit is consumed.
+[^a]: HEB spirit is consumed.  

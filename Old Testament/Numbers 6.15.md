@@ -5,5 +5,5 @@
 [Numbers 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.15?lang=eng#p15)
 
 
-[^a]: TG [[Bread, Unleavened]].
-[^b]: OR meal or cereal (also v. 17).
+[^a]: [[Bread, Unleavened|TG Bread, Unleavened]].  
+[^b]: OR meal or cereal (also [[Numbers 6.17|v. 17]]).  

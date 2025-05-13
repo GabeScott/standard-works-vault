@@ -5,4 +5,4 @@
 [Alma 47:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/47?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 47.16|Alma 47:16 (16, 21).]]
+[^a]: [[Alma 47.16|Alma 47:16 (16, 21)]][[Alma 47.21|]].  

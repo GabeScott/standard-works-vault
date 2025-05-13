@@ -5,6 +5,6 @@
 [Zephaniah 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.20?lang=eng#p20)
 
 
-[^a]: [[Isaiah 63.4|Isa. 63:4.]]
-[^b]: [[Isaiah 62.7|Isa. 62:7.]]
-[^c]: [[Deuteronomy 30.3|Deut. 30:3 (1-5)]]; Zeph. 2:7.
+[^a]: [[Isaiah 63.4|Isa. 63:4]].  
+[^b]: [[Isaiah 62.7|Isa. 62:7]].  
+[^c]: [[Deuteronomy 30.1|Deut. 30:3 (1–5)]][[Deuteronomy 30.2|]][[Deuteronomy 30.3|]][[Deuteronomy 30.4|]][[Deuteronomy 30.5|]]; [[Zephaniah 2.7|Zeph. 2:7]].  

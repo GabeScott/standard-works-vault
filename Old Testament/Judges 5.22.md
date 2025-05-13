@@ -5,4 +5,4 @@
 [Judges 5:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.22?lang=eng#p22)
 
 
-[^a]: OR Then did the horse hooves stamp.
+[^a]: OR Then did the horse hooves stamp.  

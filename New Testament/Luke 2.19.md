@@ -5,4 +5,4 @@
 [Luke 2:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.19?lang=eng#p19)
 
 
-[^a]: TG [[Meditation, Meditate]].
+[^a]: [[Meditation, Meditate|TG Meditation]].  

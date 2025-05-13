@@ -5,4 +5,4 @@
 [Judges 4:18](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.18?lang=eng#p18)
 
 
-[^a]: HEB rug, thick coverlet, or blanket.
+[^a]: HEB rug, thick coverlet, or blanket.  

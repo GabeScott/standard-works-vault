@@ -5,4 +5,4 @@
 [2 Nephi 12:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p13#p13)
 
 
-[^a]: [[Isaiah 37.24|Isa. 37:24]]; [[Ezekiel 31.3|Ezek. 31:3]]; [[Zechariah 11.1|Zech. 11:1 (1-2).]]
+[^a]: [[Isaiah 37.24|Isa. 37:24]]; [[Ezekiel 31.3|Ezek. 31:3]]; [[Zechariah 11.1|Zech. 11:1 (1–2)]][[Zechariah 11.2|]].  

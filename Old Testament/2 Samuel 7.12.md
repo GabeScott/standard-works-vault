@@ -5,4 +5,4 @@
 [2 Samuel 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.12?lang=eng#p12)
 
 
-[^a]: [[1 Kings 2.4|1 Kgs. 2:4]]; [[1 Kings 8.19|8:19 (19-20)]]; [[2 Chronicles 23.3|2 Chr. 23:3.]]
+[^a]: [[1 Kings 2.4|1 Kgs. 2:4]]; [[1 Kings 8.19|8:19 (19–20)]][[1 Kings 8.20|]]; [[2 Chronicles 23.3|2 Chr. 23:3]].  

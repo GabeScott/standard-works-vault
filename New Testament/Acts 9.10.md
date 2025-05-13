@@ -5,5 +5,5 @@
 [Acts 9:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.10?lang=eng#p10)
 
 
-[^a]: [[Acts 22.12|Acts 22:12.]]
-[^b]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^a]: [[Acts 22.12|Acts 22:12]].  
+[^b]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  

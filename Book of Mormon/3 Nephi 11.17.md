@@ -5,4 +5,4 @@
 [3 Nephi 11:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Assembly for Worship]].
+[^a]: [[Worship|TG Worship]].  

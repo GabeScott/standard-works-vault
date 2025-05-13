@@ -5,4 +5,4 @@
 [2 Chronicles 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/1.17?lang=eng#p17)
 
 
-[^a]: HEB Aram.
+[^a]: HEB Aram.  

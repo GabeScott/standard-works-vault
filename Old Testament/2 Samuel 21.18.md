@@ -5,4 +5,4 @@
 [2 Samuel 21:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/21.18?lang=eng#p18)
 
 
-[^a]: [[1 Chronicles 20.4|1 Chr. 20:4 (4-8).]]
+[^a]: [[1 Chronicles 20.4|1 Chr. 20:4 (4–8)]][[1 Chronicles 20.5|]][[1 Chronicles 20.6|]][[1 Chronicles 20.7|]][[1 Chronicles 20.8|]].  

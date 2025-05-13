@@ -5,4 +5,4 @@
 [Isaiah 28:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.8?lang=eng#p8)
 
 
-[^a]: TG [[Filthiness, Filthy]].
+[^a]: [[Filthiness, Filthy|TG Filthiness]].  

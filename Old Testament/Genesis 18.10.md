@@ -5,5 +5,5 @@
 [Genesis 18:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 17.19|Gen. 17:19]]; [[Genesis 21.1|21:1.]]
-[^b]: TG [[Seed of Abraham]].
+[^a]: [[Genesis 17.19|Gen. 17:19]]; [[Genesis 21.1|21:1]].  
+[^b]: [[Seed of Abraham|TG Seed of Abraham]].  

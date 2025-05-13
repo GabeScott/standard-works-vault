@@ -5,6 +5,6 @@
 [Jude 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.9?lang=eng#p9)
 
 
-[^a]: TG [[Adam]].
-[^b]: TG [[Angels]].
-[^c]: TG [[Translated Beings]].
+[^a]: [[Adam|TG Adam]].  
+[^b]: [[Angels|TG Angels]].  
+[^c]: [[Translated Beings|TG Translated Beings]].  

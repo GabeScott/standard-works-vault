@@ -5,5 +5,5 @@
 [Ether 14:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/14?lang=eng&id=p21#p21)
 
 
-[^a]: [[Ether 11.6|Ether 11:6.]]
-[^b]: [[Ezekiel 35.8|Ezek. 35:8.]]
+[^a]: [[Ether 11.6|Ether 11:6]].  
+[^b]: [[Ezekiel 35.8|Ezek. 35:8]].  

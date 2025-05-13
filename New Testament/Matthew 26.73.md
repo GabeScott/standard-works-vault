@@ -5,4 +5,4 @@
 [Matthew 26:73](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.73?lang=eng#p73)
 
 
-[^a]: GR reveals you.
+[^a]: GR reveals you.  

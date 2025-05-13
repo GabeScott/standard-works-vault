@@ -5,6 +5,6 @@
 [Ezekiel 34:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.23?lang=eng#p23)
 
 
-[^a]: [[Ezekiel 37.22|Ezek. 37:22.]]
-[^b]: [[Isaiah 55.4|Isa. 55:4]]. TG [[Shepherd]].
-[^c]: [[Ezekiel 37.24|Ezek. 37:24]]. TG [[Millennium, Preparing a People for]].
+[^a]: [[Ezekiel 37.22|Ezek. 37:22]].  
+[^b]: [[Isaiah 55.4|Isa. 55:4]]. [[Shepherd|TG Shepherd]].  
+[^c]: [[Ezekiel 37.24|Ezek. 37:24]]. [[Millennium|TG Millennium]].  

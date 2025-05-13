@@ -5,4 +5,4 @@
 [Psalms 114:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/114.1?lang=eng#p1)
 
 
-[^a]: [[Exodus 13.3|Ex. 13:3.]]
+[^a]: [[Exodus 13.3|Ex. 13:3]].  

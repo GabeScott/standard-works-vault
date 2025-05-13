@@ -5,5 +5,5 @@
 [Judges 4:15](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.15?lang=eng#p15)
 
 
-[^a]: OR panicked, put to flight.
-[^b]: [[Psalms 83.9|Ps. 83:9.]]
+[^a]: OR panicked, put to flight.  
+[^b]: [[Psalms 83.9|Ps. 83:9]].  

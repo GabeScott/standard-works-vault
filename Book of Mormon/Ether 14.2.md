@@ -5,4 +5,4 @@
 [Ether 14:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/14?lang=eng&id=p2#p2)
 
 
-[^a]: [[Mormon 2.23|Morm. 2:23.]]
+[^a]: [[Mormon 2.23|Morm. 2:23]].  

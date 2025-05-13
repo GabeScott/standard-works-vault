@@ -5,6 +5,6 @@
 [2 Nephi 3:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Joseph Smith]].
-[^b]: TG [[Millennium, Preparing a People for]].
-[^c]: TG [[Book of Mormon]].
+[^a]: [[Joseph Smith|TG Joseph Smith]].  
+[^b]: [[Millennium, Preparing a People for|TG Millennium, Preparing a People for]].  
+[^c]: [[Book of Mormon|TG Book of Mormon]].  

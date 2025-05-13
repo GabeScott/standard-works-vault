@@ -5,4 +5,4 @@
 [Alma 5:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mosiah 23.1|Mosiah 23:1 (1-3).]]
+[^a]: [[Mosiah 23.1|Mosiah 23:1 (1–3)]][[Mosiah 23.2|]][[Mosiah 23.3|]].  

@@ -5,4 +5,4 @@
 [Matthew 24:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.16?lang=eng#p16)
 
 
-[^a]: TG [[Israel, Scattering of]].
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  

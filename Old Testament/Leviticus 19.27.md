@@ -5,4 +5,4 @@
 [Leviticus 19:27](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.27?lang=eng#p27)
 
 
-[^a]: IE by cutting the forelocks of the hair of the head. Lev. 21:5.
+[^a]: IE by cutting the forelocks of the hair of the head. [[Leviticus 21.5|Lev. 21:5]].  

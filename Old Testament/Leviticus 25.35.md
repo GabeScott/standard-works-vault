@@ -5,4 +5,4 @@
 [Leviticus 25:35](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.35?lang=eng#p35)
 
 
-[^a]: HEB his hand slips or fails.
+[^a]: HEB his hand slips or fails.  

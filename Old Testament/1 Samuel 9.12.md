@@ -5,4 +5,4 @@
 [1 Samuel 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.12?lang=eng#p12)
 
 
-[^a]: IE just ahead.
+[^a]: IE just ahead.  

@@ -5,4 +5,4 @@
 [2 Corinthians 10:18](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.18?lang=eng#p18)
 
 
-[^a]: [[Luke 18.14|Luke 18:14]]. TG [[Boast, Boasting]].
+[^a]: [[Luke 18.14|Luke 18:14]]. [[Boast, Boasting|TG Boast]].  

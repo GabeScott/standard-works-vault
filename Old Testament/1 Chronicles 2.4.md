@@ -5,4 +5,4 @@
 [1 Chronicles 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/2.4?lang=eng#p4)
 
 
-[^a]: [[Ruth 4.18|Ruth 4:18]]; [[Matthew 1.3|Matt. 1:3 (3-6).]]
+[^a]: [[Ruth 4.18|Ruth 4:18]]; [[Matthew 1.3|Matt. 1:3 (3–6)]][[Matthew 1.4|]][[Matthew 1.5|]][[Matthew 1.6|]].  

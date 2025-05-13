@@ -5,5 +5,5 @@
 [2 Nephi 16:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/16?lang=eng&id=p10#p10)
 
 
-[^a]: [[Matthew 13.14|Matt. 13:14 (14-15)]]; [[John 12.40|John 12:40]]; Acts 28:26-27; [[Romans 11.8|Rom. 11:8.]]
-[^b]: [[Proverbs 2.2|Prov. 2:2.]]
+[^a]: [[Matthew 13.14|Matt. 13:14 (14–15)]][[Matthew 13.15|]]; [[John 12.40|John 12:40]]; [[Acts 28.26|Acts 28:26–27]][[Acts 28.27|]]; [[Romans 11.8|Rom. 11:8]].  
+[^b]: [[Proverbs 2.2|Prov. 2:2]].  

@@ -5,4 +5,4 @@
 [John 13:33](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.33?lang=eng#p33)
 
 
-[^a]: [[John 7.34|John 7:34 (33-36).]]
+[^a]: [[John 7.33|John 7:34 (33–36)]][[John 7.34|]][[John 7.35|]][[John 7.36|]].  

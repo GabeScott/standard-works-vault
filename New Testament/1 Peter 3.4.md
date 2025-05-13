@@ -5,4 +5,4 @@
 [1 Peter 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.4?lang=eng#p4)
 
 
-[^b]: GR gentle, mild, forgiving.
+[^b]: GR gentle, mild, forgiving.  

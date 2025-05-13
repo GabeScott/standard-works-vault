@@ -5,4 +5,4 @@
 [Alma 32:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p31#p31)
 
 
-[^a]: [[Genesis 1.12|Gen. 1:12 (11-12).]]
+[^a]: [[Genesis 1.11|Gen. 1:12 (11–12)]][[Genesis 1.12|]].  

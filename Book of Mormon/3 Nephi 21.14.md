@@ -5,5 +5,5 @@
 [3 Nephi 21:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p14#p14)
 
 
-[^a]: [[Ephesians 3.6|Eph. 3:6 (1-7)]]; [[2 Nephi 10.18|2 Ne. 10:18]]; [[2 Nephi 33.9|33:9.]]
-[^b]: [[Leviticus 26.22|Lev. 26:22 (21-22)]]; [[Helaman 14.24|Hel. 14:24.]]
+[^a]: [[Ephesians 3.1|Eph. 3:6 (1–7)]][[Ephesians 3.2|]][[Ephesians 3.3|]][[Ephesians 3.4|]][[Ephesians 3.5|]][[Ephesians 3.6|]][[Ephesians 3.7|]]; [[2 Nephi 10.18|2 Ne. 10:18]]; [[2 Nephi 33.9|33:9]].  
+[^b]: [[Leviticus 26.21|Lev. 26:22 (21–22)]][[Leviticus 26.22|]]; [[Helaman 14.24|Hel. 14:24]].  

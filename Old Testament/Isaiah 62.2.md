@@ -5,5 +5,5 @@
 [Isaiah 62:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/62.2?lang=eng#p2)
 
 
-[^a]: [[Psalms 98.2|Ps. 98:2 (1-3).]]
-[^b]: [[Isaiah 65.15|Isa. 65:15]]; [[Revelation 2.17|Rev. 2:17]]; [[D&C 130.11|D&C 130:11 (10-11).]]
+[^a]: [[Psalms 98.1|Ps. 98:2 (1–3)]][[Psalms 98.2|]][[Psalms 98.3|]].  
+[^b]: [[Isaiah 65.15|Isa. 65:15]]; [[Revelation 2.17|Rev. 2:17]]; [[D&C 130.10|D&C 130:11 (10–11)]][[D&C 130.11|]].  

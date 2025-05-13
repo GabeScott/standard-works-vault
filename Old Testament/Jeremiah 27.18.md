@@ -5,4 +5,4 @@
 [Jeremiah 27:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.18?lang=eng#p18)
 
 
-[^a]: [[Isaiah 59.16|Isa. 59:16.]]
+[^a]: [[Isaiah 59.16|Isa. 59:16]].  

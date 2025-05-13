@@ -5,4 +5,4 @@
 [Amos 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.12?lang=eng#p12)
 
 
-[^a]: TG [[Seer]].
+[^a]: [[Seer|TG Seer]].  

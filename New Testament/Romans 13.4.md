@@ -5,4 +5,4 @@
 [Romans 13:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.4?lang=eng#p4)
 
 
-[^a]: GR a servant.
+[^a]: GR a servant.  

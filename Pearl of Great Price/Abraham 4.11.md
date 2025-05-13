@@ -5,4 +5,4 @@
 [Abraham 4:11](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.11?lang=eng#p11)
 
 
-[^a]: [[Genesis 1.11|Gen. 1:11 (11-12)]]; [[Moses 2.11|Moses 2:11 (11-12).]]
+[^a]: [[Genesis 1.11|Gen. 1:11 (11–12)]][[Genesis 1.12|]]; [[Moses 2.11|Moses 2:11 (11–12)]][[Moses 2.12|]].  

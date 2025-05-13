@@ -5,4 +5,4 @@
 [2 Nephi 23:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p12#p12)
 
 
-[^a]: [[Isaiah 4.1|Isa. 4:1 (1-4).]]
+[^a]: [[Isaiah 4.1|Isa. 4:1 (1–4)]][[Isaiah 4.2|]][[Isaiah 4.3|]][[Isaiah 4.4|]].  

@@ -5,4 +5,4 @@
 [Nahum 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/1.13?lang=eng#p13)
 
 
-[^a]: TG [[Bondage, Physical]].
+[^a]: [[Bondage, Physical|TG Bondage, Physical]].  

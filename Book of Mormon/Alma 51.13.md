@@ -5,5 +5,5 @@
 [Alma 51:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 46.16|Alma 46:16 (10-16).]]
-[^b]: TG [[Liberty]].
+[^a]: [[Alma 46.10|Alma 46:16 (10–16)]][[Alma 46.11|]][[Alma 46.12|]][[Alma 46.13|]][[Alma 46.14|]][[Alma 46.15|]][[Alma 46.16|]].  
+[^b]: [[Liberty|TG Liberty]].  

@@ -5,4 +5,4 @@
 [Jeremiah 13:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.24?lang=eng#p24)
 
 
-[^a]: [[1 Nephi 10.12|1 Ne. 10:12 (12-14)]]; [[1 Nephi 22.3|22:3 (3-4).]]
+[^a]: [[1 Nephi 10.12|1 Ne. 10:12 (12–14)]][[1 Nephi 10.13|]][[1 Nephi 10.14|]]; [[1 Nephi 22.3|22:3 (3–4)]][[1 Nephi 22.4|]].  

@@ -5,5 +5,5 @@
 [Luke 1:36](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.36?lang=eng#p36)
 
 
-[^a]: GR relative (not necessarily a cousin).
-[^b]: TG [[Old Age]].
+[^a]: GR relative (not necessarily a cousin).  
+[^b]: [[Old Age|TG Old Age]].  

@@ -5,4 +5,4 @@
 [Matthew 27:48](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.48?lang=eng#p48)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

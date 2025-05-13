@@ -5,5 +5,5 @@
 [Mosiah 22:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/22?lang=eng&id=p7#p7)
 
 
-[^a]: [[Mosiah 19.26|Mosiah 19:26.]]
-[^b]: TG [[Drunkenness]].
+[^a]: [[Mosiah 19.26|Mosiah 19:26]].  
+[^b]: [[Drunkenness|TG Drunkenness]].  

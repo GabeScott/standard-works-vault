@@ -5,4 +5,4 @@
 [Jeremiah 48:42](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.42?lang=eng#p42)
 
 
-[^a]: Zeph. 2:8 (8, 10).
+[^a]: [[Zephaniah 2.8|Zeph. 2:8 (8, 10)]][[Zephaniah 2.10|]].  

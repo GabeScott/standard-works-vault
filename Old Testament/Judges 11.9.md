@@ -5,4 +5,4 @@
 [Judges 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.9?lang=eng#p9)
 
 
-[^a]: HEB I shall be your head.
+[^a]: HEB I shall be your head.  

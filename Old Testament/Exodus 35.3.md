@@ -5,4 +5,4 @@
 [Exodus 35:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 16.23|Ex. 16:23]]; [[D&C 59.13|D&C 59:13.]]
+[^a]: [[Exodus 16.23|Ex. 16:23]]; [[D&C 59.13|D&C 59:13]].  

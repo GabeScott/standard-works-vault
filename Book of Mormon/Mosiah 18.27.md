@@ -5,4 +5,4 @@
 [Mosiah 18:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p27#p27)
 
 
-[^a]: [[Alma 16.16|Alma 16:16]]; 4 Ne. 1:3.
+[^a]: [[Alma 16.16|Alma 16:16]]; [[4 Nephi 1.3|4 Ne. 1:3]].  

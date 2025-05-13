@@ -5,4 +5,4 @@
 [Acts 10:39](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.39?lang=eng#p39)
 
 
-[^a]: [[Acts 13.31|Acts 13:31 (29-33)]]. TG [[Witness, Witnesses]].
+[^a]: [[Acts 13.29|Acts 13:31 (29–33)]][[Acts 13.30|]][[Acts 13.31|]][[Acts 13.32|]][[Acts 13.33|]]. [[Witness, Witnesses|TG Witness]].  

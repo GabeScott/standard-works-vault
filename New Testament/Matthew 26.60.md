@@ -5,4 +5,4 @@
 [Matthew 26:60](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.60?lang=eng#p60)
 
 
-[^a]: [[Deuteronomy 19.15|Deut. 19:15 (15-19).]]
+[^a]: [[Deuteronomy 19.15|Deut. 19:15 (15–19)]][[Deuteronomy 19.16|]][[Deuteronomy 19.17|]][[Deuteronomy 19.18|]][[Deuteronomy 19.19|]].  

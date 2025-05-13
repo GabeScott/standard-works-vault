@@ -5,4 +5,4 @@
 [Isaiah 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.11?lang=eng#p11)
 
 
-[^a]: IE in power.
+[^a]: IE in power.  

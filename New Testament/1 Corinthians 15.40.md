@@ -5,5 +5,5 @@
 [1 Corinthians 15:40](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.40?lang=eng#p40)
 
 
-[^b]: TG [[Celestial Glory]].
-[^c]: TG [[Terrestrial Glory]].
+[^b]: [[Celestial Glory|TG Celestial Glory]].  
+[^c]: [[Terrestrial Glory|TG Terrestrial Glory]].  

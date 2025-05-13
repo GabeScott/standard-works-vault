@@ -5,5 +5,5 @@
 [James 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.13?lang=eng#p13)
 
 
-[^a]: [[Psalms 109.7|Ps. 109:7.]]
-[^b]: TG [[Mercy, Merciful]].
+[^a]: [[Psalms 109.7|Ps. 109:7]].  
+[^b]: [[Mercy, Merciful|TG Mercy]].  

@@ -5,4 +5,4 @@
 [Alma 36:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p11#p11)
 
 
-[^a]: Dan. 10:7; [[Acts 9.7|Acts 9:7 (3-7).]]
+[^a]: [[Daniel 10.7|Dan. 10:7]]; [[Acts 9.3|Acts 9:7 (3–7)]][[Acts 9.4|]][[Acts 9.5|]][[Acts 9.6|]][[Acts 9.7|]].  

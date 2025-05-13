@@ -5,4 +5,4 @@
 [James 4:13](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.13?lang=eng#p13)
 
 
-[^a]: [[Proverbs 27.1|Prov. 27:1.]]
+[^a]: [[Proverbs 27.1|Prov. 27:1]].  

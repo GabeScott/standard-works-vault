@@ -5,4 +5,4 @@
 [Psalms 141:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/141.1?lang=eng#p1)
 
 
-[^a]: [[Psalms 70.5|Ps. 70:5.]]
+[^a]: [[Psalms 70.5|Ps. 70:5]].  

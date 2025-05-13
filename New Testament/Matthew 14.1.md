@@ -5,4 +5,4 @@
 [Matthew 14:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.1?lang=eng#p1)
 
 
-[^a]: [[Luke 9.7|Luke 9:7.]]
+[^a]: [[Luke 9.7|Luke 9:7]].  

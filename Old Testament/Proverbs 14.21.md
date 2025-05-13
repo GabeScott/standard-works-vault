@@ -5,5 +5,5 @@
 [Proverbs 14:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.21?lang=eng#p21)
 
 
-[^a]: [[D&C 52.40|D&C 52:40]]; [[D&C 104.18|104:18.]]
-[^b]: TG [[Happiness, Happy]].
+[^a]: [[D&C 52.40|D&C 52:40]]; [[D&C 104.18|104:18]].  
+[^b]: [[Happiness, Happy|TG Happiness]].  

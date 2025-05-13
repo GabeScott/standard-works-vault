@@ -5,4 +5,4 @@
 [Proverbs 17:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.12?lang=eng#p12)
 
 
-[^a]: [[Hosea 13.8|Hosea 13:8.]]
+[^a]: [[Hosea 13.8|Hosea 13:8]].  

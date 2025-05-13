@@ -5,4 +5,4 @@
 [1 Kings 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.11?lang=eng#p11)
 
 
-[^b]: TG [[Boast, Boasting]].
+[^b]: [[Boast, Boasting|TG Boast]].  

@@ -5,4 +5,4 @@
 [Mosiah 5:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/5?lang=eng&id=p12#p12)
 
 
-[^a]: [[Numbers 6.27|Num. 6:27]]; [[Psalms 119.55|Ps. 119:55]]; [[D&C 18.25|D&C 18:25.]]
+[^a]: [[Numbers 6.27|Num. 6:27]]; [[Psalms 119.55|Ps. 119:55]]; [[D&C 18.25|D&C 18:25]].  

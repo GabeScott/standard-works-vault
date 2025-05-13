@@ -5,4 +5,4 @@
 [Alma 5:59](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p59#p59)
 
 
-[^a]: [[Proverbs 27.23|Prov. 27:23.]]
+[^a]: [[Proverbs 27.23|Prov. 27:23]].  

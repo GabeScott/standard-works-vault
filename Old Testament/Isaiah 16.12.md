@@ -5,4 +5,4 @@
 [Isaiah 16:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.12?lang=eng#p12)
 
 
-[^a]: [[D&C 101.7|D&C 101:7 (7-8).]]
+[^a]: [[D&C 101.7|D&C 101:7 (7–8)]][[D&C 101.8|]].  

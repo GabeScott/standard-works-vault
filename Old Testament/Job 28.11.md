@@ -5,4 +5,4 @@
 [Job 28:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/28.11?lang=eng#p11)
 
 
-[^a]: HEB He restricts the rivers and streams.
+[^a]: HEB He restricts the rivers and streams.  

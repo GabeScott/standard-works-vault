@@ -5,4 +5,4 @@
 [Abraham 5:17](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.17?lang=eng#p17)
 
 
-[^a]: [[Jacob 2.21|Jacob 2:21.]]
+[^a]: [[Jacob 2.21|Jacob 2:21]].  

@@ -5,5 +5,5 @@
 [2 Nephi 27:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p29#p29)
 
 
-[^a]: [[Isaiah 29.18|Isa. 29:18.]]
-[^b]: TG [[Deaf]].
+[^a]: [[Isaiah 29.18|Isa. 29:18]].  
+[^b]: [[Deaf|TG Deaf]].  

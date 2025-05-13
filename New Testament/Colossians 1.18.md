@@ -5,5 +5,5 @@
 [Colossians 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.18?lang=eng#p18)
 
 
-[^a]: TG [[Jesus Christ, Head of the Church]].
-[^b]: TG [[Jesus Christ, Firstborn]]; [[Jesus Christ, Resurrection]].
+[^a]: [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]].  
+[^b]: [[Jesus Christ, Firstborn|TG Jesus Christ, Firstborn]]; [[Jesus Christ, Resurrection|Jesus Christ, Resurrection]].  

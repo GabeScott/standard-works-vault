@@ -5,4 +5,4 @@
 [Mosiah 28:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/28?lang=eng&id=p6#p6)
 
 
-[^a]: [[Exodus 18.15|Ex. 18:15]]; [[Alma 43.23|Alma 43:23.]]
+[^a]: [[Exodus 18.15|Ex. 18:15]]; [[Alma 43.23|Alma 43:23]].  

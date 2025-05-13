@@ -5,4 +5,4 @@
 [Revelation 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.15?lang=eng#p15)
 
 
-[^a]: [[Isaiah 66.18|Isa. 66:18.]]
+[^a]: [[Isaiah 66.18|Isa. 66:18]].  

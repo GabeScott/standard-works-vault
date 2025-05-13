@@ -5,5 +5,5 @@
 [Isaiah 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.3?lang=eng#p3)
 
 
-[^a]: TG [[Jesus Christ, Millennial Reign]].
-[^b]: IE by appearances and by hearsay. John 7:24. TG [[Discernment, Spiritual]]; [[Sight]].
+[^a]: [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]].  
+[^b]: IE by appearances and by hearsay. [[John 7.24|John 7:24]]. [[Discernment, Spiritual|TG Discernment, Spiritual]]; [[Sight|Sight]].  

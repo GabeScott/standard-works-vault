@@ -5,5 +5,5 @@
 [Micah 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.2?lang=eng#p2)
 
 
-[^a]: [[Hosea 4.1|Hosea 4:1.]]
-[^b]: [[Isaiah 3.13|Isa. 3:13 (12-13).]]
+[^a]: [[Hosea 4.1|Hosea 4:1]].  
+[^b]: [[Isaiah 3.12|Isa. 3:13 (12–13)]][[Isaiah 3.13|]].  

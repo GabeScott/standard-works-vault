@@ -5,5 +5,5 @@
 [Exodus 18:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.19?lang=eng#p19)
 
 
-[^a]: OR You represent the people before God.
-[^b]: [[Exodus 4.16|Ex. 4:16.]]
+[^a]: OR You represent the people before God.  
+[^b]: [[Exodus 4.16|Ex. 4:16]].  

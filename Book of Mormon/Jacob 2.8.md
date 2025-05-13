@@ -5,4 +5,4 @@
 [Jacob 2:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p8#p8)
 
 
-[^a]: [[Micah 2.7|Micah 2:7]]; [[Alma 31.5|Alma 31:5]]; [[Alma 36.26|36:26]]; [[Helaman 3.29|Hel. 3:29 (29-30)]]. TG [[Gospel]].
+[^a]: [[Micah 2.7|Micah 2:7]]; [[Alma 31.5|Alma 31:5]]; [[Alma 36.26|36:26]]; [[Helaman 3.29|Hel. 3:29 (29–30)]][[Helaman 3.30|]]. [[Gospel|TG Gospel]].  

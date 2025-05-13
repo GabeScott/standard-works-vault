@@ -5,4 +5,4 @@
 [Psalms 119:132](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.132?lang=eng#p132)
 
 
-[^a]: TG [[God, Mercy of]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  

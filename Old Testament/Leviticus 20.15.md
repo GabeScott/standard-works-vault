@@ -5,4 +5,4 @@
 [Leviticus 20:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.15?lang=eng#p15)
 
 
-[^a]: [[Deuteronomy 27.21|Deut. 27:21.]]
+[^a]: [[Deuteronomy 27.21|Deut. 27:21]].  

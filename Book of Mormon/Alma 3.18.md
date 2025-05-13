@@ -5,4 +5,4 @@
 [Alma 3:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p18#p18)
 
 
-[^a]: [[Joshua 22.18|Josh. 22:18]]; 4 Ne. 1:38. TG [[Rebellion, Rebel]].
+[^a]: [[Joshua 22.18|Josh. 22:18]]; [[4 Nephi 1.38|4 Ne. 1:38]]. [[Rebellion, Rebel|TG Rebellion]].  

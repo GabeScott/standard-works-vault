@@ -5,4 +5,4 @@
 [Deuteronomy 7:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.1?lang=eng#p1)
 
 
-[^a]: [[Leviticus 20.23|Lev. 20:23.]]
+[^a]: [[Leviticus 20.23|Lev. 20:23]].  

@@ -5,4 +5,4 @@
 [Matthew 27:58](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.58?lang=eng#p58)
 
 
-[^a]: GR asked for, requested.
+[^a]: GR asked for, requested.  

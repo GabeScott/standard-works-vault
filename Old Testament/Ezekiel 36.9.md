@@ -5,4 +5,4 @@
 [Ezekiel 36:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.9?lang=eng#p9)
 
 
-[^a]: [[D&C 88.63|D&C 88:63 (63-64).]]
+[^a]: [[D&C 88.63|D&C 88:63 (63–64)]][[D&C 88.64|]].  

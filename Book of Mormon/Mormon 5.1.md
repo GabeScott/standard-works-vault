@@ -5,4 +5,4 @@
 [Mormon 5:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mormon 3.11|Morm. 3:11 (11, 16)]]. TG [[Vow]].
+[^a]: [[Mormon 3.11|Morm. 3:11 (11, 16)]][[Mormon 3.16|]]. [[Vow|TG Vow]].  

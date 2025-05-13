@@ -5,4 +5,4 @@
 [Exodus 16:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 32.22|Ex. 32:22.]]
+[^a]: [[Exodus 32.22|Ex. 32:22]].  

@@ -5,6 +5,6 @@
 [Words of Mormon 1:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/w-of-m/1?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[False Prophets]].
-[^b]: [[Jacob 1.14|Jacob 1:14 (13-14).]]
-[^c]: [[Enos 1.22|Enos 1:22.]]
+[^a]: [[False Prophets|TG False Prophets]].  
+[^b]: [[Jacob 1.13|Jacob 1:14 (13–14)]][[Jacob 1.14|]].  
+[^c]: [[Enos 1.22|Enos 1:22]].  

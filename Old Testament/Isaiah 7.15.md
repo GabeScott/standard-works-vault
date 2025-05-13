@@ -5,4 +5,4 @@
 [Isaiah 7:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.15?lang=eng#p15)
 
 
-[^a]: OR Curd and honey—the only foods available to the poor at times.
+[^a]: OR Curd and honey—the only foods available to the poor at times.  

@@ -5,4 +5,4 @@
 [1 Corinthians 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.5?lang=eng#p5)
 
 
-[^a]: GR servants. 2 Cor. 3:6.
+[^a]: GR servants. [[2 Corinthians 3.6|2 Cor. 3:6]].  

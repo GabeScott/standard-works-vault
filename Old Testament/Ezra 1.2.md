@@ -5,5 +5,5 @@
 [Ezra 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/1.2?lang=eng#p2)
 
 
-[^a]: [[Ezra 3.7|Ezra 3:7.]]
-[^b]: [[2 Chronicles 36.23|2 Chr. 36:23 (22-23)]]; [[Isaiah 44.28|Isa. 44:28.]]
+[^a]: [[Ezra 3.7|Ezra 3:7]].  
+[^b]: [[2 Chronicles 36.22|2 Chr. 36:23 (22–23)]][[2 Chronicles 36.23|]]; [[Isaiah 44.28|Isa. 44:28]].  

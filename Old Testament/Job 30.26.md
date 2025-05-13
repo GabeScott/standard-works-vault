@@ -5,4 +5,4 @@
 [Job 30:26](https://www.churchofjesuschrist.org/study/scriptures/ot/job/30.26?lang=eng#p26)
 
 
-[^a]: [[Jeremiah 8.15|Jer. 8:15.]]
+[^a]: [[Jeremiah 8.15|Jer. 8:15]].  

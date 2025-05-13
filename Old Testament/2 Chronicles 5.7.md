@@ -5,4 +5,4 @@
 [2 Chronicles 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/5.7?lang=eng#p7)
 
 
-[^a]: OR inner sanctuary.
+[^a]: OR inner sanctuary.  

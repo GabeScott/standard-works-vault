@@ -5,5 +5,5 @@
 [Daniel 6:27](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.27?lang=eng#p27)
 
 
-[^a]: [[D&C 108.8|D&C 108:8.]]
-[^b]: TG [[Deliver, Deliverance]].
+[^a]: [[D&C 108.8|D&C 108:8]].  
+[^b]: [[Deliver, Deliverance|TG Deliver]].  

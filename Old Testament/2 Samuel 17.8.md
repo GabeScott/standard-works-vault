@@ -5,4 +5,4 @@
 [2 Samuel 17:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/17.8?lang=eng#p8)
 
 
-[^a]: HEB bitter in their soul.
+[^a]: HEB bitter in their soul.  

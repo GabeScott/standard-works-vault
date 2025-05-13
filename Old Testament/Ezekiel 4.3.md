@@ -5,4 +5,4 @@
 [Ezekiel 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/4.3?lang=eng#p3)
 
 
-[^a]: [[2 Nephi 25.9|2 Ne. 25:9.]]
+[^a]: [[2 Nephi 25.9|2 Ne. 25:9]].  

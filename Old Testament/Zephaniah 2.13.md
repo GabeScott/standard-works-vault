@@ -5,4 +5,4 @@
 [Zephaniah 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.13?lang=eng#p13)
 
 
-[^a]: [[2 Nephi 20.12|2 Ne. 20:12 (12, 24-25).]]
+[^a]: [[2 Nephi 20.12|2 Ne. 20:12 (12, 24–25)]][[2 Nephi 20.24|]][[2 Nephi 20.25|]].  

@@ -5,8 +5,8 @@
 [Hebrews 12:24](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.24?lang=eng#p24)
 
 
-[^a]: [[1 Timothy 2.5|1 Tim. 2:5.]]
-[^b]: TG [[New and Everlasting Covenant]].
-[^c]: TG [[Covenants]].
-[^d]: [[Leviticus 1.5|Lev. 1:5]]; [[1 Peter 1.2|1 Pet. 1:2.]]
-[^e]: [[Hebrews 7.19|Heb. 7:19.]]
+[^a]: [[1 Timothy 2.5|1 Tim. 2:5]].  
+[^b]: [[New and Everlasting Covenant|TG New and Everlasting Covenant]].  
+[^c]: [[Covenants|TG Covenants]].  
+[^d]: [[Leviticus 1.5|Lev. 1:5]]; [[1 Peter 1.2|1 Pet. 1:2]].  
+[^e]: [[Hebrews 7.19|Heb. 7:19]].  

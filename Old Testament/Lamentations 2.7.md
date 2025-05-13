@@ -5,4 +5,4 @@
 [Lamentations 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.7?lang=eng#p7)
 
 
-[^a]: [[Isaiah 5.5|Isa. 5:5 (4-5).]]
+[^a]: [[Isaiah 5.4|Isa. 5:5 (4–5)]][[Isaiah 5.5|]].  

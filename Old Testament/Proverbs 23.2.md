@@ -5,4 +5,4 @@
 [Proverbs 23:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.2?lang=eng#p2)
 
 
-[^a]: TG [[Word of Wisdom]].
+[^a]: [[Word of Wisdom|TG Word of Wisdom]].  

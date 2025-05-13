@@ -5,4 +5,4 @@
 [Genesis 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.18?lang=eng#p18)
 
 
-[^a]: [[Jeremiah 31.35|Jer. 31:35.]]
+[^a]: [[Jeremiah 31.35|Jer. 31:35]].  

@@ -5,6 +5,6 @@
 [Revelation 22:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.11?lang=eng#p11)
 
 
-[^a]: [[Alma 41.13|Alma 41:13 (10-15).]]
-[^b]: Dan. 12:10.
-[^c]: TG [[Filthiness, Filthy]].
+[^a]: [[Alma 41.10|Alma 41:13 (10–15)]][[Alma 41.11|]][[Alma 41.12|]][[Alma 41.13|]][[Alma 41.14|]][[Alma 41.15|]].  
+[^b]: [[Daniel 12.10|Dan. 12:10]].  
+[^c]: [[Filthiness, Filthy|TG Filthiness]].  

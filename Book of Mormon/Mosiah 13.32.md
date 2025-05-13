@@ -5,5 +5,5 @@
 [Mosiah 13:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p32#p32)
 
 
-[^a]: [[Psalms 111.10|Ps. 111:10.]]
-[^b]: [[2 Nephi 25.23|2 Ne. 25:23 (23-25).]]
+[^a]: [[Psalms 111.10|Ps. 111:10]].  
+[^b]: [[2 Nephi 25.23|2 Ne. 25:23 (23–25)]][[2 Nephi 25.24|]][[2 Nephi 25.25|]].  

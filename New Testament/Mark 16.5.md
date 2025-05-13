@@ -5,5 +5,5 @@
 [Mark 16:5](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.5?lang=eng#p5)
 
 
-[^a]: TG [[Clothing]].
-[^b]: GR amazed, astonished.
+[^a]: [[Clothing|TG Clothing]].  
+[^b]: GR amazed, astonished.  

@@ -5,5 +5,5 @@
 [John 12:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.28?lang=eng#p28)
 
 
-[^a]: TG [[Godhead]]; [[Witness of the Father]].
-[^b]: [[D&C 45.4|D&C 45:4.]]
+[^a]: [[Godhead|TG Godhead]]; [[Witness of the Father|Witness of the Father]].  
+[^b]: [[D&C 45.4|D&C 45:4]].  

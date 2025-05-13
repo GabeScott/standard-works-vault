@@ -5,4 +5,4 @@
 [Hebrews 7:24](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.24?lang=eng#p24)
 
 
-[^a]: TG [[Jesus Christ, Authority of]]; [[Priesthood, History of]].
+[^a]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]]; [[Priesthood|Priesthood]].  

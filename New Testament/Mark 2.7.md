@@ -5,4 +5,4 @@
 [Mark 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/2.7?lang=eng#p7)
 
 
-[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^a]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  

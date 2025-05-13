@@ -5,5 +5,5 @@
 [John 15:20](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.20?lang=eng#p20)
 
 
-[^a]: [[Matthew 10.24|Matt. 10:24 (24-25).]]
-[^b]: [[D&C 6.29|D&C 6:29]]. TG [[Persecution, Persecute]].
+[^a]: [[Matthew 10.24|Matt. 10:24 (24–25)]][[Matthew 10.25|]].  
+[^b]: [[D&C 6.29|D&C 6:29]]. [[Persecution, Persecute|TG Persecution]].  

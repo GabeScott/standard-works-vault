@@ -5,5 +5,5 @@
 [2 Corinthians 11:16](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.16?lang=eng#p16)
 
 
-[^a]: GR listen to, bear with, follow.
-[^b]: TG [[Boast, Boasting]].
+[^a]: GR listen to, bear with, follow.  
+[^b]: [[Boast, Boasting|TG Boast]].  

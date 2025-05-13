@@ -5,6 +5,6 @@
 [Moses 7:64](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.64?lang=eng#p64)
 
 
-[^a]: TG [[Millennium, Preparing a People for]].
-[^b]: TG [[Earth, Destiny of]].
-[^c]: [[Moses 7.48|Moses 7:48]]. TG [[Earth, Purpose of]].
+[^a]: [[Millennium|TG Millennium]].  
+[^b]: [[Earth, Destiny of|TG Earth, Destiny of]].  
+[^c]: [[Moses 7.48|Moses 7:48]]. [[Earth, Purpose of|TG Earth, Purpose of]].  

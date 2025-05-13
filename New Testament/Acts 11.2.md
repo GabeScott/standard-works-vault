@@ -5,5 +5,5 @@
 [Acts 11:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/11.2?lang=eng#p2)
 
 
-[^a]: TG [[Circumcision]].
-[^b]: TG [[Contention]].
+[^a]: [[Circumcision|TG Circumcision]].  
+[^b]: [[Contention|TG Contention]].  

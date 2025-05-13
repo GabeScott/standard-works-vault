@@ -5,9 +5,9 @@
 [2 Peter 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.20?lang=eng#p20)
 
 
-[^a]: [[Hebrews 6.4|Heb. 6:4 (4-6)]]; [[1 Nephi 8.28|1 Ne. 8:28 (24-28).]]
-[^b]: TG [[Pollution, Pollute]].
-[^c]: [[Psalms 85.8|Ps. 85:8]]; [[D&C 42.26|D&C 42:26.]]
-[^d]: [[2 Corinthians 2.11|2 Cor. 2:11]]; [[D&C 20.5|D&C 20:5.]]
-[^e]: [[D&C 76.35|D&C 76:35 (34-35).]]
-[^f]: [[Alma 24.30|Alma 24:30.]]
+[^a]: [[Hebrews 6.4|Heb. 6:4 (4–6)]][[Hebrews 6.5|]][[Hebrews 6.6|]]; [[1 Nephi 8.24|1 Ne. 8:28 (24–28)]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]].  
+[^b]: [[Pollution, Pollute|TG Pollution]].  
+[^c]: [[Psalms 85.8|Ps. 85:8]]; [[D&C 42.26|D&C 42:26]].  
+[^d]: [[2 Corinthians 2.11|2 Cor. 2:11]]; [[D&C 20.5|D&C 20:5]].  
+[^e]: [[D&C 76.34|D&C 76:35 (34–35)]][[D&C 76.35|]].  
+[^f]: [[Alma 24.30|Alma 24:30]].  

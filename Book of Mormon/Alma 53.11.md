@@ -5,4 +5,4 @@
 [Alma 53:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 24.18|Alma 24:18 (17-19).]]
+[^a]: [[Alma 24.17|Alma 24:18 (17–19)]][[Alma 24.18|]][[Alma 24.19|]].  

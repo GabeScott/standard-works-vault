@@ -5,4 +5,4 @@
 [Psalms 119:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.9?lang=eng#p9)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

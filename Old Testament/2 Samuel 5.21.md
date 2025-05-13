@@ -5,5 +5,5 @@
 [2 Samuel 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.21?lang=eng#p21)
 
 
-[^a]: [[1 Chronicles 14.12|1 Chr. 14:12.]]
-[^b]: HEB carried them away.
+[^a]: [[1 Chronicles 14.12|1 Chr. 14:12]].  
+[^b]: HEB carried them away.  

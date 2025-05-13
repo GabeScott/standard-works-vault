@@ -5,4 +5,4 @@
 [Mosiah 2:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p26#p26)
 
 
-[^a]: TG [[Equality]].
+[^a]: [[Equal|TG Equal]].  

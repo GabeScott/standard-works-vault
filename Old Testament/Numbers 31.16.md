@@ -5,4 +5,4 @@
 [Numbers 31:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.16?lang=eng#p16)
 
 
-[^a]: 2 Pet. 2:15.
+[^a]: [[2 Peter 2.15|2 Pet. 2:15]].  

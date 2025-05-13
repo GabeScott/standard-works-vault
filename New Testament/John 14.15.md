@@ -5,6 +5,6 @@
 [John 14:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.15?lang=eng#p15)
 
 
-[^a]: TG [[God, Love of]]; [[God, the Standard of Righteousness]]; [[Love]].
-[^b]: TG [[Duty]]; [[Obedience, Obedient, Obey]].
-[^c]: TG [[Commandments of God]]; [[Commitment]]; [[Good Works]].
+[^a]: [[God, Love of|TG God, Love of]]; [[God, the Standard of Righteousness|God, the Standard of Righteousness]]; [[Love|Love]].  
+[^b]: [[Duty|TG Duty]]; [[Obedience, Obedient, Obey|Obedience]].  
+[^c]: [[Commandments of God|TG Commandments of God]]; [[Commitment|Commitment]]; [[Good Works|Good Works]].  

@@ -5,6 +5,6 @@
 [Moroni 10:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[God, Gifts of]]; [[Holy Ghost, Gifts of]].
-[^b]: [[D&C 46.15|D&C 46:15.]]
-[^c]: TG [[God, Spirit of]].
+[^a]: [[God, Gifts of|TG God, Gifts of]]; [[Holy Ghost, Gifts of|Holy Ghost, Gifts of]].  
+[^b]: [[D&C 46.15|D&C 46:15]].  
+[^c]: [[God, Spirit of|TG God, Spirit of]].  

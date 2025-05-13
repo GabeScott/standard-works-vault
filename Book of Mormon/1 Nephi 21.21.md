@@ -5,4 +5,4 @@
 [1 Nephi 21:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/21?lang=eng&id=p21#p21)
 
 
-[^a]: [[Isaiah 54.1|Isa. 54:1]]; [[Galatians 4.27|Gal. 4:27.]]
+[^a]: [[Isaiah 54.1|Isa. 54:1]]; [[Galatians 4.27|Gal. 4:27]].  

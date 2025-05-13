@@ -5,4 +5,4 @@
 [Job 32:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/32.22?lang=eng#p22)
 
 
-[^a]: TG [[Flatter, Flattery]].
+[^a]: [[Flatter, Flattery|TG Flatter]].  

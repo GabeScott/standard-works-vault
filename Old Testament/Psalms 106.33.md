@@ -5,4 +5,4 @@
 [Psalms 106:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.33?lang=eng#p33)
 
 
-[^a]: [[Numbers 20.10|Num. 20:10.]]
+[^a]: [[Numbers 20.10|Num. 20:10]].  

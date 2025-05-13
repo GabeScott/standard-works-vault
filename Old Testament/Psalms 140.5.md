@@ -5,5 +5,5 @@
 [Psalms 140:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/140.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 142.3|Ps. 142:3.]]
-[^b]: OR traps.
+[^a]: [[Psalms 142.3|Ps. 142:3]].  
+[^b]: OR traps.  

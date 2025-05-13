@@ -5,7 +5,7 @@
 [1 Chronicles 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/5.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 29.32|Gen. 29:32]]; [[Genesis 49.3|49:3 (3-4)]]; [[Deuteronomy 33.6|Deut. 33:6.]]
-[^b]: TG [[Sexual Immorality]].
-[^c]: [[Joshua 14.4|Josh. 14:4.]]
-[^d]: TG [[Israel, Joseph, People of]].
+[^a]: [[Genesis 29.32|Gen. 29:32]]; [[Genesis 49.3|49:3 (3–4)]][[Genesis 49.4|]]; [[Deuteronomy 33.6|Deut. 33:6]].  
+[^b]: [[Sexual Immorality|TG Sexual Immorality]].  
+[^c]: [[Joshua 14.4|Josh. 14:4]].  
+[^d]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  

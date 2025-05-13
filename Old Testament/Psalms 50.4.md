@@ -5,5 +5,5 @@
 [Psalms 50:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.4?lang=eng#p4)
 
 
-[^a]: [[Deuteronomy 4.26|Deut. 4:26.]]
-[^b]: TG [[Judgment, the Last]].
+[^a]: [[Deuteronomy 4.26|Deut. 4:26]].  
+[^b]: [[Judgment, the Last|TG Judgment, the Last]].  

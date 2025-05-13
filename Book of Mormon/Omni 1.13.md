@@ -5,5 +5,5 @@
 [Omni 1:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p13#p13)
 
 
-[^a]: [[Isaiah 33.2|Isa. 33:2]]; [[Mosiah 12.24|Mosiah 12:24.]]
-[^b]: [[Mosiah 1.1|Mosiah 1:1]]; [[Mosiah 2.4|2:4.]]
+[^a]: [[Isaiah 33.2|Isa. 33:2]]; [[Mosiah 12.24|Mosiah 12:24]].  
+[^b]: [[Mosiah 1.1|Mosiah 1:1]]; [[Mosiah 2.4|2:4]].  

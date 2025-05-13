@@ -5,5 +5,5 @@
 [Alma 35:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/35?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 47.1|Alma 47:1]]; [[Helaman 1.17|Hel. 1:17.]]
-[^b]: TG [[Anger]]; [[War]].
+[^a]: [[Alma 47.1|Alma 47:1]]; [[Helaman 1.17|Hel. 1:17]].  
+[^b]: [[Anger|TG Anger]]; [[War|War]].  

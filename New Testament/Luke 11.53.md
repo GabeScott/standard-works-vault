@@ -5,5 +5,5 @@
 [Luke 11:53](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.53?lang=eng#p53)
 
 
-[^a]: GR be angry with, be exasperated against.
-[^b]: TG [[Provoking, Provoke]].
+[^a]: GR be angry with, be exasperated against.  
+[^b]: [[Provoking, Provoke|TG Provoking]].  

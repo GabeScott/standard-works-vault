@@ -5,4 +5,4 @@
 [Moses 1:36](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.36?lang=eng#p36)
 
 
-[^a]: [[Moses 2.1|Moses 2:1.]]
+[^a]: [[Moses 2.1|Moses 2:1]].  

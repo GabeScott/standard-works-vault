@@ -5,4 +5,4 @@
 [Genesis 29:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.10?lang=eng#p10)
 
 
-[^a]: [[Genesis 24.13|Gen. 24:13.]]
+[^a]: [[Genesis 24.13|Gen. 24:13]].  

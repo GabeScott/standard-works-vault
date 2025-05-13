@@ -5,6 +5,6 @@
 [Proverbs 12:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.23?lang=eng#p23)
 
 
-[^a]: TG [[Prudence, Prudent]].
-[^b]: TG [[Knowledge]].
-[^c]: TG [[Foolishness]].
+[^a]: [[Prudence, Prudent|TG Prudence]].  
+[^b]: [[Knowledge|TG Knowledge]].  
+[^c]: [[Foolishness|TG Foolishness]].  

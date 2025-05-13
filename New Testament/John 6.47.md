@@ -5,5 +5,5 @@
 [John 6:47](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.47?lang=eng#p47)
 
 
-[^a]: TG [[Faith]].
-[^b]: TG [[Eternal Life]]; [[Exaltation]].
+[^a]: [[Faith|TG Faith]].  
+[^b]: [[Eternal Life|TG Eternal Life]]; [[Exaltation|Exaltation]].  

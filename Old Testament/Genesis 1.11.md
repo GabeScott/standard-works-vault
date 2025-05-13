@@ -5,4 +5,4 @@
 [Genesis 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.11?lang=eng#p11)
 
 
-[^a]: [[Moses 2.11|Moses 2:11 (11-12)]]; [[Abraham 4.11|Abr. 4:11 (11-12).]]
+[^a]: [[Moses 2.11|Moses 2:11 (11–12)]][[Moses 2.12|]]; [[Abraham 4.11|Abr. 4:11 (11–12)]][[Abraham 4.12|]].  

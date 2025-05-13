@@ -5,5 +5,5 @@
 [Ezekiel 36:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.24?lang=eng#p24)
 
 
-[^a]: TG [[Israel, Gathering of]].
-[^b]: TG [[Israel, Land of]].
+[^a]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^b]: [[Israel, Land of|TG Israel, Land of]].  

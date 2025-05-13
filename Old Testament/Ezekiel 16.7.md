@@ -5,5 +5,5 @@
 [Ezekiel 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.7?lang=eng#p7)
 
 
-[^a]: HEB grown large.
-[^b]: [[Hosea 2.3|Hosea 2:3 (3, 8-12).]]
+[^a]: HEB grown large.  
+[^b]: [[Hosea 2.3|Hosea 2:3 (3, 8–12)]][[Hosea 2.8|]][[Hosea 2.9|]][[Hosea 2.10|]][[Hosea 2.11|]][[Hosea 2.12|]].  

@@ -5,5 +5,5 @@
 [Acts 21:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.28?lang=eng#p28)
 
 
-[^a]: [[Acts 24.6|Acts 24:6.]]
-[^b]: TG [[Pollution, Pollute]].
+[^a]: [[Acts 24.6|Acts 24:6]].  
+[^b]: [[Pollution, Pollute|TG Pollution]].  

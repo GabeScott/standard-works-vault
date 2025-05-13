@@ -5,4 +5,4 @@
 [Deuteronomy 30:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.18?lang=eng#p18)
 
 
-[^a]: HEB declare.
+[^a]: HEB declare.  

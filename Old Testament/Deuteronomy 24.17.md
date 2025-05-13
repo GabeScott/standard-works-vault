@@ -5,5 +5,5 @@
 [Deuteronomy 24:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.17?lang=eng#p17)
 
 
-[^a]: [[Deuteronomy 27.19|Deut. 27:19.]]
-[^b]: TG [[Judgment]].
+[^a]: [[Deuteronomy 27.19|Deut. 27:19]].  
+[^b]: [[Judgment|TG Judgment]].  

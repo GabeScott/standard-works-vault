@@ -5,4 +5,4 @@
 [Isaiah 61:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 65.23|Isa. 65:23]]; [[Abraham 2.11|Abr. 2:11 (8-11).]]
+[^a]: [[Isaiah 65.23|Isa. 65:23]]; [[Abraham 2.8|Abr. 2:11 (8–11)]][[Abraham 2.9|]][[Abraham 2.10|]][[Abraham 2.11|]].  

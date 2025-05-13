@@ -5,5 +5,5 @@
 [D&C 5:20](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.20?lang=eng#p20)
 
 
-[^a]: Lam. 1:8 (7-9); [[1 Nephi 1.18|1 Ne. 1:18]]; [[2 Nephi 25.9|2 Ne. 25:9.]]
-[^b]: [[D&C 1.38|D&C 1:38.]]
+[^a]: [[Lamentations 1.7|Lam. 1:8 (7–9)]][[Lamentations 1.8|]][[Lamentations 1.9|]]; [[1 Nephi 1.18|1 Ne. 1:18]]; [[2 Nephi 25.9|2 Ne. 25:9]].  
+[^b]: [[D&C 1.38|D&C 1:38]].  

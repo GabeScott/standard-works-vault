@@ -5,5 +5,5 @@
 [Ezra 8:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/8.21?lang=eng#p21)
 
 
-[^a]: [[Omni 1.26|Omni 1:26]]; [[Alma 5.46|Alma 5:46 (45-46)]]; [[Alma 6.6|6:6.]]
-[^b]: OR humble.
+[^a]: [[Omni 1.26|Omni 1:26]]; [[Alma 5.45|Alma 5:46 (45–46)]][[Alma 5.46|]]; [[Alma 6.6|6:6]].  
+[^b]: OR humble.  

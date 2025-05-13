@@ -5,4 +5,4 @@
 [Zechariah 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.14?lang=eng#p14)
 
 
-[^a]: HEB relented.
+[^a]: HEB relented.  

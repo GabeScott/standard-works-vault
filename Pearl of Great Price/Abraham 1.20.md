@@ -5,4 +5,4 @@
 [Abraham 1:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 11.28|Gen. 11:28]]; [[Abraham 1.1|Abr. 1:1]]; [[Abraham 2.4|2:4 (1-4).]]
+[^a]: [[Genesis 11.28|Gen. 11:28]]; [[Abraham 1.1|Abr. 1:1]]; [[Abraham 2.1|2:4 (1–4)]][[Abraham 2.2|]][[Abraham 2.3|]][[Abraham 2.4|]].  

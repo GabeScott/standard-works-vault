@@ -5,5 +5,5 @@
 [Alma 60:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p13#p13)
 
 
-[^a]: Lam. 4:13; [[D&C 42.46|D&C 42:46.]]
-[^b]: [[Alma 14.11|Alma 14:11 (10-11)]]; [[D&C 103.3|D&C 103:3.]]
+[^a]: [[Lamentations 4.13|Lam. 4:13]]; [[D&C 42.46|D&C 42:46]].  
+[^b]: [[Alma 14.10|Alma 14:11 (10–11)]][[Alma 14.11|]]; [[D&C 103.3|D&C 103:3]].  

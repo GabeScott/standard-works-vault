@@ -5,5 +5,5 @@
 [Isaiah 61:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.7?lang=eng#p7)
 
 
-[^a]: [[Zechariah 9.12|Zech. 9:12.]]
-[^b]: IE a double portion.
+[^a]: [[Zechariah 9.12|Zech. 9:12]].  
+[^b]: IE a double portion.  

@@ -5,4 +5,4 @@
 [Ezekiel 46:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.13?lang=eng#p13)
 
 
-[^a]: [[Exodus 29.38|Ex. 29:38.]]
+[^a]: [[Exodus 29.38|Ex. 29:38]].  

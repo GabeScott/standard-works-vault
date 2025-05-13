@@ -5,5 +5,5 @@
 [Jeremiah 9:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.11?lang=eng#p11)
 
 
-[^a]: HEB jackals.
-[^b]: [[Isaiah 1.7|Isa. 1:7]]; [[2 Nephi 13.8|2 Ne. 13:8.]]
+[^a]: HEB jackals.  
+[^b]: [[Isaiah 1.7|Isa. 1:7]]; [[2 Nephi 13.8|2 Ne. 13:8]].  

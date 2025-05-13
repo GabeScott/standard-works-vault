@@ -5,7 +5,7 @@
 [Matthew 7:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.15?lang=eng#p15)
 
 
-[^a]: TG [[False Prophets]].
-[^b]: TG [[Sheep]].
-[^c]: TG [[Hypocrisy, Hypocrite]].
-[^d]: TG [[Guile]].
+[^a]: [[False Prophets|TG False Prophets]].  
+[^b]: [[Sheep|TG Sheep]].  
+[^c]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  
+[^d]: [[Guile|TG Guile]].  

@@ -5,4 +5,4 @@
 [2 Kings 3:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/3.25?lang=eng#p25)
 
 
-[^a]: [[Isaiah 16.7|Isa. 16:7.]]
+[^a]: [[Isaiah 16.7|Isa. 16:7]].  

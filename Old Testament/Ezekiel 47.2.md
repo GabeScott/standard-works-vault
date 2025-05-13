@@ -5,4 +5,4 @@
 [Ezekiel 47:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 40.6|Ezek. 40:6.]]
+[^a]: [[Ezekiel 40.6|Ezek. 40:6]].  

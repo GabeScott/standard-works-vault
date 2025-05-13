@@ -5,6 +5,6 @@
 [4 Nephi 1:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Health]].
-[^b]: TG [[Death, Power over]].
-[^c]: [[John 14.12|John 14:12 (12-14)]]. TG [[Miracle]].
+[^a]: [[Heal, Healing|TG Heal]].  
+[^b]: [[Death, Power over|TG Death, Power over]].  
+[^c]: [[John 14.12|John 14:12 (12–14)]][[John 14.13|]][[John 14.14|]]. [[Miracle|TG Miracle]].  

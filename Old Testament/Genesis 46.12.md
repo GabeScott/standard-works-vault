@@ -5,6 +5,6 @@
 [Genesis 46:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 38.7|Gen. 38:7 (3, 7, 10).]]
-[^b]: [[1 Chronicles 2.3|1 Chr. 2:3.]]
-[^c]: [[Genesis 38.30|Gen. 38:30.]]
+[^a]: [[Genesis 38.3|Gen. 38:7 (3, 7, 10)]][[Genesis 38.7|]][[Genesis 38.10|]].  
+[^b]: [[1 Chronicles 2.3|1 Chr. 2:3]].  
+[^c]: [[Genesis 38.30|Gen. 38:30]].  

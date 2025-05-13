@@ -5,4 +5,4 @@
 [Leviticus 22:28](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.28?lang=eng#p28)
 
 
-[^a]: [[Deuteronomy 22.6|Deut. 22:6.]]
+[^a]: [[Deuteronomy 22.6|Deut. 22:6]].  

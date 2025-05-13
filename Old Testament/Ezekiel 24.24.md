@@ -5,5 +5,5 @@
 [Ezekiel 24:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.24?lang=eng#p24)
 
 
-[^a]: [[Ezekiel 12.6|Ezek. 12:6.]]
-[^b]: [[Ezekiel 12.11|Ezek. 12:11.]]
+[^a]: [[Ezekiel 12.6|Ezek. 12:6]].  
+[^b]: [[Ezekiel 12.11|Ezek. 12:11]].  

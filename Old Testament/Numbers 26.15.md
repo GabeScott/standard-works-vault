@@ -5,4 +5,4 @@
 [Numbers 26:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.15?lang=eng#p15)
 
 
-[^a]: [[Genesis 46.16|Gen. 46:16.]]
+[^a]: [[Genesis 46.16|Gen. 46:16]].  

@@ -5,4 +5,4 @@
 [Helaman 7:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p16#p16)
 
 
-[^a]: [[Alma 26.20|Alma 26:20.]]
+[^a]: [[Alma 26.20|Alma 26:20]].  

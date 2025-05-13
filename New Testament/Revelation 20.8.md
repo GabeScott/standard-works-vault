@@ -5,4 +5,4 @@
 [Revelation 20:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/20.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 10.2|Gen. 10:2 (2-3)]]; [[Ezekiel 38.2|Ezek. 38:2.]]
+[^a]: [[Genesis 10.2|Gen. 10:2 (2–3)]][[Genesis 10.3|]]; [[Ezekiel 38.2|Ezek. 38:2]].  

@@ -5,4 +5,4 @@
 [Psalms 139:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/139.17?lang=eng#p17)
 
 
-[^a]: [[Isaiah 55.9|Isa. 55:9 (8-9).]]
+[^a]: [[Isaiah 55.8|Isa. 55:9 (8–9)]][[Isaiah 55.9|]].  

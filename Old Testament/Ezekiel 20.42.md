@@ -5,5 +5,5 @@
 [Ezekiel 20:42](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.42?lang=eng#p42)
 
 
-[^a]: [[3 Nephi 16.4|3 Ne. 16:4 (4-5)]]; [[3 Nephi 20.13|20:13.]]
-[^b]: IE covenanted.
+[^a]: [[3 Nephi 16.4|3 Ne. 16:4 (4–5)]][[3 Nephi 16.5|]]; [[3 Nephi 20.13|20:13]].  
+[^b]: IE covenanted.  

@@ -5,4 +5,4 @@
 [Ether 5:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/5?lang=eng&id=p5#p5)
 
 
-[^a]: [[Mormon 9.27|Morm. 9:27]]; [[Moroni 10.30|Moro. 10:30 (30-32).]]
+[^a]: [[Mormon 9.27|Morm. 9:27]]; [[Moroni 10.30|Moro. 10:30 (30–32)]][[Moroni 10.31|]][[Moroni 10.32|]].  

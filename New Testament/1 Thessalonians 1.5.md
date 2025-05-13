@@ -5,9 +5,9 @@
 [1 Thessalonians 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/1.5?lang=eng#p5)
 
 
-[^a]: TG [[Gospel]].
-[^b]: 1 Thes. 2:1.
-[^c]: [[1 Corinthians 2.4|1 Cor. 2:4.]]
-[^d]: TG [[Holy Ghost, Gifts of]].
-[^e]: TG [[Holy Ghost, Source of Testimony]].
-[^f]: 1 Thes. 2:10; 2 Thes. 3:7.
+[^a]: [[Gospel|TG Gospel]].  
+[^b]: [[1 Thessalonians 2.1|1 Thes. 2:1]].  
+[^c]: [[1 Corinthians 2.4|1 Cor. 2:4]].  
+[^d]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  
+[^e]: [[Holy Ghost, Source of Testimony|TG Holy Ghost, Source of Testimony]].  
+[^f]: [[1 Thessalonians 2.10|1 Thes. 2:10]]; [[2 Thessalonians 3.7|2 Thes. 3:7]].  

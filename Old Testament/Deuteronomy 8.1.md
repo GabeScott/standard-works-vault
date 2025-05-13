@@ -5,4 +5,4 @@
 [Deuteronomy 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.1?lang=eng#p1)
 
 
-[^a]: [[D&C 93.20|D&C 93:20.]]
+[^a]: [[D&C 93.20|D&C 93:20]].  

@@ -5,5 +5,5 @@
 [3 Nephi 26:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/26?lang=eng&id=p16#p16)
 
 
-[^a]: [[Matthew 11.25|Matt. 11:25.]]
-[^b]: [[3 Nephi 27.23|3 Ne. 27:23.]]
+[^a]: [[Matthew 11.25|Matt. 11:25]].  
+[^b]: [[3 Nephi 27.23|3 Ne. 27:23]].  

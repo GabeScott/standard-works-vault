@@ -5,5 +5,5 @@
 [Genesis 26:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 21.25|Gen. 21:25.]]
-[^b]: IE Strife.
+[^a]: [[Genesis 21.25|Gen. 21:25]].  
+[^b]: IE Strife.  

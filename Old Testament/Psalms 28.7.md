@@ -5,4 +5,4 @@
 [Psalms 28:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/28.7?lang=eng#p7)
 
 
-[^a]: TG [[Faith]].
+[^a]: [[Faith|TG Faith]].  

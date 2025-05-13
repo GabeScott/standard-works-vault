@@ -5,4 +5,4 @@
 [Moroni 10:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p25#p25)
 
 
-[^a]: [[Psalms 14.3|Ps. 14:3]]; [[Romans 3.12|Rom. 3:12.]]
+[^a]: [[Psalms 14.3|Ps. 14:3]]; [[Romans 3.12|Rom. 3:12]].  

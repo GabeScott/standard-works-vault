@@ -5,4 +5,4 @@
 [Ezra 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.6?lang=eng#p6)
 
 
-[^a]: [[Esther 1.1|Esth. 1:1.]]
+[^a]: [[Esther 1.1|Esth. 1:1]].  

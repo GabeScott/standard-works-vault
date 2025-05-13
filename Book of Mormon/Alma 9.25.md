@@ -5,4 +5,4 @@
 [Alma 9:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p25#p25)
 
 
-[^a]: [[Matthew 3.2|Matt. 3:2 (2-3)]]; [[Alma 7.9|Alma 7:9]]; [[Helaman 5.32|Hel. 5:32.]]
+[^a]: [[Matthew 3.2|Matt. 3:2 (2–3)]][[Matthew 3.3|]]; [[Alma 7.9|Alma 7:9]]; [[Helaman 5.32|Hel. 5:32]].  

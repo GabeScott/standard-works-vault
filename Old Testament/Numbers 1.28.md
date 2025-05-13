@@ -5,4 +5,4 @@
 [Numbers 1:28](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.28?lang=eng#p28)
 
 
-[^a]: [[Numbers 26.23|Num. 26:23 (23-26)]]; [[1 Chronicles 7.1|1 Chr. 7:1.]]
+[^a]: [[Numbers 26.23|Num. 26:23 (23–26)]][[Numbers 26.24|]][[Numbers 26.25|]][[Numbers 26.26|]]; [[1 Chronicles 7.1|1 Chr. 7:1]].  

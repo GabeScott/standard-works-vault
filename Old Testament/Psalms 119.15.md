@@ -5,4 +5,4 @@
 [Psalms 119:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.15?lang=eng#p15)
 
 
-[^a]: TG [[Meditation, Meditate]].
+[^a]: [[Meditation, Meditate|TG Meditation]].  

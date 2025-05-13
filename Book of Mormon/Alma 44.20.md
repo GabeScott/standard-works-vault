@@ -5,5 +5,5 @@
 [Alma 44:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 46.7|Alma 46:7.]]
-[^b]: [[Alma 55.28|Alma 55:28]]; [[Alma 62.16|62:16 (16-17).]]
+[^a]: [[Alma 46.7|Alma 46:7]].  
+[^b]: [[Alma 55.28|Alma 55:28]]; [[Alma 62.16|62:16 (16–17)]][[Alma 62.17|]].  

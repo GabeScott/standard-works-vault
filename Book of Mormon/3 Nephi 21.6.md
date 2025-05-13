@@ -5,5 +5,5 @@
 [3 Nephi 21:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Nephi 10.14|1 Ne. 10:14]]; [[Jacob 5.54|Jacob 5:54]]; [[3 Nephi 16.4|3 Ne. 16:4 (4-7)]]; [[3 Nephi 21.24|21:24 (24-26)]]; [[Mormon 5.15|Morm. 5:15.]]
-[^b]: [[Galatians 3.7|Gal. 3:7 (7, 29)]]; [[2 Nephi 30.3|2 Ne. 30:3]]; [[3 Nephi 16.13|3 Ne. 16:13]]; [[Abraham 2.10|Abr. 2:10 (9-11).]]
+[^a]: [[1 Nephi 10.14|1 Ne. 10:14]]; [[Jacob 5.54|Jacob 5:54]]; [[3 Nephi 16.4|3 Ne. 16:4 (4–7)]][[3 Nephi 16.5|]][[3 Nephi 16.6|]][[3 Nephi 16.7|]]; [[3 Nephi 21.24|21:24 (24–26)]][[3 Nephi 21.25|]][[3 Nephi 21.26|]]; [[Mormon 5.15|Morm. 5:15]].  
+[^b]: [[Galatians 3.7|Gal. 3:7 (7, 29)]][[Galatians 3.29|]]; [[2 Nephi 30.3|2 Ne. 30:3]]; [[3 Nephi 16.13|3 Ne. 16:13]]; [[Abraham 2.9|Abr. 2:10 (9–11)]][[Abraham 2.10|]][[Abraham 2.11|]].  

@@ -5,6 +5,6 @@
 [Moses 6:41](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.41?lang=eng#p41)
 
 
-[^a]: [[Moses 6.17|Moses 6:17.]]
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: [[Moses 6.21|Moses 6:21.]]
+[^a]: [[Moses 6.17|Moses 6:17]].  
+[^b]: [[Righteousness|TG Righteousness]].  
+[^c]: [[Moses 6.21|Moses 6:21]].  

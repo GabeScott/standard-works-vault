@@ -5,5 +5,5 @@
 [Romans 6:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.12?lang=eng#p12)
 
 
-[^a]: TG [[Mortality]].
-[^b]: TG [[Lust]].
+[^a]: [[Mortality|TG Mortality]].  
+[^b]: [[Lust|TG Lust]].  

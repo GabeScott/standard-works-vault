@@ -5,6 +5,6 @@
 [1 Timothy 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/3.3?lang=eng#p3)
 
 
-[^a]: TG [[Drunkenness]]; [[Word of Wisdom]].
-[^b]: GR bully, violent person.
-[^c]: TG [[Filthiness, Filthy]].
+[^a]: [[Drunkenness|TG Drunkenness]]; [[Word of Wisdom|Word of Wisdom]].  
+[^b]: GR bully, violent person.  
+[^c]: [[Filthiness, Filthy|TG Filthiness]].  

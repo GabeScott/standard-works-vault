@@ -5,4 +5,4 @@
 [Helaman 1:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p14#p14)
 
 
-[^a]: [[Alma 2.12|Alma 2:12]]; [[Alma 49.6|49:6 (6, 24).]]
+[^a]: [[Alma 2.12|Alma 2:12]]; [[Alma 49.6|49:6 (6, 24)]][[Alma 49.24|]].  

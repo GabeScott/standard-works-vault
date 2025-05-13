@@ -5,5 +5,5 @@
 [Mark 14:38](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.38?lang=eng#p38)
 
 
-[^a]: TG [[Watch, Watchfulness]].
-[^b]: [[D&C 20.33|D&C 20:33]]; [[D&C 23.1|23:1]]; [[D&C 31.12|31:12.]]
+[^a]: [[Watch, Watchfulness|TG Watch]].  
+[^b]: [[D&C 20.33|D&C 20:33]]; [[D&C 23.1|23:1]]; [[D&C 31.12|31:12]].  

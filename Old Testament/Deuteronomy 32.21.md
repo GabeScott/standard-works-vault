@@ -5,7 +5,7 @@
 [Deuteronomy 32:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.21?lang=eng#p21)
 
 
-[^a]: [[Mosiah 11.22|Mosiah 11:22]]; [[Mosiah 13.13|13:13.]]
-[^b]: TG [[Provoking, Provoke]].
-[^c]: [[2 Nephi 15.25|2 Ne. 15:25]]; [[D&C 63.32|D&C 63:32]]; [[Moses 6.27|Moses 6:27.]]
-[^d]: [[Romans 10.19|Rom. 10:19 (17-21).]]
+[^a]: [[Mosiah 11.22|Mosiah 11:22]]; [[Mosiah 13.13|13:13]].  
+[^b]: [[Provoking, Provoke|TG Provoking]].  
+[^c]: [[2 Nephi 15.25|2 Ne. 15:25]]; [[D&C 63.32|D&C 63:32]]; [[Moses 6.27|Moses 6:27]].  
+[^d]: [[Romans 10.17|Rom. 10:19 (17–21)]][[Romans 10.18|]][[Romans 10.19|]][[Romans 10.20|]][[Romans 10.21|]].  

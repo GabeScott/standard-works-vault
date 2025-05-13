@@ -5,6 +5,6 @@
 [2 Peter 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.21?lang=eng#p21)
 
 
-[^a]: TG [[God, Knowledge about]].
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: [[Hebrews 10.39|Heb. 10:39.]]
+[^a]: [[God, Knowledge about|TG God, Knowledge about]].  
+[^b]: [[Righteousness|TG Righteousness]].  
+[^c]: [[Hebrews 10.39|Heb. 10:39]].  

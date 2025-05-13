@@ -5,4 +5,4 @@
 [Ezekiel 21:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.7?lang=eng#p7)
 
 
-[^a]: [[Ezekiel 7.17|Ezek. 7:17.]]
+[^a]: [[Ezekiel 7.17|Ezek. 7:17]].  

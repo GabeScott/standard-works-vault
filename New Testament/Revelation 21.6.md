@@ -5,6 +5,6 @@
 [Revelation 21:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.6?lang=eng#p6)
 
 
-[^a]: TG [[Jesus Christ, Jehovah]].
-[^b]: [[D&C 45.7|D&C 45:7.]]
-[^c]: TG [[Living Water]].
+[^a]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^b]: [[D&C 45.7|D&C 45:7]].  
+[^c]: [[Living Water|TG Living Water]].  

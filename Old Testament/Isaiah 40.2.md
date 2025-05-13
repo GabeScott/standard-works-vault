@@ -5,6 +5,6 @@
 [Isaiah 40:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.2?lang=eng#p2)
 
 
-[^a]: OR time of service.
-[^b]: TG [[Forgive, Forgiveness]].
-[^c]: [[Jeremiah 16.18|Jer. 16:18]]; [[Jeremiah 17.18|17:18.]]
+[^a]: OR time of service.  
+[^b]: [[Forgive, Forgiveness|TG Forgive]].  
+[^c]: [[Jeremiah 16.18|Jer. 16:18]]; [[Jeremiah 17.18|17:18]].  

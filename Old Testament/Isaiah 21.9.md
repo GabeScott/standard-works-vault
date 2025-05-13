@@ -5,4 +5,4 @@
 [Isaiah 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/21.9?lang=eng#p9)
 
 
-[^a]: [[Revelation 14.8|Rev. 14:8 (8-11)]]; [[D&C 1.16|D&C 1:16.]]
+[^a]: [[Revelation 14.8|Rev. 14:8 (8–11)]][[Revelation 14.9|]][[Revelation 14.10|]][[Revelation 14.11|]]; [[D&C 1.16|D&C 1:16]].  

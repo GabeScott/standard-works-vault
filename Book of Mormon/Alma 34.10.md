@@ -5,8 +5,8 @@
 [Alma 34:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p10#p10)
 
 
-[^a]: [[1 Chronicles 6.49|1 Chr. 6:49]]; [[Moses 5.7|Moses 5:7 (6-7).]]
-[^b]: TG [[Blood, Symbolism of]].
-[^c]: [[2 Nephi 9.7|2 Ne. 9:7.]]
-[^d]: [[Isaiah 45.17|Isa. 45:17]]; [[Hebrews 5.9|Heb. 5:9.]]
-[^e]: TG [[Self-Sacrifice]].
+[^a]: [[1 Chronicles 6.49|1 Chr. 6:49]]; [[Moses 5.6|Moses 5:7 (6–7)]][[Moses 5.7|]].  
+[^b]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  
+[^c]: [[2 Nephi 9.7|2 Ne. 9:7]].  
+[^d]: [[Isaiah 45.17|Isa. 45:17]]; [[Hebrews 5.9|Heb. 5:9]].  
+[^e]: [[Sacrifice|TG Sacrifice]].  

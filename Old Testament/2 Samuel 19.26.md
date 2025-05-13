@@ -5,4 +5,4 @@
 [2 Samuel 19:26](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.26?lang=eng#p26)
 
 
-[^a]: [[2 Samuel 9.12|2 Sam. 9:12 (9-13).]]
+[^a]: [[2 Samuel 9.9|2 Sam. 9:12 (9–13)]][[2 Samuel 9.10|]][[2 Samuel 9.11|]][[2 Samuel 9.12|]][[2 Samuel 9.13|]].  

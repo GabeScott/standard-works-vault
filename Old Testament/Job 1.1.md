@@ -5,8 +5,8 @@
 [Job 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 10.23|Gen. 10:23 (21-23)]]; Lam. 4:21.
-[^b]: [[Ezekiel 14.14|Ezek. 14:14]]; [[James 5.11|James 5:11.]]
-[^c]: TG [[Perfection, Perfect, Perfectly]].
-[^d]: [[Job 4.6|Job 4:6.]]
-[^e]: [[Deuteronomy 5.29|Deut. 5:29]]; [[Proverbs 16.6|Prov. 16:6]]; [[D&C 10.56|D&C 10:56 (55-56)]]; [[D&C 45.39|45:39.]]
+[^a]: [[Genesis 10.21|Gen. 10:23 (21–23)]][[Genesis 10.22|]][[Genesis 10.23|]]; [[Lamentations 4.21|Lam. 4:21]].  
+[^b]: [[Ezekiel 14.14|Ezek. 14:14]]; [[James 5.11|James 5:11]].  
+[^c]: [[Perfection, Perfect, Perfectly|TG Perfection]].  
+[^d]: [[Job 4.6|Job 4:6]].  
+[^e]: [[Deuteronomy 5.29|Deut. 5:29]]; [[Proverbs 16.6|Prov. 16:6]]; [[D&C 10.55|D&C 10:56 (55–56)]][[D&C 10.56|]]; [[D&C 45.39|45:39]].  

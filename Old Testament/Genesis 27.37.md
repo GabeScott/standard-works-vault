@@ -5,4 +5,4 @@
 [Genesis 27:37](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.37?lang=eng#p37)
 
 
-[^a]: [[2 Samuel 8.14|2 Sam. 8:14.]]
+[^a]: [[2 Samuel 8.14|2 Sam. 8:14]].  

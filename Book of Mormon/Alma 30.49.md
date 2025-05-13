@@ -5,4 +5,4 @@
 [Alma 30:49](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p49#p49)
 
 
-[^a]: [[Luke 1.20|Luke 1:20]]; [[Acts 13.11|Acts 13:11 (8-12).]]
+[^a]: [[Luke 1.20|Luke 1:20]]; [[Acts 13.8|Acts 13:11 (8–12)]][[Acts 13.9|]][[Acts 13.10|]][[Acts 13.11|]][[Acts 13.12|]].  

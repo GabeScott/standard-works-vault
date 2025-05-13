@@ -5,5 +5,5 @@
 [Mosiah 17:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/17?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 25.8|Alma 25:8.]]
-[^b]: [[Mosiah 13.10|Mosiah 13:10]]; [[Mosiah 19.20|19:20]]; [[Alma 25.11|Alma 25:11 (7-12).]]
+[^a]: [[Alma 25.8|Alma 25:8]].  
+[^b]: [[Mosiah 13.10|Mosiah 13:10]]; [[Mosiah 19.20|19:20]]; [[Alma 25.7|Alma 25:11 (7–12)]][[Alma 25.8|]][[Alma 25.9|]][[Alma 25.10|]][[Alma 25.11|]][[Alma 25.12|]].  

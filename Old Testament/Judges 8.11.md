@@ -5,4 +5,4 @@
 [Judges 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/8.11?lang=eng#p11)
 
 
-[^a]: [[Judges 18.10|Judg. 18:10.]]
+[^a]: [[Judges 18.10|Judg. 18:10]].  

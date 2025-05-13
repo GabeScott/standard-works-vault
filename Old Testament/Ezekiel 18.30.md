@@ -5,5 +5,5 @@
 [Ezekiel 18:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.30?lang=eng#p30)
 
 
-[^a]: [[Ezekiel 7.3|Ezek. 7:3 (3, 8)]]; [[Ezekiel 33.20|33:20.]]
-[^b]: TG [[Transgressor]].
+[^a]: [[Ezekiel 7.3|Ezek. 7:3 (3, 8)]][[Ezekiel 7.8|]]; [[Ezekiel 33.20|33:20]].  
+[^b]: [[Transgress, Transgression|TG Transgress]].  

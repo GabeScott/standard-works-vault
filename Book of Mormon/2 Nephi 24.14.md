@@ -5,4 +5,4 @@
 [2 Nephi 24:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p14#p14)
 
 
-[^a]: 2 Thes. 2:4.
+[^a]: [[2 Thessalonians 2.4|2 Thes. 2:4]].  

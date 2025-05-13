@@ -5,5 +5,5 @@
 [Alma 37:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p23#p23)
 
 
-[^a]: [[Mosiah 8.13|Mosiah 8:13.]]
-[^b]: IE reveal, make known.
+[^a]: [[Mosiah 8.13|Mosiah 8:13]].  
+[^b]: IE reveal, make known.  

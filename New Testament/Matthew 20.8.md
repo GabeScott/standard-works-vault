@@ -5,5 +5,5 @@
 [Matthew 20:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.8?lang=eng#p8)
 
 
-[^a]: [[D&C 39.13|D&C 39:13.]]
-[^b]: TG [[Wages]].
+[^a]: [[D&C 39.13|D&C 39:13]].  
+[^b]: [[Wages|TG Wages]].  

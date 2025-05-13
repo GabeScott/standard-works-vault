@@ -5,4 +5,4 @@
 [Numbers 24:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.4?lang=eng#p4)
 
 
-[^a]: TG [[Vision]].
+[^a]: [[Vision|TG Vision]].  

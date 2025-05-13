@@ -5,7 +5,7 @@
 [Isaiah 19:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.1?lang=eng#p1)
 
 
-[^a]: IE a message of doom “lifted up” against Egypt.
-[^b]: [[Jeremiah 25.19|Jer. 25:19]]; [[Jeremiah 46.13|46:13 (13-26)]]; [[Ezekiel 29.2|Ezek. 29:2]]; [[Ezekiel 31.2|31:2]]; [[Ezekiel 32.2|32:2.]]
-[^c]: [[Psalms 104.3|Ps. 104:3.]]
-[^d]: [[Exodus 12.12|Ex. 12:12]]; [[Jeremiah 43.12|Jer. 43:12.]]
+[^a]: IE a message of doom “lifted up” against Egypt.  
+[^b]: [[Jeremiah 25.19|Jer. 25:19]]; [[Jeremiah 46.13|46:13 (13–26)]][[Jeremiah 46.14|]][[Jeremiah 46.15|]][[Jeremiah 46.16|]][[Jeremiah 46.17|]][[Jeremiah 46.18|]][[Jeremiah 46.19|]][[Jeremiah 46.20|]][[Jeremiah 46.21|]][[Jeremiah 46.22|]][[Jeremiah 46.23|]][[Jeremiah 46.24|]][[Jeremiah 46.25|]][[Jeremiah 46.26|]]; [[Ezekiel 29.2|Ezek. 29:2]]; [[Ezekiel 31.2|31:2]]; [[Ezekiel 32.2|32:2]].  
+[^c]: [[Psalms 104.3|Ps. 104:3]].  
+[^d]: [[Exodus 12.12|Ex. 12:12]]; [[Jeremiah 43.12|Jer. 43:12]].  

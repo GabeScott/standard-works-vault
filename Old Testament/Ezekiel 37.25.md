@@ -5,6 +5,6 @@
 [Ezekiel 37:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.25?lang=eng#p25)
 
 
-[^a]: [[Ezekiel 28.25|Ezek. 28:25]]; [[Ezekiel 36.28|36:28.]]
-[^b]: [[Isaiah 60.21|Isa. 60:21.]]
-[^c]: [[Ezekiel 34.24|Ezek. 34:24]]; [[Ezekiel 44.3|44:3.]]
+[^a]: [[Ezekiel 28.25|Ezek. 28:25]]; [[Ezekiel 36.28|36:28]].  
+[^b]: [[Isaiah 60.21|Isa. 60:21]].  
+[^c]: [[Ezekiel 34.24|Ezek. 34:24]]; [[Ezekiel 44.3|44:3]].  

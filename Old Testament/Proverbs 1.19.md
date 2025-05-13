@@ -5,4 +5,4 @@
 [Proverbs 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.19?lang=eng#p19)
 
 
-[^a]: TG [[Selfishness]].
+[^a]: [[Selfishness|TG Selfishness]].  

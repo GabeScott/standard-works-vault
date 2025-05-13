@@ -5,5 +5,5 @@
 [Psalms 13:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/13.1?lang=eng#p1)
 
 
-[^a]: TG [[Despair]].
-[^b]: [[D&C 121.1|D&C 121:1 (1-2).]]
+[^a]: [[Despair|TG Despair]].  
+[^b]: [[D&C 121.1|D&C 121:1 (1–2)]][[D&C 121.2|]].  

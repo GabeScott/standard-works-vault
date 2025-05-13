@@ -5,4 +5,4 @@
 [Judges 20:13](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/20.13?lang=eng#p13)
 
 
-[^a]: [[Deuteronomy 13.13|Deut. 13:13]]; [[Jude 1.19|Jude 1:19.]]
+[^a]: [[Deuteronomy 13.13|Deut. 13:13]]; [[Jude 1.19|Jude 1:19]].  

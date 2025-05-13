@@ -5,4 +5,4 @@
 [1 Timothy 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.12?lang=eng#p12)
 
 
-[^a]: Philip. 4:13.
+[^a]: [[Philippians 4.13|Philip. 4:13]].  

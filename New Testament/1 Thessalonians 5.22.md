@@ -5,6 +5,6 @@
 [1 Thessalonians 5:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.22?lang=eng#p22)
 
 
-[^a]: TG [[Abstain, Abstinence]].
-[^b]: GR kinds. TG [[Apparel]].
-[^c]: TG [[Evil]].
+[^a]: [[Abstain, Abstinence|TG Abstain]].  
+[^b]: GR kinds. [[Apparel|TG Apparel]].  
+[^c]: [[Evil|TG Evil]].  

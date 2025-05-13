@@ -5,5 +5,5 @@
 [3 Nephi 12:42](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p42#p42)
 
 
-[^a]: [[Jacob 2.19|Jacob 2:19 (17-19)]]; [[Mosiah 4.26|Mosiah 4:26.]]
-[^b]: TG [[Borrow, Borrowing]].
+[^a]: [[Jacob 2.17|Jacob 2:19 (17–19)]][[Jacob 2.18|]][[Jacob 2.19|]]; [[Mosiah 4.26|Mosiah 4:26]].  
+[^b]: [[Borrow, Borrowing|TG Borrow]].  

@@ -5,4 +5,4 @@
 [John 19:42](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.42?lang=eng#p42)
 
 
-[^a]: TG [[Passover]].
+[^a]: [[Passover|TG Passover]].  

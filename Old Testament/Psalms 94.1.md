@@ -5,4 +5,4 @@
 [Psalms 94:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/94.1?lang=eng#p1)
 
 
-[^a]: TG [[Vengeance]].
+[^a]: [[Vengeance|TG Vengeance]].  

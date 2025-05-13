@@ -5,4 +5,4 @@
 [Philippians 4:22](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.22?lang=eng#p22)
 
 
-[^a]: Philip. 1:13.
+[^a]: [[Philippians 1.13|Philip. 1:13]].  

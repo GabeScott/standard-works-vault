@@ -5,5 +5,5 @@
 [Judges 4:21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.21?lang=eng#p21)
 
 
-[^a]: HEB tent peg or pin.
-[^b]: [[Judges 5.26|Judg. 5:26 (25-27).]]
+[^a]: HEB tent peg or pin.  
+[^b]: [[Judges 5.25|Judg. 5:26 (25–27)]][[Judges 5.26|]][[Judges 5.27|]].  

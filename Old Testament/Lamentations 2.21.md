@@ -5,4 +5,4 @@
 [Lamentations 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.21?lang=eng#p21)
 
 
-[^a]: [[2 Chronicles 36.17|2 Chr. 36:17]]; [[Jeremiah 14.18|Jer. 14:18]]; Lam. 3:43.
+[^a]: [[2 Chronicles 36.17|2 Chr. 36:17]]; [[Jeremiah 14.18|Jer. 14:18]]; [[Lamentations 3.43|Lam. 3:43]].  

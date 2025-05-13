@@ -5,5 +5,5 @@
 [John 19:39](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.39?lang=eng#p39)
 
 
-[^a]: [[John 3.1|John 3:1 (1-10).]]
-[^b]: [[Psalms 45.8|Ps. 45:8.]]
+[^a]: [[John 3.1|John 3:1 (1–10)]][[John 3.2|]][[John 3.3|]][[John 3.4|]][[John 3.5|]][[John 3.6|]][[John 3.7|]][[John 3.8|]][[John 3.9|]][[John 3.10|]].  
+[^b]: [[Psalms 45.8|Ps. 45:8]].  

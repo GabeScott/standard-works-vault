@@ -5,5 +5,5 @@
 [Luke 22:69](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.69?lang=eng#p69)
 
 
-[^a]: GR From now on.
-[^b]: TG [[Jesus Christ, Son of Man]].
+[^a]: GR From now on.  
+[^b]: [[Jesus Christ, Son of Man|TG Jesus Christ, Son of Man]].  

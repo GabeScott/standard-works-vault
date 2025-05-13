@@ -5,4 +5,4 @@
 [Psalms 88:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/88.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 31.12|Ps. 31:12.]]
+[^a]: [[Psalms 31.12|Ps. 31:12]].  

@@ -5,4 +5,4 @@
 [Ether 9:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p13#p13)
 
 
-[^a]: [[Ether 9.3|Ether 9:3.]]
+[^a]: [[Ether 9.3|Ether 9:3]].  

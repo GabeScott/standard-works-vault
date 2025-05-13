@@ -5,4 +5,4 @@
 [Mormon 6:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mosiah 8.8|Mosiah 8:8]]; [[Alma 50.29|Alma 50:29]]; [[Helaman 3.4|Hel. 3:4 (3-4).]]
+[^a]: [[Mosiah 8.8|Mosiah 8:8]]; [[Alma 50.29|Alma 50:29]]; [[Helaman 3.3|Hel. 3:4 (3–4)]][[Helaman 3.4|]].  

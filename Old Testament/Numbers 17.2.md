@@ -5,4 +5,4 @@
 [Numbers 17:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/17.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 37.16|Ezek. 37:16.]]
+[^a]: [[Ezekiel 37.16|Ezek. 37:16]].  

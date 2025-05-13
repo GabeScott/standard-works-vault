@@ -5,4 +5,4 @@
 [Numbers 21:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.16?lang=eng#p16)
 
 
-[^a]: [[Judges 9.21|Judg. 9:21]]; [[Isaiah 15.8|Isa. 15:8.]]
+[^a]: [[Judges 9.21|Judg. 9:21]]; [[Isaiah 15.8|Isa. 15:8]].  

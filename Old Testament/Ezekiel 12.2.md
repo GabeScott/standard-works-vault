@@ -5,6 +5,6 @@
 [Ezekiel 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 2.5|Ezek. 2:5]]; [[Ezekiel 44.6|44:6.]]
-[^b]: [[D&C 76.116|D&C 76:116 (116-18).]]
-[^c]: TG [[Spiritual Blindness]]; [[Watch, Watchfulness]].
+[^a]: [[Ezekiel 2.5|Ezek. 2:5]]; [[Ezekiel 44.6|44:6]].  
+[^b]: [[D&C 76.116|D&C 76:116 (116–18)]][[D&C 76.117|]][[D&C 76.118|]].  
+[^c]: [[Spiritual Blindness|TG Spiritual Blindness]]; [[Watch, Watchfulness|Watch]].  

@@ -5,4 +5,4 @@
 [Mosiah 17:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/17?lang=eng&id=p9#p9)
 
 
-[^a]: TG [[Courage, Courageous]]; [[Integrity]].
+[^a]: [[Courage, Courageous|TG Courage]]; [[Integrity|Integrity]].  

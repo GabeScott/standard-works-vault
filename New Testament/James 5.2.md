@@ -5,4 +5,4 @@
 [James 5:2](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.2?lang=eng#p2)
 
 
-[^a]: TG [[Treasure]].
+[^a]: [[Treasure|TG Treasure]].  

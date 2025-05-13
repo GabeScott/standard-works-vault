@@ -5,4 +5,4 @@
 [Luke 24:2](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.2?lang=eng#p2)
 
 
-[^a]: JST Luke 24:2-4 (Appendix).
+[^a]: [[JST Luke 24.2|JST Luke 24:2–4 (Appendix)]][[JST Luke 24.3|]][[JST Luke 24.4|]].  

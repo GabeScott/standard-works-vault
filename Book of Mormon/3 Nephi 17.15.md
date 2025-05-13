@@ -5,5 +5,5 @@
 [3 Nephi 17:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p15#p15)
 
 
-[^a]: [[3 Nephi 19.19|3 Ne. 19:19 (19, 27).]]
-[^b]: TG [[Jesus Christ, Relationships with the Father]].
+[^a]: [[3 Nephi 19.19|3 Ne. 19:19 (19, 27)]][[3 Nephi 19.27|]].  
+[^b]: [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  

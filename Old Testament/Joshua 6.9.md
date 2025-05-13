@@ -5,4 +5,4 @@
 [Joshua 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.9?lang=eng#p9)
 
 
-[^a]: IE those bringing up the rear.
+[^a]: IE those bringing up the rear.  

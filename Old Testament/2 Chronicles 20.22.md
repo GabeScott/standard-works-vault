@@ -5,4 +5,4 @@
 [2 Chronicles 20:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/20.22?lang=eng#p22)
 
 
-[^a]: OR smote one another.
+[^a]: OR smote one another.  

@@ -5,4 +5,4 @@
 [Genesis 31:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.27?lang=eng#p27)
 
 
-[^a]: [[Genesis 4.21|Gen. 4:21]]; [[2 Samuel 6.5|2 Sam. 6:5.]]
+[^a]: [[Genesis 4.21|Gen. 4:21]]; [[2 Samuel 6.5|2 Sam. 6:5]].  

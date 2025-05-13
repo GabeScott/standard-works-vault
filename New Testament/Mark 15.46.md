@@ -5,4 +5,4 @@
 [Mark 15:46](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.46?lang=eng#p46)
 
 
-[^a]: [[Mosiah 14.9|Mosiah 14:9.]]
+[^a]: [[Mosiah 14.9|Mosiah 14:9]].  

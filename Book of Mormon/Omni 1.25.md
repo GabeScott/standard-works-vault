@@ -5,7 +5,7 @@
 [Omni 1:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p25#p25)
 
 
-[^a]: W of M 1:18 (17-18); [[Mosiah 29.13|Mosiah 29:13.]]
-[^b]: W of M 1:10.
-[^c]: [[1 Nephi 10.1|1 Ne. 10:1.]]
-[^d]: [[Alma 5.40|Alma 5:40]]; [[Ether 4.12|Ether 4:12]]; [[Moroni 7.16|Moro. 7:16 (15-17).]]
+[^a]: [[Words of Mormon 1.17|W of M 1:18 (17–18)]][[Words of Mormon 1.18|]]; [[Mosiah 29.13|Mosiah 29:13]].  
+[^b]: [[Words of Mormon 1.10|W of M 1:10]].  
+[^c]: [[1 Nephi 10.1|1 Ne. 10:1]].  
+[^d]: [[Alma 5.40|Alma 5:40]]; [[Ether 4.12|Ether 4:12]]; [[Moroni 7.15|Moro. 7:16 (15–17)]][[Moroni 7.16|]][[Moroni 7.17|]].  

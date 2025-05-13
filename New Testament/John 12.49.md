@@ -5,4 +5,4 @@
 [John 12:49](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.49?lang=eng#p49)
 
 
-[^a]: TG [[Jesus Christ, Authority of]].
+[^a]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]].  

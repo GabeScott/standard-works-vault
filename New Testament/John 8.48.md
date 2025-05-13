@@ -5,4 +5,4 @@
 [John 8:48](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.48?lang=eng#p48)
 
 
-[^a]: [[Mosiah 3.9|Mosiah 3:9.]]
+[^a]: [[Mosiah 3.9|Mosiah 3:9]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 2:25](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.25?lang=eng#p25)
 
 
-[^a]: [[Exodus 15.16|Ex. 15:16 (14-16, 18).]]
+[^a]: [[Exodus 15.14|Ex. 15:16 (14–16, 18)]][[Exodus 15.15|]][[Exodus 15.16|]][[Exodus 15.18|]].  

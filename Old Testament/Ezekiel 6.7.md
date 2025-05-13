@@ -5,4 +5,4 @@
 [Ezekiel 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/6.7?lang=eng#p7)
 
 
-[^a]: TG [[God, Knowledge about]].
+[^a]: [[God, Knowledge about|TG God, Knowledge about]].  

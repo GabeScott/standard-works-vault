@@ -5,5 +5,5 @@
 [Psalms 102:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/102.13?lang=eng#p13)
 
 
-[^a]: [[Isaiah 14.1|Isa. 14:1.]]
-[^b]: TG [[Zion, Sion]].
+[^a]: [[Isaiah 14.1|Isa. 14:1]].  
+[^b]: [[Zion, Sion|TG Zion]].  

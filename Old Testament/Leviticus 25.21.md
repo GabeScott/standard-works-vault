@@ -5,4 +5,4 @@
 [Leviticus 25:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.21?lang=eng#p21)
 
 
-[^a]: [[1 Nephi 3.7|1 Ne. 3:7.]]
+[^a]: [[1 Nephi 3.7|1 Ne. 3:7]].  

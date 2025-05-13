@@ -5,4 +5,4 @@
 [Luke 12:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.10?lang=eng#p10)
 
 
-[^a]: TG [[Apostasy of Individuals]]; [[Holy Ghost, Unpardonable Sin against]].
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]]; [[Holy Ghost, Unpardonable Sin against|Holy Ghost, Unpardonable Sin against]].  

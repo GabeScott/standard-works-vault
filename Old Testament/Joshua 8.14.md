@@ -5,4 +5,4 @@
 [Joshua 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.14?lang=eng#p14)
 
 
-[^a]: OR knew.
+[^a]: OR knew.  

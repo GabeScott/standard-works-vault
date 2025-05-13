@@ -5,6 +5,6 @@
 [Revelation 21:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.5?lang=eng#p5)
 
 
-[^a]: [[2 Corinthians 5.17|2 Cor. 5:17]]; D&C 130:5-9.
-[^b]: TG [[Scriptures, Writing of]].
-[^c]: [[D&C 1.37|D&C 1:37.]]
+[^a]: [[2 Corinthians 5.17|2 Cor. 5:17]]; [[D&C 130.5|D&C 130:5–9]][[D&C 130.6|]][[D&C 130.7|]][[D&C 130.8|]][[D&C 130.9|]].  
+[^b]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  
+[^c]: [[D&C 1.37|D&C 1:37]].  

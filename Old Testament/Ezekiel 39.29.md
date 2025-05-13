@@ -5,5 +5,5 @@
 [Ezekiel 39:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.29?lang=eng#p29)
 
 
-[^a]: [[Isaiah 54.8|Isa. 54:8.]]
-[^b]: [[Zechariah 12.10|Zech. 12:10.]]
+[^a]: [[Isaiah 54.8|Isa. 54:8]].  
+[^b]: [[Zechariah 12.10|Zech. 12:10]].  

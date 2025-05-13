@@ -5,5 +5,5 @@
 [Psalms 26:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/26.5?lang=eng#p5)
 
 
-[^a]: TG [[Hate]].
-[^b]: [[D&C 68.1|D&C 68:1.]]
+[^a]: [[Hate|TG Hate]].  
+[^b]: [[D&C 68.1|D&C 68:1]].  

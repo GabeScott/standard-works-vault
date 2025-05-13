@@ -5,5 +5,5 @@
 [1 Corinthians 16:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.2?lang=eng#p2)
 
 
-[^a]: TG [[Sabbath]].
-[^b]: [[Deuteronomy 16.10|Deut. 16:10.]]
+[^a]: [[Sabbath|TG Sabbath]].  
+[^b]: [[Deuteronomy 16.10|Deut. 16:10]].  

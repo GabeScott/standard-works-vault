@@ -5,5 +5,5 @@
 [1 Samuel 15:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.11?lang=eng#p11)
 
 
-[^a]: JST 1 Sam. 15:11 I have set up Saul to be a king, and he repenteth not that he hath sinned, for he is …
-[^b]: The Hebrew root means “to sigh,” therefore “to feel sorrow.” Gen. 6:6; [[2 Samuel 24.16|2 Sam. 24:16]]; [[Joel 2.13|Joel 2:13.]]
+[^a]: JST 1 Sam. 15:11 I have set up Saul to be a king, and he repenteth not that he hath sinned, for he is …  
+[^b]: The Hebrew root means “to sigh,” therefore “to feel sorrow.” [[Genesis 6.6|Gen. 6:6]]; [[2 Samuel 24.16|2 Sam. 24:16]]; [[Joel 2.13|Joel 2:13]].  

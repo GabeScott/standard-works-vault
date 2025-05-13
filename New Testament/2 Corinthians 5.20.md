@@ -5,4 +5,4 @@
 [2 Corinthians 5:20](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.20?lang=eng#p20)
 
 
-[^a]: [[Luke 14.23|Luke 14:23.]]
+[^a]: [[Luke 14.23|Luke 14:23]].  

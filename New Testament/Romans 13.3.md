@@ -5,5 +5,5 @@
 [Romans 13:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.3?lang=eng#p3)
 
 
-[^a]: GR authority.
-[^b]: TG [[Retribution]].
+[^a]: GR authority.  
+[^b]: [[Retribution|TG Retribution]].  

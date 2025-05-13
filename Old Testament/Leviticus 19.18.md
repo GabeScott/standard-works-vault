@@ -5,7 +5,7 @@
 [Leviticus 19:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.18?lang=eng#p18)
 
 
-[^a]: TG [[Forbear, Forbearance]]; [[Retribution]].
-[^b]: TG [[Malice]].
-[^c]: TG [[Charity]]; [[Love]].
-[^d]: TG [[Fellowshipping]]; [[Neighbor]].
+[^a]: [[Forbear, Forbearance|TG Forbear]]; [[Retribution|Retribution]].  
+[^b]: [[Malice|TG Malice]].  
+[^c]: [[Charity|TG Charity]]; [[Love|Love]].  
+[^d]: [[Fellowshipping|TG Fellowshipping]]; [[Neighbor|Neighbor]].  

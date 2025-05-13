@@ -5,4 +5,4 @@
 [2 Chronicles 35:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/35.25?lang=eng#p25)
 
 
-[^a]: Lam. 4:20.
+[^a]: [[Lamentations 4.20|Lam. 4:20]].  

@@ -5,4 +5,4 @@
 [Jacob 2:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p21#p21)
 
 
-[^a]: [[D&C 11.20|D&C 11:20]]; [[Abraham 3.25|Abr. 3:25 (25-26).]]
+[^a]: [[D&C 11.20|D&C 11:20]]; [[Abraham 3.25|Abr. 3:25 (25–26)]][[Abraham 3.26|]].  

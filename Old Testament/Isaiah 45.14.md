@@ -5,6 +5,6 @@
 [Isaiah 45:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 43.3|Isa. 43:3.]]
-[^b]: OR behind.
-[^c]: [[Moses 1.6|Moses 1:6.]]
+[^a]: [[Isaiah 43.3|Isa. 43:3]].  
+[^b]: OR behind.  
+[^c]: [[Moses 1.6|Moses 1:6]].  

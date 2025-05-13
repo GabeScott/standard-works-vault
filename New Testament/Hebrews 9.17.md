@@ -5,5 +5,5 @@
 [Hebrews 9:17](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.17?lang=eng#p17)
 
 
-[^a]: TG [[Witness, Witnesses]].
-[^b]: GR since.
+[^a]: [[Witness, Witnesses|TG Witness]].  
+[^b]: GR since.  

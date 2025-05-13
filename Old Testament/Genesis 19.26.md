@@ -5,5 +5,5 @@
 [Genesis 19:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.26?lang=eng#p26)
 
 
-[^a]: [[Genesis 19.17|Gen. 19:17.]]
-[^b]: [[Luke 17.32|Luke 17:32 (31-33).]]
+[^a]: [[Genesis 19.17|Gen. 19:17]].  
+[^b]: [[Luke 17.31|Luke 17:32 (31–33)]][[Luke 17.32|]][[Luke 17.33|]].  

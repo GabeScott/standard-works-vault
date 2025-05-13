@@ -5,4 +5,4 @@
 [Exodus 32:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.18?lang=eng#p18)
 
 
-[^a]: HEB call for courage.
+[^a]: HEB call for courage.  

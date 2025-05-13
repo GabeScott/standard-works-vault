@@ -5,4 +5,4 @@
 [Judges 11:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.22?lang=eng#p22)
 
 
-[^a]: [[Joshua 18.5|Josh. 18:5.]]
+[^a]: [[Joshua 18.5|Josh. 18:5]].  

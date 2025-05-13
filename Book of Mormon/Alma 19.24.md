@@ -5,4 +5,4 @@
 [Alma 19:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p24#p24)
 
 
-[^a]: [[Luke 7.16|Luke 7:16]]; [[Moses 6.39|Moses 6:39 (37-40).]]
+[^a]: [[Luke 7.16|Luke 7:16]]; [[Moses 6.37|Moses 6:39 (37–40)]][[Moses 6.38|]][[Moses 6.39|]][[Moses 6.40|]].  

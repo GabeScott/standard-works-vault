@@ -5,4 +5,4 @@
 [Mosiah 21:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p33#p33)
 
 
-[^a]: TG [[Baptism, Essential]]; [[Priesthood, Authority]].
+[^a]: [[Baptism, Essential|TG Baptism, Essential]]; [[Priesthood, Authority|Priesthood, Authority]].  

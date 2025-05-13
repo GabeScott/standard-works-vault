@@ -5,4 +5,4 @@
 [Exodus 16:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.33?lang=eng#p33)
 
 
-[^a]: [[Hebrews 9.4|Heb. 9:4.]]
+[^a]: [[Hebrews 9.4|Heb. 9:4]].  

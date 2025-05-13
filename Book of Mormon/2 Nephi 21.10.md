@@ -5,6 +5,6 @@
 [2 Nephi 21:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/21?lang=eng&id=p10#p10)
 
 
-[^a]: [[Romans 15.12|Rom. 15:12]]; [[D&C 113.5|D&C 113:5 (5-6).]]
-[^b]: [[D&C 45.9|D&C 45:9 (9-10).]]
-[^c]: [[D&C 19.9|D&C 19:9]]. TG [[Earth, Renewal of]].
+[^a]: [[Romans 15.12|Rom. 15:12]]; [[D&C 113.5|D&C 113:5 (5–6)]][[D&C 113.6|]].  
+[^b]: [[D&C 45.9|D&C 45:9 (9–10)]][[D&C 45.10|]].  
+[^c]: [[D&C 19.9|D&C 19:9]]. [[Earth, Renewal of|TG Earth, Renewal of]].  

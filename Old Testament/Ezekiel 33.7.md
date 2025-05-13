@@ -5,4 +5,4 @@
 [Ezekiel 33:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.7?lang=eng#p7)
 
 
-[^a]: TG [[Leadership]]; [[Watchman, Watchmen]].
+[^a]: [[Leadership|TG Leadership]]; [[Watchman, Watchmen|Watchman]].  

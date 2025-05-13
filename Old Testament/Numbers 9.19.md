@@ -5,4 +5,4 @@
 [Numbers 9:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/9.19?lang=eng#p19)
 
 
-[^a]: [[Exodus 40.37|Ex. 40:37.]]
+[^a]: [[Exodus 40.37|Ex. 40:37]].  

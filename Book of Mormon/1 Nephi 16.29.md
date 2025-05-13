@@ -5,5 +5,5 @@
 [1 Nephi 16:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p29#p29)
 
 
-[^a]: TG [[Understanding]].
-[^b]: [[2 Kings 5.13|2 Kgs. 5:13]]; [[James 3.4|James 3:4]]; [[Alma 37.6|Alma 37:6 (6-8, 41)]]; [[D&C 123.16|D&C 123:16.]]
+[^a]: [[Understanding|TG Understanding]].  
+[^b]: [[2 Kings 5.13|2 Kgs. 5:13]]; [[James 3.4|James 3:4]]; [[Alma 37.6|Alma 37:6 (6–8, 41)]][[Alma 37.7|]][[Alma 37.8|]][[Alma 37.41|]]; [[D&C 123.16|D&C 123:16]].  

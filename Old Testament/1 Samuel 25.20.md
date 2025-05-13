@@ -5,4 +5,4 @@
 [1 Samuel 25:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.20?lang=eng#p20)
 
 
-[^a]: OR concealed by the hill.
+[^a]: OR concealed by the hill.  

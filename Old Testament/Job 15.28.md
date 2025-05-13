@@ -5,4 +5,4 @@
 [Job 15:28](https://www.churchofjesuschrist.org/study/scriptures/ot/job/15.28?lang=eng#p28)
 
 
-[^a]: IE of ruins.
+[^a]: IE of ruins.  

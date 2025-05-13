@@ -5,4 +5,4 @@
 [Galatians 6:5](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/6.5?lang=eng#p5)
 
 
-[^a]: [[Proverbs 9.12|Prov. 9:12.]]
+[^a]: [[Proverbs 9.12|Prov. 9:12]].  

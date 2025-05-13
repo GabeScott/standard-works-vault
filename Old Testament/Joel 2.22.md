@@ -5,4 +5,4 @@
 [Joel 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.22?lang=eng#p22)
 
 
-[^a]: [[Joel 1.20|Joel 1:20.]]
+[^a]: [[Joel 1.20|Joel 1:20]].  

@@ -5,6 +5,6 @@
 [Isaiah 41:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.14?lang=eng#p14)
 
 
-[^a]: IE meek and humble.
-[^c]: TG [[Jesus Christ, Redeemer]].
-[^d]: TG [[Holiness]].
+[^a]: IE meek and humble.  
+[^c]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]].  
+[^d]: [[Holiness|TG Holiness]].  

@@ -5,4 +5,4 @@
 [Zephaniah 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.18?lang=eng#p18)
 
 
-[^a]: [[Joel 1.19|Joel 1:19 (19-20).]]
+[^a]: [[Joel 1.19|Joel 1:19 (19–20)]][[Joel 1.20|]].  

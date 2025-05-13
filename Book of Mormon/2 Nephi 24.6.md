@@ -5,4 +5,4 @@
 [2 Nephi 24:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p6#p6)
 
 
-[^a]: IE Babylon.
+[^a]: IE Babylon.  

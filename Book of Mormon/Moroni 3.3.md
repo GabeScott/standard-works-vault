@@ -5,5 +5,5 @@
 [Moroni 3:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/3?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Teacher]].
-[^b]: TG [[Remission of Sins]].
+[^a]: [[Teacher|TG Teacher]].  
+[^b]: [[Remission of Sins|TG Remission of Sins]].  

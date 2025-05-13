@@ -5,4 +5,4 @@
 [Job 16:14](https://www.churchofjesuschrist.org/study/scriptures/ot/job/16.14?lang=eng#p14)
 
 
-[^a]: HEB mighty man.
+[^a]: HEB mighty man.  

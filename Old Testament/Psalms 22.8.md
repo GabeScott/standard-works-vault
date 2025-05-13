@@ -5,4 +5,4 @@
 [Psalms 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.8?lang=eng#p8)
 
 
-[^a]: [[Matthew 27.43|Matt. 27:43.]]
+[^a]: [[Matthew 27.43|Matt. 27:43]].  

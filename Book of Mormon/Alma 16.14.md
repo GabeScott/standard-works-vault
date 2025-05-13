@@ -5,4 +5,4 @@
 [Alma 16:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/16?lang=eng&id=p14#p14)
 
 
-[^a]: [[Deuteronomy 10.17|Deut. 10:17]]; [[Alma 1.30|Alma 1:30.]]
+[^a]: [[Deuteronomy 10.17|Deut. 10:17]]; [[Alma 1.30|Alma 1:30]].  

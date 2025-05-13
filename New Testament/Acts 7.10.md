@@ -5,5 +5,5 @@
 [Acts 7:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.10?lang=eng#p10)
 
 
-[^a]: [[D&C 24.1|D&C 24:1.]]
-[^b]: TG [[Affliction]].
+[^a]: [[D&C 24.1|D&C 24:1]].  
+[^b]: [[Affliction|TG Affliction]].  

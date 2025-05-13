@@ -5,4 +5,4 @@
 [Hebrews 11:24](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 2.10|Ex. 2:10.]]
+[^a]: [[Exodus 2.10|Ex. 2:10]].  

@@ -5,5 +5,5 @@
 [Alma 9:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p19#p19)
 
 
-[^a]: [[1 Nephi 12.19|1 Ne. 12:19 (15, 19-20)]]; [[Alma 45.11|Alma 45:11 (10-14).]]
-[^b]: [[Alma 24.30|Alma 24:30.]]
+[^a]: [[1 Nephi 12.15|1 Ne. 12:19 (15, 19–20)]][[1 Nephi 12.19|]][[1 Nephi 12.20|]]; [[Alma 45.10|Alma 45:11 (10–14)]][[Alma 45.11|]][[Alma 45.12|]][[Alma 45.13|]][[Alma 45.14|]].  
+[^b]: [[Alma 24.30|Alma 24:30]].  

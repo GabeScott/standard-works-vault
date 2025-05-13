@@ -5,4 +5,4 @@
 [Alma 1:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p22#p22)
 
 
-[^a]: [[Exodus 21.18|Ex. 21:18 (18-19)]]; [[Isaiah 58.4|Isa. 58:4.]]
+[^a]: [[Exodus 21.18|Ex. 21:18 (18–19)]][[Exodus 21.19|]]; [[Isaiah 58.4|Isa. 58:4]].  

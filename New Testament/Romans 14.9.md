@@ -5,5 +5,5 @@
 [Romans 14:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.9?lang=eng#p9)
 
 
-[^a]: TG [[Jesus Christ, Authority of]]; [[Jesus Christ, Power of]].
-[^b]: [[Luke 20.38|Luke 20:38]]. TG [[Genealogy and Temple Work]]; [[Salvation for the Dead]].
+[^a]: [[Jesus Christ, Authority of|TG Jesus Christ, Authority of]]; [[Jesus Christ, Power of|Jesus Christ, Power of]].  
+[^b]: [[Luke 20.38|Luke 20:38]]. [[Genealogy and Temple Work|TG Genealogy and Temple Work]]; [[Salvation for the Dead|Salvation for the Dead]].  

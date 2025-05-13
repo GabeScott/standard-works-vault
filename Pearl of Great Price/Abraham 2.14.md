@@ -5,4 +5,4 @@
 [Abraham 2:14](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/2.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 12.4|Gen. 12:4.]]
+[^a]: [[Genesis 12.4|Gen. 12:4]].  

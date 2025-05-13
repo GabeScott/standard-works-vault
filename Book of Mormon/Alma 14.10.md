@@ -5,4 +5,4 @@
 [Alma 14:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/14?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 8.31|Alma 8:31 (30-31).]]
+[^a]: [[Alma 8.30|Alma 8:31 (30–31)]][[Alma 8.31|]].  

@@ -5,6 +5,6 @@
 [Isaiah 41:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.1?lang=eng#p1)
 
 
-[^a]: TG [[Silence, Silent]].
-[^b]: [[Isaiah 40.31|Isa. 40:31.]]
-[^c]: [[D&C 50.10|D&C 50:10 (10-11).]]
+[^a]: [[Silence, Silent|TG Silence]].  
+[^b]: [[Isaiah 40.31|Isa. 40:31]].  
+[^c]: [[D&C 50.10|D&C 50:10 (10–11)]][[D&C 50.11|]].  

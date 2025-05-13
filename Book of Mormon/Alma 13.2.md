@@ -5,5 +5,5 @@
 [Alma 13:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p2#p2)
 
 
-[^a]: [[D&C 107.3|D&C 107:3 (2-4).]]
-[^b]: [[Alma 13.16|Alma 13:16.]]
+[^a]: [[D&C 107.2|D&C 107:3 (2–4)]][[D&C 107.3|]][[D&C 107.4|]].  
+[^b]: [[Alma 13.16|Alma 13:16]].  

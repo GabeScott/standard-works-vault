@@ -5,6 +5,6 @@
 [2 Corinthians 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.12?lang=eng#p12)
 
 
-[^a]: TG [[Testimony]].
-[^b]: GR plainness, singleness of heart.
-[^c]: [[1 Corinthians 2.13|1 Cor. 2:13.]]
+[^a]: [[Testimony|TG Testimony]].  
+[^b]: GR plainness, singleness of heart.  
+[^c]: [[1 Corinthians 2.13|1 Cor. 2:13]].  

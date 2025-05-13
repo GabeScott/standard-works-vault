@@ -5,4 +5,4 @@
 [Genesis 12:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.14?lang=eng#p14)
 
 
-[^a]: TG [[Covet, Covetousness]].
+[^a]: [[Covet, Covetousness|TG Covet]].  

@@ -5,4 +5,4 @@
 [Jeremiah 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.3?lang=eng#p3)
 
 
-[^a]: [[Isaiah 40.19|Isa. 40:19 (19-20)]]; [[Isaiah 44.12|44:12]]. TG [[Traditions of Men]].
+[^a]: [[Isaiah 40.19|Isa. 40:19 (19–20)]][[Isaiah 40.20|]]; [[Isaiah 44.12|44:12]]. [[Traditions of Men|TG Traditions of Men]].  

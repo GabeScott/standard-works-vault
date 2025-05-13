@@ -5,4 +5,4 @@
 [1 Samuel 6:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.8?lang=eng#p8)
 
 
-[^a]: OR basket, chest, trunk, especially for valuables (also vv. 11, 15).
+[^a]: OR basket, chest, trunk, especially for valuables (also [[1 Samuel 6.11|vv. 11, 15]][[1 Samuel 6.15|]]).  

@@ -5,5 +5,5 @@
 [Mosiah 14:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/14?lang=eng&id=p4#p4)
 
 
-[^a]: [[Alma 7.11|Alma 7:11.]]
-[^b]: [[Matthew 8.17|Matt. 8:17.]]
+[^a]: [[Alma 7.11|Alma 7:11]].  
+[^b]: [[Matthew 8.17|Matt. 8:17]].  

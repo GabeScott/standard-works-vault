@@ -5,7 +5,7 @@
 [Mosiah 27:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p29#p29)
 
 
-[^a]: [[Isaiah 38.17|Isa. 38:17.]]
-[^b]: [[Isaiah 58.6|Isa. 58:6.]]
-[^c]: [[Mosiah 2.38|Mosiah 2:38.]]
-[^d]: TG [[Pain]].
+[^a]: [[Isaiah 38.17|Isa. 38:17]].  
+[^b]: [[Isaiah 58.6|Isa. 58:6]].  
+[^c]: [[Mosiah 2.38|Mosiah 2:38]].  
+[^d]: [[Pain|TG Pain]].  

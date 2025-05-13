@@ -5,4 +5,4 @@
 [Jeremiah 28:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/28.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 27.2|Jer. 27:2.]]
+[^a]: [[Jeremiah 27.2|Jer. 27:2]].  

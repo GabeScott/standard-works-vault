@@ -5,4 +5,4 @@
 [Isaiah 41:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.20?lang=eng#p20)
 
 
-[^a]: TG [[Jesus Christ, Creator]].
+[^a]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  

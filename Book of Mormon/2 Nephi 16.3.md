@@ -5,4 +5,4 @@
 [2 Nephi 16:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/16?lang=eng&id=p3#p3)
 
 
-[^a]: [[Psalms 72.19|Ps. 72:19 (19-20)]]. TG [[Jesus Christ, Glory of]].
+[^a]: [[Psalms 72.19|Ps. 72:19 (19–20)]][[Psalms 72.20|]]. [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  

@@ -5,4 +5,4 @@
 [Alma 29:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Stewardship, Steward]].
+[^a]: [[Stewardship, Steward|TG Stewardship]].  

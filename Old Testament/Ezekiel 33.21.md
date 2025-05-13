@@ -5,6 +5,6 @@
 [Ezekiel 33:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.21?lang=eng#p21)
 
 
-[^a]: [[Ezekiel 1.2|Ezek. 1:2]]; [[Ezekiel 20.1|20:1]]; [[Ezekiel 24.1|24:1]]; [[Ezekiel 26.1|26:1.]]
-[^b]: [[Ezekiel 24.26|Ezek. 24:26.]]
-[^c]: TG [[Jerusalem]].
+[^a]: [[Ezekiel 1.2|Ezek. 1:2]]; [[Ezekiel 20.1|20:1]]; [[Ezekiel 24.1|24:1]]; [[Ezekiel 26.1|26:1]].  
+[^b]: [[Ezekiel 24.26|Ezek. 24:26]].  
+[^c]: [[Jerusalem|TG Jerusalem]].  

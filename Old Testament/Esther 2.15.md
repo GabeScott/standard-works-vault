@@ -5,4 +5,4 @@
 [Esther 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/2.15?lang=eng#p15)
 
 
-[^a]: [[Esther 9.29|Esth. 9:29.]]
+[^a]: [[Esther 9.29|Esth. 9:29]].  

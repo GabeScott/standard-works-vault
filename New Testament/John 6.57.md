@@ -5,5 +5,5 @@
 [John 6:57](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.57?lang=eng#p57)
 
 
-[^a]: TG [[Jesus Christ, Messenger of the Covenant]].
-[^b]: [[John 5.26|John 5:26.]]
+[^a]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  
+[^b]: [[John 5.26|John 5:26]].  

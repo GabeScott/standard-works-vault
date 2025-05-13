@@ -5,4 +5,4 @@
 [Numbers 31:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.29?lang=eng#p29)
 
 
-[^a]: HEB contribution (also v. 41).
+[^a]: HEB contribution (also [[Numbers 31.41|v. 41]]).  

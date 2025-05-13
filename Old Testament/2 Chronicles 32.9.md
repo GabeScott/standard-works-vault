@@ -5,4 +5,4 @@
 [2 Chronicles 32:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.9?lang=eng#p9)
 
 
-[^a]: [[2 Kings 18.17|2 Kgs. 18:17 (17-19, 37).]]
+[^a]: [[2 Kings 18.17|2 Kgs. 18:17 (17–19, 37)]][[2 Kings 18.18|]][[2 Kings 18.19|]][[2 Kings 18.37|]].  

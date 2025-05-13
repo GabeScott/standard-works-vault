@@ -5,4 +5,4 @@
 [Deuteronomy 31:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.17?lang=eng#p17)
 
 
-[^a]: [[Ezekiel 39.23|Ezek. 39:23.]]
+[^a]: [[Ezekiel 39.23|Ezek. 39:23]].  

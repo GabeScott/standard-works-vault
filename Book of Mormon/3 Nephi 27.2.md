@@ -5,4 +5,4 @@
 [3 Nephi 27:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p2#p2)
 
 
-[^a]: [[3 Nephi 26.13|3 Ne. 26:13]]. TG [[Jesus Christ, Appearances, Postmortal]].
+[^a]: [[3 Nephi 26.13|3 Ne. 26:13]]. [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  

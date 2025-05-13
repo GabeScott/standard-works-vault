@@ -5,4 +5,4 @@
 [Habakkuk 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/1.9?lang=eng#p9)
 
 
-[^a]: OR captives.
+[^a]: OR captives.  

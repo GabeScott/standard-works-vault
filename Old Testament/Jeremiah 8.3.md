@@ -5,5 +5,5 @@
 [Jeremiah 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.3?lang=eng#p3)
 
 
-[^a]: [[Revelation 9.6|Rev. 9:6.]]
-[^b]: TG [[Agency]].
+[^a]: [[Revelation 9.6|Rev. 9:6]].  
+[^b]: [[Agency|TG Agency]].  

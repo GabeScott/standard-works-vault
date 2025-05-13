@@ -5,4 +5,4 @@
 [Psalms 37:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.10?lang=eng#p10)
 
 
-[^a]: [[Job 24.24|Job 24:24.]]
+[^a]: [[Job 24.24|Job 24:24]].  

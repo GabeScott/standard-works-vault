@@ -5,5 +5,5 @@
 [Ephesians 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.17?lang=eng#p17)
 
 
-[^a]: Col. 2:7.
-[^b]: Col. 1:23.
+[^a]: [[Colossians 2.7|Col. 2:7]].  
+[^b]: [[Colossians 1.23|Col. 1:23]].  

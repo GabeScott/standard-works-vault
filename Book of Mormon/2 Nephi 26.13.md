@@ -5,7 +5,7 @@
 [2 Nephi 26:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[God, Access to]].
-[^b]: TG [[Holy Ghost, Mission of]].
-[^c]: TG [[Miracle]].
-[^d]: TG [[Faith]].
+[^a]: [[God, Access to|TG God, Access to]].  
+[^b]: [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  
+[^c]: [[Miracle|TG Miracle]].  
+[^d]: [[Faith|TG Faith]].  

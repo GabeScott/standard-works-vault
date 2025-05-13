@@ -5,4 +5,4 @@
 [Ether 12:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p30#p30)
 
 
-[^a]: [[Matthew 17.20|Matt. 17:20]]; [[Jacob 4.6|Jacob 4:6]]; [[Helaman 10.9|Hel. 10:9]]. TG [[God, Power of]].
+[^a]: [[Matthew 17.20|Matt. 17:20]]; [[Jacob 4.6|Jacob 4:6]]; [[Helaman 10.9|Hel. 10:9]]. [[God, Power of|TG God, Power of]].  

@@ -5,4 +5,4 @@
 [Genesis 48:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 35.19|Gen. 35:19.]]
+[^a]: [[Genesis 35.19|Gen. 35:19]].  

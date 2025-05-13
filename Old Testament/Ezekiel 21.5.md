@@ -5,4 +5,4 @@
 [Ezekiel 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.5?lang=eng#p5)
 
 
-[^a]: IE be sheathed.
+[^a]: IE be sheathed.  

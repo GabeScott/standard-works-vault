@@ -5,4 +5,4 @@
 [Isaiah 30:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.24?lang=eng#p24)
 
 
-[^a]: HEB work the soil.
+[^a]: HEB work the soil.  

@@ -5,4 +5,4 @@
 [Numbers 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/7.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 45.27|Gen. 45:27.]]
+[^a]: [[Genesis 45.27|Gen. 45:27]].  

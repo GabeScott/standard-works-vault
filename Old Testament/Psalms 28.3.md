@@ -5,6 +5,6 @@
 [Psalms 28:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/28.3?lang=eng#p3)
 
 
-[^a]: [[Proverbs 26.25|Prov. 26:25.]]
-[^b]: TG [[Peace of God]].
-[^c]: TG [[Guile]]; [[Hypocrisy, Hypocrite]].
+[^a]: [[Proverbs 26.25|Prov. 26:25]].  
+[^b]: [[Peace|TG Peace]].  
+[^c]: [[Guile|TG Guile]]; [[Hypocrisy, Hypocrite|Hypocrisy]].  

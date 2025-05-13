@@ -5,4 +5,4 @@
 [Matthew 8:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.21?lang=eng#p21)
 
 
-[^a]: GR let, allow.
+[^a]: GR let, allow.  

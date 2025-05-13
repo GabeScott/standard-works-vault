@@ -5,5 +5,5 @@
 [3 Nephi 15:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/15?lang=eng&id=p23#p23)
 
 
-[^a]: [[Matthew 15.24|Matt. 15:24.]]
-[^b]: [[1 Nephi 10.11|1 Ne. 10:11]]. TG [[Holy Ghost, Mission of]].
+[^a]: [[Matthew 15.24|Matt. 15:24]].  
+[^b]: [[1 Nephi 10.11|1 Ne. 10:11]]. [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  

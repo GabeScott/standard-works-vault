@@ -5,4 +5,4 @@
 [Hebrews 11:20](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 27.27|Gen. 27:27.]]
+[^a]: [[Genesis 27.27|Gen. 27:27]].  

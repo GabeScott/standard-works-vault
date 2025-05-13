@@ -5,6 +5,6 @@
 [3 Nephi 4:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/4?lang=eng&id=p1#p1)
 
 
-[^a]: [[Helaman 2.13|Hel. 2:13 (11-13).]]
-[^b]: [[Alma 58.6|Alma 58:6.]]
-[^c]: [[3 Nephi 3.13|3 Ne. 3:13 (13-14, 22).]]
+[^a]: [[Helaman 2.11|Hel. 2:13 (11–13)]][[Helaman 2.12|]][[Helaman 2.13|]].  
+[^b]: [[Alma 58.6|Alma 58:6]].  
+[^c]: [[3 Nephi 3.13|3 Ne. 3:13 (13–14, 22)]][[3 Nephi 3.14|]][[3 Nephi 3.22|]].  

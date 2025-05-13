@@ -5,6 +5,6 @@
 [1 Thessalonians 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/4.11?lang=eng#p11)
 
 
-[^a]: GR strive, endeavor earnestly.
-[^b]: TG [[Industry, Industrious]]; [[Labor]]; [[Skill]]; [[Work, Value of]].
-[^c]: [[Proverbs 31.13|Prov. 31:13.]]
+[^a]: GR strive, endeavor earnestly.  
+[^b]: [[Industry, Industrious|TG Industry]]; [[Labor|Labor]]; [[Skill|Skill]]; [[Work, Value of|Work, Value of]].  
+[^c]: [[Proverbs 31.13|Prov. 31:13]].  

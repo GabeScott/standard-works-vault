@@ -5,5 +5,5 @@
 [Jeremiah 25:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.20?lang=eng#p20)
 
 
-[^a]: [[Jeremiah 50.37|Jer. 50:37.]]
-[^b]: [[Jeremiah 47.1|Jer. 47:1.]]
+[^a]: [[Jeremiah 50.37|Jer. 50:37]].  
+[^b]: [[Jeremiah 47.1|Jer. 47:1]].  

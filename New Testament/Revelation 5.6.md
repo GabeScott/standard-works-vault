@@ -5,5 +5,5 @@
 [Revelation 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/5.6?lang=eng#p6)
 
 
-[^a]: TG [[Jesus Christ, Types of, in Anticipation]].
-[^b]: JST Rev. 5:6 … having twelve horns and twelve eyes, which are the twelve servants of God, sent forth into all the earth.
+[^a]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]].  
+[^b]: [[JST Revelation 5.6|JST Rev. 5:6]] … having twelve horns and twelve eyes, which are the twelve servants of God, sent forth into all the earth.  

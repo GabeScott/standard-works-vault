@@ -5,5 +5,5 @@
 [1 Samuel 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/7.9?lang=eng#p9)
 
 
-[^a]: [[Alma 10.22|Alma 10:22.]]
-[^b]: HEB answered.
+[^a]: [[Alma 10.22|Alma 10:22]].  
+[^b]: HEB answered.  

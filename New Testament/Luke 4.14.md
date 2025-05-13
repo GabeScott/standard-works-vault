@@ -5,5 +5,5 @@
 [Luke 4:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.14?lang=eng#p14)
 
 
-[^a]: TG [[Jesus Christ, Power of]].
-[^b]: [[Matthew 4.12|Matt. 4:12.]]
+[^a]: [[Jesus Christ, Power of|TG Jesus Christ, Power of]].  
+[^b]: [[Matthew 4.12|Matt. 4:12]].  

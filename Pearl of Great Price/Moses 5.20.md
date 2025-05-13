@@ -5,6 +5,6 @@
 [Moses 5:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.20?lang=eng#p20)
 
 
-[^a]: [[Mosiah 2.3|Mosiah 2:3.]]
-[^b]: TG [[Respecter]].
-[^c]: TG [[Self-Sacrifice]].
+[^a]: [[Mosiah 2.3|Mosiah 2:3]].  
+[^b]: [[Respect|TG Respect]].  
+[^c]: [[Sacrifice|TG Sacrifice]].  

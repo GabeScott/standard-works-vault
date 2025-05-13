@@ -5,6 +5,6 @@
 [Philippians 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.8?lang=eng#p8)
 
 
-[^a]: TG [[Self-Sacrifice]]; [[Suffering]].
-[^b]: [[Omni 1.26|Omni 1:26]]; [[Mosiah 2.34|Mosiah 2:34.]]
-[^c]: GR refuse.
+[^a]: [[Self-Sacrifice|TG Self-Sacrifice]]; [[Suffering|Suffering]].  
+[^b]: [[Omni 1.26|Omni 1:26]]; [[Mosiah 2.34|Mosiah 2:34]].  
+[^c]: GR refuse.  

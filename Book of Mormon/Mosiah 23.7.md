@@ -5,4 +5,4 @@
 [Mosiah 23:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p7#p7)
 
 
-[^a]: [[Mosiah 27.3|Mosiah 27:3 (3-5).]]
+[^a]: [[Mosiah 27.3|Mosiah 27:3 (3–5)]][[Mosiah 27.4|]][[Mosiah 27.5|]].  

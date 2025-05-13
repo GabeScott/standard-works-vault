@@ -5,4 +5,4 @@
 [3 Nephi 3:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p14#p14)
 
 
-[^a]: [[Mormon 2.4|Morm. 2:4.]]
+[^a]: [[Mormon 2.4|Morm. 2:4]].  

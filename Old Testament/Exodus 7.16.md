@@ -5,5 +5,5 @@
 [Exodus 7:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 5.3|Ex. 5:3.]]
-[^b]: TG [[Service]].
+[^a]: [[Exodus 5.3|Ex. 5:3]].  
+[^b]: [[Service|TG Service]].  

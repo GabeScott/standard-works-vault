@@ -5,5 +5,5 @@
 [Mormon 6:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p7#p7)
 
 
-[^a]: [[1 Nephi 12.15|1 Ne. 12:15.]]
-[^b]: TG [[Fearful]].
+[^a]: [[1 Nephi 12.15|1 Ne. 12:15]].  
+[^b]: [[Fearful|TG Fearful]].  

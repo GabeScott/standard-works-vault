@@ -5,4 +5,4 @@
 [1 Kings 22:39](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.39?lang=eng#p39)
 
 
-[^a]: [[Amos 3.15|Amos 3:15.]]
+[^a]: [[Amos 3.15|Amos 3:15]].  

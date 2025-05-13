@@ -5,6 +5,6 @@
 [Helaman 12:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p14#p14)
 
 
-[^a]: [[Joshua 10.12|Josh. 10:12 (12-14).]]
-[^b]: [[Isaiah 38.8|Isa. 38:8 (7-8).]]
-[^c]: [[2 Kings 20.9|2 Kgs. 20:9 (8-11).]]
+[^a]: [[Joshua 10.12|Josh. 10:12 (12–14)]][[Joshua 10.13|]][[Joshua 10.14|]].  
+[^b]: [[Isaiah 38.7|Isa. 38:8 (7–8)]][[Isaiah 38.8|]].  
+[^c]: [[2 Kings 20.8|2 Kgs. 20:9 (8–11)]][[2 Kings 20.9|]][[2 Kings 20.10|]][[2 Kings 20.11|]].  

@@ -5,4 +5,4 @@
 [Genesis 43:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.29?lang=eng#p29)
 
 
-[^a]: [[Genesis 35.18|Gen. 35:18.]]
+[^a]: [[Genesis 35.18|Gen. 35:18]].  

@@ -5,5 +5,5 @@
 [Proverbs 25:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.12?lang=eng#p12)
 
 
-[^a]: [[Proverbs 1.9|Prov. 1:9.]]
-[^b]: TG [[Chastening]].
+[^a]: [[Proverbs 1.9|Prov. 1:9]].  
+[^b]: [[Chastening|TG Chastening]].  

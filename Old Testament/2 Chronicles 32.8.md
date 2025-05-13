@@ -5,5 +5,5 @@
 [2 Chronicles 32:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.8?lang=eng#p8)
 
 
-[^a]: TG [[Trust Not in the Arm of Flesh]].
-[^b]: OR relied upon.
+[^a]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  
+[^b]: OR relied upon.  

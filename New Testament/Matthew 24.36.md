@@ -5,6 +5,6 @@
 [Matthew 24:36](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.36?lang=eng#p36)
 
 
-[^a]: [[D&C 39.21|D&C 39:21]]; [[D&C 49.7|49:7.]]
-[^b]: TG [[Jesus Christ, Second Coming]].
-[^c]: TG [[Angels]].
+[^a]: [[D&C 39.21|D&C 39:21]]; [[D&C 49.7|49:7]].  
+[^b]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  
+[^c]: [[Angels|TG Angels]].  

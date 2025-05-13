@@ -5,6 +5,6 @@
 [1 Corinthians 14:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.22?lang=eng#p22)
 
 
-[^a]: [[Acts 2.11|Acts 2:11.]]
-[^b]: TG [[Signs]].
-[^c]: TG [[Prophecy]].
+[^a]: [[Acts 2.11|Acts 2:11]].  
+[^b]: [[Signs|TG Signs]].  
+[^c]: [[Prophecy|TG Prophecy]].  

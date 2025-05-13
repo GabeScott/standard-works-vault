@@ -5,5 +5,5 @@
 [Alma 53:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p14#p14)
 
 
-[^a]: [[Numbers 30.2|Num. 30:2.]]
-[^b]: TG [[Oath]].
+[^a]: [[Numbers 30.2|Num. 30:2]].  
+[^b]: [[Oath|TG Oath]].  

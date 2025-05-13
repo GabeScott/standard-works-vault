@@ -5,4 +5,4 @@
 [John 12:38](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.38?lang=eng#p38)
 
 
-[^a]: [[Isaiah 53.1|Isa. 53:1]]; [[Romans 10.16|Rom. 10:16.]]
+[^a]: [[Isaiah 53.1|Isa. 53:1]]; [[Romans 10.16|Rom. 10:16]].  

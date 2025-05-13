@@ -5,6 +5,6 @@
 [2 Nephi 9:44](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p44#p44)
 
 
-[^a]: [[Jacob 2.10|Jacob 2:10.]]
-[^b]: [[Jacob 1.19|Jacob 1:19.]]
-[^c]: [[Jacob 2.2|Jacob 2:2 (2, 16)]]; [[Mosiah 2.28|Mosiah 2:28]]; [[D&C 61.34|D&C 61:34.]]
+[^a]: [[Jacob 2.10|Jacob 2:10]].  
+[^b]: [[Jacob 1.19|Jacob 1:19]].  
+[^c]: [[Jacob 2.2|Jacob 2:2 (2, 16)]][[Jacob 2.16|]]; [[Mosiah 2.28|Mosiah 2:28]]; [[D&C 61.34|D&C 61:34]].  

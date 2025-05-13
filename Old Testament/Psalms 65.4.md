@@ -5,4 +5,4 @@
 [Psalms 65:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/65.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 27.4|Ps. 27:4]]; [[Enos 1.27|Enos 1:27]]; [[D&C 59.2|D&C 59:2.]]
+[^a]: [[Psalms 27.4|Ps. 27:4]]; [[Enos 1.27|Enos 1:27]]; [[D&C 59.2|D&C 59:2]].  

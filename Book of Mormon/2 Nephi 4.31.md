@@ -5,5 +5,5 @@
 [2 Nephi 4:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p31#p31)
 
 
-[^a]: [[Psalms 16.10|Ps. 16:10.]]
-[^b]: [[Romans 12.9|Rom. 12:9]]; [[Alma 13.12|Alma 13:12]]; [[Alma 37.32|37:32]]. TG [[Sin]].
+[^a]: [[Psalms 16.10|Ps. 16:10]].  
+[^b]: [[Romans 12.9|Rom. 12:9]]; [[Alma 13.12|Alma 13:12]]; [[Alma 37.32|37:32]]. [[Sin|TG Sin]].  

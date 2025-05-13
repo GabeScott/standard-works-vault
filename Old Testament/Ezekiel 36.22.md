@@ -5,5 +5,5 @@
 [Ezekiel 36:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.22?lang=eng#p22)
 
 
-[^a]: [[Deuteronomy 9.5|Deut. 9:5.]]
-[^b]: [[Psalms 106.8|Ps. 106:8.]]
+[^a]: [[Deuteronomy 9.5|Deut. 9:5]].  
+[^b]: [[Psalms 106.8|Ps. 106:8]].  

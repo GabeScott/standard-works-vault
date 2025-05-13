@@ -5,5 +5,5 @@
 [Mosiah 24:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Thanksgiving]].
-[^b]: [[Psalms 81.6|Ps. 81:6 (5-6).]]
+[^a]: [[Thanksgiving|TG Thanksgiving]].  
+[^b]: [[Psalms 81.5|Ps. 81:6 (5–6)]][[Psalms 81.6|]].  

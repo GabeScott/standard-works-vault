@@ -5,4 +5,4 @@
 [2 Samuel 23:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/23.7?lang=eng#p7)
 
 
-[^a]: OR equipped.
+[^a]: OR equipped.  

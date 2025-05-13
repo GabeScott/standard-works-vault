@@ -5,4 +5,4 @@
 [Psalms 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/8.7?lang=eng#p7)
 
 
-[^a]: TG [[Sheep]].
+[^a]: [[Sheep|TG Sheep]].  

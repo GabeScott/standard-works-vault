@@ -5,5 +5,5 @@
 [Genesis 42:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.22?lang=eng#p22)
 
 
-[^a]: [[Genesis 35.23|Gen. 35:23 (22-23)]]; [[Genesis 37.21|37:21]]; [[Genesis 42.37|42:37.]]
-[^b]: TG [[Capital Punishment]].
+[^a]: [[Genesis 35.22|Gen. 35:23 (22–23)]][[Genesis 35.23|]]; [[Genesis 37.21|37:21]]; [[Genesis 42.37|42:37]].  
+[^b]: [[Capital Punishment|TG Capital Punishment]].  

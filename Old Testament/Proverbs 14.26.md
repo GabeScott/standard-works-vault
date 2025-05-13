@@ -5,4 +5,4 @@
 [Proverbs 14:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.26?lang=eng#p26)
 
 
-[^a]: TG [[Reverence]].
+[^a]: [[Reverence|TG Reverence]].  

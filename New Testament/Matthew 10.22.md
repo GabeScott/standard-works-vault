@@ -5,7 +5,7 @@
 [Matthew 10:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.22?lang=eng#p22)
 
 
-[^a]: [[1 Nephi 22.5|1 Ne. 22:5]]. TG [[Hate]]; [[Martyrdom]]; [[Persecution, Persecute]].
-[^b]: GR because of my name.
-[^c]: TG [[Name of the Lord]].
-[^d]: [[Mark 13.13|Mark 13:13]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[D&C 10.4|D&C 10:4]]; [[D&C 53.7|53:7]]. TG [[Perseverance]]; [[Steadfastness, Steadfast]].
+[^a]: [[1 Nephi 22.5|1 Ne. 22:5]]. [[Hate|TG Hate]]; [[Martyrdom|Martyrdom]]; [[Persecution, Persecute|Persecution]].  
+[^b]: GR because of my name.  
+[^c]: [[Name|TG Name]].  
+[^d]: [[Mark 13.13|Mark 13:13]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[D&C 10.4|D&C 10:4]]; [[D&C 53.7|53:7]]. [[Perseverance|TG Perseverance]]; [[Steadfastness, Steadfast|Steadfastness]].  

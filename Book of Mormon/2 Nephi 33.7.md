@@ -5,4 +5,4 @@
 [2 Nephi 33:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Charity]].
+[^a]: [[Charity|TG Charity]].  

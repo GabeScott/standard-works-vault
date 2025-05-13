@@ -5,4 +5,4 @@
 [Isaiah 41:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.4?lang=eng#p4)
 
 
-[^a]: TG [[Jesus Christ, Firstborn]]; [[Jesus Christ, Jehovah]].
+[^a]: [[Jesus Christ, Firstborn|TG Jesus Christ, Firstborn]]; [[Jesus Christ, Jehovah|Jesus Christ, Jehovah]].  

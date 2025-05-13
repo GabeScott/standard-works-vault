@@ -5,4 +5,4 @@
 [Isaiah 34:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/34.3?lang=eng#p3)
 
 
-[^a]: [[Joel 2.20|Joel 2:20.]]
+[^a]: [[Joel 2.20|Joel 2:20]].  

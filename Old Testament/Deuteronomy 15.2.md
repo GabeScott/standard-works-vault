@@ -5,4 +5,4 @@
 [Deuteronomy 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 31.10|Deut. 31:10.]]
+[^a]: [[Deuteronomy 31.10|Deut. 31:10]].  

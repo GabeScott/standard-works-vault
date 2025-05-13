@@ -5,5 +5,5 @@
 [Deuteronomy 29:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.12?lang=eng#p12)
 
 
-[^a]: TG [[Covenants]].
-[^b]: TG [[Oath]].
+[^a]: [[Covenants|TG Covenants]].  
+[^b]: [[Oath|TG Oath]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/4.5?lang=eng#p5)
 
 
-[^a]: [[1 Kings 7.26|1 Kgs. 7:26.]]
+[^a]: [[1 Kings 7.26|1 Kgs. 7:26]].  

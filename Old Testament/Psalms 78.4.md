@@ -5,5 +5,5 @@
 [Psalms 78:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.4?lang=eng#p4)
 
 
-[^a]: [[D&C 68.25|D&C 68:25.]]
-[^b]: [[Isaiah 38.19|Isa. 38:19.]]
+[^a]: [[D&C 68.25|D&C 68:25]].  
+[^b]: [[Isaiah 38.19|Isa. 38:19]].  

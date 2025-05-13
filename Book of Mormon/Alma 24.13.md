@@ -5,5 +5,5 @@
 [Alma 24:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p13#p13)
 
 
-[^a]: [[D&C 42.26|D&C 42:26.]]
-[^b]: [[Revelation 1.5|Rev. 1:5.]]
+[^a]: [[D&C 42.26|D&C 42:26]].  
+[^b]: [[Revelation 1.5|Rev. 1:5]].  

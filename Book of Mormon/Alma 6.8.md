@@ -5,4 +5,4 @@
 [Alma 6:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/6?lang=eng&id=p8#p8)
 
 
-[^a]: [[Revelation 19.10|Rev. 19:10.]]
+[^a]: [[Revelation 19.10|Rev. 19:10]].  

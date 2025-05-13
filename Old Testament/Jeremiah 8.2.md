@@ -5,5 +5,5 @@
 [Jeremiah 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.2?lang=eng#p2)
 
 
-[^a]: TG [[Idolatry, Idol]].
-[^b]: [[Jeremiah 25.33|Jer. 25:33.]]
+[^a]: [[Idolatry, Idol|TG Idolatry]].  
+[^b]: [[Jeremiah 25.33|Jer. 25:33]].  

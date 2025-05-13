@@ -5,4 +5,4 @@
 [Psalms 77:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/77.6?lang=eng#p6)
 
 
-[^a]: [[Job 35.10|Job 35:10.]]
+[^a]: [[Job 35.10|Job 35:10]].  

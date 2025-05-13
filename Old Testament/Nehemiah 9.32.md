@@ -5,5 +5,5 @@
 [Nehemiah 9:32](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.32?lang=eng#p32)
 
 
-[^a]: OR feared (revered) God.
-[^b]: [[Deuteronomy 7.9|Deut. 7:9.]]
+[^a]: OR feared (revered) God.  
+[^b]: [[Deuteronomy 7.9|Deut. 7:9]].  

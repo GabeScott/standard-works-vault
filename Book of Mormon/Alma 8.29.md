@@ -5,5 +5,5 @@
 [Alma 8:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p29#p29)
 
 
-[^a]: [[Alma 10.1|Alma 10:1.]]
-[^b]: Alma 9:12, 18.
+[^a]: [[Alma 10.1|Alma 10:1]].  
+[^b]: [[Alma 9.12|Alma 9:12, 18]][[Alma 9.18|]].  

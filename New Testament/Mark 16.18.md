@@ -5,7 +5,7 @@
 [Mark 16:18](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.18?lang=eng#p18)
 
 
-[^a]: [[Acts 28.3|Acts 28:3.]]
-[^b]: TG [[Protection, Divine]].
-[^c]: TG [[Administrations to the Sick]]; [[Hands, Laying on of]].
-[^d]: TG [[Health]].
+[^a]: [[Acts 28.3|Acts 28:3]].  
+[^b]: [[Protection, Divine|TG Protection, Divine]].  
+[^c]: [[Administrations to the Sick|TG Administrations to the Sick]]; [[Hands, Laying on of|Hands, Laying on of]].  
+[^d]: [[Heal, Healing|TG Heal]].  

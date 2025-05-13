@@ -5,4 +5,4 @@
 [Ezekiel 39:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.10?lang=eng#p10)
 
 
-[^a]: [[Isaiah 14.2|Isa. 14:2.]]
+[^a]: [[Isaiah 14.2|Isa. 14:2]].  

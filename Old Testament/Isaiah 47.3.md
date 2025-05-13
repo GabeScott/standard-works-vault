@@ -5,4 +5,4 @@
 [Isaiah 47:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.3?lang=eng#p3)
 
 
-[^a]: IE I will not negotiate or compromise in this matter.
+[^a]: IE I will not negotiate or compromise in this matter.  

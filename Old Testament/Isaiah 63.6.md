@@ -5,4 +5,4 @@
 [Isaiah 63:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.6?lang=eng#p6)
 
 
-[^a]: OR break them in pieces (according to several Hebrew texts).
+[^a]: OR break them in pieces (according to several Hebrew texts).  

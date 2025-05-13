@@ -5,4 +5,4 @@
 [Job 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.7?lang=eng#p7)
 
 
-[^a]: HEB justice.
+[^a]: HEB justice.  

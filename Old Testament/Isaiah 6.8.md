@@ -5,5 +5,5 @@
 [Isaiah 6:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.8?lang=eng#p8)
 
 
-[^a]: TG [[Authority]]; [[Called of God]]; [[Priesthood, Keys of]]; [[Prophets, Mission of]]; [[Teaching with the Spirit]].
-[^b]: TG [[Priesthood, Ordination]].
+[^a]: [[Authority|TG Authority]]; [[Called of God|Called of God]]; [[Priesthood, Keys of|Priesthood, Keys of]]; [[Prophets, Mission of|Prophets, Mission of]]; [[Teaching with the Spirit|Teaching with the Spirit]].  
+[^b]: [[Priesthood, Ordination|TG Priesthood, Ordination]].  

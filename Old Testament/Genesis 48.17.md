@@ -5,6 +5,6 @@
 [Genesis 48:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.17?lang=eng#p17)
 
 
-[^a]: TG [[Hands, Laying on of]].
-[^b]: TG [[Israel, Blessings of]].
-[^c]: HEB it was wrong in his eyes.
+[^a]: [[Hands, Laying on of|TG Hands, Laying on of]].  
+[^b]: [[Israel, Blessings of|TG Israel, Blessings of]].  
+[^c]: HEB it was wrong in his eyes.  

@@ -5,5 +5,5 @@
 [Romans 14:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.11?lang=eng#p11)
 
 
-[^a]: [[Isaiah 45.23|Isa. 45:23]]; Philip. 2:10.
-[^b]: GR praise, profess openly.
+[^a]: [[Isaiah 45.23|Isa. 45:23]]; [[Philippians 2.10|Philip. 2:10]].  
+[^b]: GR praise, profess openly.  

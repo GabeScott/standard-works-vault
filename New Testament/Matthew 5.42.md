@@ -5,5 +5,5 @@
 [Matthew 5:42](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.42?lang=eng#p42)
 
 
-[^a]: TG [[Almsgiving]]; [[Generosity]]; [[Poor]].
-[^b]: TG [[Borrow, Borrowing]]; [[Debt]].
+[^a]: [[Almsgiving|TG Almsgiving]]; [[Generosity|Generosity]]; [[Poor|Poor]].  
+[^b]: [[Borrow, Borrowing|TG Borrow]]; [[Debt|Debt]].  

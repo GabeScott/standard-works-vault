@@ -5,4 +5,4 @@
 [Exodus 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.4?lang=eng#p4)
 
 
-[^a]: IE capacity to eat. Ex. 16:16.
+[^a]: IE capacity to eat. [[Exodus 16.16|Ex. 16:16]].  

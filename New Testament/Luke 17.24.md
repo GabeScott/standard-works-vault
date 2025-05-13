@@ -5,4 +5,4 @@
 [Luke 17:24](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.24?lang=eng#p24)
 
 
-[^a]: [[Luke 21.34|Luke 21:34]]; 1 Thes. 5:4.
+[^a]: [[Luke 21.34|Luke 21:34]]; [[1 Thessalonians 5.4|1 Thes. 5:4]].  

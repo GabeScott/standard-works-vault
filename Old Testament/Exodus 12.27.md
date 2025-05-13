@@ -5,6 +5,6 @@
 [Exodus 12:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.27?lang=eng#p27)
 
 
-[^a]: TG [[Self-Sacrifice]].
-[^b]: [[Matthew 26.19|Matt. 26:19 (17-19).]]
-[^c]: TG [[Deliver, Deliverance]].
+[^a]: [[Sacrifice|TG Sacrifice]].  
+[^b]: [[Matthew 26.17|Matt. 26:19 (17–19)]][[Matthew 26.18|]][[Matthew 26.19|]].  
+[^c]: [[Deliver, Deliverance|TG Deliver]].  

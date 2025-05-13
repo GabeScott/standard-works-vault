@@ -5,5 +5,5 @@
 [Psalms 58:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/58.11?lang=eng#p11)
 
 
-[^a]: TG [[Reward]].
-[^b]: TG [[Jesus Christ, Judge]].
+[^a]: [[Reward|TG Reward]].  
+[^b]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

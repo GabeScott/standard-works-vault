@@ -5,6 +5,6 @@
 [Exodus 24:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.10?lang=eng#p10)
 
 
-[^a]: TG [[God, Manifestations of]]; [[Jesus Christ, Appearances, Antemortal]].
-[^b]: TG [[God, Body of, Corporeal Nature]].
-[^c]: OR clear as the very heavens.
+[^a]: [[God, Manifestations of|TG God, Manifestations of]]; [[Jesus Christ, Appearances, Antemortal|Jesus Christ, Appearances, Antemortal]].  
+[^b]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  
+[^c]: OR clear as the very heavens.  

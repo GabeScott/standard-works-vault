@@ -5,5 +5,5 @@
 [Alma 48:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Steadfastness, Steadfast]].
-[^b]: [[Alma 45.8|Alma 45:8.]]
+[^a]: [[Steadfastness, Steadfast|TG Steadfastness]].  
+[^b]: [[Alma 45.8|Alma 45:8]].  

@@ -5,6 +5,6 @@
 [Isaiah 60:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.22?lang=eng#p22)
 
 
-[^a]: [[Matthew 13.31|Matt. 13:31 (31-32).]]
-[^b]: [[D&C 133.58|D&C 133:58.]]
-[^c]: JST Isa. 60:22 … my …
+[^a]: [[Matthew 13.31|Matt. 13:31 (31–32)]][[Matthew 13.32|]].  
+[^b]: [[D&C 133.58|D&C 133:58]].  
+[^c]: JST Isa. 60:22 … my …  

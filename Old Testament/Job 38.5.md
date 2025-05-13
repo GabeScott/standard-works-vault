@@ -5,4 +5,4 @@
 [Job 38:5](https://www.churchofjesuschrist.org/study/scriptures/ot/job/38.5?lang=eng#p5)
 
 
-[^a]: OR determined its measurements.
+[^a]: OR determined its measurements.  

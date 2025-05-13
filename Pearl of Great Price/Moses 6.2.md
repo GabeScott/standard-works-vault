@@ -5,4 +5,4 @@
 [Moses 6:2](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 4.25|Gen. 4:25.]]
+[^a]: [[Genesis 4.25|Gen. 4:25]].  

@@ -5,4 +5,4 @@
 [2 Samuel 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/10.6?lang=eng#p6)
 
 
-[^a]: HEB Men of Tob (a land mentioned in Judg. 11:3).
+[^a]: HEB Men of Tob (a land mentioned in [[Judges 11.3|Judg. 11:3]]).  

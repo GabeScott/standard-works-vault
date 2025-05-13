@@ -5,4 +5,4 @@
 [Galatians 5:24](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.24?lang=eng#p24)
 
 
-[^a]: GR sufferings, afflictions, passions.
+[^a]: GR sufferings, afflictions, passions.  

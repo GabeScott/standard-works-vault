@@ -5,5 +5,5 @@
 [Psalms 60:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/60.8?lang=eng#p8)
 
 
-[^a]: [[2 Samuel 8.14|2 Sam. 8:14.]]
-[^b]: OR over Philistia will I triumph. See Ps. 108:9.
+[^a]: [[2 Samuel 8.14|2 Sam. 8:14]].  
+[^b]: OR over Philistia will I triumph. See [[Psalms 108.9|Ps. 108:9]].  

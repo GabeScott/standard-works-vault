@@ -5,4 +5,4 @@
 [Daniel 11:44](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.44?lang=eng#p44)
 
 
-[^a]: HEB destroy.
+[^a]: HEB destroy.  

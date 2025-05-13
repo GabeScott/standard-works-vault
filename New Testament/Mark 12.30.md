@@ -5,6 +5,6 @@
 [Mark 12:30](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.30?lang=eng#p30)
 
 
-[^a]: [[Deuteronomy 6.5|Deut. 6:5.]]
-[^b]: TG [[Commitment]].
-[^c]: TG [[Strength]].
+[^a]: [[Deuteronomy 6.5|Deut. 6:5]].  
+[^b]: [[Commitment|TG Commitment]].  
+[^c]: [[Strength|TG Strength]].  

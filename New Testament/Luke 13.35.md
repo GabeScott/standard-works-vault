@@ -5,6 +5,6 @@
 [Luke 13:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.35?lang=eng#p35)
 
 
-[^a]: [[Jeremiah 12.7|Jer. 12:7]]; [[Jeremiah 22.5|22:5]]; [[D&C 84.115|D&C 84:115 (114-15).]]
-[^b]: JST Luke 13:36 … Ye shall not know me, until ye have received from the hand of the Lord a just recompense for all your sins; until the time …
-[^c]: [[Psalms 118.26|Ps. 118:26.]]
+[^a]: [[Jeremiah 12.7|Jer. 12:7]]; [[Jeremiah 22.5|22:5]]; [[D&C 84.114|D&C 84:115 (114–15)]][[D&C 84.115|]].  
+[^b]: JST Luke 13:36 … Ye shall not know me, until ye have received from the hand of the Lord a just recompense for all your sins; until the time …  
+[^c]: [[Psalms 118.26|Ps. 118:26]].  

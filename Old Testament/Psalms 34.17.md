@@ -5,4 +5,4 @@
 [Psalms 34:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.17?lang=eng#p17)
 
 
-[^a]: [[1 Corinthians 10.13|1 Cor. 10:13 (12-14)]]; [[Alma 36.27|Alma 36:27 (26-27).]]
+[^a]: [[1 Corinthians 10.12|1 Cor. 10:13 (12–14)]][[1 Corinthians 10.13|]][[1 Corinthians 10.14|]]; [[Alma 36.26|Alma 36:27 (26–27)]][[Alma 36.27|]].  

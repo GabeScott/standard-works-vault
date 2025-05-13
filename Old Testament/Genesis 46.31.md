@@ -5,4 +5,4 @@
 [Genesis 46:31](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.31?lang=eng#p31)
 
 
-[^a]: [[Genesis 47.1|Gen. 47:1.]]
+[^a]: [[Genesis 47.1|Gen. 47:1]].  

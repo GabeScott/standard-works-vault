@@ -5,4 +5,4 @@
 [Mosiah 19:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/19?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mosiah 18.33|Mosiah 18:33.]]
+[^a]: [[Mosiah 18.33|Mosiah 18:33]].  

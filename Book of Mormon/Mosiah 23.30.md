@@ -5,4 +5,4 @@
 [Mosiah 23:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p30#p30)
 
 
-[^a]: [[Mosiah 22.15|Mosiah 22:15.]]
+[^a]: [[Mosiah 22.15|Mosiah 22:15]].  

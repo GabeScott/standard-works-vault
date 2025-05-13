@@ -5,5 +5,5 @@
 [Deuteronomy 1:35](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.35?lang=eng#p35)
 
 
-[^a]: [[Jude 1.5|Jude 1:5.]]
-[^b]: [[Jacob 1.7|Jacob 1:7.]]
+[^a]: [[Jude 1.5|Jude 1:5]].  
+[^b]: [[Jacob 1.7|Jacob 1:7]].  

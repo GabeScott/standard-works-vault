@@ -5,5 +5,5 @@
 [Matthew 15:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.14?lang=eng#p14)
 
 
-[^a]: TG [[Spiritual Blindness]].
-[^b]: TG [[Governments]]; [[Leadership]].
+[^a]: [[Spiritual Blindness|TG Spiritual Blindness]].  
+[^b]: [[Governments|TG Governments]]; [[Leadership|Leadership]].  

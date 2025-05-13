@@ -5,6 +5,6 @@
 [Matthew 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.12?lang=eng#p12)
 
 
-[^a]: [[2 Nephi 9.18|2 Ne. 9:18]]. TG [[Joy]].
-[^b]: [[D&C 84.38|D&C 84:38]]. TG [[Reward]].
-[^c]: TG [[Persecution, Persecute]].
+[^a]: [[2 Nephi 9.18|2 Ne. 9:18]]. [[Joy|TG Joy]].  
+[^b]: [[D&C 84.38|D&C 84:38]]. [[Reward|TG Reward]].  
+[^c]: [[Persecution, Persecute|TG Persecution]].  

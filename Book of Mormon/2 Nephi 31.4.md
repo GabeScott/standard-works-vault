@@ -5,5 +5,5 @@
 [2 Nephi 31:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p4#p4)
 
 
-[^a]: [[1 Nephi 10.7|1 Ne. 10:7]]; [[1 Nephi 11.27|11:27.]]
-[^b]: TG [[Jesus Christ, Lamb of God]].
+[^a]: [[1 Nephi 10.7|1 Ne. 10:7]]; [[1 Nephi 11.27|11:27]].  
+[^b]: [[Jesus Christ, Lamb of God|TG Jesus Christ, Lamb of God]].  

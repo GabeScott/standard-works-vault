@@ -5,4 +5,4 @@
 [3 Nephi 3:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p8#p8)
 
 
-[^a]: [[Helaman 1.11|Hel. 1:11]]; [[Ether 8.14|Ether 8:14 (13-14).]]
+[^a]: [[Helaman 1.11|Hel. 1:11]]; [[Ether 8.13|Ether 8:14 (13–14)]][[Ether 8.14|]].  

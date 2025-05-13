@@ -5,5 +5,5 @@
 [Alma 34:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Faith]].
-[^b]: TG [[God, Access to]]; [[Prayer, Pray]].
+[^a]: [[Faith|TG Faith]].  
+[^b]: [[God, Access to|TG God, Access to]]; [[Prayer, Pray|Prayer]].  

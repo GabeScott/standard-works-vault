@@ -5,4 +5,4 @@
 [1 Kings 12:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.24?lang=eng#p24)
 
 
-[^a]: TG [[Brotherhood and Sisterhood]].
+[^a]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  

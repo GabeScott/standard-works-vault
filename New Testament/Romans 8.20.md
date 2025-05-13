@@ -5,4 +5,4 @@
 [Romans 8:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.20?lang=eng#p20)
 
 
-[^a]: JST Rom. 8:20 … tribulation … TG [[Vanity]].
+[^a]: JST Rom. 8:20 … tribulation … [[Vanity|TG Vanity]].  

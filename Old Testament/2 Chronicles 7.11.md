@@ -5,4 +5,4 @@
 [2 Chronicles 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.11?lang=eng#p11)
 
 
-[^a]: [[1 Kings 9.1|1 Kgs. 9:1 (1-9).]]
+[^a]: [[1 Kings 9.1|1 Kgs. 9:1 (1–9)]][[1 Kings 9.2|]][[1 Kings 9.3|]][[1 Kings 9.4|]][[1 Kings 9.5|]][[1 Kings 9.6|]][[1 Kings 9.7|]][[1 Kings 9.8|]][[1 Kings 9.9|]].  

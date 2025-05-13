@@ -5,4 +5,4 @@
 [Acts 15:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.3?lang=eng#p3)
 
 
-[^a]: TG [[Conversion, Convert]].
+[^a]: [[Conversion, Convert|TG Conversion]].  

@@ -5,5 +5,5 @@
 [Ecclesiastes 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/4.4?lang=eng#p4)
 
 
-[^a]: [[Genesis 26.14|Gen. 26:14.]]
-[^b]: [[Ecclesiastes 1.14|Eccl. 1:14.]]
+[^a]: [[Genesis 26.14|Gen. 26:14]].  
+[^b]: [[Ecclesiastes 1.14|Eccl. 1:14]].  

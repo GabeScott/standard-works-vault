@@ -5,4 +5,4 @@
 [Jeremiah 42:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.19?lang=eng#p19)
 
 
-[^a]: [[Deuteronomy 17.16|Deut. 17:16.]]
+[^a]: [[Deuteronomy 17.16|Deut. 17:16]].  

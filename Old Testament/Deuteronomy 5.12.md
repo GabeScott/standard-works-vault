@@ -5,4 +5,4 @@
 [Deuteronomy 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.12?lang=eng#p12)
 
 
-[^a]: TG [[Sabbath]].
+[^a]: [[Sabbath|TG Sabbath]].  

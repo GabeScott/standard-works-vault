@@ -5,4 +5,4 @@
 [Luke 22:43](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.43?lang=eng#p43)
 
 
-[^a]: TG [[Angels]].
+[^a]: [[Angels|TG Angels]].  

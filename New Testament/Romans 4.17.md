@@ -5,4 +5,4 @@
 [Romans 4:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.17?lang=eng#p17)
 
 
-[^a]: TG [[God, Power of]]; [[Jesus Christ, Resurrection]].
+[^a]: [[God, Power of|TG God, Power of]]; [[Resurrection|Resurrection]].  

@@ -5,5 +5,5 @@
 [3 Nephi 6:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p17#p17)
 
 
-[^a]: [[Moses 5.23|Moses 5:23.]]
-[^b]: TG [[Temptation]].
+[^a]: [[Moses 5.23|Moses 5:23]].  
+[^b]: [[Temptation|TG Temptation]].  

@@ -5,4 +5,4 @@
 [Alma 34:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p22#p22)
 
 
-[^a]: TG [[Enemies, Enemy]].
+[^a]: [[Enemies, Enemy|TG Enemies]].  

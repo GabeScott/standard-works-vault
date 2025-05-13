@@ -5,6 +5,6 @@
 [Alma 23:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/23?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 26.4|Alma 26:4.]]
-[^b]: [[Alma 37.19|Alma 37:19.]]
-[^c]: [[Alma 63.12|Alma 63:12]]. TG [[Scriptures, Value of]].
+[^a]: [[Alma 26.4|Alma 26:4]].  
+[^b]: [[Alma 37.19|Alma 37:19]].  
+[^c]: [[Alma 63.12|Alma 63:12]]. [[Scriptures, Value of|TG Scriptures, Value of]].  

@@ -5,6 +5,6 @@
 [Luke 21:20](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.20?lang=eng#p20)
 
 
-[^a]: [[Luke 19.43|Luke 19:43.]]
-[^b]: [[Ezekiel 38.16|Ezek. 38:16 (15-16)]]; [[Revelation 16.16|Rev. 16:16.]]
-[^c]: [[D&C 45.19|D&C 45:19 (18-21)]]. TG [[Abomination of Desolation]].
+[^a]: [[Luke 19.43|Luke 19:43]].  
+[^b]: [[Ezekiel 38.15|Ezek. 38:16 (15–16)]][[Ezekiel 38.16|]]; [[Revelation 16.16|Rev. 16:16]].  
+[^c]: [[D&C 45.18|D&C 45:19 (18–21)]][[D&C 45.19|]][[D&C 45.20|]][[D&C 45.21|]]. [[Abomination of Desolation|TG Abomination of Desolation]].  

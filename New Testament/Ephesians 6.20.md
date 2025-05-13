@@ -5,4 +5,4 @@
 [Ephesians 6:20](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.20?lang=eng#p20)
 
 
-[^a]: [[D&C 60.2|D&C 60:2 (2-3).]]
+[^a]: [[D&C 60.2|D&C 60:2 (2–3)]][[D&C 60.3|]].  

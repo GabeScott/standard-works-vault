@@ -5,4 +5,4 @@
 [2 Chronicles 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/2.2?lang=eng#p2)
 
 
-[^a]: IE to quarry stone.
+[^a]: IE to quarry stone.  

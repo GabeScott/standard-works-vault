@@ -5,4 +5,4 @@
 [Acts 23:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.13?lang=eng#p13)
 
 
-[^a]: TG [[Conspiracy]].
+[^a]: [[Conspiracy|TG Conspiracy]].  

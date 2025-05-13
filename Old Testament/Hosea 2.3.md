@@ -5,7 +5,7 @@
 [Hosea 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.3?lang=eng#p3)
 
 
-[^a]: [[Jeremiah 13.22|Jer. 13:22.]]
-[^b]: [[Ezekiel 16.7|Ezek. 16:7 (7-15).]]
-[^c]: [[Ezekiel 16.4|Ezek. 16:4.]]
-[^d]: [[Amos 8.11|Amos 8:11.]]
+[^a]: [[Jeremiah 13.22|Jer. 13:22]].  
+[^b]: [[Ezekiel 16.7|Ezek. 16:7 (7–15)]][[Ezekiel 16.8|]][[Ezekiel 16.9|]][[Ezekiel 16.10|]][[Ezekiel 16.11|]][[Ezekiel 16.12|]][[Ezekiel 16.13|]][[Ezekiel 16.14|]][[Ezekiel 16.15|]].  
+[^c]: [[Ezekiel 16.4|Ezek. 16:4]].  
+[^d]: [[Amos 8.11|Amos 8:11]].  

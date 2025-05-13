@@ -5,4 +5,4 @@
 [Alma 63:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/63?lang=eng&id=p10#p10)
 
 
-[^a]: [[Alma 31.7|Alma 31:7.]]
+[^a]: [[Alma 31.7|Alma 31:7]].  

@@ -5,4 +5,4 @@
 [Alma 21:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p19#p19)
 
 
-[^a]: [[Alma 17.25|Alma 17:25.]]
+[^a]: [[Alma 17.25|Alma 17:25]].  

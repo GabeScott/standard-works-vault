@@ -5,4 +5,4 @@
 [2 Chronicles 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/1.16?lang=eng#p16)
 
 
-[^a]: [[1 Kings 10.28|1 Kgs. 10:28.]]
+[^a]: [[1 Kings 10.28|1 Kgs. 10:28]].  

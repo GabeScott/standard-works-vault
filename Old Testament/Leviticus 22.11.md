@@ -5,5 +5,5 @@
 [Leviticus 22:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.11?lang=eng#p11)
 
 
-[^a]: IE if he purchase a servant, the servant may partake of the sacred food.
-[^b]: HEB bread or food.
+[^a]: IE if he purchase a servant, the servant may partake of the sacred food.  
+[^b]: HEB bread or food.  

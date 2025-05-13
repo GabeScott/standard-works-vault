@@ -5,6 +5,6 @@
 [2 Timothy 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.10?lang=eng#p10)
 
 
-[^a]: Col. 4:14; Philem. 1:24.
-[^b]: TG [[Apostasy of Individuals]].
-[^c]: TG [[Worldliness]].
+[^a]: [[Colossians 4.14|Col. 4:14]]; [[Philemon 1.24|Philem. 1:24]].  
+[^b]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  
+[^c]: [[Worldliness|TG Worldliness]].  

@@ -5,4 +5,4 @@
 [Ecclesiastes 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.16?lang=eng#p16)
 
 
-[^a]: HEB I have become great.
+[^a]: HEB I have become great.  

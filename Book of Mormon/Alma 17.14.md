@@ -5,4 +5,4 @@
 [Alma 17:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p14#p14)
 
 
-[^a]: [[Mosiah 10.12|Mosiah 10:12.]]
+[^a]: [[Mosiah 10.12|Mosiah 10:12]].  

@@ -5,4 +5,4 @@
 [Jeremiah 49:37](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.37?lang=eng#p37)
 
 
-[^a]: OR calamity or disaster.
+[^a]: OR calamity or disaster.  

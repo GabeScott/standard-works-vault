@@ -5,5 +5,5 @@
 [Colossians 1:27](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.27?lang=eng#p27)
 
 
-[^a]: [[Ephesians 3.3|Eph. 3:3.]]
-[^b]: TG [[Treasure]].
+[^a]: [[Ephesians 3.3|Eph. 3:3]].  
+[^b]: [[Treasure|TG Treasure]].  

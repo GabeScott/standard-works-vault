@@ -5,4 +5,4 @@
 [Proverbs 7:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/7.17?lang=eng#p17)
 
 
-[^a]: The Hebrew probably indicates a fragrant wood.
+[^a]: The Hebrew probably indicates a fragrant wood.  

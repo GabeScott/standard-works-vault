@@ -5,5 +5,5 @@
 [Jeremiah 33:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/33.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 29.10|Jer. 29:10.]]
-[^b]: TG [[Promise]].
+[^a]: [[Jeremiah 29.10|Jer. 29:10]].  
+[^b]: [[Promise|TG Promise]].  

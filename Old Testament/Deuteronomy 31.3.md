@@ -5,4 +5,4 @@
 [Deuteronomy 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.3?lang=eng#p3)
 
 
-[^a]: OR dispossess.
+[^a]: OR dispossess.  

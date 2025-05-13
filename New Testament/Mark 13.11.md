@@ -5,5 +5,5 @@
 [Mark 13:11](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.11?lang=eng#p11)
 
 
-[^a]: [[Matthew 10.19|Matt. 10:19 (19-20).]]
-[^b]: TG [[Holy Ghost, Mission of]].
+[^a]: [[Matthew 10.19|Matt. 10:19 (19–20)]][[Matthew 10.20|]].  
+[^b]: [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  

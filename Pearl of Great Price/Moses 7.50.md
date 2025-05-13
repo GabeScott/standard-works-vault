@@ -5,4 +5,4 @@
 [Moses 7:50](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.50?lang=eng#p50)
 
 
-[^a]: TG [[Flood, Noah’s]].
+[^a]: [[Flood|TG Flood]].  

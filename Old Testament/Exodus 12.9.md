@@ -5,5 +5,5 @@
 [Exodus 12:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.9?lang=eng#p9)
 
 
-[^a]: HEB boiled … in.
-[^b]: IE edible inner parts.
+[^a]: HEB boiled … in.  
+[^b]: IE edible inner parts.  

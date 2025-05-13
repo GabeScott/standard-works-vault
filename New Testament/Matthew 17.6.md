@@ -5,4 +5,4 @@
 [Matthew 17:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.6?lang=eng#p6)
 
 
-[^a]: [[Exodus 3.6|Ex. 3:6]]; [[Deuteronomy 5.5|Deut. 5:5.]]
+[^a]: [[Exodus 3.6|Ex. 3:6]]; [[Deuteronomy 5.5|Deut. 5:5]].  

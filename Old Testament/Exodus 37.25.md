@@ -5,4 +5,4 @@
 [Exodus 37:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/37.25?lang=eng#p25)
 
 
-[^a]: [[1 Kings 7.48|1 Kgs. 7:48.]]
+[^a]: [[1 Kings 7.48|1 Kgs. 7:48]].  

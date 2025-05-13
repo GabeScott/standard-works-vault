@@ -5,4 +5,4 @@
 [Psalms 50:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.22?lang=eng#p22)
 
 
-[^a]: [[Psalms 9.17|Ps. 9:17.]]
+[^a]: [[Psalms 9.17|Ps. 9:17]].  

@@ -5,5 +5,5 @@
 [Isaiah 17:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/17.7?lang=eng#p7)
 
 
-[^a]: [[Hosea 8.14|Hosea 8:14.]]
-[^b]: IE In their bereavement they will begin to repent.
+[^a]: [[Hosea 8.14|Hosea 8:14]].  
+[^b]: IE In their bereavement they will begin to repent.  

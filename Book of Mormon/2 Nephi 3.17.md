@@ -5,5 +5,5 @@
 [2 Nephi 3:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p17#p17)
 
 
-[^a]: [[Deuteronomy 10.2|Deut. 10:2 (2, 4)]]; [[Moses 2.1|Moses 2:1]]. TG [[Scriptures, Writing of]].
-[^b]: [[Exodus 4.16|Ex. 4:16 (14-16).]]
+[^a]: [[Deuteronomy 10.2|Deut. 10:2 (2, 4)]][[Deuteronomy 10.4|]]; [[Moses 2.1|Moses 2:1]]. [[Scriptures, Writing of|TG Scriptures, Writing of]].  
+[^b]: [[Exodus 4.14|Ex. 4:16 (14–16)]][[Exodus 4.15|]][[Exodus 4.16|]].  

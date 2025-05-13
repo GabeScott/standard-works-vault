@@ -5,4 +5,4 @@
 [2 Kings 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/1.8?lang=eng#p8)
 
 
-[^a]: [[Mark 1.6|Mark 1:6.]]
+[^a]: [[Mark 1.6|Mark 1:6]].  

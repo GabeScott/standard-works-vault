@@ -5,4 +5,4 @@
 [Deuteronomy 21:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/21.16?lang=eng#p16)
 
 
-[^a]: HEB prefer.
+[^a]: HEB prefer.  

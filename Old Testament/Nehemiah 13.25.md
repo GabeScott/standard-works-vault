@@ -5,5 +5,5 @@
 [Nehemiah 13:25](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.25?lang=eng#p25)
 
 
-[^a]: TG [[Marriage, Interfaith]].
-[^b]: TG [[Gentiles]].
+[^a]: [[Marriage, Interfaith|TG Marriage, Interfaith]].  
+[^b]: [[Gentiles|TG Gentiles]].  

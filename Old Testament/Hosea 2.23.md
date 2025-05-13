@@ -5,6 +5,6 @@
 [Hosea 2:23](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.23?lang=eng#p23)
 
 
-[^a]: HEB lo-ruhamah.
-[^c]: [[Romans 9.25|Rom. 9:25.]]
-[^d]: [[Jeremiah 30.22|Jer. 30:22]]; [[Zechariah 13.9|Zech. 13:9.]]
+[^a]: HEB lo-ruhamah.  
+[^c]: [[Romans 9.25|Rom. 9:25]].  
+[^d]: [[Jeremiah 30.22|Jer. 30:22]]; [[Zechariah 13.9|Zech. 13:9]].  

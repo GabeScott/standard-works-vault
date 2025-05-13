@@ -5,5 +5,5 @@
 [Ezekiel 23:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.39?lang=eng#p39)
 
 
-[^a]: TG [[Sacrilege]].
-[^b]: [[2 Kings 21.4|2 Kgs. 21:4]]; [[D&C 121.19|D&C 121:19.]]
+[^a]: [[Sacrilege|TG Sacrilege]].  
+[^b]: [[2 Kings 21.4|2 Kgs. 21:4]]; [[D&C 121.19|D&C 121:19]].  

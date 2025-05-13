@@ -5,4 +5,4 @@
 [Leviticus 4:24](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.24?lang=eng#p24)
 
 
-[^a]: [[Numbers 18.9|Num. 18:9.]]
+[^a]: [[Numbers 18.9|Num. 18:9]].  

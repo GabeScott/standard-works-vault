@@ -5,4 +5,4 @@
 [Isaiah 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.20?lang=eng#p20)
 
 
-[^a]: HEB cast away.
+[^a]: HEB cast away.  

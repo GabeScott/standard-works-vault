@@ -5,4 +5,4 @@
 [2 Nephi 24:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Earth, Cleansing of]]; [[Wickedness, Wicked]].
+[^a]: [[Earth, Cleansing of|TG Earth, Cleansing of]]; [[Wickedness, Wicked|Wickedness]].  

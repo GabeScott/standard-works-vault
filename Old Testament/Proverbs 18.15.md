@@ -5,5 +5,5 @@
 [Proverbs 18:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.15?lang=eng#p15)
 
 
-[^a]: TG [[Prudence, Prudent]].
-[^b]: TG [[Knowledge]].
+[^a]: [[Prudence, Prudent|TG Prudence]].  
+[^b]: [[Knowledge|TG Knowledge]].  

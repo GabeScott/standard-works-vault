@@ -5,6 +5,6 @@
 [Genesis 35:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.18?lang=eng#p18)
 
 
-[^a]: TG [[Death]].
-[^b]: IE Son of my sorrow, or distress.
-[^c]: IE Son at the right (hand). Gen. 42:4; 43:29; 46:19.
+[^a]: [[Death|TG Death]].  
+[^b]: IE Son of my sorrow, or distress.  
+[^c]: IE Son at the right (hand). [[Genesis 42.4|Gen. 42:4]]; [[Genesis 43.29|43:29]]; [[Genesis 46.19|46:19]].  

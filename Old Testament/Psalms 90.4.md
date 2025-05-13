@@ -5,4 +5,4 @@
 [Psalms 90:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/90.4?lang=eng#p4)
 
 
-[^a]: TG [[Time]].
+[^a]: [[Time|TG Time]].  

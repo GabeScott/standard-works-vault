@@ -5,5 +5,5 @@
 [Matthew 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.11?lang=eng#p11)
 
 
-[^a]: JST Matt. 4:11-12 And now Jesus knew that John was cast into prison, and he sent angels, and, behold, they came and ministered unto him [John]. And Jesus departed into Galilee …
-[^b]: TG [[Angels]].
+[^a]: JST Matt. 4:11–12 And now Jesus knew that John was cast into prison, and he sent angels, and, behold, they came and ministered unto him \[John\]. And Jesus departed into Galilee …  
+[^b]: [[Angels|TG Angels]].  

@@ -5,4 +5,4 @@
 [Genesis 22:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 11.29|Gen. 11:29]]; [[Genesis 24.15|24:15.]]
+[^a]: [[Genesis 11.29|Gen. 11:29]]; [[Genesis 24.15|24:15]].  

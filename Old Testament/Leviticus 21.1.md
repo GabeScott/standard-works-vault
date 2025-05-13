@@ -5,5 +5,5 @@
 [Leviticus 21:1](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/21.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 44.25|Ezek. 44:25.]]
-[^b]: IE among the family of Aaron.
+[^a]: [[Ezekiel 44.25|Ezek. 44:25]].  
+[^b]: IE among the family of Aaron.  

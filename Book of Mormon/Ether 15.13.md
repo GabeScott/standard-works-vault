@@ -5,4 +5,4 @@
 [Ether 15:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/15?lang=eng&id=p13#p13)
 
 
-[^a]: [[Ether 13.14|Ether 13:14.]]
+[^a]: [[Ether 13.14|Ether 13:14]].  

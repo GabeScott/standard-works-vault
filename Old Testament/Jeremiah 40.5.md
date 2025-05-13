@@ -5,5 +5,5 @@
 [Jeremiah 40:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/40.5?lang=eng#p5)
 
 
-[^a]: [[2 Kings 25.22|2 Kgs. 25:22 (22-26)]]; [[Jeremiah 43.6|Jer. 43:6.]]
-[^b]: HEB a food allowance.
+[^a]: [[2 Kings 25.22|2 Kgs. 25:22 (22–26)]][[2 Kings 25.23|]][[2 Kings 25.24|]][[2 Kings 25.25|]][[2 Kings 25.26|]]; [[Jeremiah 43.6|Jer. 43:6]].  
+[^b]: HEB a food allowance.  

@@ -5,6 +5,6 @@
 [John 7:24](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.24?lang=eng#p24)
 
 
-[^a]: TG [[Judgment]].
-[^b]: JST John 7:24 … your traditions, but judge …
-[^c]: [[Isaiah 11.3|Isa. 11:3.]]
+[^a]: [[Judgment|TG Judgment]].  
+[^b]: JST John 7:24 … your traditions, but judge …  
+[^c]: [[Isaiah 11.3|Isa. 11:3]].  

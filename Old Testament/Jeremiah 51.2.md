@@ -5,4 +5,4 @@
 [Jeremiah 51:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.2?lang=eng#p2)
 
 
-[^a]: OR strangers who shall scatter her. Isa. 41:16; [[Jeremiah 15.7|Jer. 15:7]]; [[Matthew 3.12|Matt. 3:12.]]
+[^a]: OR strangers who shall scatter her. [[Isaiah 41.16|Isa. 41:16]]; [[Jeremiah 15.7|Jer. 15:7]]; [[Matthew 3.12|Matt. 3:12]].  

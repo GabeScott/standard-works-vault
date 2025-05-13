@@ -5,5 +5,5 @@
 [Deuteronomy 17:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/17.9?lang=eng#p9)
 
 
-[^a]: [[Ezekiel 43.19|Ezek. 43:19]]; [[Ezekiel 44.15|44:15.]]
-[^b]: HEB pronounce to you (also vv. 10-11).
+[^a]: [[Ezekiel 43.19|Ezek. 43:19]]; [[Ezekiel 44.15|44:15]].  
+[^b]: HEB pronounce to you (also [[Deuteronomy 17.10|vv. 10–11]][[Deuteronomy 17.11|]]).  

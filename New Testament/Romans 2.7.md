@@ -5,6 +5,6 @@
 [Romans 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.7?lang=eng#p7)
 
 
-[^a]: TG [[Patience, Patient, Patiently]].
-[^b]: [[D&C 67.13|D&C 67:13]]. TG [[Perseverance]].
-[^c]: TG [[Immortality, Immortal]].
+[^a]: [[Patience, Patient, Patiently|TG Patience]].  
+[^b]: [[D&C 67.13|D&C 67:13]]. [[Perseverance|TG Perseverance]].  
+[^c]: [[Immortality, Immortal|TG Immortality]].  

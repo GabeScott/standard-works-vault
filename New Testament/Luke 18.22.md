@@ -5,4 +5,4 @@
 [Luke 18:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.22?lang=eng#p22)
 
 
-[^a]: [[Mosiah 4.26|Mosiah 4:26]]; [[Alma 1.27|Alma 1:27]]; [[D&C 42.30|D&C 42:30 (29-31).]]
+[^a]: [[Mosiah 4.26|Mosiah 4:26]]; [[Alma 1.27|Alma 1:27]]; [[D&C 42.29|D&C 42:30 (29–31)]][[D&C 42.30|]][[D&C 42.31|]].  

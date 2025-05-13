@@ -5,6 +5,6 @@
 [1 Nephi 17:45](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p45#p45)
 
 
-[^a]: [[Mosiah 13.29|Mosiah 13:29.]]
-[^b]: [[1 Nephi 4.3|1 Ne. 4:3.]]
-[^c]: [[Acts 17.27|Acts 17:27]]; [[Ephesians 4.19|Eph. 4:19]]; [[1 Nephi 2.14|1 Ne. 2:14.]]
+[^a]: [[Mosiah 13.29|Mosiah 13:29]].  
+[^b]: [[1 Nephi 4.3|1 Ne. 4:3]].  
+[^c]: [[Acts 17.27|Acts 17:27]]; [[Ephesians 4.19|Eph. 4:19]]; [[1 Nephi 2.14|1 Ne. 2:14]].  

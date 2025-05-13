@@ -5,5 +5,5 @@
 [1 Chronicles 29:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.29?lang=eng#p29)
 
 
-[^a]: TG [[Scriptures, Lost]].
-[^b]: TG [[Seer]].
+[^a]: [[Scriptures, Lost|TG Scriptures, Lost]].  
+[^b]: [[Seer|TG Seer]].  

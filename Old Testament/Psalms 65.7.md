@@ -5,4 +5,4 @@
 [Psalms 65:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/65.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 89.9|Ps. 89:9]]; [[Matthew 8.26|Matt. 8:26 (23-27).]]
+[^a]: [[Psalms 89.9|Ps. 89:9]]; [[Matthew 8.23|Matt. 8:26 (23–27)]][[Matthew 8.24|]][[Matthew 8.25|]][[Matthew 8.26|]][[Matthew 8.27|]].  

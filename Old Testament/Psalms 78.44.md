@@ -5,4 +5,4 @@
 [Psalms 78:44](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.44?lang=eng#p44)
 
 
-[^a]: HEB streams.
+[^a]: HEB streams.  

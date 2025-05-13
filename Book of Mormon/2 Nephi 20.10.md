@@ -5,4 +5,4 @@
 [2 Nephi 20:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p10#p10)
 
 
-[^a]: IE the king of Assyria’s hand (vv. 10-11).
+[^a]: IE the king of Assyria’s hand ([[2 Nephi 20.10|vv. 10–11]][[2 Nephi 20.11|]]).  

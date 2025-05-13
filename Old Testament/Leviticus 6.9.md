@@ -5,4 +5,4 @@
 [Leviticus 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.9?lang=eng#p9)
 
 
-[^a]: [[2 Nephi 25.24|2 Ne. 25:24.]]
+[^a]: [[2 Nephi 25.24|2 Ne. 25:24]].  

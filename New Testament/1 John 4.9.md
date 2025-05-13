@@ -5,4 +5,4 @@
 [1 John 4:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.9?lang=eng#p9)
 
 
-[^a]: [[John 3.16|John 3:16.]]
+[^a]: [[John 3.16|John 3:16]].  

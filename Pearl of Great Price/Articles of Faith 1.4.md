@@ -5,11 +5,11 @@
 [Articles of Faith 1:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/a-of-f/1.4?lang=eng#p4)
 
 
-[^a]: TG [[Ordinance]].
-[^b]: [[D&C 138.33|D&C 138:33]]. TG [[Baptism, Qualifications for]]; [[Faith]].
-[^c]: TG [[Repent, Repentance]].
-[^d]: TG [[Holy Ghost, Baptism of]].
-[^e]: TG [[Baptism, Immersion]].
-[^f]: TG [[Remission of Sins]].
-[^g]: TG [[Hands, Laying on of]].
-[^h]: TG [[Holy Ghost, Gift of]].
+[^a]: [[Ordinance|TG Ordinance]].  
+[^b]: [[D&C 138.33|D&C 138:33]]. [[Baptism, Qualifications for|TG Baptism, Qualifications for]]; [[Faith|Faith]].  
+[^c]: [[Repent, Repentance|TG Repent]].  
+[^d]: [[Baptism|TG Baptism]].  
+[^e]: [[Baptism, Immersion|TG Baptism, Immersion]].  
+[^f]: [[Remission of Sins|TG Remission of Sins]].  
+[^g]: [[Hands, Laying on of|TG Hands, Laying on of]].  
+[^h]: [[Holy Ghost, Gift of|TG Holy Ghost, Gift of]].  

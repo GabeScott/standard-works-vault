@@ -5,5 +5,5 @@
 [Deuteronomy 33:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.9?lang=eng#p9)
 
 
-[^a]: HEB of.
-[^b]: HEB regard them not.
+[^a]: HEB of.  
+[^b]: HEB regard them not.  

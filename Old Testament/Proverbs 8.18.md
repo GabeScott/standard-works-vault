@@ -5,4 +5,4 @@
 [Proverbs 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.18?lang=eng#p18)
 
 
-[^a]: [[Proverbs 3.16|Prov. 3:16.]]
+[^a]: [[Proverbs 3.16|Prov. 3:16]].  

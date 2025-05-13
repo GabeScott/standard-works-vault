@@ -5,6 +5,6 @@
 [Nehemiah 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/7.2?lang=eng#p2)
 
 
-[^a]: [[Nehemiah 1.2|Neh. 1:2.]]
-[^b]: [[D&C 52.13|D&C 52:13]]; [[D&C 132.53|132:53.]]
-[^c]: [[Exodus 18.21|Ex. 18:21]]; [[Mosiah 29.13|Mosiah 29:13.]]
+[^a]: [[Nehemiah 1.2|Neh. 1:2]].  
+[^b]: [[D&C 52.13|D&C 52:13]]; [[D&C 132.53|132:53]].  
+[^c]: [[Exodus 18.21|Ex. 18:21]]; [[Mosiah 29.13|Mosiah 29:13]].  

@@ -5,5 +5,5 @@
 [Jonah 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/3.3?lang=eng#p3)
 
 
-[^a]: HEB great city to God.
-[^b]: IE through greater Nineveh with its environs.
+[^a]: HEB great city to God.  
+[^b]: IE through greater Nineveh with its environs.  

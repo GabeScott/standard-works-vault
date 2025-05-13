@@ -5,5 +5,5 @@
 [1 Samuel 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/24.3?lang=eng#p3)
 
 
-[^a]: OR sheepfolds; shelters, probably caves with stone walls about the entrance.
-[^b]: OR innermost part.
+[^a]: OR sheepfolds; shelters, probably caves with stone walls about the entrance.  
+[^b]: OR innermost part.  

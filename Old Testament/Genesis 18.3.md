@@ -5,4 +5,4 @@
 [Genesis 18:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 18.3|JST Gen. 18:3 … brethren …]]
+[^a]: JST Gen. 18:3 … brethren …  

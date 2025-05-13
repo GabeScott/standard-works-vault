@@ -5,4 +5,4 @@
 [James 2:6](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.6?lang=eng#p6)
 
 
-[^a]: TG [[Oppression, Oppress]].
+[^a]: [[Oppression, Oppress|TG Oppression]].  

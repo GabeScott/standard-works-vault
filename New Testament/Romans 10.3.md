@@ -5,6 +5,6 @@
 [Romans 10:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.3?lang=eng#p3)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: GR desiring, endeavoring.
-[^c]: TG [[Apostasy of Israel]]; [[Submissiveness, Submit]].
+[^a]: [[God, the Standard of Righteousness|TG God, the Standard of Righteousness]].  
+[^b]: GR desiring, endeavoring.  
+[^c]: [[Apostasy of Israel|TG Apostasy of Israel]]; [[Submissiveness, Submit|Submissiveness]].  

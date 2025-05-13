@@ -5,4 +5,4 @@
 [Mosiah 19:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/19?lang=eng&id=p6#p6)
 
 
-[^a]: [[Mosiah 10.7|Mosiah 10:7]]; [[Mosiah 11.12|11:12]]; [[Mosiah 20.1|20:1.]]
+[^a]: [[Mosiah 10.7|Mosiah 10:7]]; [[Mosiah 11.12|11:12]]; [[Mosiah 20.1|20:1]].  

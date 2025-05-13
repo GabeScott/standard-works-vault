@@ -5,5 +5,5 @@
 [3 Nephi 12:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p29#p29)
 
 
-[^a]: [[D&C 42.23|D&C 42:23.]]
-[^b]: [[Acts 8.22|Acts 8:22.]]
+[^a]: [[D&C 42.23|D&C 42:23]].  
+[^b]: [[Acts 8.22|Acts 8:22]].  

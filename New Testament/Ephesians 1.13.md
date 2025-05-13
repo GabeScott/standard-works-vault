@@ -5,6 +5,6 @@
 [Ephesians 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.13?lang=eng#p13)
 
 
-[^a]: [[D&C 93.51|D&C 93:51]]. TG [[Gospel]].
-[^b]: TG [[Sealing, Sealed]].
-[^c]: TG [[Promise]].
+[^a]: [[D&C 93.51|D&C 93:51]]. [[Gospel|TG Gospel]].  
+[^b]: [[Sealing, Sealed|TG Sealing]].  
+[^c]: [[Promise|TG Promise]].  

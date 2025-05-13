@@ -5,5 +5,5 @@
 [Alma 13:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 14.1|Alma 14:1 (1, 8, 14)]]. TG [[Scriptures, Value of]].
-[^b]: 2 Pet. 3:16; [[Alma 41.1|Alma 41:1.]]
+[^a]: [[Alma 14.1|Alma 14:1 (1, 8, 14)]][[Alma 14.8|]][[Alma 14.14|]]. [[Scriptures, Value of|TG Scriptures, Value of]].  
+[^b]: [[2 Peter 3.16|2 Pet. 3:16]]; [[Alma 41.1|Alma 41:1]].  

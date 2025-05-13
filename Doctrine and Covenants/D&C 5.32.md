@@ -5,4 +5,4 @@
 [D&C 5:32](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.32?lang=eng#p32)
 
 
-[^a]: [[Enos 1.13|Enos 1:13.]]
+[^a]: [[Enos 1.13|Enos 1:13]].  

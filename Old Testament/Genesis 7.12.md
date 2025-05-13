@@ -5,4 +5,4 @@
 [Genesis 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/7.12?lang=eng#p12)
 
 
-[^a]: [[Ether 2.24|Ether 2:24]]. TG [[Nature, Earth]].
+[^a]: [[Ether 2.24|Ether 2:24]]. [[Nature, Earth|TG Nature, Earth]].  

@@ -5,4 +5,4 @@
 [Hosea 13:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.1?lang=eng#p1)
 
 
-[^a]: [[Hosea 11.2|Hosea 11:2.]]
+[^a]: [[Hosea 11.2|Hosea 11:2]].  

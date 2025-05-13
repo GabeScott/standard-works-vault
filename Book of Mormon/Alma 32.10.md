@@ -5,4 +5,4 @@
 [Alma 32:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Assembly for Worship]].
+[^a]: [[Worship|TG Worship]].  

@@ -5,4 +5,4 @@
 [Judges 20:18](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/20.18?lang=eng#p18)
 
 
-[^a]: OR Bethel (also Judg. 21:2).
+[^a]: OR Bethel (also [[Judges 21.2|Judg. 21:2]]).  

@@ -5,4 +5,4 @@
 [1 Chronicles 20:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/20.3?lang=eng#p3)
 
 
-[^a]: [[2 Samuel 12.31|2 Sam. 12:31]]. TG [[Cruelty, Cruel]].
+[^a]: [[2 Samuel 12.31|2 Sam. 12:31]]. [[Cruelty, Cruel|TG Cruelty]].  

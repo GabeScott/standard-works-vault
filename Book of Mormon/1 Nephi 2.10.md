@@ -5,5 +5,5 @@
 [1 Nephi 2:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/2?lang=eng&id=p10#p10)
 
 
-[^a]: IE like Ezion-geber, the Hebrew roots of which denote firmness and strength, or might of a man.
-[^b]: TG [[Dependability]].
+[^a]: IE like Ezion-geber, the Hebrew roots of which denote firmness and strength, or might of a man.  
+[^b]: [[Dependability|TG Dependability]].  

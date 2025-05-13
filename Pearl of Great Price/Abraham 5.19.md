@@ -5,4 +5,4 @@
 [Abraham 5:19](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.19?lang=eng#p19)
 
 
-[^a]: TG [[Shame]].
+[^a]: [[Shame|TG Shame]].  

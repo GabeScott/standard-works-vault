@@ -5,6 +5,6 @@
 [Deuteronomy 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.14?lang=eng#p14)
 
 
-[^a]: HEB border.
-[^b]: [[Joshua 13.2|Josh. 13:2 (1-5)]]; [[2 Samuel 3.3|2 Sam. 3:3.]]
-[^c]: IE the villages.
+[^a]: HEB border.  
+[^b]: [[Joshua 13.1|Josh. 13:2 (1–5)]][[Joshua 13.2|]][[Joshua 13.3|]][[Joshua 13.4|]][[Joshua 13.5|]]; [[2 Samuel 3.3|2 Sam. 3:3]].  
+[^c]: IE the villages.  

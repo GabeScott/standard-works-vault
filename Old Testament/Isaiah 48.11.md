@@ -5,5 +5,5 @@
 [Isaiah 48:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.11?lang=eng#p11)
 
 
-[^a]: [[Psalms 115.1|Ps. 115:1]]; [[Isaiah 43.25|Isa. 43:25]]; [[Ezekiel 20.9|Ezek. 20:9.]]
-[^c]: [[Matthew 21.43|Matt. 21:43.]]
+[^a]: [[Psalms 115.1|Ps. 115:1]]; [[Isaiah 43.25|Isa. 43:25]]; [[Ezekiel 20.9|Ezek. 20:9]].  
+[^c]: [[Matthew 21.43|Matt. 21:43]].  

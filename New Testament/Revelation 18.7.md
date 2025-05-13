@@ -5,4 +5,4 @@
 [Revelation 18:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.7?lang=eng#p7)
 
 
-[^a]: GR wantonly, riotously.
+[^a]: GR wantonly, riotously.  

@@ -5,4 +5,4 @@
 [Alma 3:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 1.6|Mosiah 1:6]]; [[Ether 4.11|Ether 4:11 (6-11).]]
+[^a]: [[Mosiah 1.6|Mosiah 1:6]]; [[Ether 4.6|Ether 4:11 (6–11)]][[Ether 4.7|]][[Ether 4.8|]][[Ether 4.9|]][[Ether 4.10|]][[Ether 4.11|]].  

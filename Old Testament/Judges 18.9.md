@@ -5,5 +5,5 @@
 [Judges 18:9](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.9?lang=eng#p9)
 
 
-[^a]: HEB inactive, quiet.
-[^b]: TG [[Laziness]].
+[^a]: HEB inactive, quiet.  
+[^b]: [[Laziness|TG Laziness]].  

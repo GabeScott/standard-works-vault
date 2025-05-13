@@ -5,4 +5,4 @@
 [Acts 9:27](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.27?lang=eng#p27)
 
 
-[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^a]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  

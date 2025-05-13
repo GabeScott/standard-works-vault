@@ -5,4 +5,4 @@
 [Ether 8:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p14#p14)
 
 
-[^a]: [[Helaman 1.11|Hel. 1:11]]; [[3 Nephi 3.8|3 Ne. 3:8]]. TG [[Swearing, Swear, Sware, Sworn]].
+[^a]: [[Helaman 1.11|Hel. 1:11]]; [[3 Nephi 3.8|3 Ne. 3:8]]. [[Swearing, Swear, Sware, Sworn|TG Swearing]].  

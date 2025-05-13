@@ -5,4 +5,4 @@
 [Isaiah 54:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.16?lang=eng#p16)
 
 
-[^a]: IE God controls all.
+[^a]: IE God controls all.  

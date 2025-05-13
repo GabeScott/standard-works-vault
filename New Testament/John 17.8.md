@@ -5,6 +5,6 @@
 [John 17:8](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.8?lang=eng#p8)
 
 
-[^a]: [[Deuteronomy 18.18|Deut. 18:18]]; [[John 6.68|John 6:68]]. TG [[Revelation]].
-[^b]: [[John 8.42|John 8:42]]; [[John 16.28|16:28 (27-28, 30)]]; [[Galatians 4.4|Gal. 4:4.]]
-[^c]: TG [[Faith]].
+[^a]: [[Deuteronomy 18.18|Deut. 18:18]]; [[John 6.68|John 6:68]]. [[Revelation|TG Revelation]].  
+[^b]: [[John 8.42|John 8:42]]; [[John 16.27|16:28 (27–28, 30)]][[John 16.28|]][[John 16.30|]]; [[Galatians 4.4|Gal. 4:4]].  
+[^c]: [[Faith|TG Faith]].  

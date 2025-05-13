@@ -5,4 +5,4 @@
 [Joshua 24:5](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.5?lang=eng#p5)
 
 
-[^a]: TG [[Plague]].
+[^a]: [[Plague|TG Plague]].  

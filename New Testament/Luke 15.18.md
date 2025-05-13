@@ -5,5 +5,5 @@
 [Luke 15:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.18?lang=eng#p18)
 
 
-[^a]: Lam. 3:40.
-[^b]: TG [[Confession]].
+[^a]: [[Lamentations 3.40|Lam. 3:40]].  
+[^b]: [[Confession|TG Confession]].  

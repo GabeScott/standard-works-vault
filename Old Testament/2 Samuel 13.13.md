@@ -5,4 +5,4 @@
 [2 Samuel 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/13.13?lang=eng#p13)
 
 
-[^a]: TG [[Shame]].
+[^a]: [[Shame|TG Shame]].  

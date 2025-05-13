@@ -5,5 +5,5 @@
 [John 6:66](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.66?lang=eng#p66)
 
 
-[^a]: TG [[Apostasy of Individuals]].
-[^b]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  
+[^b]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

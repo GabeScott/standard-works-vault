@@ -5,4 +5,4 @@
 [Acts 22:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.19?lang=eng#p19)
 
 
-[^a]: [[Acts 8.3|Acts 8:3 (3-4).]]
+[^a]: [[Acts 8.3|Acts 8:3 (3–4)]][[Acts 8.4|]].  

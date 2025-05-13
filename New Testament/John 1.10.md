@@ -5,7 +5,7 @@
 [John 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.10?lang=eng#p10)
 
 
-[^a]: TG [[World, End of]].
-[^b]: TG [[Creation, Create]].
-[^c]: TG [[Jesus Christ, Creator]].
-[^d]: [[Isaiah 53.3|Isa. 53:3.]]
+[^a]: [[World|TG World]].  
+[^b]: [[Creation, Create|TG Creation]].  
+[^c]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  
+[^d]: [[Isaiah 53.3|Isa. 53:3]].  

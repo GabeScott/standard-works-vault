@@ -5,7 +5,7 @@
 [Colossians 1:23](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.23?lang=eng#p23)
 
 
-[^a]: TG [[Perseverance]].
-[^b]: GR established and steadfast. Eph. 3:17 (17-19).
-[^c]: [[John 15.6|John 15:6.]]
-[^d]: TG [[Hope]].
+[^a]: [[Perseverance|TG Perseverance]].  
+[^b]: GR established and steadfast. [[Ephesians 3.17|Eph. 3:17 (17–19)]][[Ephesians 3.18|]][[Ephesians 3.19|]].  
+[^c]: [[John 15.6|John 15:6]].  
+[^d]: [[Hope|TG Hope]].  

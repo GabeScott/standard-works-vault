@@ -5,4 +5,4 @@
 [Leviticus 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.20?lang=eng#p20)
 
 
-[^a]: [[2 Nephi 2.5|2 Ne. 2:5]]; [[D&C 1.14|D&C 1:14.]]
+[^a]: [[2 Nephi 2.5|2 Ne. 2:5]]; [[D&C 1.14|D&C 1:14]].  

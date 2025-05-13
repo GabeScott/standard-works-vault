@@ -5,4 +5,4 @@
 [Leviticus 7:34](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.34?lang=eng#p34)
 
 
-[^a]: [[Numbers 18.11|Num. 18:11.]]
+[^a]: [[Numbers 18.11|Num. 18:11]].  

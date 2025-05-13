@@ -5,5 +5,5 @@
 [2 Chronicles 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/5.12?lang=eng#p12)
 
 
-[^a]: TG [[Apparel]].
-[^b]: OR lyres.
+[^a]: [[Apparel|TG Apparel]].  
+[^b]: OR lyres.  

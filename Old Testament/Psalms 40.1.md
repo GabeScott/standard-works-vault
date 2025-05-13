@@ -5,4 +5,4 @@
 [Psalms 40:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/40.1?lang=eng#p1)
 
 
-[^a]: [[Psalms 130.5|Ps. 130:5]]; [[D&C 98.2|D&C 98:2 (2-3).]]
+[^a]: [[Psalms 130.5|Ps. 130:5]]; [[D&C 98.2|D&C 98:2 (2–3)]][[D&C 98.3|]].  

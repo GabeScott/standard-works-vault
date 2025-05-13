@@ -5,7 +5,7 @@
 [Alma 21:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 25.6|Alma 25:6.]]
-[^b]: [[Alma 22.14|Alma 22:14 (13-14).]]
-[^c]: [[Mosiah 5.8|Mosiah 5:8]]; [[Alma 38.9|Alma 38:9.]]
-[^d]: TG [[Jesus Christ, Death of]].
+[^a]: [[Alma 25.6|Alma 25:6]].  
+[^b]: [[Alma 22.13|Alma 22:14 (13–14)]][[Alma 22.14|]].  
+[^c]: [[Mosiah 5.8|Mosiah 5:8]]; [[Alma 38.9|Alma 38:9]].  
+[^d]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

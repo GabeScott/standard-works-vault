@@ -5,4 +5,4 @@
 [3 Nephi 23:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/23?lang=eng&id=p5#p5)
 
 
-[^a]: [[Luke 24.27|Luke 24:27 (25-27).]]
+[^a]: [[Luke 24.25|Luke 24:27 (25–27)]][[Luke 24.26|]][[Luke 24.27|]].  

@@ -5,7 +5,7 @@
 [Acts 5:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.31?lang=eng#p31)
 
 
-[^a]: GR at.
-[^b]: TG [[Jesus Christ, Messiah]].
-[^c]: TG [[Jesus Christ, Atonement through]].
-[^d]: TG [[Forgive, Forgiveness]].
+[^a]: GR at.  
+[^b]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  
+[^c]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  
+[^d]: [[Forgive, Forgiveness|TG Forgive]].  

@@ -5,4 +5,4 @@
 [Psalms 34:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.22?lang=eng#p22)
 
 
-[^a]: TG [[Faith]]; [[Trust in God]].
+[^a]: [[Faith|TG Faith]]; [[Trust in God|Trust in God]].  

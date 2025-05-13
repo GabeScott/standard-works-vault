@@ -5,4 +5,4 @@
 [2 Nephi 23:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p20#p20)
 
 
-[^a]: [[Jeremiah 50.39|Jer. 50:39 (3, 39-40)]]; [[Jeremiah 51.29|51:29 (29, 62).]]
+[^a]: [[Jeremiah 50.3|Jer. 50:39 (3, 39–40)]][[Jeremiah 50.39|]][[Jeremiah 50.40|]]; [[Jeremiah 51.29|51:29 (29, 62)]][[Jeremiah 51.62|]].  

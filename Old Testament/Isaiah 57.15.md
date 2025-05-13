@@ -5,9 +5,9 @@
 [Isaiah 57:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.15?lang=eng#p15)
 
 
-[^a]: TG [[God, Eternal Nature of]].
-[^b]: [[Luke 1.49|Luke 1:49.]]
-[^c]: TG [[Contrite Heart]].
-[^d]: TG [[Humility, Humble]].
-[^e]: [[Isaiah 61.1|Isa. 61:1.]]
-[^f]: TG [[Poor in Spirit]].
+[^a]: [[God, Eternal Nature of|TG God, Eternal Nature of]].  
+[^b]: [[Luke 1.49|Luke 1:49]].  
+[^c]: [[Contrite Heart|TG Contrite Heart]].  
+[^d]: [[Humility, Humble|TG Humility]].  
+[^e]: [[Isaiah 61.1|Isa. 61:1]].  
+[^f]: [[Poor in Spirit|TG Poor in Spirit]].  

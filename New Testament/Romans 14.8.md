@@ -5,4 +5,4 @@
 [Romans 14:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.8?lang=eng#p8)
 
 
-[^a]: [[D&C 42.44|D&C 42:44 (44-47)]]; [[D&C 63.49|63:49.]]
+[^a]: [[D&C 42.44|D&C 42:44 (44–47)]][[D&C 42.45|]][[D&C 42.46|]][[D&C 42.47|]]; [[D&C 63.49|63:49]].  

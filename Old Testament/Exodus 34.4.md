@@ -5,4 +5,4 @@
 [Exodus 34:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.4?lang=eng#p4)
 
 
-[^a]: [[Deuteronomy 10.3|Deut. 10:3 (1-4).]]
+[^a]: [[Deuteronomy 10.1|Deut. 10:3 (1–4)]][[Deuteronomy 10.2|]][[Deuteronomy 10.3|]][[Deuteronomy 10.4|]].  

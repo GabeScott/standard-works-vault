@@ -5,5 +5,5 @@
 [Jeremiah 27:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.9?lang=eng#p9)
 
 
-[^a]: [[Jeremiah 29.8|Jer. 29:8.]]
-[^b]: TG [[Sorcery]].
+[^a]: [[Jeremiah 29.8|Jer. 29:8]].  
+[^b]: [[Sorcery|TG Sorcery]].  

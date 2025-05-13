@@ -5,4 +5,4 @@
 [Deuteronomy 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.13?lang=eng#p13)
 
 
-[^a]: HEB purge.
+[^a]: HEB purge.  

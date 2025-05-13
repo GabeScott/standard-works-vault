@@ -5,5 +5,5 @@
 [Jeremiah 29:23](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.23?lang=eng#p23)
 
 
-[^a]: HEB vile deeds.
-[^b]: TG [[Adulterer, Adultery]].
+[^a]: HEB vile deeds.  
+[^b]: [[Adulterer, Adultery|TG Adulterer]].  

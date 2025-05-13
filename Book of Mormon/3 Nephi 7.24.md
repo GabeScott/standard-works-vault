@@ -5,4 +5,4 @@
 [3 Nephi 7:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p24#p24)
 
 
-[^a]: TG [[Baptism, Qualifications for]].
+[^a]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  

@@ -5,5 +5,5 @@
 [1 Nephi 15:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p27#p27)
 
 
-[^a]: [[1 Nephi 12.16|1 Ne. 12:16 (16-18).]]
-[^b]: TG [[Filthiness, Filthy]].
+[^a]: [[1 Nephi 12.16|1 Ne. 12:16 (16–18)]][[1 Nephi 12.17|]][[1 Nephi 12.18|]].  
+[^b]: [[Filthiness, Filthy|TG Filthiness]].  

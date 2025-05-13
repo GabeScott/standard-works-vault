@@ -5,4 +5,4 @@
 [John 8:21](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.21?lang=eng#p21)
 
 
-[^a]: [[Moroni 10.26|Moro. 10:26 (24-26)]]. TG [[Sin]].
+[^a]: [[Moroni 10.24|Moro. 10:26 (24–26)]][[Moroni 10.25|]][[Moroni 10.26|]]. [[Sin|TG Sin]].  

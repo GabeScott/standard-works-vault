@@ -5,4 +5,4 @@
 [Leviticus 6:30](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.30?lang=eng#p30)
 
 
-[^a]: [[Jacob 4.11|Jacob 4:11.]]
+[^a]: [[Jacob 4.11|Jacob 4:11]].  

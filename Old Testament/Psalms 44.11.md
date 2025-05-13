@@ -5,4 +5,4 @@
 [Psalms 44:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/44.11?lang=eng#p11)
 
 
-[^a]: TG [[Israel, Scattering of]].
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  

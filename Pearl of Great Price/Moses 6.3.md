@@ -5,5 +5,5 @@
 [Moses 6:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.3?lang=eng#p3)
 
 
-[^a]: [[D&C 138.40|D&C 138:40.]]
-[^b]: TG [[Self-Sacrifice]].
+[^a]: [[D&C 138.40|D&C 138:40]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  

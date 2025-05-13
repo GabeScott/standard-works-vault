@@ -5,6 +5,6 @@
 [Hebrews 12:7](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.7?lang=eng#p7)
 
 
-[^a]: TG [[Steadfastness, Steadfast]].
-[^b]: GR correction, instruction. TG [[Teachable]].
-[^c]: TG [[Sons and Daughters of God]].
+[^a]: [[Steadfastness, Steadfast|TG Steadfastness]].  
+[^b]: GR correction, instruction. [[Teachable|TG Teachable]].  
+[^c]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  

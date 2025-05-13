@@ -5,4 +5,4 @@
 [Psalms 128:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/128.6?lang=eng#p6)
 
 
-[^a]: [[Psalms 125.5|Ps. 125:5.]]
+[^a]: [[Psalms 125.5|Ps. 125:5]].  

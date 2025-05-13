@@ -5,5 +5,5 @@
 [2 Chronicles 7:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.16?lang=eng#p16)
 
 
-[^a]: [[D&C 110.7|D&C 110:7]]; [[D&C 124.51|124:51.]]
-[^b]: TG [[Dedication, Dedicate]]; [[Sacred]].
+[^a]: [[D&C 110.7|D&C 110:7]]; [[D&C 124.51|124:51]].  
+[^b]: [[Dedication, Dedicate|TG Dedication]]; [[Sacred|Sacred]].  

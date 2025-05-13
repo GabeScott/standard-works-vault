@@ -5,5 +5,5 @@
 [Revelation 9:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/9.4?lang=eng#p4)
 
 
-[^a]: [[Revelation 7.3|Rev. 7:3.]]
-[^b]: TG [[Seal]].
+[^a]: [[Revelation 7.3|Rev. 7:3]].  
+[^b]: [[Seal|TG Seal]].  

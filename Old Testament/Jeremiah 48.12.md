@@ -5,4 +5,4 @@
 [Jeremiah 48:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.12?lang=eng#p12)
 
 
-[^a]: HEB tilters (those who empty things out).
+[^a]: HEB tilters (those who empty things out).  

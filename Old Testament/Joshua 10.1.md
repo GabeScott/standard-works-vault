@@ -5,4 +5,4 @@
 [Joshua 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.1?lang=eng#p1)
 
 
-[^a]: HEB Lord of righteousness.
+[^a]: HEB Lord of righteousness.  

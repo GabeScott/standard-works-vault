@@ -5,4 +5,4 @@
 [Exodus 37:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/37.14?lang=eng#p14)
 
 
-[^a]: OR Next to.
+[^a]: OR Next to.  

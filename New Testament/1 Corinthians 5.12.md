@@ -5,5 +5,5 @@
 [1 Corinthians 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/5.12?lang=eng#p12)
 
 
-[^a]: GR outside, foreign, not belonging.
-[^b]: [[1 Corinthians 6.1|1 Cor. 6:1.]]
+[^a]: GR outside, foreign, not belonging.  
+[^b]: [[1 Corinthians 6.1|1 Cor. 6:1]].  

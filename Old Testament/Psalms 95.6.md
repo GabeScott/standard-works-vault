@@ -5,5 +5,5 @@
 [Psalms 95:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/95.6?lang=eng#p6)
 
 
-[^a]: TG [[Assembly for Worship]].
-[^b]: [[Psalms 149.2|Ps. 149:2.]]
+[^a]: [[Worship|TG Worship]].  
+[^b]: [[Psalms 149.2|Ps. 149:2]].  

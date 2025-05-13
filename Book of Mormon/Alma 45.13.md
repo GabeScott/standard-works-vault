@@ -5,4 +5,4 @@
 [Alma 45:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p13#p13)
 
 
-[^a]: [[Helaman 3.16|Hel. 3:16.]]
+[^a]: [[Helaman 3.16|Hel. 3:16]].  

@@ -5,4 +5,4 @@
 [Alma 21:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p8#p8)
 
 
-[^a]: [[Jacob 7.2|Jacob 7:2 (1-7).]]
+[^a]: [[Jacob 7.1|Jacob 7:2 (1–7)]][[Jacob 7.2|]][[Jacob 7.3|]][[Jacob 7.4|]][[Jacob 7.5|]][[Jacob 7.6|]][[Jacob 7.7|]].  

@@ -5,4 +5,4 @@
 [Jude 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.8?lang=eng#p8)
 
 
-[^b]: TG [[Pollution, Pollute]].
+[^b]: [[Pollution, Pollute|TG Pollution]].  

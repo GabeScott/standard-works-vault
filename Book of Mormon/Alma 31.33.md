@@ -5,4 +5,4 @@
 [Alma 31:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p33#p33)
 
 
-[^a]: [[Romans 15.1|Rom. 15:1.]]
+[^a]: [[Romans 15.1|Rom. 15:1]].  

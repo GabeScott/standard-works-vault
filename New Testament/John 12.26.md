@@ -5,4 +5,4 @@
 [John 12:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.26?lang=eng#p26)
 
 
-[^a]: [[2 Nephi 31.12|2 Ne. 31:12 (12-13).]]
+[^a]: [[2 Nephi 31.12|2 Ne. 31:12 (12–13)]][[2 Nephi 31.13|]].  

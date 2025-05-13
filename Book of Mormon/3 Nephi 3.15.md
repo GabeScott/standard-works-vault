@@ -5,4 +5,4 @@
 [3 Nephi 3:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Deliver, Deliverance]]; [[Protection, Divine]].
+[^a]: [[Deliver, Deliverance|TG Deliver]]; [[Protection, Divine|Protection, Divine]].  

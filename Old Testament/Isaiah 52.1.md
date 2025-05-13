@@ -5,9 +5,9 @@
 [Isaiah 52:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.1?lang=eng#p1)
 
 
-[^a]: [[3 Nephi 20.36|3 Ne. 20:36 (36-38).]]
-[^b]: TG [[Israel, Restoration of]]; [[Mission of Latter-day Saints]]; [[Priesthood, Power of]]; [[Strength]].
-[^c]: TG [[Zion, Sion]].
-[^d]: D&C 113:7-8.
-[^e]: [[D&C 82.14|D&C 82:14.]]
-[^f]: TG [[Jerusalem]].
+[^a]: [[3 Nephi 20.36|3 Ne. 20:36 (36–38)]][[3 Nephi 20.37|]][[3 Nephi 20.38|]].  
+[^b]: [[Israel, Restoration of|TG Israel, Restoration of]]; [[Mission of Latter-day Saints|Mission of Latter-day Saints]]; [[Priesthood, Power of|Priesthood, Power of]]; [[Strength|Strength]].  
+[^c]: [[Zion, Sion|TG Zion]].  
+[^d]: [[D&C 113.7|D&C 113:7–8]][[D&C 113.8|]].  
+[^e]: [[D&C 82.14|D&C 82:14]].  
+[^f]: [[Jerusalem|TG Jerusalem]].  

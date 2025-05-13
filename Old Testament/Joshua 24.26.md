@@ -5,4 +5,4 @@
 [Joshua 24:26](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.26?lang=eng#p26)
 
 
-[^a]: [[1 Samuel 7.12|1 Sam. 7:12.]]
+[^a]: [[1 Samuel 7.12|1 Sam. 7:12]].  

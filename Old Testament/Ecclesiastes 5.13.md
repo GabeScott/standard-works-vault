@@ -5,4 +5,4 @@
 [Ecclesiastes 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.13?lang=eng#p13)
 
 
-[^a]: OR grievous.
+[^a]: OR grievous.  

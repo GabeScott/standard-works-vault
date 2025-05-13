@@ -5,4 +5,4 @@
 [Ezekiel 33:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.25?lang=eng#p25)
 
 
-[^a]: TG [[Blood, Eating of]].
+[^a]: [[Blood, Eating of|TG Blood, Eating of]].  

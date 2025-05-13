@@ -5,6 +5,6 @@
 [Exodus 25:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.29?lang=eng#p29)
 
 
-[^a]: [[Numbers 4.7|Num. 4:7.]]
-[^b]: HEB jugs, jars.
-[^c]: HEB wherewith to pour libations.
+[^a]: [[Numbers 4.7|Num. 4:7]].  
+[^b]: HEB jugs, jars.  
+[^c]: HEB wherewith to pour libations.  

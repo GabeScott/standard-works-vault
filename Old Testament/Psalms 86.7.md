@@ -5,4 +5,4 @@
 [Psalms 86:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/86.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 77.2|Ps. 77:2.]]
+[^a]: [[Psalms 77.2|Ps. 77:2]].  

@@ -5,4 +5,4 @@
 [Acts 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.2?lang=eng#p2)
 
 
-[^a]: [[Acts 14.8|Acts 14:8 (8-10).]]
+[^a]: [[Acts 14.8|Acts 14:8 (8–10)]][[Acts 14.9|]][[Acts 14.10|]].  

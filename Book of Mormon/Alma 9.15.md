@@ -5,4 +5,4 @@
 [Alma 9:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p15#p15)
 
 
-[^a]: [[Matthew 11.22|Matt. 11:22 (22, 24).]]
+[^a]: [[Matthew 11.22|Matt. 11:22 (22, 24)]][[Matthew 11.24|]].  

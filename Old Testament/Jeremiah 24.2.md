@@ -5,5 +5,5 @@
 [Jeremiah 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/24.2?lang=eng#p2)
 
 
-[^a]: [[Hosea 9.10|Hosea 9:10.]]
-[^b]: HEB bad or corrupted.
+[^a]: [[Hosea 9.10|Hosea 9:10]].  
+[^b]: HEB bad or corrupted.  

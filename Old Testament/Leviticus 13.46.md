@@ -5,4 +5,4 @@
 [Leviticus 13:46](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.46?lang=eng#p46)
 
 
-[^a]: [[2 Kings 15.5|2 Kgs. 15:5.]]
+[^a]: [[2 Kings 15.5|2 Kgs. 15:5]].  

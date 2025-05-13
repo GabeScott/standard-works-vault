@@ -5,4 +5,4 @@
 [Luke 7:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.4?lang=eng#p4)
 
 
-[^a]: GR earnestly.
+[^a]: GR earnestly.  

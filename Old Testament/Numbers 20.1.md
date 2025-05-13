@@ -5,4 +5,4 @@
 [Numbers 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.1?lang=eng#p1)
 
 
-[^a]: [[Numbers 27.14|Num. 27:14 (12-14)]]; [[Numbers 33.36|33:36.]]
+[^a]: [[Numbers 27.12|Num. 27:14 (12–14)]][[Numbers 27.13|]][[Numbers 27.14|]]; [[Numbers 33.36|33:36]].  

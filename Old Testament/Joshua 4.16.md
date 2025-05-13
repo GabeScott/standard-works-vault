@@ -5,4 +5,4 @@
 [Joshua 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.16?lang=eng#p16)
 
 
-[^a]: OR covenant.
+[^a]: OR covenant.  

@@ -5,4 +5,4 @@
 [Psalms 44:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/44.21?lang=eng#p21)
 
 
-[^a]: TG [[God, Omniscience of]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  

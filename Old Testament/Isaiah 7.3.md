@@ -5,6 +5,6 @@
 [Isaiah 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.3?lang=eng#p3)
 
 
-[^a]: HEB The remnant shall return. Isa. 8:3, 18 (17-18).
-[^b]: HEB canal, or tunnel. Isa. 22:11.
-[^c]: IE by way of the launderers’ field near the stream below the pool of Siloam.
+[^a]: HEB The remnant shall return. [[Isaiah 8.17|Isa. 8:3, 18 (17–18)]][[Isaiah 8.18|]].  
+[^b]: HEB canal, or tunnel. [[Isaiah 22.11|Isa. 22:11]].  
+[^c]: IE by way of the launderers’ field near the stream below the pool of Siloam.  

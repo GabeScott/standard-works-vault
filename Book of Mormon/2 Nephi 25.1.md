@@ -5,4 +5,4 @@
 [2 Nephi 25:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p1#p1)
 
 
-[^a]: [[Jacob 4.14|Jacob 4:14]]. TG [[Blood, Symbolism of]].
+[^a]: [[Jacob 4.14|Jacob 4:14]]. [[Symbolism|TG Symbolism]].  

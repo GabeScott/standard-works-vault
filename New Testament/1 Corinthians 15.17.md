@@ -5,4 +5,4 @@
 [1 Corinthians 15:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.17?lang=eng#p17)
 
 
-[^a]: GR useless, empty, ineffective.
+[^a]: GR useless, empty, ineffective.  

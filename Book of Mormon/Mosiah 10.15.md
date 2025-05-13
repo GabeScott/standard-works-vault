@@ -5,5 +5,5 @@
 [Mosiah 10:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p15#p15)
 
 
-[^a]: [[2 Nephi 5.1|2 Ne. 5:1.]]
-[^b]: [[2 Nephi 5.3|2 Ne. 5:3 (1-4).]]
+[^a]: [[2 Nephi 5.1|2 Ne. 5:1]].  
+[^b]: [[2 Nephi 5.1|2 Ne. 5:3 (1–4)]][[2 Nephi 5.2|]][[2 Nephi 5.3|]][[2 Nephi 5.4|]].  

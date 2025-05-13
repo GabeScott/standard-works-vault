@@ -5,4 +5,4 @@
 [John 11:42](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.42?lang=eng#p42)
 
 
-[^a]: TG [[Jesus Christ, Messenger of the Covenant]].
+[^a]: [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  

@@ -5,4 +5,4 @@
 [Hebrews 6:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.11?lang=eng#p11)
 
 
-[^a]: TG [[Dependability]]; [[Diligence, Diligent, Diligently]].
+[^a]: [[Dependability|TG Dependability]]; [[Diligence, Diligent, Diligently|Diligence]].  

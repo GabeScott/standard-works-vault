@@ -5,4 +5,4 @@
 [Matthew 28:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.12?lang=eng#p12)
 
 
-[^a]: GR much money.
+[^a]: GR much money.  

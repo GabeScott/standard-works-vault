@@ -5,4 +5,4 @@
 [Jacob 5:59](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p59#p59)
 
 
-[^a]: TG [[Triumph]].
+[^a]: [[Triumph|TG Triumph]].  

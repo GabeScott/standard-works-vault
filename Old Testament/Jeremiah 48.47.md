@@ -5,5 +5,5 @@
 [Jeremiah 48:47](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.47?lang=eng#p47)
 
 
-[^a]: OR turn away, remove.
-[^b]: [[Isaiah 16.5|Isa. 16:5 (1-5).]]
+[^a]: OR turn away, remove.  
+[^b]: [[Isaiah 16.1|Isa. 16:5 (1–5)]][[Isaiah 16.2|]][[Isaiah 16.3|]][[Isaiah 16.4|]][[Isaiah 16.5|]].  

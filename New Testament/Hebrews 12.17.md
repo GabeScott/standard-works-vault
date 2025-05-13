@@ -5,4 +5,4 @@
 [Hebrews 12:17](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.17?lang=eng#p17)
 
 
-[^a]: [[Genesis 27.38|Gen. 27:38 (34-38).]]
+[^a]: [[Genesis 27.34|Gen. 27:38 (34–38)]][[Genesis 27.35|]][[Genesis 27.36|]][[Genesis 27.37|]][[Genesis 27.38|]].  

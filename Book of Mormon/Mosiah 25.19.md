@@ -5,7 +5,7 @@
 [Mosiah 25:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/25?lang=eng&id=p19#p19)
 
 
-[^a]: [[Mosiah 26.17|Mosiah 26:17.]]
-[^b]: TG [[Priesthood, History of]].
-[^c]: TG [[Priest, Melchizedek Priesthood]].
-[^d]: TG [[Teacher]].
+[^a]: [[Mosiah 26.17|Mosiah 26:17]].  
+[^b]: [[Priesthood|TG Priesthood]].  
+[^c]: [[Priest, Melchizedek Priesthood|TG Priest, Melchizedek Priesthood]].  
+[^d]: [[Teacher|TG Teacher]].  

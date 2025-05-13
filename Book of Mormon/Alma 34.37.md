@@ -5,4 +5,4 @@
 [Alma 34:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p37#p37)
 
 
-[^a]: Philip. 2:12 (12-16).
+[^a]: [[Philippians 2.12|Philip. 2:12 (12–16)]][[Philippians 2.13|]][[Philippians 2.14|]][[Philippians 2.15|]][[Philippians 2.16|]].  

@@ -5,4 +5,4 @@
 [Acts 15:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.21?lang=eng#p21)
 
 
-[^a]: [[2 Corinthians 3.14|2 Cor. 3:14 (14-15).]]
+[^a]: [[2 Corinthians 3.14|2 Cor. 3:14 (14–15)]][[2 Corinthians 3.15|]].  

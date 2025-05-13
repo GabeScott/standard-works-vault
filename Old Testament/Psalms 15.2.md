@@ -5,4 +5,4 @@
 [Psalms 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/15.2?lang=eng#p2)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

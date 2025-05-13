@@ -5,5 +5,5 @@
 [1 Corinthians 7:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.11?lang=eng#p11)
 
 
-[^a]: TG [[Peacemakers]]; [[Reconciliation, Reconcile]].
-[^b]: TG [[Divorce, Divorcement]].
+[^a]: [[Peacemakers|TG Peacemakers]]; [[Reconciliation, Reconcile|Reconciliation]].  
+[^b]: [[Divorce, Divorcement|TG Divorce]].  

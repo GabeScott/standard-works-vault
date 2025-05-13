@@ -5,4 +5,4 @@
 [Exodus 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.13?lang=eng#p13)
 
 
-[^a]: HEB weakened, disabled.
+[^a]: HEB weakened, disabled.  

@@ -5,4 +5,4 @@
 [Ether 8:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p2#p2)
 
 
-[^a]: [[Helaman 1.7|Hel. 1:7]]; [[Helaman 2.5|2:5.]]
+[^a]: [[Helaman 1.7|Hel. 1:7]]; [[Helaman 2.5|2:5]].  

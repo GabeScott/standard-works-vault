@@ -5,4 +5,4 @@
 [1 Corinthians 12:29](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.29?lang=eng#p29)
 
 
-[^a]: TG [[Miracle]].
+[^a]: [[Miracle|TG Miracle]].  

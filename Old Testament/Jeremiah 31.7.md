@@ -5,4 +5,4 @@
 [Jeremiah 31:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.7?lang=eng#p7)
 
 
-[^a]: [[D&C 38.33|D&C 38:33.]]
+[^a]: [[D&C 38.33|D&C 38:33]].  

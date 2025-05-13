@@ -5,5 +5,5 @@
 [Isaiah 44:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.5?lang=eng#p5)
 
 
-[^a]: TG [[Conversion, Convert]]; [[Israel, Mission of]].
-[^b]: [[Abraham 2.10|Abr. 2:10 (9-10).]]
+[^a]: [[Conversion, Convert|TG Conversion]]; [[Israel, Mission of|Israel, Mission of]].  
+[^b]: [[Abraham 2.9|Abr. 2:10 (9–10)]][[Abraham 2.10|]].  

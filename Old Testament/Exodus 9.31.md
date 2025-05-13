@@ -5,4 +5,4 @@
 [Exodus 9:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.31?lang=eng#p31)
 
 
-[^a]: OR in bud.
+[^a]: OR in bud.  

@@ -5,5 +5,5 @@
 [Jeremiah 51:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.6?lang=eng#p6)
 
 
-[^a]: [[Genesis 19.14|Gen. 19:14.]]
-[^b]: TG [[Babylon]].
+[^a]: [[Genesis 19.14|Gen. 19:14]].  
+[^b]: [[Babylon|TG Babylon]].  

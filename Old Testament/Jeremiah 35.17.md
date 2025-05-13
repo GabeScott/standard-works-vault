@@ -5,4 +5,4 @@
 [Jeremiah 35:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/35.17?lang=eng#p17)
 
 
-[^a]: OR obeyed.
+[^a]: OR obeyed.  

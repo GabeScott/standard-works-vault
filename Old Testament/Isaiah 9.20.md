@@ -5,5 +5,5 @@
 [Isaiah 9:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.20?lang=eng#p20)
 
 
-[^a]: [[Haggai 1.6|Hag. 1:6.]]
-[^b]: [[Jeremiah 19.9|Jer. 19:9.]]
+[^a]: [[Haggai 1.6|Hag. 1:6]].  
+[^b]: [[Jeremiah 19.9|Jer. 19:9]].  

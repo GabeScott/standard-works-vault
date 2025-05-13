@@ -5,4 +5,4 @@
 [Abraham 3:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.6?lang=eng#p6)
 
 
-[^a]: [[Abraham 3.16|Abr. 3:16 (16-19).]]
+[^a]: [[Abraham 3.16|Abr. 3:16 (16–19)]][[Abraham 3.17|]][[Abraham 3.18|]][[Abraham 3.19|]].  

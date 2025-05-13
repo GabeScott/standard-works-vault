@@ -5,4 +5,4 @@
 [Judges 7:25](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7.25?lang=eng#p25)
 
 
-[^a]: [[Isaiah 10.26|Isa. 10:26.]]
+[^a]: [[Isaiah 10.26|Isa. 10:26]].  

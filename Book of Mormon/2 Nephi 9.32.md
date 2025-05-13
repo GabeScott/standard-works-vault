@@ -5,4 +5,4 @@
 [2 Nephi 9:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p32#p32)
 
 
-[^a]: TG [[Apathy]]; [[Spiritual Blindness]].
+[^a]: [[Apathy|TG Apathy]]; [[Spiritual Blindness|Spiritual Blindness]].  

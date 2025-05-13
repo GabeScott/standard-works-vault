@@ -5,4 +5,4 @@
 [1 Kings 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.2?lang=eng#p2)
 
 
-[^a]: [[Leviticus 23.34|Lev. 23:34]]; [[1 Kings 8.65|1 Kgs. 8:65]]; [[2 Chronicles 7.8|2 Chr. 7:8 (8-10).]]
+[^a]: [[Leviticus 23.34|Lev. 23:34]]; [[1 Kings 8.65|1 Kgs. 8:65]]; [[2 Chronicles 7.8|2 Chr. 7:8 (8–10)]][[2 Chronicles 7.9|]][[2 Chronicles 7.10|]].  

@@ -5,5 +5,5 @@
 [Judges 11:35](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.35?lang=eng#p35)
 
 
-[^a]: HEB thou hast indeed brought me to my knees, and thou art one bringing trouble to me.
-[^b]: IE made a promise.
+[^a]: HEB thou hast indeed brought me to my knees, and thou art one bringing trouble to me.  
+[^b]: IE made a promise.  

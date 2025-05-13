@@ -5,6 +5,6 @@
 [1 Samuel 16:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/16.1?lang=eng#p1)
 
 
-[^a]: TG [[Jesus Christ, Davidic Descent of]].
-[^b]: [[Micah 5.2|Micah 5:2]]; [[Luke 2.4|Luke 2:4]]; [[John 7.42|John 7:42 (41-44).]]
-[^c]: [[1 Kings 8.16|1 Kgs. 8:16]]; [[1 Chronicles 11.3|1 Chr. 11:3]]; [[1 Chronicles 28.4|28:4.]]
+[^a]: [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  
+[^b]: [[Micah 5.2|Micah 5:2]]; [[Luke 2.4|Luke 2:4]]; [[John 7.41|John 7:42 (41–44)]][[John 7.42|]][[John 7.43|]][[John 7.44|]].  
+[^c]: [[1 Kings 8.16|1 Kgs. 8:16]]; [[1 Chronicles 11.3|1 Chr. 11:3]]; [[1 Chronicles 28.4|28:4]].  

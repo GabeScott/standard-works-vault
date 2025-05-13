@@ -5,4 +5,4 @@
 [Numbers 14:43](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.43?lang=eng#p43)
 
 
-[^a]: [[Numbers 13.29|Num. 13:29.]]
+[^a]: [[Numbers 13.29|Num. 13:29]].  

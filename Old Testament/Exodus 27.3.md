@@ -5,4 +5,4 @@
 [Exodus 27:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/27.3?lang=eng#p3)
 
 
-[^a]: [[2 Kings 25.14|2 Kgs. 25:14.]]
+[^a]: [[2 Kings 25.14|2 Kgs. 25:14]].  

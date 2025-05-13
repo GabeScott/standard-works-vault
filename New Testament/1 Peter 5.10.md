@@ -5,5 +5,5 @@
 [1 Peter 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/5.10?lang=eng#p10)
 
 
-[^a]: TG [[Grace]].
-[^b]: TG [[Worthiness, Worthy]].
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[Worthiness, Worthy|TG Worthiness]].  

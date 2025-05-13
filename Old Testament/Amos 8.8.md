@@ -5,5 +5,5 @@
 [Amos 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/8.8?lang=eng#p8)
 
 
-[^a]: [[Amos 9.5|Amos 9:5.]]
-[^b]: HEB overflow and recede like the river of Egypt.
+[^a]: [[Amos 9.5|Amos 9:5]].  
+[^b]: HEB overflow and recede like the river of Egypt.  

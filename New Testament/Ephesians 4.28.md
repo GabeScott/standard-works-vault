@@ -5,6 +5,6 @@
 [Ephesians 4:28](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.28?lang=eng#p28)
 
 
-[^a]: TG [[Stealing, Stolen]].
-[^b]: TG [[Labor]]; [[Work, Value of]].
-[^c]: [[Proverbs 21.26|Prov. 21:26.]]
+[^a]: [[Stealing, Stolen|TG Stealing]].  
+[^b]: [[Labor|TG Labor]]; [[Work, Value of|Work, Value of]].  
+[^c]: [[Proverbs 21.26|Prov. 21:26]].  

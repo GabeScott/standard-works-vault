@@ -5,5 +5,5 @@
 [Luke 6:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.21?lang=eng#p21)
 
 
-[^a]: [[Isaiah 55.1|Isa. 55:1 (1-2).]]
-[^b]: TG [[Laughter, Laugh]].
+[^a]: [[Isaiah 55.1|Isa. 55:1 (1–2)]][[Isaiah 55.2|]].  
+[^b]: [[Laughter, Laugh|TG Laughter]].  

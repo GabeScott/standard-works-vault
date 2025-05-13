@@ -5,4 +5,4 @@
 [Psalms 119:165](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.165?lang=eng#p165)
 
 
-[^a]: TG [[Peace of God]]; [[Peace of God]] of God.
+[^a]: [[Peace|TG Peace]]; [[Peace of God|Peace of God]].  

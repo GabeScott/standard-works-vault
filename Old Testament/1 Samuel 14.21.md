@@ -5,4 +5,4 @@
 [1 Samuel 14:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.21?lang=eng#p21)
 
 
-[^a]: [[1 Samuel 13.7|1 Sam. 13:7.]]
+[^a]: [[1 Samuel 13.7|1 Sam. 13:7]].  

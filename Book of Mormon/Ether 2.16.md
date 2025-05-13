@@ -5,5 +5,5 @@
 [Ether 2:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p16#p16)
 
 
-[^a]: [[Ether 2.6|Ether 2:6.]]
-[^b]: [[Exodus 25.40|Ex. 25:40]]; [[Proverbs 16.9|Prov. 16:9]]; [[1 Nephi 17.51|1 Ne. 17:51 (50-51).]]
+[^a]: [[Ether 2.6|Ether 2:6]].  
+[^b]: [[Exodus 25.40|Ex. 25:40]]; [[Proverbs 16.9|Prov. 16:9]]; [[1 Nephi 17.50|1 Ne. 17:51 (50–51)]][[1 Nephi 17.51|]].  

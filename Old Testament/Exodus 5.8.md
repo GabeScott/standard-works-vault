@@ -5,4 +5,4 @@
 [Exodus 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/5.8?lang=eng#p8)
 
 
-[^a]: OR quota.
+[^a]: OR quota.  

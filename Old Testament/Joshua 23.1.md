@@ -5,5 +5,5 @@
 [Joshua 23:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.1?lang=eng#p1)
 
 
-[^a]: [[Joshua 22.4|Josh. 22:4.]]
-[^b]: [[Joshua 13.1|Josh. 13:1.]]
+[^a]: [[Joshua 22.4|Josh. 22:4]].  
+[^b]: [[Joshua 13.1|Josh. 13:1]].  

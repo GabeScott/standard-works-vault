@@ -5,4 +5,4 @@
 [1 Corinthians 5:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/5.3?lang=eng#p3)
 
 
-[^a]: GR as it were.
+[^a]: GR as it were.  

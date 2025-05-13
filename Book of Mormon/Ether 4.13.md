@@ -5,4 +5,4 @@
 [Ether 4:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/4?lang=eng&id=p13#p13)
 
 
-[^a]: [[3 Nephi 12.2|3 Ne. 12:2 (2-3).]]
+[^a]: [[3 Nephi 12.2|3 Ne. 12:2 (2–3)]][[3 Nephi 12.3|]].  

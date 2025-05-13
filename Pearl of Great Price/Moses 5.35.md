@@ -5,4 +5,4 @@
 [Moses 5:35](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.35?lang=eng#p35)
 
 
-[^a]: TG [[Life, Sanctity of]].
+[^a]: [[Life, Sanctity of|TG Life, Sanctity of]].  

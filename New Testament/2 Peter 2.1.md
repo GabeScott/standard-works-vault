@@ -5,7 +5,7 @@
 [2 Peter 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.1?lang=eng#p1)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]]; [[False Prophets]].
-[^b]: TG [[False Doctrine]]; [[False Priesthoods]].
-[^c]: TG [[Teacher]].
-[^d]: [[1 Corinthians 6.20|1 Cor. 6:20.]]
+[^a]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]]; [[False Prophets|False Prophets]].  
+[^b]: [[False Doctrine|TG False Doctrine]]; [[False Priesthoods|False Priesthoods]].  
+[^c]: [[Teacher|TG Teacher]].  
+[^d]: [[1 Corinthians 6.20|1 Cor. 6:20]].  

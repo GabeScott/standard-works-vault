@@ -5,4 +5,4 @@
 [Job 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/job/10.9?lang=eng#p9)
 
 
-[^a]: [[Genesis 3.19|Gen. 3:19]]; [[Alma 42.30|Alma 42:30]]; [[Moses 4.25|Moses 4:25.]]
+[^a]: [[Genesis 3.19|Gen. 3:19]]; [[Alma 42.30|Alma 42:30]]; [[Moses 4.25|Moses 4:25]].  

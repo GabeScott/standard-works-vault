@@ -5,6 +5,6 @@
 [Ether 8:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p26#p26)
 
 
-[^a]: [[2 Nephi 30.18|2 Ne. 30:18.]]
-[^b]: [[2 Nephi 33.4|2 Ne. 33:4]]; [[Moroni 7.13|Moro. 7:13 (12-17).]]
-[^c]: TG [[God, the Standard of Righteousness]].
+[^a]: [[2 Nephi 30.18|2 Ne. 30:18]].  
+[^b]: [[2 Nephi 33.4|2 Ne. 33:4]]; [[Moroni 7.12|Moro. 7:13 (12–17)]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]].  
+[^c]: [[Righteousness|TG Righteousness]].  

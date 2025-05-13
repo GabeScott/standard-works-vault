@@ -5,6 +5,6 @@
 [Titus 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.8?lang=eng#p8)
 
 
-[^a]: [[1 Timothy 6.3|1 Tim. 6:3.]]
-[^b]: [[1 Peter 2.12|1 Pet. 2:12 (11-12).]]
-[^c]: GR an opponent, enemy.
+[^a]: [[1 Timothy 6.3|1 Tim. 6:3]].  
+[^b]: [[1 Peter 2.11|1 Pet. 2:12 (11–12)]][[1 Peter 2.12|]].  
+[^c]: GR an opponent, enemy.  

@@ -5,4 +5,4 @@
 [Hosea 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.6?lang=eng#p6)
 
 
-[^a]: Lam. 3:7 (7-8).
+[^a]: [[Lamentations 3.7|Lam. 3:7 (7–8)]][[Lamentations 3.8|]].  

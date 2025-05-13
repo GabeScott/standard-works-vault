@@ -5,4 +5,4 @@
 [2 Chronicles 9:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/9.23?lang=eng#p23)
 
 
-[^a]: [[1 Kings 4.34|1 Kgs. 4:34.]]
+[^a]: [[1 Kings 4.34|1 Kgs. 4:34]].  

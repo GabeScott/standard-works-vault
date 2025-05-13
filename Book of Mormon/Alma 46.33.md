@@ -5,4 +5,4 @@
 [Alma 46:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p33#p33)
 
 
-[^a]: [[Alma 47.1|Alma 47:1.]]
+[^a]: [[Alma 47.1|Alma 47:1]].  

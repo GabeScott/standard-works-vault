@@ -5,5 +5,5 @@
 [Ezekiel 29:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.21?lang=eng#p21)
 
 
-[^a]: Hebrew metaphor meaning power, capacity.
-[^b]: Hebrew idiom meaning “authority to speak.”
+[^a]: Hebrew metaphor meaning power, capacity.  
+[^b]: Hebrew idiom meaning “authority to speak.”  

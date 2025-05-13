@@ -5,4 +5,4 @@
 [2 Kings 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.9?lang=eng#p9)
 
 
-[^a]: TG [[Tyranny]].
+[^a]: [[Tyranny|TG Tyranny]].  

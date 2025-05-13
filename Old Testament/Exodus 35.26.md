@@ -5,4 +5,4 @@
 [Exodus 35:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.26?lang=eng#p26)
 
 
-[^a]: IE unto skills.
+[^a]: IE unto skills.  

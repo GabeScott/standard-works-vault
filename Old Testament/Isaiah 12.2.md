@@ -5,5 +5,5 @@
 [Isaiah 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/12.2?lang=eng#p2)
 
 
-[^b]: TG [[Priesthood, Power of]]; [[Strength]].
-[^c]: TG [[Salvation for the Dead]].
+[^b]: [[Priesthood, Power of|TG Priesthood, Power of]]; [[Strength|Strength]].  
+[^c]: [[Salvation|TG Salvation]].  

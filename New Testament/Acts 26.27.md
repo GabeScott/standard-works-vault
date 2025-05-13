@@ -5,4 +5,4 @@
 [Acts 26:27](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.27?lang=eng#p27)
 
 
-[^a]: [[Alma 30.42|Alma 30:42 (41-42).]]
+[^a]: [[Alma 30.41|Alma 30:42 (41–42)]][[Alma 30.42|]].  

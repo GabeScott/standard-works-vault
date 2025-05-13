@@ -5,6 +5,6 @@
 [Psalms 106:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.28?lang=eng#p28)
 
 
-[^a]: [[Hosea 9.10|Hosea 9:10.]]
-[^b]: [[Exodus 34.15|Ex. 34:15.]]
-[^c]: IE offered to.
+[^a]: [[Hosea 9.10|Hosea 9:10]].  
+[^b]: [[Exodus 34.15|Ex. 34:15]].  
+[^c]: IE offered to.  

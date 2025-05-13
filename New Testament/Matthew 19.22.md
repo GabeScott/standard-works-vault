@@ -5,4 +5,4 @@
 [Matthew 19:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.22?lang=eng#p22)
 
 
-[^a]: GR many.
+[^a]: GR many.  

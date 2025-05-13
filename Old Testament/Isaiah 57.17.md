@@ -5,6 +5,6 @@
 [Isaiah 57:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.17?lang=eng#p17)
 
 
-[^a]: [[D&C 63.32|D&C 63:32.]]
-[^b]: [[Ezekiel 33.31|Ezek. 33:31.]]
-[^c]: HEB turning away.
+[^a]: [[D&C 63.32|D&C 63:32]].  
+[^b]: [[Ezekiel 33.31|Ezek. 33:31]].  
+[^c]: HEB turning away.  

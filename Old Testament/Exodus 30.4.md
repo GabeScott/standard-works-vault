@@ -5,5 +5,5 @@
 [Exodus 30:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.4?lang=eng#p4)
 
 
-[^a]: HEB on two of its trusses, or supporting frames.
-[^b]: OR carry it.
+[^a]: HEB on two of its trusses, or supporting frames.  
+[^b]: OR carry it.  

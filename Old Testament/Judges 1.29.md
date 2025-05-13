@@ -5,4 +5,4 @@
 [Judges 1:29](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/1.29?lang=eng#p29)
 
 
-[^a]: [[Joshua 16.10|Josh. 16:10.]]
+[^a]: [[Joshua 16.10|Josh. 16:10]].  

@@ -5,4 +5,4 @@
 [Ezekiel 36:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.12?lang=eng#p12)
 
 
-[^a]: [[1 Nephi 10.3|1 Ne. 10:3.]]
+[^a]: [[1 Nephi 10.3|1 Ne. 10:3]].  

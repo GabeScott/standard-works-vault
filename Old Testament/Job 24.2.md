@@ -5,4 +5,4 @@
 [Job 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/job/24.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 19.14|Deut. 19:14]]; [[Proverbs 22.28|Prov. 22:28]]; [[Hosea 5.10|Hosea 5:10.]]
+[^a]: [[Deuteronomy 19.14|Deut. 19:14]]; [[Proverbs 22.28|Prov. 22:28]]; [[Hosea 5.10|Hosea 5:10]].  

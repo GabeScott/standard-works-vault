@@ -5,6 +5,6 @@
 [1 Nephi 4:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/4?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Nephi 3.30|1 Ne. 3:30 (29-31)]]; [[1 Nephi 7.10|7:10.]]
-[^b]: TG [[Doubt, Doubtful]].
-[^c]: TG [[Deliver, Deliverance]].
+[^a]: [[1 Nephi 3.29|1 Ne. 3:30 (29–31)]][[1 Nephi 3.30|]][[1 Nephi 3.31|]]; [[1 Nephi 7.10|7:10]].  
+[^b]: [[Doubt, Doubtful|TG Doubt]].  
+[^c]: [[Deliver, Deliverance|TG Deliver]].  

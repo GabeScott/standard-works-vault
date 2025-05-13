@@ -5,4 +5,4 @@
 [2 Samuel 22:32](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.32?lang=eng#p32)
 
 
-[^a]: [[Deuteronomy 32.31|Deut. 32:31.]]
+[^a]: [[Deuteronomy 32.31|Deut. 32:31]].  

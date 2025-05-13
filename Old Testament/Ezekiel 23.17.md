@@ -5,5 +5,5 @@
 [Ezekiel 23:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.17?lang=eng#p17)
 
 
-[^a]: TG [[Filthiness, Filthy]].
-[^b]: JST Ezek. 23:17 … from me by them.
+[^a]: [[Filthiness, Filthy|TG Filthiness]].  
+[^b]: JST Ezek. 23:17 … from me by them.  

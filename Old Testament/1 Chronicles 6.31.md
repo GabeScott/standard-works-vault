@@ -5,4 +5,4 @@
 [1 Chronicles 6:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/6.31?lang=eng#p31)
 
 
-[^a]: [[1 Chronicles 9.33|1 Chr. 9:33]]; [[1 Chronicles 25.6|25:6 (1-7).]]
+[^a]: [[1 Chronicles 9.33|1 Chr. 9:33]]; [[1 Chronicles 25.1|25:6 (1–7)]][[1 Chronicles 25.2|]][[1 Chronicles 25.3|]][[1 Chronicles 25.4|]][[1 Chronicles 25.5|]][[1 Chronicles 25.6|]][[1 Chronicles 25.7|]].  

@@ -5,6 +5,6 @@
 [3 Nephi 9:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p11#p11)
 
 
-[^a]: [[2 Kings 1.10|2 Kgs. 1:10 (9-16)]]; [[Helaman 13.13|Hel. 13:13.]]
-[^b]: [[Deuteronomy 31.18|Deut. 31:18.]]
-[^c]: [[Genesis 4.10|Gen. 4:10.]]
+[^a]: [[2 Kings 1.9|2 Kgs. 1:10 (9–16)]][[2 Kings 1.10|]][[2 Kings 1.11|]][[2 Kings 1.12|]][[2 Kings 1.13|]][[2 Kings 1.14|]][[2 Kings 1.15|]][[2 Kings 1.16|]]; [[Helaman 13.13|Hel. 13:13]].  
+[^b]: [[Deuteronomy 31.18|Deut. 31:18]].  
+[^c]: [[Genesis 4.10|Gen. 4:10]].  

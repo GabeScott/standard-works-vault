@@ -5,4 +5,4 @@
 [Jeremiah 9:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.8?lang=eng#p8)
 
 
-[^a]: TG [[Hypocrisy, Hypocrite]].
+[^a]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  

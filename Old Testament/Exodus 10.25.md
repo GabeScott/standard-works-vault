@@ -5,4 +5,4 @@
 [Exodus 10:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.25?lang=eng#p25)
 
 
-[^a]: HEB leave in our possession.
+[^a]: HEB leave in our possession.  

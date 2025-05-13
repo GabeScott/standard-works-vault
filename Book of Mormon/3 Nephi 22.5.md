@@ -5,4 +5,4 @@
 [3 Nephi 22:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/22?lang=eng&id=p5#p5)
 
 
-[^a]: [[Hosea 3.5|Hosea 3:5 (4-5).]]
+[^a]: [[Hosea 3.4|Hosea 3:5 (4–5)]][[Hosea 3.5|]].  

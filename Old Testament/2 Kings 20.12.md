@@ -5,4 +5,4 @@
 [2 Kings 20:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.12?lang=eng#p12)
 
 
-[^a]: [[Isaiah 39.1|Isa. 39:1.]]
+[^a]: [[Isaiah 39.1|Isa. 39:1]].  

@@ -5,7 +5,7 @@
 [Romans 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.20?lang=eng#p20)
 
 
-[^a]: [[2 Nephi 25.23|2 Ne. 25:23.]]
-[^b]: TG [[Law of Moses]].
-[^c]: [[2 Nephi 2.5|2 Ne. 2:5 (5-8).]]
-[^d]: GR through.
+[^a]: [[2 Nephi 25.23|2 Ne. 25:23]].  
+[^b]: [[Law of Moses|TG Law of Moses]].  
+[^c]: [[2 Nephi 2.5|2 Ne. 2:5 (5–8)]][[2 Nephi 2.6|]][[2 Nephi 2.7|]][[2 Nephi 2.8|]].  
+[^d]: GR through.  

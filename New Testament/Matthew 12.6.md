@@ -5,4 +5,4 @@
 [Matthew 12:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.6?lang=eng#p6)
 
 
-[^a]: TG [[Genealogy and Temple Work]].
+[^a]: [[Temple|TG Temple]].  

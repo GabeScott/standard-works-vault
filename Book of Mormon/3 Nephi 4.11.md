@@ -5,4 +5,4 @@
 [3 Nephi 4:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/4?lang=eng&id=p11#p11)
 
 
-[^a]: [[Alma 28.11|Alma 28:11 (8-12).]]
+[^a]: [[Alma 28.8|Alma 28:11 (8–12)]][[Alma 28.9|]][[Alma 28.10|]][[Alma 28.11|]][[Alma 28.12|]].  

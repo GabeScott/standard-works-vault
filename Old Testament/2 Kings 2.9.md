@@ -5,4 +5,4 @@
 [2 Kings 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.9?lang=eng#p9)
 
 
-[^a]: [[Deuteronomy 21.17|Deut. 21:17.]]
+[^a]: [[Deuteronomy 21.17|Deut. 21:17]].  

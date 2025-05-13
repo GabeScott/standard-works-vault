@@ -5,6 +5,6 @@
 [Leviticus 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/21.12?lang=eng#p12)
 
 
-[^a]: OR temple.
-[^b]: OR consecration.
-[^c]: [[Leviticus 10.7|Lev. 10:7]]. TG [[Anointing, Anoint]].
+[^a]: OR temple.  
+[^b]: OR consecration.  
+[^c]: [[Leviticus 10.7|Lev. 10:7]]. [[Anointing, Anoint|TG Anointing]].  

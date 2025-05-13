@@ -5,7 +5,7 @@
 [Jacob 3:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Marriage, Husbands]].
-[^b]: TG [[Family, Love within]]; [[Marriage, Continuing Courtship in]].
-[^c]: TG [[Marriage, Wives]].
-[^d]: [[D&C 3.18|D&C 3:18]]. TG [[Unbelief, Unbelievers]].
+[^a]: [[Marriage, Husbands|TG Marriage, Husbands]].  
+[^b]: [[Family, Love within|TG Family, Love within]]; [[Marriage, Continuing Courtship in|Marriage, Continuing Courtship in]].  
+[^c]: [[Marriage, Wives|TG Marriage, Wives]].  
+[^d]: [[D&C 3.18|D&C 3:18]]. [[Unbelief, Unbelievers|TG Unbelief]].  

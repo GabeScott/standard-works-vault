@@ -5,4 +5,4 @@
 [Luke 8:51](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.51?lang=eng#p51)
 
 
-[^a]: GR child.
+[^a]: GR child.  

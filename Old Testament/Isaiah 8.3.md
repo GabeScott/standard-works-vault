@@ -5,5 +5,5 @@
 [Isaiah 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.3?lang=eng#p3)
 
 
-[^a]: IE his wife. Alma 32:23.
-[^b]: [[Isaiah 7.3|Isa. 7:3]]; [[Isaiah 8.18|8:18 (17-18).]]
+[^a]: IE his wife. [[Alma 32.23|Alma 32:23]].  
+[^b]: [[Isaiah 7.3|Isa. 7:3]]; [[Isaiah 8.17|8:18 (17–18)]][[Isaiah 8.18|]].  

@@ -5,4 +5,4 @@
 [Psalms 121:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/121.6?lang=eng#p6)
 
 
-[^a]: [[Isaiah 49.10|Isa. 49:10]]; [[Revelation 7.16|Rev. 7:16.]]
+[^a]: [[Isaiah 49.10|Isa. 49:10]]; [[Revelation 7.16|Rev. 7:16]].  

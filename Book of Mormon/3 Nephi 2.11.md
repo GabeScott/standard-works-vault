@@ -5,5 +5,5 @@
 [3 Nephi 2:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/2?lang=eng&id=p11#p11)
 
 
-[^a]: [[3 Nephi 1.27|3 Ne. 1:27.]]
-[^b]: [[Mormon 2.8|Morm. 2:8.]]
+[^a]: [[3 Nephi 1.27|3 Ne. 1:27]].  
+[^b]: [[Mormon 2.8|Morm. 2:8]].  

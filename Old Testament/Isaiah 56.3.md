@@ -5,5 +5,5 @@
 [Isaiah 56:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.3?lang=eng#p3)
 
 
-[^a]: [[Isaiah 60.10|Isa. 60:10.]]
-[^b]: [[Romans 8.15|Rom. 8:15.]]
+[^a]: [[Isaiah 60.10|Isa. 60:10]].  
+[^b]: [[Romans 8.15|Rom. 8:15]].  

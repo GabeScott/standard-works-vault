@@ -5,4 +5,4 @@
 [Exodus 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.17?lang=eng#p17)
 
 
-[^a]: [[Psalms 105.31|Ps. 105:31.]]
+[^a]: [[Psalms 105.31|Ps. 105:31]].  

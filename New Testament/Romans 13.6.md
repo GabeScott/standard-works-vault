@@ -5,4 +5,4 @@
 [Romans 13:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.6?lang=eng#p6)
 
 
-[^a]: JST Rom. 13:6-7 (Appendix).
+[^a]: [[JST Romans 13.6|JST Rom. 13:6–7 (Appendix)]][[JST Romans 13.7|]].  

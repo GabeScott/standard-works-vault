@@ -5,5 +5,5 @@
 [Exodus 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.9?lang=eng#p9)
 
 
-[^a]: [[Exodus 33.7|Ex. 33:7]]; [[D&C 101.23|D&C 101:23]]; [[D&C 124.38|124:38 (38-41).]]
-[^b]: OR furniture, equipment, utensils.
+[^a]: [[Exodus 33.7|Ex. 33:7]]; [[D&C 101.23|D&C 101:23]]; [[D&C 124.38|124:38 (38–41)]][[D&C 124.39|]][[D&C 124.40|]][[D&C 124.41|]].  
+[^b]: OR furniture, equipment, utensils.  

@@ -5,4 +5,4 @@
 [Leviticus 16:31](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.31?lang=eng#p31)
 
 
-[^a]: [[Mosiah 13.18|Mosiah 13:18 (18-19).]]
+[^a]: [[Mosiah 13.18|Mosiah 13:18 (18–19)]][[Mosiah 13.19|]].  

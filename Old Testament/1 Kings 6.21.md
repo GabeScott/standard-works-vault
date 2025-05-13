@@ -5,4 +5,4 @@
 [1 Kings 6:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.21?lang=eng#p21)
 
 
-[^a]: [[2 Nephi 5.15|2 Ne. 5:15]]; [[D&C 124.26|D&C 124:26 (26-27).]]
+[^a]: [[2 Nephi 5.15|2 Ne. 5:15]]; [[D&C 124.26|D&C 124:26 (26–27)]][[D&C 124.27|]].  

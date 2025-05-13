@@ -5,4 +5,4 @@
 [Malachi 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/1.10?lang=eng#p10)
 
 
-[^a]: [[Amos 5.22|Amos 5:22 (21-22)]]; [[3 Nephi 9.19|3 Ne. 9:19 (19-20).]]
+[^a]: [[Amos 5.21|Amos 5:22 (21–22)]][[Amos 5.22|]]; [[3 Nephi 9.19|3 Ne. 9:19 (19–20)]][[3 Nephi 9.20|]].  

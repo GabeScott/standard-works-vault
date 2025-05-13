@@ -5,4 +5,4 @@
 [Psalms 49:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/49.11?lang=eng#p11)
 
 
-[^a]: [[Genesis 4.17|Gen. 4:17.]]
+[^a]: [[Genesis 4.17|Gen. 4:17]].  

@@ -5,4 +5,4 @@
 [Genesis 22:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.1?lang=eng#p1)
 
 
-[^a]: HEB test, or prove. D&C 136:31. TG [[Testament]].
+[^a]: HEB test, or prove. [[D&C 136.31|D&C 136:31]]. [[Test, Try, Prove|TG Test]].  

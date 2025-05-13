@@ -5,4 +5,4 @@
 [1 Corinthians 4:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.20?lang=eng#p20)
 
 
-[^a]: [[1 Corinthians 1.18|1 Cor. 1:18 (17-18)]]; [[D&C 18.47|D&C 18:47]]; [[D&C 42.14|42:14]]. TG [[Priesthood, Power of]].
+[^a]: [[1 Corinthians 1.17|1 Cor. 1:18 (17–18)]][[1 Corinthians 1.18|]]; [[D&C 18.47|D&C 18:47]]; [[D&C 42.14|42:14]]. [[Priesthood, Power of|TG Priesthood, Power of]].  

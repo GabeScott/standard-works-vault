@@ -5,4 +5,4 @@
 [Helaman 8:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p28#p28)
 
 
-[^a]: [[Helaman 6.26|Hel. 6:26 (26-30).]]
+[^a]: [[Helaman 6.26|Hel. 6:26 (26–30)]][[Helaman 6.27|]][[Helaman 6.28|]][[Helaman 6.29|]][[Helaman 6.30|]].  

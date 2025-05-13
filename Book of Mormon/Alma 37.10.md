@@ -5,5 +5,5 @@
 [Alma 37:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p10#p10)
 
 
-[^a]: [[2 Nephi 3.15|2 Ne. 3:15.]]
-[^b]: TG [[Stiffnecked, Stiffneckedness]].
+[^a]: [[2 Nephi 3.15|2 Ne. 3:15]].  
+[^b]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  

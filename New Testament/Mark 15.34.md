@@ -5,5 +5,5 @@
 [Mark 15:34](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.34?lang=eng#p34)
 
 
-[^a]: Aramaic: My God, my God, why hast thou forsaken me?
-[^b]: TG [[Jesus Christ, Crucifixion of]].
+[^a]: Aramaic: My God, my God, why hast thou forsaken me?  
+[^b]: [[Jesus Christ, Crucifixion of|TG Jesus Christ, Crucifixion of]].  

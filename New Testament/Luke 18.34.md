@@ -5,4 +5,4 @@
 [Luke 18:34](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.34?lang=eng#p34)
 
 
-[^a]: [[John 12.16|John 12:16.]]
+[^a]: [[John 12.16|John 12:16]].  

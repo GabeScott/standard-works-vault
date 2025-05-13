@@ -5,5 +5,5 @@
 [Alma 22:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p3#p3)
 
 
-[^a]: [[Acts 2.37|Acts 2:37 (37-38).]]
-[^b]: [[Alma 20.26|Alma 20:26.]]
+[^a]: [[Acts 2.37|Acts 2:37 (37–38)]][[Acts 2.38|]].  
+[^b]: [[Alma 20.26|Alma 20:26]].  

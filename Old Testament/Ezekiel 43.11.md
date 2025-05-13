@@ -5,5 +5,5 @@
 [Ezekiel 43:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.11?lang=eng#p11)
 
 
-[^a]: TG [[Genealogy and Temple Work]]; [[Genealogy and Temple Work]].
-[^b]: TG [[Ordinance]].
+[^a]: [[Genealogy and Temple Work|TG Genealogy and Temple Work]]; [[Temple|Temple]].  
+[^b]: [[Ordinance|TG Ordinance]].  

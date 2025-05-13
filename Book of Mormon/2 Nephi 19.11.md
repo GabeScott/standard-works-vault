@@ -5,4 +5,4 @@
 [2 Nephi 19:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p11#p11)
 
 
-[^a]: [[2 Kings 16.9|2 Kgs. 16:9 (7-9).]]
+[^a]: [[2 Kings 16.7|2 Kgs. 16:9 (7–9)]][[2 Kings 16.8|]][[2 Kings 16.9|]].  

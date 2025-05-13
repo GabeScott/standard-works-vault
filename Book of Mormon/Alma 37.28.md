@@ -5,4 +5,4 @@
 [Alma 37:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p28#p28)
 
 
-[^a]: [[Ether 2.8|Ether 2:8 (7-12).]]
+[^a]: [[Ether 2.7|Ether 2:8 (7–12)]][[Ether 2.8|]][[Ether 2.9|]][[Ether 2.10|]][[Ether 2.11|]][[Ether 2.12|]].  

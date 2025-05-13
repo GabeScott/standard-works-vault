@@ -5,7 +5,7 @@
 [Isaiah 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.4?lang=eng#p4)
 
 
-[^a]: TG [[Man, Natural, Not Spiritually Reborn]].
-[^b]: [[Isaiah 57.4|Isa. 57:4.]]
-[^c]: [[D&C 38.11|D&C 38:11 (10-12).]]
-[^d]: TG [[Anger]].
+[^a]: [[Man, Natural, Not Spiritually Reborn|TG Man, Natural, Not Spiritually Reborn]].  
+[^b]: [[Isaiah 57.4|Isa. 57:4]].  
+[^c]: [[D&C 38.10|D&C 38:11 (10–12)]][[D&C 38.11|]][[D&C 38.12|]].  
+[^d]: [[Anger|TG Anger]].  

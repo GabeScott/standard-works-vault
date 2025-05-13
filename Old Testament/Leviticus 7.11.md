@@ -5,4 +5,4 @@
 [Leviticus 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.11?lang=eng#p11)
 
 
-[^a]: TG [[Self-Sacrifice]].
+[^a]: [[Sacrifice|TG Sacrifice]].  

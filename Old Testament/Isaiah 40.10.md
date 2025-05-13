@@ -5,5 +5,5 @@
 [Isaiah 40:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.10?lang=eng#p10)
 
 
-[^a]: [[D&C 1.14|D&C 1:14 (13-14).]]
-[^b]: TG [[Reward]].
+[^a]: [[D&C 1.13|D&C 1:14 (13–14)]][[D&C 1.14|]].  
+[^b]: [[Reward|TG Reward]].  

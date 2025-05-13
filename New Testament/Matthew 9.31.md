@@ -5,5 +5,5 @@
 [Matthew 9:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.31?lang=eng#p31)
 
 
-[^a]: [[Mark 7.36|Mark 7:36.]]
-[^b]: [[John 12.19|John 12:19.]]
+[^a]: [[Mark 7.36|Mark 7:36]].  
+[^b]: [[John 12.19|John 12:19]].  

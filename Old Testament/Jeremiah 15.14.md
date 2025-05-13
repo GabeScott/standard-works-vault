@@ -5,4 +5,4 @@
 [Jeremiah 15:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/15.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 16.13|Jer. 16:13]]; [[Jeremiah 17.4|17:4.]]
+[^a]: [[Jeremiah 16.13|Jer. 16:13]]; [[Jeremiah 17.4|17:4]].  

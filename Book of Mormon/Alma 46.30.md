@@ -5,4 +5,4 @@
 [Alma 46:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p30#p30)
 
 
-[^a]: [[Alma 43.51|Alma 43:51.]]
+[^a]: [[Alma 43.51|Alma 43:51]].  

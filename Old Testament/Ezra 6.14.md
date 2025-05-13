@@ -5,5 +5,5 @@
 [Ezra 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.14?lang=eng#p14)
 
 
-[^a]: [[Ezra 5.1|Ezra 5:1.]]
-[^b]: [[Ezra 5.13|Ezra 5:13]]; Dan. 6:28.
+[^a]: [[Ezra 5.1|Ezra 5:1]].  
+[^b]: [[Ezra 5.13|Ezra 5:13]]; [[Daniel 6.28|Dan. 6:28]].  

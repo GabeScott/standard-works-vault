@@ -5,5 +5,5 @@
 [Moses 5:52](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.52?lang=eng#p52)
 
 
-[^a]: TG [[Curse]].
-[^b]: [[Moses 8.14|Moses 8:14 (14-15, 19).]]
+[^a]: [[Curse|TG Curse]].  
+[^b]: [[Moses 8.14|Moses 8:14 (14–15, 19)]][[Moses 8.15|]][[Moses 8.19|]].  

@@ -5,5 +5,5 @@
 [Genesis 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.14?lang=eng#p14)
 
 
-[^a]: [[Ether 6.7|Ether 6:7 (6-8)]]; [[Moses 7.43|Moses 7:43.]]
-[^b]: HEB “nests,” compartments.
+[^a]: [[Ether 6.6|Ether 6:7 (6–8)]][[Ether 6.7|]][[Ether 6.8|]]; [[Moses 7.43|Moses 7:43]].  
+[^b]: HEB “nests,” compartments.  

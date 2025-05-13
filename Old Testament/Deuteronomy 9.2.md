@@ -5,4 +5,4 @@
 [Deuteronomy 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 2.11|Deut. 2:11 (10-11).]]
+[^a]: [[Deuteronomy 2.10|Deut. 2:11 (10–11)]][[Deuteronomy 2.11|]].  

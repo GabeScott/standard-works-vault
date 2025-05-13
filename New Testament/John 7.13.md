@@ -5,4 +5,4 @@
 [John 7:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.13?lang=eng#p13)
 
 
-[^a]: [[John 19.38|John 19:38.]]
+[^a]: [[John 19.38|John 19:38]].  

@@ -5,5 +5,5 @@
 [2 Chronicles 21:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.11?lang=eng#p11)
 
 
-[^a]: IE be unfaithful to the Lord.
-[^b]: OR seduced.
+[^a]: IE be unfaithful to the Lord.  
+[^b]: OR seduced.  

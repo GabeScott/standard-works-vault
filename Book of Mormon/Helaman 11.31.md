@@ -5,4 +5,4 @@
 [Helaman 11:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p31#p31)
 
 
-[^a]: [[3 Nephi 1.27|3 Ne. 1:27.]]
+[^a]: [[3 Nephi 1.27|3 Ne. 1:27]].  

@@ -5,4 +5,4 @@
 [Psalms 34:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.5?lang=eng#p5)
 
 
-[^a]: TG [[Light of Christ]].
+[^a]: [[Light of Christ|TG Light of Christ]].  

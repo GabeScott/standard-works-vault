@@ -5,5 +5,5 @@
 [1 Chronicles 21:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.29?lang=eng#p29)
 
 
-[^a]: [[1 Chronicles 16.39|1 Chr. 16:39.]]
-[^b]: [[1 Kings 3.4|1 Kgs. 3:4.]]
+[^a]: [[1 Chronicles 16.39|1 Chr. 16:39]].  
+[^b]: [[1 Kings 3.4|1 Kgs. 3:4]].  

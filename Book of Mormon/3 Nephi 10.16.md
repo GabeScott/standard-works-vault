@@ -5,5 +5,5 @@
 [3 Nephi 10:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/10?lang=eng&id=p16#p16)
 
 
-[^a]: [[Helaman 8.20|Hel. 8:20 (19-20).]]
-[^b]: [[1 Nephi 19.21|1 Ne. 19:21.]]
+[^a]: [[Helaman 8.19|Hel. 8:20 (19–20)]][[Helaman 8.20|]].  
+[^b]: [[1 Nephi 19.21|1 Ne. 19:21]].  

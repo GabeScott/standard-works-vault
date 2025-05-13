@@ -5,5 +5,5 @@
 [1 Peter 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.11?lang=eng#p11)
 
 
-[^a]: 1 Thes. 2:4; [[Titus 2.1|Titus 2:1.]]
-[^b]: TG [[Authority]]; [[Teaching with the Spirit]].
+[^a]: [[1 Thessalonians 2.4|1 Thes. 2:4]]; [[Titus 2.1|Titus 2:1]].  
+[^b]: [[Authority|TG Authority]]; [[Teaching with the Spirit|Teaching with the Spirit]].  

@@ -5,4 +5,4 @@
 [Amos 5:26](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.26?lang=eng#p26)
 
 
-[^a]: TG [[Apostasy of Israel]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  

@@ -5,4 +5,4 @@
 [Alma 12:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p35#p35)
 
 
-[^a]: [[Moses 5.15|Moses 5:15.]]
+[^a]: [[Moses 5.15|Moses 5:15]].  

@@ -5,4 +5,4 @@
 [2 Samuel 24:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/24.24?lang=eng#p24)
 
 
-[^a]: [[1 Chronicles 21.25|1 Chr. 21:25.]]
+[^a]: [[1 Chronicles 21.25|1 Chr. 21:25]].  

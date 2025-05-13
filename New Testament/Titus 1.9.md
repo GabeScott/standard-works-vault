@@ -5,5 +5,5 @@
 [Titus 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.9?lang=eng#p9)
 
 
-[^a]: [[D&C 11.21|D&C 11:21.]]
-[^b]: GR those who deny, contradict.
+[^a]: [[D&C 11.21|D&C 11:21]].  
+[^b]: GR those who deny, contradict.  

@@ -5,4 +5,4 @@
 [Mosiah 10:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Trust Not in the Arm of Flesh]].
+[^a]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  

@@ -5,4 +5,4 @@
 [2 Nephi 12:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p8#p8)
 
 
-[^a]: [[Jeremiah 2.28|Jer. 2:28]]. TG [[Idolatry, Idol]].
+[^a]: [[Jeremiah 2.28|Jer. 2:28]]. [[Idolatry, Idol|TG Idolatry]].  

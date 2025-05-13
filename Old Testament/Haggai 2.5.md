@@ -5,4 +5,4 @@
 [Haggai 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 29.45|Ex. 29:45 (41, 45).]]
+[^a]: [[Exodus 29.41|Ex. 29:45 (41, 45)]][[Exodus 29.45|]].  

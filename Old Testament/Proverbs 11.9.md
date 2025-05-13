@@ -5,5 +5,5 @@
 [Proverbs 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.9?lang=eng#p9)
 
 
-[^a]: [[D&C 50.7|D&C 50:7 (7-8).]]
-[^b]: [[D&C 51.19|D&C 51:19.]]
+[^a]: [[D&C 50.7|D&C 50:7 (7–8)]][[D&C 50.8|]].  
+[^b]: [[D&C 51.19|D&C 51:19]].  

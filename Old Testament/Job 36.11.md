@@ -5,5 +5,5 @@
 [Job 36:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/36.11?lang=eng#p11)
 
 
-[^a]: TG [[Probation, Probationary]].
-[^b]: HEB pleasantness.
+[^a]: [[Probation, Probationary|TG Probation]].  
+[^b]: HEB pleasantness.  

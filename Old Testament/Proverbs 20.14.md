@@ -5,4 +5,4 @@
 [Proverbs 20:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.14?lang=eng#p14)
 
 
-[^a]: TG [[Boast, Boasting]].
+[^a]: [[Boast, Boasting|TG Boast]].  

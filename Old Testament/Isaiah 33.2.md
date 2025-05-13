@@ -5,5 +5,5 @@
 [Isaiah 33:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 26.8|Isa. 26:8.]]
-[^b]: [[Omni 1.13|Omni 1:13]]; [[Mosiah 12.24|Mosiah 12:24.]]
+[^a]: [[Isaiah 26.8|Isa. 26:8]].  
+[^b]: [[Omni 1.13|Omni 1:13]]; [[Mosiah 12.24|Mosiah 12:24]].  

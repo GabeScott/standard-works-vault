@@ -5,5 +5,5 @@
 [2 Nephi 15:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p13#p13)
 
 
-[^a]: Lam. 1:3 (1-3).
-[^b]: [[Isaiah 1.3|Isa. 1:3]]; [[Hosea 4.6|Hosea 4:6]]. TG [[Knowledge]].
+[^a]: [[Lamentations 1.1|Lam. 1:3 (1–3)]][[Lamentations 1.2|]][[Lamentations 1.3|]].  
+[^b]: [[Isaiah 1.3|Isa. 1:3]]; [[Hosea 4.6|Hosea 4:6]]. [[Knowledge|TG Knowledge]].  

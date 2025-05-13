@@ -5,4 +5,4 @@
 [Proverbs 23:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.21?lang=eng#p21)
 
 
-[^a]: TG [[Temperance, Temperate]]; [[Word of Wisdom]].
+[^a]: [[Temperance, Temperate|TG Temperance]]; [[Word of Wisdom|Word of Wisdom]].  

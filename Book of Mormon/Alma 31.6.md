@@ -5,5 +5,5 @@
 [Alma 31:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p6#p6)
 
 
-[^a]: [[Helaman 5.41|Hel. 5:41.]]
-[^b]: [[Alma 8.3|Alma 8:3]]; [[Alma 35.13|35:13]]; [[Alma 45.18|45:18.]]
+[^a]: [[Helaman 5.41|Hel. 5:41]].  
+[^b]: [[Alma 8.3|Alma 8:3]]; [[Alma 35.13|35:13]]; [[Alma 45.18|45:18]].  

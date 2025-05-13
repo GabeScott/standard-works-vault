@@ -5,5 +5,5 @@
 [Psalms 44:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/44.3?lang=eng#p3)
 
 
-[^a]: [[Deuteronomy 2.36|Deut. 2:36.]]
-[^b]: [[Joshua 24.12|Josh. 24:12.]]
+[^a]: [[Deuteronomy 2.36|Deut. 2:36]].  
+[^b]: [[Joshua 24.12|Josh. 24:12]].  

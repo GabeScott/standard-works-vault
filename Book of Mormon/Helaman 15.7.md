@@ -5,4 +5,4 @@
 [Helaman 15:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p7#p7)
 
 
-[^a]: TG [[Conversion, Convert]].
+[^a]: [[Conversion, Convert|TG Conversion]].  

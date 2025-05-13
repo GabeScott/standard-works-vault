@@ -5,4 +5,4 @@
 [Psalms 41:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/41.13?lang=eng#p13)
 
 
-[^a]: [[Psalms 72.18|Ps. 72:18]]; [[Alma 26.8|Alma 26:8.]]
+[^a]: [[Psalms 72.18|Ps. 72:18]]; [[Alma 26.8|Alma 26:8]].  

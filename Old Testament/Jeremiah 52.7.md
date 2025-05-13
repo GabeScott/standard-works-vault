@@ -5,4 +5,4 @@
 [Jeremiah 52:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.7?lang=eng#p7)
 
 
-[^a]: TG [[Jerusalem]].
+[^a]: [[Jerusalem|TG Jerusalem]].  

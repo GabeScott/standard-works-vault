@@ -5,4 +5,4 @@
 [2 Chronicles 28:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.11?lang=eng#p11)
 
 
-[^a]: [[1 Nephi 17.25|1 Ne. 17:25]]; [[Mosiah 11.21|Mosiah 11:21]]; [[D&C 101.79|D&C 101:79.]]
+[^a]: [[1 Nephi 17.25|1 Ne. 17:25]]; [[Mosiah 11.21|Mosiah 11:21]]; [[D&C 101.79|D&C 101:79]].  

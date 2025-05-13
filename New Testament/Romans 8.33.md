@@ -5,4 +5,4 @@
 [Romans 8:33](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.33?lang=eng#p33)
 
 
-[^a]: GR accuse God’s elect.
+[^a]: GR accuse God’s elect.  

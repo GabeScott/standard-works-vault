@@ -5,8 +5,8 @@
 [Isaiah 65:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.17?lang=eng#p17)
 
 
-[^a]: TG [[Jesus Christ, Creator]].
-[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
-[^c]: TG [[Earth, Renewal of]]; [[Millennium, Preparing a People for]].
-[^d]: TG [[Earth, Destiny of]].
-[^e]: TG [[World, End of]].
+[^a]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  
+[^b]: [[Heaven|TG Heaven]].  
+[^c]: [[Earth, Renewal of|TG Earth, Renewal of]]; [[Millennium|Millennium]].  
+[^d]: [[Earth, Destiny of|TG Earth, Destiny of]].  
+[^e]: [[World, End of|TG World, End of]].  

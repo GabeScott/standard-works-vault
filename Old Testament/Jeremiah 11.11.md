@@ -5,5 +5,5 @@
 [Jeremiah 11:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.11?lang=eng#p11)
 
 
-[^a]: TG [[Punish, Punishment]].
-[^b]: [[Psalms 18.41|Ps. 18:41 (40-41)]]; [[Mosiah 21.15|Mosiah 21:15]]; [[D&C 101.7|D&C 101:7]]. TG [[God, Access to]].
+[^a]: [[Punish, Punishment|TG Punish]].  
+[^b]: [[Psalms 18.40|Ps. 18:41 (40–41)]][[Psalms 18.41|]]; [[Mosiah 21.15|Mosiah 21:15]]; [[D&C 101.7|D&C 101:7]]. [[God, Access to|TG God, Access to]].  

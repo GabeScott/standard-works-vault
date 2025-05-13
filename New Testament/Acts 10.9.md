@@ -5,4 +5,4 @@
 [Acts 10:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.9?lang=eng#p9)
 
 
-[^a]: [[1 Samuel 9.25|1 Sam. 9:25 (25-27).]]
+[^a]: [[1 Samuel 9.25|1 Sam. 9:25 (25–27)]][[1 Samuel 9.26|]][[1 Samuel 9.27|]].  

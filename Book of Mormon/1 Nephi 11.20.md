@@ -5,4 +5,4 @@
 [1 Nephi 11:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p20#p20)
 
 
-[^a]: [[Luke 2.16|Luke 2:16.]]
+[^a]: [[Luke 2.16|Luke 2:16]].  

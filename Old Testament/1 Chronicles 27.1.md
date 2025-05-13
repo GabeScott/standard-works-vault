@@ -5,4 +5,4 @@
 [1 Chronicles 27:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/27.1?lang=eng#p1)
 
 
-[^a]: [[1 Chronicles 28.1|1 Chr. 28:1.]]
+[^a]: [[1 Chronicles 28.1|1 Chr. 28:1]].  

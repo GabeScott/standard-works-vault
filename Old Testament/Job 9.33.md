@@ -5,4 +5,4 @@
 [Job 9:33](https://www.churchofjesuschrist.org/study/scriptures/ot/job/9.33?lang=eng#p33)
 
 
-[^a]: OR arbiter between.
+[^a]: OR arbiter between.  

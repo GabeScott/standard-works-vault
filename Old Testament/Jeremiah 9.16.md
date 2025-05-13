@@ -5,5 +5,5 @@
 [Jeremiah 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.16?lang=eng#p16)
 
 
-[^a]: TG [[Israel, Scattering of]].
-[^b]: TG [[Heathen]].
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  
+[^b]: [[Heathen|TG Heathen]].  

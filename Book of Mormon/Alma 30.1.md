@@ -5,5 +5,5 @@
 [Alma 30:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 27.26|Alma 27:26.]]
-[^b]: [[Alma 28.3|Alma 28:3 (2-3).]]
+[^a]: [[Alma 27.26|Alma 27:26]].  
+[^b]: [[Alma 28.2|Alma 28:3 (2–3)]][[Alma 28.3|]].  

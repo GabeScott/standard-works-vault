@@ -5,7 +5,7 @@
 [2 Nephi 12:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p2#p2)
 
 
-[^a]: Comparison with the King James Bible in English shows that there are differences in more than half of the 433 verses of Isaiah quoted in the Book of Mormon, while about 200 verses have the same wording as KJV.
-[^b]: TG [[Zion, Sion]].
-[^c]: [[3 Nephi 24.1|3 Ne. 24:1.]]
-[^d]: [[Genesis 49.26|Gen. 49:26]]; [[D&C 49.25|D&C 49:25]]; [[D&C 109.61|109:61]]; [[D&C 133.31|133:31 (29-31).]]
+[^a]: Comparison with the King James Bible in English shows that there are differences in more than half of the 433 verses of Isaiah quoted in the Book of Mormon, while about 200 verses have the same wording as KJV.  
+[^b]: [[Zion, Sion|TG Zion]].  
+[^c]: [[3 Nephi 24.1|3 Ne. 24:1]].  
+[^d]: [[Genesis 49.26|Gen. 49:26]]; [[D&C 49.25|D&C 49:25]]; [[D&C 109.61|109:61]]; [[D&C 133.29|133:31 (29–31)]][[D&C 133.30|]][[D&C 133.31|]].  

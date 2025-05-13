@@ -5,5 +5,5 @@
 [Genesis 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.10?lang=eng#p10)
 
 
-[^a]: OR (later) Babylon.
-[^b]: [[Genesis 11.2|Gen. 11:2]]; [[2 Nephi 21.11|2 Ne. 21:11.]]
+[^a]: OR (later) Babylon.  
+[^b]: [[Genesis 11.2|Gen. 11:2]]; [[2 Nephi 21.11|2 Ne. 21:11]].  

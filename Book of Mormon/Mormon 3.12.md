@@ -5,6 +5,6 @@
 [Mormon 3:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[God, Love of]].
-[^b]: [[James 1.6|James 1:6]]; [[Mormon 5.2|Morm. 5:2.]]
-[^c]: [[Nehemiah 9.16|Neh. 9:16 (16-17).]]
+[^a]: [[God, Love of|TG God, Love of]].  
+[^b]: [[James 1.6|James 1:6]]; [[Mormon 5.2|Morm. 5:2]].  
+[^c]: [[Nehemiah 9.16|Neh. 9:16 (16–17)]][[Nehemiah 9.17|]].  

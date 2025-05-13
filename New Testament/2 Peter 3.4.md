@@ -5,6 +5,6 @@
 [2 Peter 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.4?lang=eng#p4)
 
 
-[^a]: [[D&C 45.26|D&C 45:26.]]
-[^b]: [[Matthew 16.3|Matt. 16:3 (1-5).]]
-[^c]: [[Isaiah 5.19|Isa. 5:19 (18-19).]]
+[^a]: [[D&C 45.26|D&C 45:26]].  
+[^b]: [[Matthew 16.1|Matt. 16:3 (1–5)]][[Matthew 16.2|]][[Matthew 16.3|]][[Matthew 16.4|]][[Matthew 16.5|]].  
+[^c]: [[Isaiah 5.18|Isa. 5:19 (18–19)]][[Isaiah 5.19|]].  

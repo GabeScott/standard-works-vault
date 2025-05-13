@@ -5,6 +5,6 @@
 [Matthew 21:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.21?lang=eng#p21)
 
 
-[^a]: TG [[Faith]].
-[^b]: TG [[Doubt, Doubtful]].
-[^c]: TG [[God, Power of]].
+[^a]: [[Faith|TG Faith]].  
+[^b]: [[Doubt, Doubtful|TG Doubt]].  
+[^c]: [[God, Power of|TG God, Power of]].  

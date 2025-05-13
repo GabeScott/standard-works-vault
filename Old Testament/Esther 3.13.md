@@ -5,6 +5,6 @@
 [Esther 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/3.13?lang=eng#p13)
 
 
-[^a]: [[Esther 9.1|Esth. 9:1.]]
-[^b]: [[D&C 121.23|D&C 121:23.]]
-[^c]: [[Esther 8.12|Esth. 8:12.]]
+[^a]: [[Esther 9.1|Esth. 9:1]].  
+[^b]: [[D&C 121.23|D&C 121:23]].  
+[^c]: [[Esther 8.12|Esth. 8:12]].  

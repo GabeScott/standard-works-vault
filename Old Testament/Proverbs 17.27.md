@@ -5,6 +5,6 @@
 [Proverbs 17:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.27?lang=eng#p27)
 
 
-[^a]: [[Proverbs 10.19|Prov. 10:19]]; [[James 1.19|James 1:19.]]
-[^b]: TG [[Understanding]].
-[^c]: HEB is cool of spirit (i.e., reserved).
+[^a]: [[Proverbs 10.19|Prov. 10:19]]; [[James 1.19|James 1:19]].  
+[^b]: [[Understanding|TG Understanding]].  
+[^c]: HEB is cool of spirit (i.e., reserved).  

@@ -5,4 +5,4 @@
 [Philippians 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.9?lang=eng#p9)
 
 
-[^a]: [[Moses 7.18|Moses 7:18.]]
+[^a]: [[Moses 7.18|Moses 7:18]].  

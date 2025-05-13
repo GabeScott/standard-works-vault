@@ -5,4 +5,4 @@
 [Mormon 2:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/2?lang=eng&id=p1#p1)
 
 
-[^a]: [[Words of Mormon 1.15|Morm. 1:15 (12, 15-16).]]
+[^a]: [[Mormon 1.12|Morm. 1:15 (12, 15–16)]][[Mormon 1.15|]][[Mormon 1.16|]].  

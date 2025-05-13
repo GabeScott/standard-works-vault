@@ -5,4 +5,4 @@
 [Helaman 9:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/9?lang=eng&id=p20#p20)
 
 
-[^a]: [[1 Samuel 8.3|1 Sam. 8:3 (1-4)]]; [[Ether 9.11|Ether 9:11]]. TG [[Bribe, Bribery]].
+[^a]: [[1 Samuel 8.1|1 Sam. 8:3 (1–4)]][[1 Samuel 8.2|]][[1 Samuel 8.3|]][[1 Samuel 8.4|]]; [[Ether 9.11|Ether 9:11]]. [[Bribe, Bribery|TG Bribe]].  

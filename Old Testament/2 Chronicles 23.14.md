@@ -5,4 +5,4 @@
 [2 Chronicles 23:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/23.14?lang=eng#p14)
 
 
-[^a]: OR between the ranks.
+[^a]: OR between the ranks.  

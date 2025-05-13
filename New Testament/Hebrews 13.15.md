@@ -5,5 +5,5 @@
 [Hebrews 13:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.15?lang=eng#p15)
 
 
-[^a]: [[Psalms 119.108|Ps. 119:108.]]
-[^b]: [[Isaiah 57.19|Isa. 57:19.]]
+[^a]: [[Psalms 119.108|Ps. 119:108]].  
+[^b]: [[Isaiah 57.19|Isa. 57:19]].  

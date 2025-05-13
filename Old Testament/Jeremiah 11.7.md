@@ -5,4 +5,4 @@
 [Jeremiah 11:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.7?lang=eng#p7)
 
 
-[^a]: HEB witnessed.
+[^a]: HEB witnessed.  

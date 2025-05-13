@@ -5,5 +5,5 @@
 [Ezekiel 34:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.26?lang=eng#p26)
 
 
-[^a]: [[Psalms 68.9|Ps. 68:9]]; [[Ezekiel 22.24|Ezek. 22:24.]]
-[^b]: TG [[Israel, Blessings of]].
+[^a]: [[Psalms 68.9|Ps. 68:9]]; [[Ezekiel 22.24|Ezek. 22:24]].  
+[^b]: [[Israel, Blessings of|TG Israel, Blessings of]].  

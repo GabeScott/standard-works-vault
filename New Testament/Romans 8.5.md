@@ -5,4 +5,4 @@
 [Romans 8:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.5?lang=eng#p5)
 
 
-[^a]: GR watch, guard.
+[^a]: GR watch, guard.  

@@ -5,4 +5,4 @@
 [Ether 12:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 14.27|Alma 14:27 (26-29).]]
+[^a]: [[Alma 14.26|Alma 14:27 (26–29)]][[Alma 14.27|]][[Alma 14.28|]][[Alma 14.29|]].  

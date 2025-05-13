@@ -5,5 +5,5 @@
 [Jeremiah 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/18.12?lang=eng#p12)
 
 
-[^a]: [[Isaiah 57.10|Isa. 57:10]]; [[Jeremiah 2.25|Jer. 2:25.]]
-[^b]: TG [[Walking in Darkness]].
+[^a]: [[Isaiah 57.10|Isa. 57:10]]; [[Jeremiah 2.25|Jer. 2:25]].  
+[^b]: [[Walking in Darkness|TG Walking in Darkness]].  

@@ -5,4 +5,4 @@
 [Daniel 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/1.4?lang=eng#p4)
 
 
-[^a]: HEB good in appearance.
+[^a]: HEB good in appearance.  

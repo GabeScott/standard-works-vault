@@ -5,5 +5,5 @@
 [Moses 2:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.4?lang=eng#p4)
 
 
-[^a]: [[Genesis 1.4|Gen. 1:4]]; [[Abraham 4.4|Abr. 4:4.]]
-[^b]: TG [[Light]].
+[^a]: [[Genesis 1.4|Gen. 1:4]]; [[Abraham 4.4|Abr. 4:4]].  
+[^b]: [[Light [noun]|TG Light [noun]]].  

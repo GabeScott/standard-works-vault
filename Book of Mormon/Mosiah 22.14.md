@@ -5,6 +5,6 @@
 [Mosiah 22:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/22?lang=eng&id=p14#p14)
 
 
-[^a]: [[Mosiah 24.25|Mosiah 24:25.]]
-[^b]: [[Mosiah 8.5|Mosiah 8:5]]; [[Mosiah 9.1|9:1.]]
-[^c]: [[Mosiah 8.9|Mosiah 8:9.]]
+[^a]: [[Mosiah 24.25|Mosiah 24:25]].  
+[^b]: [[Mosiah 8.5|Mosiah 8:5]]; [[Mosiah 9.1|9:1]].  
+[^c]: [[Mosiah 8.9|Mosiah 8:9]].  

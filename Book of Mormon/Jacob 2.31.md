@@ -5,5 +5,5 @@
 [Jacob 2:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p31#p31)
 
 
-[^a]: TG [[Family, Children, Responsibilities toward]].
-[^b]: TG [[Marriage, Husbands]].
+[^a]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  
+[^b]: [[Marriage, Husbands|TG Marriage, Husbands]].  

@@ -5,6 +5,6 @@
 [2 Thessalonians 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.15?lang=eng#p15)
 
 
-[^a]: TG [[Enemies, Enemy]].
-[^b]: TG [[Warn, Warnings]].
-[^c]: TG [[Brotherhood and Sisterhood]].
+[^a]: [[Enemies, Enemy|TG Enemies]].  
+[^b]: [[Warn, Warnings|TG Warn]].  
+[^c]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  

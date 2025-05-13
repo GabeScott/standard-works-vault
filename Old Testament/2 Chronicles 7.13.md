@@ -5,4 +5,4 @@
 [2 Chronicles 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.13?lang=eng#p13)
 
 
-[^a]: [[Helaman 12.3|Hel. 12:3.]]
+[^a]: [[Helaman 12.3|Hel. 12:3]].  

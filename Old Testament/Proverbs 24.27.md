@@ -5,4 +5,4 @@
 [Proverbs 24:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.27?lang=eng#p27)
 
 
-[^a]: [[Luke 14.28|Luke 14:28.]]
+[^a]: [[Luke 14.28|Luke 14:28]].  

@@ -5,5 +5,5 @@
 [1 Nephi 8:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p21#p21)
 
 
-[^a]: [[D&C 123.12|D&C 123:12.]]
-[^b]: TG [[Objectives]]; [[Path]]; [[Way]].
+[^a]: [[D&C 123.12|D&C 123:12]].  
+[^b]: [[Objectives|TG Objectives]]; [[Path|Path]]; [[Way|Way]].  

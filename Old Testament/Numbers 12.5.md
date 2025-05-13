@@ -5,4 +5,4 @@
 [Numbers 12:5](https://www.churchofjesuschrist.org/study/scriptures/ot/num/12.5?lang=eng#p5)
 
 
-[^a]: [[Numbers 11.25|Num. 11:25.]]
+[^a]: [[Numbers 11.25|Num. 11:25]].  

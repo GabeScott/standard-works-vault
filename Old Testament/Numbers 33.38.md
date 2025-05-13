@@ -5,5 +5,5 @@
 [Numbers 33:38](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.38?lang=eng#p38)
 
 
-[^a]: [[Numbers 20.28|Num. 20:28 (22-29).]]
-[^b]: [[Deuteronomy 1.3|Deut. 1:3.]]
+[^a]: [[Numbers 20.22|Num. 20:28 (22–29)]][[Numbers 20.23|]][[Numbers 20.24|]][[Numbers 20.25|]][[Numbers 20.26|]][[Numbers 20.27|]][[Numbers 20.28|]][[Numbers 20.29|]].  
+[^b]: [[Deuteronomy 1.3|Deut. 1:3]].  

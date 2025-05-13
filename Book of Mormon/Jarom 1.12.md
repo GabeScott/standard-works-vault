@@ -5,6 +5,6 @@
 [Jarom 1:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/jarom/1?lang=eng&id=p12#p12)
 
 
-[^a]: [[Ether 2.10|Ether 2:10 (8-10).]]
-[^b]: [[Alma 31.5|Alma 31:5.]]
-[^c]: [[Enos 1.23|Enos 1:23.]]
+[^a]: [[Ether 2.8|Ether 2:10 (8–10)]][[Ether 2.9|]][[Ether 2.10|]].  
+[^b]: [[Alma 31.5|Alma 31:5]].  
+[^c]: [[Enos 1.23|Enos 1:23]].  

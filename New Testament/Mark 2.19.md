@@ -5,5 +5,5 @@
 [Mark 2:19](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/2.19?lang=eng#p19)
 
 
-[^a]: [[Luke 5.35|Luke 5:35.]]
-[^b]: [[D&C 65.3|D&C 65:3.]]
+[^a]: [[Luke 5.35|Luke 5:35]].  
+[^b]: [[D&C 65.3|D&C 65:3]].  

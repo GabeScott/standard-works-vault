@@ -5,4 +5,4 @@
 [Isaiah 37:33](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/37.33?lang=eng#p33)
 
 
-[^a]: [[Luke 19.43|Luke 19:43.]]
+[^a]: [[Luke 19.43|Luke 19:43]].  

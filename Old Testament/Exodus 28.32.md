@@ -5,5 +5,5 @@
 [Exodus 28:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.32?lang=eng#p32)
 
 
-[^a]: HEB opening for the head.
-[^b]: OR opening in a coat of mail.
+[^a]: HEB opening for the head.  
+[^b]: OR opening in a coat of mail.  

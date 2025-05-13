@@ -5,4 +5,4 @@
 [Revelation 21:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.12?lang=eng#p12)
 
 
-[^a]: [[Ezekiel 48.31|Ezek. 48:31.]]
+[^a]: [[Ezekiel 48.31|Ezek. 48:31]].  

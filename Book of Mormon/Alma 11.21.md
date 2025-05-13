@@ -5,5 +5,5 @@
 [Alma 11:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p21#p21)
 
 
-[^a]: [[Alma 10.31|Alma 10:31]]; [[Alma 14.7|14:7 (6-7, 18, 23).]]
-[^b]: Lam. 3:62 (60-62); [[Alma 10.13|Alma 10:13.]]
+[^a]: [[Alma 10.31|Alma 10:31]]; [[Alma 14.6|14:7 (6–7, 18, 23)]][[Alma 14.7|]][[Alma 14.18|]][[Alma 14.23|]].  
+[^b]: [[Lamentations 3.60|Lam. 3:62 (60–62)]][[Lamentations 3.61|]][[Lamentations 3.62|]]; [[Alma 10.13|Alma 10:13]].  

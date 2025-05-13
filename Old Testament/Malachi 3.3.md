@@ -5,8 +5,8 @@
 [Malachi 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.3?lang=eng#p3)
 
 
-[^a]: [[Proverbs 17.3|Prov. 17:3.]]
-[^b]: [[Isaiah 1.25|Isa. 1:25]]. TG [[Purification, Purify, Purifying]].
-[^c]: [[1 Chronicles 6.1|1 Chr. 6:1 (1-3)]]; [[D&C 84.34|D&C 84:34 (31-43).]]
-[^d]: TG [[Priesthood, Aaronic]].
-[^e]: TG [[Self-Sacrifice]].
+[^a]: [[Proverbs 17.3|Prov. 17:3]].  
+[^b]: [[Isaiah 1.25|Isa. 1:25]]. [[Purification, Purify, Purifying|TG Purification]].  
+[^c]: [[1 Chronicles 6.1|1 Chr. 6:1 (1–3)]][[1 Chronicles 6.2|]][[1 Chronicles 6.3|]]; [[D&C 84.31|D&C 84:34 (31–43)]][[D&C 84.32|]][[D&C 84.33|]][[D&C 84.34|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]][[D&C 84.40|]][[D&C 84.41|]][[D&C 84.42|]][[D&C 84.43|]].  
+[^d]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  
+[^e]: [[Sacrifice|TG Sacrifice]].  

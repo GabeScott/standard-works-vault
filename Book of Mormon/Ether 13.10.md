@@ -5,4 +5,4 @@
 [Ether 13:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p10#p10)
 
 
-[^a]: [[Revelation 7.14|Rev. 7:14.]]
+[^a]: [[Revelation 7.14|Rev. 7:14]].  

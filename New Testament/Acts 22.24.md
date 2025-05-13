@@ -5,5 +5,5 @@
 [Acts 22:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.24?lang=eng#p24)
 
 
-[^a]: [[Acts 21.34|Acts 21:34.]]
-[^b]: TG [[Cruelty, Cruel]].
+[^a]: [[Acts 21.34|Acts 21:34]].  
+[^b]: [[Cruelty, Cruel|TG Cruelty]].  

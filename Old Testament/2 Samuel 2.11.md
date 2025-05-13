@@ -5,5 +5,5 @@
 [2 Samuel 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/2.11?lang=eng#p11)
 
 
-[^a]: [[2 Samuel 5.5|2 Sam. 5:5]]; [[1 Chronicles 3.4|1 Chr. 3:4.]]
-[^b]: TG [[Israel, Judah, People of]].
+[^a]: [[2 Samuel 5.5|2 Sam. 5:5]]; [[1 Chronicles 3.4|1 Chr. 3:4]].  
+[^b]: [[Israel, Judah, People of|TG Israel, Judah, People of]].  

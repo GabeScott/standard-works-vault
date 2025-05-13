@@ -5,4 +5,4 @@
 [Hebrews 7:18](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.18?lang=eng#p18)
 
 
-[^a]: [[Romans 8.3|Rom. 8:3.]]
+[^a]: [[Romans 8.3|Rom. 8:3]].  

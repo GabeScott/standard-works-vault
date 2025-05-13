@@ -5,4 +5,4 @@
 [2 Kings 15:30](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/15.30?lang=eng#p30)
 
 
-[^a]: [[Isaiah 1.1|Isa. 1:1.]]
+[^a]: [[Isaiah 1.1|Isa. 1:1]].  

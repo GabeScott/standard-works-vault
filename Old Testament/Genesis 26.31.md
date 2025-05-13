@@ -5,5 +5,5 @@
 [Genesis 26:31](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.31?lang=eng#p31)
 
 
-[^a]: HEB arose early.
-[^b]: [[Genesis 21.27|Gen. 21:27 (27-32).]]
+[^a]: HEB arose early.  
+[^b]: [[Genesis 21.27|Gen. 21:27 (27–32)]][[Genesis 21.28|]][[Genesis 21.29|]][[Genesis 21.30|]][[Genesis 21.31|]][[Genesis 21.32|]].  

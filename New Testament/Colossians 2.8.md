@@ -5,8 +5,8 @@
 [Colossians 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/col/2.8?lang=eng#p8)
 
 
-[^a]: [[Hebrews 13.9|Heb. 13:9.]]
-[^b]: [[D&C 123.12|D&C 123:12]]. TG [[Learn, Learning]].
-[^c]: TG [[Deceit, Deceive]]; [[Education]]; [[Fraud]].
-[^d]: TG [[Traditions of Men]].
-[^e]: TG [[Worldliness]].
+[^a]: [[Hebrews 13.9|Heb. 13:9]].  
+[^b]: [[D&C 123.12|D&C 123:12]]. [[Learn, Learning|TG Learn]].  
+[^c]: [[Deceit, Deceive|TG Deceit]]; [[Education|Education]]; [[Fraud|Fraud]].  
+[^d]: [[Traditions of Men|TG Traditions of Men]].  
+[^e]: [[Worldliness|TG Worldliness]].  

@@ -5,4 +5,4 @@
 [Philippians 2:25](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.25?lang=eng#p25)
 
 
-[^a]: Philip. 4:18.
+[^a]: [[Philippians 4.18|Philip. 4:18]].  

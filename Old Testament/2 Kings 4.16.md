@@ -5,4 +5,4 @@
 [2 Kings 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.16?lang=eng#p16)
 
 
-[^a]: [[Genesis 18.14|Gen. 18:14.]]
+[^a]: [[Genesis 18.14|Gen. 18:14]].  

@@ -5,5 +5,5 @@
 [Mosiah 7:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p29#p29)
 
 
-[^a]: [[Joshua 24.20|Josh. 24:20]]; [[1 Samuel 12.15|1 Sam. 12:15]]; [[2 Chronicles 24.20|2 Chr. 24:20.]]
-[^b]: [[Jeremiah 6.21|Jer. 6:21.]]
+[^a]: [[Joshua 24.20|Josh. 24:20]]; [[1 Samuel 12.15|1 Sam. 12:15]]; [[2 Chronicles 24.20|2 Chr. 24:20]].  
+[^b]: [[Jeremiah 6.21|Jer. 6:21]].  

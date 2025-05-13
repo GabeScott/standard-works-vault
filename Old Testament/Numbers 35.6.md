@@ -5,4 +5,4 @@
 [Numbers 35:6](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.6?lang=eng#p6)
 
 
-[^a]: TG [[Refuge]].
+[^a]: [[Refuge|TG Refuge]].  

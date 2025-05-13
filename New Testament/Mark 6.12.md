@@ -5,4 +5,4 @@
 [Mark 6:12](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.12?lang=eng#p12)
 
 
-[^a]: TG [[Preaching, Preach]].
+[^a]: [[Preaching, Preach|TG Preaching]].  

@@ -5,5 +5,5 @@
 [Jeremiah 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 64.3|Ps. 64:3.]]
-[^b]: [[John 17.3|John 17:3]]; [[D&C 101.16|D&C 101:16.]]
+[^a]: [[Psalms 64.3|Ps. 64:3]].  
+[^b]: [[John 17.3|John 17:3]]; [[D&C 101.16|D&C 101:16]].  

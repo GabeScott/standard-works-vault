@@ -5,4 +5,4 @@
 [1 Kings 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.9?lang=eng#p9)
 
 
-[^a]: [[1 Kings 5.7|1 Kgs. 5:7.]]
+[^a]: [[1 Kings 5.7|1 Kgs. 5:7]].  

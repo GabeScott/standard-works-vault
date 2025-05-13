@@ -5,5 +5,5 @@
 [Alma 29:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 26.12|Alma 26:12.]]
-[^b]: TG [[Telestial Glory]].
+[^a]: [[Alma 26.12|Alma 26:12]].  
+[^b]: [[Glory|TG Glory]].  

@@ -5,5 +5,5 @@
 [4 Nephi 1:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p28#p28)
 
 
-[^a]: TG [[Devil, Church of]].
-[^b]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[Devil, Church of|TG Devil, Church of]].  
+[^b]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

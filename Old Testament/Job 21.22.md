@@ -5,5 +5,5 @@
 [Job 21:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/21.22?lang=eng#p22)
 
 
-[^a]: [[Isaiah 40.13|Isa. 40:13 (13-15).]]
-[^b]: TG [[God, Omniscience of]].
+[^a]: [[Isaiah 40.13|Isa. 40:13 (13–15)]][[Isaiah 40.14|]][[Isaiah 40.15|]].  
+[^b]: [[God, Omniscience of|TG God, Omniscience of]].  

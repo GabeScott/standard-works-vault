@@ -5,5 +5,5 @@
 [Mark 5:4](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.4?lang=eng#p4)
 
 
-[^a]: GR broken, taken apart.
-[^b]: GR was any man strong enough to tame him.
+[^a]: GR broken, taken apart.  
+[^b]: GR was any man strong enough to tame him.  

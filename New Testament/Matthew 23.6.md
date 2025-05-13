@@ -5,4 +5,4 @@
 [Matthew 23:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.6?lang=eng#p6)
 
 
-[^a]: [[Luke 11.43|Luke 11:43]]; [[Luke 14.7|14:7.]]
+[^a]: [[Luke 11.43|Luke 11:43]]; [[Luke 14.7|14:7]].  

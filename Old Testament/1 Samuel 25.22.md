@@ -5,4 +5,4 @@
 [1 Samuel 25:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.22?lang=eng#p22)
 
 
-[^a]: What follows is a derisive term for “any male” (also v. 34).
+[^a]: What follows is a derisive term for “any male” (also [[1 Samuel 25.34|v. 34]]).  

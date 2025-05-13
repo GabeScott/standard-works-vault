@@ -5,4 +5,4 @@
 [Exodus 21:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.10?lang=eng#p10)
 
 
-[^a]: OR marital rights.
+[^a]: OR marital rights.  

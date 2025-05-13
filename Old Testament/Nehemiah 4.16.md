@@ -5,4 +5,4 @@
 [Nehemiah 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/4.16?lang=eng#p16)
 
 
-[^a]: Probably armor of tough leather.
+[^a]: Probably armor of tough leather.  

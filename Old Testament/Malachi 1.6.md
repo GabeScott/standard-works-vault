@@ -5,5 +5,5 @@
 [Malachi 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/1.6?lang=eng#p6)
 
 
-[^a]: TG [[Family, Children, Duties of]].
-[^b]: TG [[Honoring Father and Mother]].
+[^a]: [[Family, Children, Duties of|TG Family, Children, Duties of]].  
+[^b]: [[Honoring Father and Mother|TG Honoring Father and Mother]].  

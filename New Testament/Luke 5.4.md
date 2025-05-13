@@ -5,4 +5,4 @@
 [Luke 5:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.4?lang=eng#p4)
 
 
-[^a]: GR catch, haul.
+[^a]: GR catch, haul.  

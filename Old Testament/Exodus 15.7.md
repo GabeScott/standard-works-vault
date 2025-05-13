@@ -5,4 +5,4 @@
 [Exodus 15:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.7?lang=eng#p7)
 
 
-[^a]: [[Isaiah 47.14|Isa. 47:14]]; [[1 Nephi 22.23|1 Ne. 22:23 (15, 23)]]; [[D&C 29.9|D&C 29:9]]; JS—H 1:37.
+[^a]: [[Isaiah 47.14|Isa. 47:14]]; [[1 Nephi 22.15|1 Ne. 22:23 (15, 23)]][[1 Nephi 22.23|]]; [[D&C 29.9|D&C 29:9]]; [[Joseph Smith History 1.37|JS—H 1:37]].  

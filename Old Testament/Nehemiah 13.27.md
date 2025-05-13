@@ -5,4 +5,4 @@
 [Nehemiah 13:27](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.27?lang=eng#p27)
 
 
-[^a]: OR foreign wives.
+[^a]: OR foreign wives.  

@@ -5,4 +5,4 @@
 [2 Kings 5:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/5.18?lang=eng#p18)
 
 
-[^a]: IE a Syrian god of wind, rain, and storm.
+[^a]: IE a Syrian god of wind, rain, and storm.  

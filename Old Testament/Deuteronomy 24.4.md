@@ -5,4 +5,4 @@
 [Deuteronomy 24:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.4?lang=eng#p4)
 
 
-[^a]: HEB bring guilt upon the land.
+[^a]: HEB bring guilt upon the land.  

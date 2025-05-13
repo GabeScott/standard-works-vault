@@ -5,5 +5,5 @@
 [Alma 44:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 43.20|Alma 43:20.]]
-[^b]: TG [[Oath]].
+[^a]: [[Alma 43.20|Alma 43:20]].  
+[^b]: [[Oath|TG Oath]].  

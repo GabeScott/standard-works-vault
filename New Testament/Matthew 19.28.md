@@ -5,5 +5,5 @@
 [Matthew 19:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.28?lang=eng#p28)
 
 
-[^a]: JST Matt. 19:28 … resurrection …
-[^b]: [[Mormon 3.18|Morm. 3:18 (18-20)]]; [[D&C 29.12|D&C 29:12]]. TG [[Apostles]]; [[Judgment, the Last]].
+[^a]: JST Matt. 19:28 … resurrection …  
+[^b]: [[Mormon 3.18|Morm. 3:18 (18–20)]][[Mormon 3.19|]][[Mormon 3.20|]]; [[D&C 29.12|D&C 29:12]]. [[Apostles|TG Apostles]]; [[Judgment, the Last|Judgment, the Last]].  

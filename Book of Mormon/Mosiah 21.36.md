@@ -5,5 +5,5 @@
 [Mosiah 21:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p36#p36)
 
 
-[^a]: [[Mosiah 7.3|Mosiah 7:3 (2-3).]]
-[^b]: [[Mosiah 21.13|Mosiah 21:13.]]
+[^a]: [[Mosiah 7.2|Mosiah 7:3 (2–3)]][[Mosiah 7.3|]].  
+[^b]: [[Mosiah 21.13|Mosiah 21:13]].  

@@ -5,5 +5,5 @@
 [Psalms 128:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/128.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 134.3|Ps. 134:3.]]
-[^b]: TG [[Zion, Sion]].
+[^a]: [[Psalms 134.3|Ps. 134:3]].  
+[^b]: [[Zion, Sion|TG Zion]].  

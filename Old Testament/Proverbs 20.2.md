@@ -5,5 +5,5 @@
 [Proverbs 20:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.2?lang=eng#p2)
 
 
-[^a]: [[Proverbs 19.12|Prov. 19:12.]]
-[^b]: [[Mosiah 17.12|Mosiah 17:12.]]
+[^a]: [[Proverbs 19.12|Prov. 19:12]].  
+[^b]: [[Mosiah 17.12|Mosiah 17:12]].  

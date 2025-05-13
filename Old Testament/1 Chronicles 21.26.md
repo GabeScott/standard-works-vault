@@ -5,5 +5,5 @@
 [1 Chronicles 21:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.26?lang=eng#p26)
 
 
-[^a]: [[2 Samuel 24.25|2 Sam. 24:25.]]
-[^b]: [[Leviticus 9.24|Lev. 9:24]]; [[2 Chronicles 7.1|2 Chr. 7:1.]]
+[^a]: [[2 Samuel 24.25|2 Sam. 24:25]].  
+[^b]: [[Leviticus 9.24|Lev. 9:24]]; [[2 Chronicles 7.1|2 Chr. 7:1]].  

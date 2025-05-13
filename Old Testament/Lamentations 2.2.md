@@ -5,4 +5,4 @@
 [Lamentations 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.2?lang=eng#p2)
 
 
-[^a]: [[2 Nephi 23.18|2 Ne. 23:18.]]
+[^a]: [[2 Nephi 23.18|2 Ne. 23:18]].  

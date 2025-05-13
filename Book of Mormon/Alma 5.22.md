@@ -5,5 +5,5 @@
 [Alma 5:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p22#p22)
 
 
-[^a]: [[Isaiah 59.3|Isa. 59:3.]]
-[^b]: TG [[Filthiness, Filthy]].
+[^a]: [[Isaiah 59.3|Isa. 59:3]].  
+[^b]: [[Filthiness, Filthy|TG Filthiness]].  

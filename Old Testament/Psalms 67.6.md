@@ -5,5 +5,5 @@
 [Psalms 67:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/67.6?lang=eng#p6)
 
 
-[^a]: [[2 Nephi 1.20|2 Ne. 1:20.]]
-[^b]: TG [[Earth, Renewal of]].
+[^a]: [[2 Nephi 1.20|2 Ne. 1:20]].  
+[^b]: [[Earth, Renewal of|TG Earth, Renewal of]].  

@@ -5,4 +5,4 @@
 [Hosea 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/1.11?lang=eng#p11)
 
 
-[^a]: [[2 Nephi 29.8|2 Ne. 29:8 (8-9)]]. TG [[Israel, Gathering of]].
+[^a]: [[2 Nephi 29.8|2 Ne. 29:8 (8–9)]][[2 Nephi 29.9|]]. [[Israel, Gathering of|TG Israel, Gathering of]].  

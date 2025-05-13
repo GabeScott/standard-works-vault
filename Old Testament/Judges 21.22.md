@@ -5,4 +5,4 @@
 [Judges 21:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/21.22?lang=eng#p22)
 
 
-[^a]: TG [[Guiltless]].
+[^a]: [[Guilt, Guilty|TG Guilt]].  

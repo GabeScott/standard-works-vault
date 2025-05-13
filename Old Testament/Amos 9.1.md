@@ -5,5 +5,5 @@
 [Amos 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.1?lang=eng#p1)
 
 
-[^a]: [[3 Nephi 16.9|3 Ne. 16:9.]]
-[^b]: [[Proverbs 28.1|Prov. 28:1]]; [[Amos 2.14|Amos 2:14.]]
+[^a]: [[3 Nephi 16.9|3 Ne. 16:9]].  
+[^b]: [[Proverbs 28.1|Prov. 28:1]]; [[Amos 2.14|Amos 2:14]].  

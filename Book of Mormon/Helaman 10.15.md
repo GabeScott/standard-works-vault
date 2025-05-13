@@ -5,4 +5,4 @@
 [Helaman 10:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/10?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Reviling, Revile]].
+[^a]: [[Reviling, Revile|TG Reviling]].  

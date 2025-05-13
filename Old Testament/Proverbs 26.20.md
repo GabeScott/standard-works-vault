@@ -5,5 +5,5 @@
 [Proverbs 26:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.20?lang=eng#p20)
 
 
-[^a]: TG [[Gossip]].
-[^b]: [[Alma 4.9|Alma 4:9 (8-9)]]; [[Alma 16.18|16:18.]]
+[^a]: [[Gossip|TG Gossip]].  
+[^b]: [[Alma 4.8|Alma 4:9 (8–9)]][[Alma 4.9|]]; [[Alma 16.18|16:18]].  

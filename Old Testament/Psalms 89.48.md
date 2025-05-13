@@ -5,4 +5,4 @@
 [Psalms 89:48](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.48?lang=eng#p48)
 
 
-[^a]: [[Psalms 49.9|Ps. 49:9.]]
+[^a]: [[Psalms 49.9|Ps. 49:9]].  

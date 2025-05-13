@@ -5,5 +5,5 @@
 [Psalms 37:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.8?lang=eng#p8)
 
 
-[^a]: TG [[Self-Mastery]].
-[^b]: TG [[Anger]].
+[^a]: [[Self-Mastery|TG Self-Mastery]].  
+[^b]: [[Anger|TG Anger]].  

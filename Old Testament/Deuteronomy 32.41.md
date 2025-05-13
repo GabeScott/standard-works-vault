@@ -5,4 +5,4 @@
 [Deuteronomy 32:41](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.41?lang=eng#p41)
 
 
-[^a]: [[Isaiah 66.16|Isa. 66:16]]; [[D&C 87.6|D&C 87:6.]]
+[^a]: [[Isaiah 66.16|Isa. 66:16]]; [[D&C 87.6|D&C 87:6]].  

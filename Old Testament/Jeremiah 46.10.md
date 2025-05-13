@@ -5,6 +5,6 @@
 [Jeremiah 46:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.10?lang=eng#p10)
 
 
-[^a]: [[Joel 1.15|Joel 1:15.]]
-[^b]: OR sated.
-[^c]: [[Isaiah 34.6|Isa. 34:6.]]
+[^a]: [[Joel 1.15|Joel 1:15]].  
+[^b]: OR sated.  
+[^c]: [[Isaiah 34.6|Isa. 34:6]].  

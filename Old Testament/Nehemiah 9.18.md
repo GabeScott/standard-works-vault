@@ -5,5 +5,5 @@
 [Nehemiah 9:18](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.18?lang=eng#p18)
 
 
-[^a]: [[Exodus 32.4|Ex. 32:4.]]
-[^b]: [[Deuteronomy 9.16|Deut. 9:16.]]
+[^a]: [[Exodus 32.4|Ex. 32:4]].  
+[^b]: [[Deuteronomy 9.16|Deut. 9:16]].  

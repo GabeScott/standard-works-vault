@@ -5,5 +5,5 @@
 [3 Nephi 1:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p16#p16)
 
 
-[^a]: [[Helaman 14.7|Hel. 14:7.]]
-[^b]: [[3 Nephi 1.9|3 Ne. 1:9 (9, 11).]]
+[^a]: [[Helaman 14.7|Hel. 14:7]].  
+[^b]: [[3 Nephi 1.9|3 Ne. 1:9 (9, 11)]][[3 Nephi 1.11|]].  

@@ -5,4 +5,4 @@
 [Luke 17:6](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.6?lang=eng#p6)
 
 
-[^a]: [[Moses 7.13|Moses 7:13.]]
+[^a]: [[Moses 7.13|Moses 7:13]].  

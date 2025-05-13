@@ -5,4 +5,4 @@
 [Helaman 16:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/16?lang=eng&id=p14#p14)
 
 
-[^a]: [[Alma 13.26|Alma 13:26.]]
+[^a]: [[Alma 13.26|Alma 13:26]].  

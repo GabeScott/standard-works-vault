@@ -5,5 +5,5 @@
 [Isaiah 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/15.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 3.24|Isa. 3:24]]; [[Jeremiah 48.37|Jer. 48:37.]]
-[^b]: IE in mourning over the destruction.
+[^a]: [[Isaiah 3.24|Isa. 3:24]]; [[Jeremiah 48.37|Jer. 48:37]].  
+[^b]: IE in mourning over the destruction.  

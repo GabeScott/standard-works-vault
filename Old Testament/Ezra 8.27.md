@@ -5,4 +5,4 @@
 [Ezra 8:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/8.27?lang=eng#p27)
 
 
-[^a]: OR shining brass.
+[^a]: OR shining brass.  

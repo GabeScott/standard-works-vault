@@ -5,4 +5,4 @@
 [2 Samuel 13:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/13.11?lang=eng#p11)
 
 
-[^a]: TG [[Sensuality]].
+[^a]: [[Sensuality|TG Sensuality]].  

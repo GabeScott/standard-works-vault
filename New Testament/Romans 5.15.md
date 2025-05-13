@@ -5,4 +5,4 @@
 [Romans 5:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.15?lang=eng#p15)
 
 
-[^a]: [[2 Corinthians 5.14|2 Cor. 5:14.]]
+[^a]: [[2 Corinthians 5.14|2 Cor. 5:14]].  

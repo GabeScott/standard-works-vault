@@ -5,4 +5,4 @@
 [Jeremiah 42:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.5?lang=eng#p5)
 
 
-[^a]: [[Revelation 1.5|Rev. 1:5]]; [[Revelation 3.14|3:14.]]
+[^a]: [[Revelation 1.5|Rev. 1:5]]; [[Revelation 3.14|3:14]].  

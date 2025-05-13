@@ -5,4 +5,4 @@
 [Ezekiel 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/4.16?lang=eng#p16)
 
 
-[^a]: IE fearfulness, anxiety.
+[^a]: IE fearfulness, anxiety.  

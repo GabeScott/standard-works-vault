@@ -5,4 +5,4 @@
 [Acts 20:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.31?lang=eng#p31)
 
 
-[^a]: [[Helaman 10.4|Hel. 10:4]]. TG [[Warn, Warnings]].
+[^a]: [[Helaman 10.4|Hel. 10:4]]. [[Warn, Warnings|TG Warn]].  

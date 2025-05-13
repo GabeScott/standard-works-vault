@@ -5,5 +5,5 @@
 [Luke 4:27](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.27?lang=eng#p27)
 
 
-[^a]: TG [[Leprosy, Leper, Leprous]].
-[^b]: [[2 Kings 5.14|2 Kgs. 5:14.]]
+[^a]: [[Leprosy, Leper, Leprous|TG Leprosy]].  
+[^b]: [[2 Kings 5.14|2 Kgs. 5:14]].  

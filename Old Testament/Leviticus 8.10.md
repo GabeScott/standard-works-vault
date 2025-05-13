@@ -5,5 +5,5 @@
 [Leviticus 8:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.10?lang=eng#p10)
 
 
-[^a]: TG [[Anointing, Anoint]].
-[^b]: [[D&C 84.23|D&C 84:23.]]
+[^a]: [[Anointing, Anoint|TG Anointing]].  
+[^b]: [[D&C 84.23|D&C 84:23]].  

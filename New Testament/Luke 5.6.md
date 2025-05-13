@@ -5,4 +5,4 @@
 [Luke 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.6?lang=eng#p6)
 
 
-[^a]: OR was breaking.
+[^a]: OR was breaking.  

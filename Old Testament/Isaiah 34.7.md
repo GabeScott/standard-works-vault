@@ -5,4 +5,4 @@
 [Isaiah 34:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/34.7?lang=eng#p7)
 
 
-[^a]: JST Isa. 34:7 … reem … (Reʼem is Hebrew for “wild ox.”)
+[^a]: JST Isa. 34:7 … reem … (Reʼem is Hebrew for “wild ox.”)  

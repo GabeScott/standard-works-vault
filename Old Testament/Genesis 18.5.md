@@ -5,5 +5,5 @@
 [Genesis 18:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.5?lang=eng#p5)
 
 
-[^a]: OR sustain …
-[^b]: [[Genesis 19.8|Gen. 19:8.]]
+[^a]: OR sustain …  
+[^b]: [[Genesis 19.8|Gen. 19:8]].  

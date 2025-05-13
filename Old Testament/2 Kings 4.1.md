@@ -5,5 +5,5 @@
 [2 Kings 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.1?lang=eng#p1)
 
 
-[^a]: TG [[Debt]].
-[^b]: [[Matthew 18.25|Matt. 18:25.]]
+[^a]: [[Debt|TG Debt]].  
+[^b]: [[Matthew 18.25|Matt. 18:25]].  

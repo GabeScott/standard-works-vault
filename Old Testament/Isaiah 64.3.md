@@ -5,5 +5,5 @@
 [Isaiah 64:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/64.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 34.10|Ex. 34:10.]]
-[^b]: [[Micah 1.4|Micah 1:4.]]
+[^a]: [[Exodus 34.10|Ex. 34:10]].  
+[^b]: [[Micah 1.4|Micah 1:4]].  

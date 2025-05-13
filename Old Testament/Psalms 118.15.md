@@ -5,4 +5,4 @@
 [Psalms 118:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.15?lang=eng#p15)
 
 
-[^a]: HEB tents, dwellings.
+[^a]: HEB tents, dwellings.  

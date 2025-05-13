@@ -5,4 +5,4 @@
 [Deuteronomy 20:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.14?lang=eng#p14)
 
 
-[^a]: IE consume, enjoy.
+[^a]: IE consume, enjoy.  

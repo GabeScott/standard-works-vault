@@ -5,4 +5,4 @@
 [Psalms 108:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/108.7?lang=eng#p7)
 
 
-[^a]: OR in His sanctuary.
+[^a]: OR in His sanctuary.  

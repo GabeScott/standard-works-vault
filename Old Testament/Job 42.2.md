@@ -5,5 +5,5 @@
 [Job 42:2](https://www.churchofjesuschrist.org/study/scriptures/ot/job/42.2?lang=eng#p2)
 
 
-[^a]: TG [[God, Works of]].
-[^b]: [[Matthew 19.26|Matt. 19:26.]]
+[^a]: [[God, Works of|TG God, Works of]].  
+[^b]: [[Matthew 19.26|Matt. 19:26]].  

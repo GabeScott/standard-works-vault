@@ -5,5 +5,5 @@
 [Acts 6:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.15?lang=eng#p15)
 
 
-[^a]: [[Helaman 5.36|Hel. 5:36.]]
-[^b]: TG [[Angels]].
+[^a]: [[Helaman 5.36|Hel. 5:36]].  
+[^b]: [[Angels|TG Angels]].  

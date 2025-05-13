@@ -5,6 +5,6 @@
 [Hosea 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/8.13?lang=eng#p13)
 
 
-[^a]: [[Amos 5.22|Amos 5:22 (21-22).]]
-[^b]: [[Amos 8.7|Amos 8:7.]]
-[^c]: [[Deuteronomy 28.68|Deut. 28:68 (58-59, 68)]]; [[Hosea 9.3|Hosea 9:3 (1-3)]]; [[Hosea 11.5|11:5.]]
+[^a]: [[Amos 5.21|Amos 5:22 (21–22)]][[Amos 5.22|]].  
+[^b]: [[Amos 8.7|Amos 8:7]].  
+[^c]: [[Deuteronomy 28.58|Deut. 28:68 (58–59, 68)]][[Deuteronomy 28.59|]][[Deuteronomy 28.68|]]; [[Hosea 9.1|Hosea 9:3 (1–3)]][[Hosea 9.2|]][[Hosea 9.3|]]; [[Hosea 11.5|11:5]].  

@@ -5,6 +5,6 @@
 [Matthew 27:43](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.43?lang=eng#p43)
 
 
-[^a]: [[Psalms 22.8|Ps. 22:8.]]
-[^b]: TG [[Deliver, Deliverance]].
-[^c]: TG [[Jesus Christ, Divine Sonship]].
+[^a]: [[Psalms 22.8|Ps. 22:8]].  
+[^b]: [[Deliver, Deliverance|TG Deliver]].  
+[^c]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  

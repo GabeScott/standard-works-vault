@@ -5,5 +5,5 @@
 [Leviticus 5:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/5.17?lang=eng#p17)
 
 
-[^a]: [[D&C 1.31|D&C 1:31 (31-32).]]
-[^b]: TG [[Accountability]].
+[^a]: [[D&C 1.31|D&C 1:31 (31–32)]][[D&C 1.32|]].  
+[^b]: [[Accountability|TG Accountability]].  

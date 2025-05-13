@@ -5,5 +5,5 @@
 [Genesis 19:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.17?lang=eng#p17)
 
 
-[^a]: [[Genesis 19.26|Gen. 19:26]]; [[Mosiah 8.13|Mosiah 8:13]]; [[D&C 133.15|D&C 133:15.]]
-[^b]: [[Genesis 19.30|Gen. 19:30.]]
+[^a]: [[Genesis 19.26|Gen. 19:26]]; [[Mosiah 8.13|Mosiah 8:13]]; [[D&C 133.15|D&C 133:15]].  
+[^b]: [[Genesis 19.30|Gen. 19:30]].  

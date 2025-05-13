@@ -5,4 +5,4 @@
 [Alma 39:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p19#p19)
 
 
-[^a]: [[Mosiah 3.2|Mosiah 3:2 (2-3).]]
+[^a]: [[Mosiah 3.2|Mosiah 3:2 (2–3)]][[Mosiah 3.3|]].  

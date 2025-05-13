@@ -5,6 +5,6 @@
 [Numbers 16:5](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.5?lang=eng#p5)
 
 
-[^a]: TG [[Holiness]].
-[^b]: TG [[Priesthood, Authority]].
-[^c]: [[Ezekiel 40.46|Ezek. 40:46]]; [[Ezekiel 44.15|44:15 (15-16).]]
+[^a]: [[Holiness|TG Holiness]].  
+[^b]: [[Priesthood, Authority|TG Priesthood, Authority]].  
+[^c]: [[Ezekiel 40.46|Ezek. 40:46]]; [[Ezekiel 44.15|44:15 (15–16)]][[Ezekiel 44.16|]].  

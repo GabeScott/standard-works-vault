@@ -5,4 +5,4 @@
 [Ezekiel 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/2.10?lang=eng#p10)
 
 
-[^a]: HEB front and back.
+[^a]: HEB front and back.  

@@ -5,4 +5,4 @@
 [Ether 11:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p6#p6)
 
 
-[^a]: [[Omni 1.22|Omni 1:22]]; [[Ether 14.21|Ether 14:21.]]
+[^a]: [[Omni 1.22|Omni 1:22]]; [[Ether 14.21|Ether 14:21]].  

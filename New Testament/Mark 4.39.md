@@ -5,5 +5,5 @@
 [Mark 4:39](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.39?lang=eng#p39)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: [[Psalms 89.9|Ps. 89:9.]]
+[^a]: [[Peace|TG Peace]].  
+[^b]: [[Psalms 89.9|Ps. 89:9]].  

@@ -5,5 +5,5 @@
 [Matthew 27:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.18?lang=eng#p18)
 
 
-[^a]: TG [[Envy, Envious]].
-[^b]: TG [[Jesus Christ, Betrayal of]].
+[^a]: [[Envy, Envious|TG Envy]].  
+[^b]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  

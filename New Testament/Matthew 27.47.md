@@ -5,4 +5,4 @@
 [Matthew 27:47](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.47?lang=eng#p47)
 
 
-[^a]: IE Elijah.
+[^a]: IE Elijah.  

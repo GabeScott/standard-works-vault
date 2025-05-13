@@ -5,4 +5,4 @@
 [John 15:18](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.18?lang=eng#p18)
 
 
-[^a]: TG [[Hate]].
+[^a]: [[Hate|TG Hate]].  

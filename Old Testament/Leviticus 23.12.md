@@ -5,4 +5,4 @@
 [Leviticus 23:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.12?lang=eng#p12)
 
 
-[^a]: TG [[Passover]].
+[^a]: [[Passover|TG Passover]].  

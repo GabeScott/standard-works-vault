@@ -5,6 +5,6 @@
 [Mark 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.6?lang=eng#p6)
 
 
-[^a]: TG [[Clothing]].
-[^b]: [[2 Kings 1.8|2 Kgs. 1:8.]]
-[^c]: [[Leviticus 11.22|Lev. 11:22.]]
+[^a]: [[Clothing|TG Clothing]].  
+[^b]: [[2 Kings 1.8|2 Kgs. 1:8]].  
+[^c]: [[Leviticus 11.22|Lev. 11:22]].  

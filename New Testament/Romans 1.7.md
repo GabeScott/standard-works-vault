@@ -5,4 +5,4 @@
 [Romans 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.7?lang=eng#p7)
 
 
-[^a]: TG [[Mission of Latter-day Saints]].
+[^a]: [[Saints|TG Saints]].  

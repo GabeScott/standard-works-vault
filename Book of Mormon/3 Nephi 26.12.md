@@ -5,5 +5,5 @@
 [3 Nephi 26:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/26?lang=eng&id=p12#p12)
 
 
-[^a]: [[3 Nephi 28.24|3 Ne. 28:24.]]
-[^b]: W of M 1:1 (1-2).
+[^a]: [[3 Nephi 28.24|3 Ne. 28:24]].  
+[^b]: [[Words of Mormon 1.1|W of M 1:1 (1–2)]][[Words of Mormon 1.2|]].  

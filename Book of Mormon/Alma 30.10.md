@@ -5,7 +5,7 @@
 [Alma 30:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Murder, Murderer]].
-[^b]: TG [[Capital Punishment]].
-[^c]: [[Alma 1.18|Alma 1:18.]]
-[^d]: TG [[Adulterer, Adultery]].
+[^a]: [[Murder, Murderer|TG Murder]].  
+[^b]: [[Capital Punishment|TG Capital Punishment]].  
+[^c]: [[Alma 1.18|Alma 1:18]].  
+[^d]: [[Adulterer, Adultery|TG Adulterer]].  

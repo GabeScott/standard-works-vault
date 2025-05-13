@@ -5,5 +5,5 @@
 [Matthew 11:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.21?lang=eng#p21)
 
 
-[^a]: [[Ezekiel 3.6|Ezek. 3:6.]]
-[^b]: [[Job 2.8|Job 2:8]]; [[Job 42.6|42:6.]]
+[^a]: [[Ezekiel 3.6|Ezek. 3:6]].  
+[^b]: [[Job 2.8|Job 2:8]]; [[Job 42.6|42:6]].  

@@ -5,6 +5,6 @@
 [Revelation 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/4.6?lang=eng#p6)
 
 
-[^a]: [[Ezekiel 1.22|Ezek. 1:22]]; [[D&C 77.1|D&C 77:1]]. TG [[Earth, Destiny of]].
-[^b]: JST Rev. 4:6 … and in the midst of the throne were the four and twenty elders; and round about …
-[^c]: [[D&C 77.2|D&C 77:2]]. TG [[Cherubim]]; [[Blood, Symbolism of]].
+[^a]: [[Ezekiel 1.22|Ezek. 1:22]]; [[D&C 77.1|D&C 77:1]]. [[Earth, Destiny of|TG Earth, Destiny of]].  
+[^b]: JST Rev. 4:6 … and in the midst of the throne were the four and twenty elders; and round about …  
+[^c]: [[D&C 77.2|D&C 77:2]]. [[Cherubim|TG Cherubim]]; [[Symbolism|Symbolism]].  

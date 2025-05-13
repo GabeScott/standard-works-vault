@@ -5,4 +5,4 @@
 [2 Chronicles 28:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 7.1|Isa. 7:1.]]
+[^a]: [[Isaiah 7.1|Isa. 7:1]].  

@@ -5,4 +5,4 @@
 [Helaman 15:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p15#p15)
 
 
-[^a]: [[Matthew 11.21|Matt. 11:21 (20-24).]]
+[^a]: [[Matthew 11.20|Matt. 11:21 (20–24)]][[Matthew 11.21|]][[Matthew 11.22|]][[Matthew 11.23|]][[Matthew 11.24|]].  

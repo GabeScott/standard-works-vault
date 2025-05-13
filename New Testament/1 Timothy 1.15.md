@@ -5,6 +5,6 @@
 [1 Timothy 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.15?lang=eng#p15)
 
 
-[^a]: [[1 Timothy 3.1|1 Tim. 3:1.]]
-[^b]: [[Matthew 9.13|Matt. 9:13 (12-13)]]. TG [[Jesus Christ, Atonement through]].
-[^c]: [[Luke 5.32|Luke 5:32]]; [[John 9.39|John 9:39 (39-41).]]
+[^a]: [[1 Timothy 3.1|1 Tim. 3:1]].  
+[^b]: [[Matthew 9.12|Matt. 9:13 (12–13)]][[Matthew 9.13|]]. [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  
+[^c]: [[Luke 5.32|Luke 5:32]]; [[John 9.39|John 9:39 (39–41)]][[John 9.40|]][[John 9.41|]].  

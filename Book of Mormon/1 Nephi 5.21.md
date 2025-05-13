@@ -5,5 +5,5 @@
 [1 Nephi 5:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Scriptures, Value of]].
-[^b]: TG [[Scriptures, Preservation of]].
+[^a]: [[Scriptures, Value of|TG Scriptures, Value of]].  
+[^b]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  

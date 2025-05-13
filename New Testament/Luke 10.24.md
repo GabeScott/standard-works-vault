@@ -5,5 +5,5 @@
 [Luke 10:24](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.24?lang=eng#p24)
 
 
-[^a]: [[2 Nephi 25.26|2 Ne. 25:26 (24-27).]]
-[^b]: TG [[Kings, Earthly]].
+[^a]: [[2 Nephi 25.24|2 Ne. 25:26 (24–27)]][[2 Nephi 25.25|]][[2 Nephi 25.26|]][[2 Nephi 25.27|]].  
+[^b]: [[Kings, Earthly|TG Kings, Earthly]].  

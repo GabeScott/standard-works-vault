@@ -5,4 +5,4 @@
 [Ezekiel 10:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/10.14?lang=eng#p14)
 
 
-[^a]: [[Ezekiel 41.18|Ezek. 41:18 (18-19).]]
+[^a]: [[Ezekiel 41.18|Ezek. 41:18 (18–19)]][[Ezekiel 41.19|]].  

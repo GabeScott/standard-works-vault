@@ -5,4 +5,4 @@
 [1 Samuel 14:30](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.30?lang=eng#p30)
 
 
-[^a]: IE perchance.
+[^a]: IE perchance.  

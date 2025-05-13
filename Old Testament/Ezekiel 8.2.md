@@ -5,4 +5,4 @@
 [Ezekiel 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/8.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 1.27|Ezek. 1:27 (26-27).]]
+[^a]: [[Ezekiel 1.26|Ezek. 1:27 (26–27)]][[Ezekiel 1.27|]].  

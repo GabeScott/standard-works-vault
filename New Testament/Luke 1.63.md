@@ -5,4 +5,4 @@
 [Luke 1:63](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.63?lang=eng#p63)
 
 
-[^a]: IE writing tablet.
+[^a]: IE writing tablet.  

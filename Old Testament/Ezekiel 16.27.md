@@ -5,4 +5,4 @@
 [Ezekiel 16:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.27?lang=eng#p27)
 
 
-[^a]: HEB thine allotted portion.
+[^a]: HEB thine allotted portion.  

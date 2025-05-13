@@ -5,5 +5,5 @@
 [Exodus 28:41](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.41?lang=eng#p41)
 
 
-[^a]: TG [[Anointing, Anoint]].
-[^b]: TG [[Priesthood, Authority]].
+[^a]: [[Anointing, Anoint|TG Anointing]].  
+[^b]: [[Priesthood, Authority|TG Priesthood, Authority]].  

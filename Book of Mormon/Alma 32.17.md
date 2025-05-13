@@ -5,4 +5,4 @@
 [Alma 32:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p17#p17)
 
 
-[^a]: TG [[Signs]]; [[Sign Seekers]].
+[^a]: [[Signs|TG Signs]]; [[Sign Seekers|Sign Seekers]].  

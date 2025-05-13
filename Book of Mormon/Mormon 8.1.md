@@ -5,5 +5,5 @@
 [Mormon 8:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mormon 6.6|Morm. 6:6]]; [[Moroni 9.24|Moro. 9:24.]]
-[^b]: TG [[Record Keeping]].
+[^a]: [[Mormon 6.6|Morm. 6:6]]; [[Moroni 9.24|Moro. 9:24]].  
+[^b]: [[Record Keeping|TG Record Keeping]].  

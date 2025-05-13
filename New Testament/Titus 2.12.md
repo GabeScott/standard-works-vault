@@ -5,8 +5,8 @@
 [Titus 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Mysteries of Godliness]].
-[^b]: TG [[Worldliness]].
-[^c]: TG [[Lust]].
-[^d]: TG [[Levity]].
-[^e]: TG [[Abundant Life]]; [[God, the Standard of Righteousness]].
+[^a]: [[Godliness, Godly|TG Godliness]].  
+[^b]: [[Worldliness|TG Worldliness]].  
+[^c]: [[Lust|TG Lust]].  
+[^d]: [[Levity|TG Levity]].  
+[^e]: [[Abundant Life|TG Abundant Life]]; [[Righteousness|Righteousness]].  

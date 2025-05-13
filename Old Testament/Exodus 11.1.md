@@ -5,4 +5,4 @@
 [Exodus 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/11.1?lang=eng#p1)
 
 
-[^a]: [[Exodus 12.39|Ex. 12:39.]]
+[^a]: [[Exodus 12.39|Ex. 12:39]].  

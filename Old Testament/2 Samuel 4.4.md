@@ -5,4 +5,4 @@
 [2 Samuel 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/4.4?lang=eng#p4)
 
 
-[^a]: [[2 Samuel 9.3|2 Sam. 9:3.]]
+[^a]: [[2 Samuel 9.3|2 Sam. 9:3]].  

@@ -5,6 +5,6 @@
 [Alma 18:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p9#p9)
 
 
-[^a]: [[Enos 1.21|Enos 1:21]]; [[Alma 20.6|Alma 20:6.]]
-[^b]: [[Alma 20.9|Alma 20:9 (9, 12).]]
-[^c]: [[Esther 1.3|Esth. 1:3.]]
+[^a]: [[Enos 1.21|Enos 1:21]]; [[Alma 20.6|Alma 20:6]].  
+[^b]: [[Alma 20.9|Alma 20:9 (9, 12)]][[Alma 20.12|]].  
+[^c]: [[Esther 1.3|Esth. 1:3]].  

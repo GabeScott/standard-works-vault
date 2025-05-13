@@ -5,4 +5,4 @@
 [John 10:7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.7?lang=eng#p7)
 
 
-[^a]: [[John 14.6|John 14:6 (4-7).]]
+[^a]: [[John 14.4|John 14:6 (4–7)]][[John 14.5|]][[John 14.6|]][[John 14.7|]].  

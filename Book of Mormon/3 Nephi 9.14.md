@@ -5,6 +5,6 @@
 [3 Nephi 9:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p14#p14)
 
 
-[^a]: [[1 Nephi 1.14|1 Ne. 1:14]]; [[2 Nephi 26.25|2 Ne. 26:25 (24-28)]]; [[Alma 5.34|Alma 5:34 (33-36).]]
-[^b]: [[John 3.16|John 3:16.]]
-[^c]: [[Isaiah 59.16|Isa. 59:16]]; [[Alma 19.36|Alma 19:36.]]
+[^a]: [[1 Nephi 1.14|1 Ne. 1:14]]; [[2 Nephi 26.24|2 Ne. 26:25 (24–28)]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]]; [[Alma 5.33|Alma 5:34 (33–36)]][[Alma 5.34|]][[Alma 5.35|]][[Alma 5.36|]].  
+[^b]: [[John 3.16|John 3:16]].  
+[^c]: [[Isaiah 59.16|Isa. 59:16]]; [[Alma 19.36|Alma 19:36]].  

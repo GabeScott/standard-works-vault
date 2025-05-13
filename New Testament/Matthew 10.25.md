@@ -5,4 +5,4 @@
 [Matthew 10:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.25?lang=eng#p25)
 
 
-[^a]: GR that he become.
+[^a]: GR that he become.  

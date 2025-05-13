@@ -5,5 +5,5 @@
 [Ezekiel 41:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.16?lang=eng#p16)
 
 
-[^a]: [[Ezekiel 42.3|Ezek. 42:3.]]
-[^b]: HEB paneled or veneered.
+[^a]: [[Ezekiel 42.3|Ezek. 42:3]].  
+[^b]: HEB paneled or veneered.  

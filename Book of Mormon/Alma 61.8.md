@@ -5,6 +5,6 @@
 [Alma 61:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/61?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 61.18|Alma 61:18.]]
-[^b]: [[Alma 62.6|Alma 62:6]]. TG [[Tyranny]].
-[^c]: [[Mosiah 7.21|Mosiah 7:21.]]
+[^a]: [[Alma 61.18|Alma 61:18]].  
+[^b]: [[Alma 62.6|Alma 62:6]]. [[Tyranny|TG Tyranny]].  
+[^c]: [[Mosiah 7.21|Mosiah 7:21]].  

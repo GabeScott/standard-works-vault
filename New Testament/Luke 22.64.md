@@ -5,4 +5,4 @@
 [Luke 22:64](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.64?lang=eng#p64)
 
 
-[^a]: [[Matthew 26.68|Matt. 26:68.]]
+[^a]: [[Matthew 26.68|Matt. 26:68]].  

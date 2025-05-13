@@ -5,5 +5,5 @@
 [2 Chronicles 8:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/8.5?lang=eng#p5)
 
 
-[^a]: OR lower.
-[^b]: OR fortified cities.
+[^a]: OR lower.  
+[^b]: OR fortified cities.  

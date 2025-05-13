@@ -5,7 +5,7 @@
 [Ephesians 1:22](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.22?lang=eng#p22)
 
 
-[^a]: TG [[Jesus Christ, Power of]].
-[^b]: [[Hebrews 2.8|Heb. 2:8.]]
-[^c]: TG [[Jesus Christ, Head of the Church]]; [[Jesus Christ, Messiah]].
-[^d]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Jesus Christ, Power of|TG Jesus Christ, Power of]].  
+[^b]: [[Hebrews 2.8|Heb. 2:8]].  
+[^c]: [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]]; [[Jesus Christ, Messiah|Jesus Christ, Messiah]].  
+[^d]: [[Church|TG Church]].  

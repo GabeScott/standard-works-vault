@@ -5,5 +5,5 @@
 [Exodus 31:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.6?lang=eng#p6)
 
 
-[^a]: [[Exodus 35.10|Ex. 35:10.]]
-[^b]: TG [[Talents]].
+[^a]: [[Exodus 35.10|Ex. 35:10]].  
+[^b]: [[Talents|TG Talents]].  

@@ -5,4 +5,4 @@
 [Mosiah 29:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p43#p43)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

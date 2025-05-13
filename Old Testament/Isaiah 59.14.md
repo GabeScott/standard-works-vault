@@ -5,4 +5,4 @@
 [Isaiah 59:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.14?lang=eng#p14)
 
 
-[^a]: OR honesty.
+[^a]: OR honesty.  

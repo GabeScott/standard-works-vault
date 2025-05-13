@@ -5,5 +5,5 @@
 [Deuteronomy 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.22?lang=eng#p22)
 
 
-[^a]: [[Exodus 23.29|Ex. 23:29 (27-30).]]
-[^b]: HEB wild animals become too numerous for you.
+[^a]: [[Exodus 23.27|Ex. 23:29 (27–30)]][[Exodus 23.28|]][[Exodus 23.29|]][[Exodus 23.30|]].  
+[^b]: HEB wild animals become too numerous for you.  

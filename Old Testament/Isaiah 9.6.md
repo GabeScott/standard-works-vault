@@ -5,12 +5,12 @@
 [Isaiah 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.6?lang=eng#p6)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
-[^b]: TG [[God, Manifestations of]]; [[Jesus Christ, Birth of]].
-[^c]: TG [[Jesus Christ, Divine Sonship]].
-[^d]: TG [[Governments]]; [[Jesus Christ, Authority of]]; [[Jesus Christ, Millennial Reign]]; [[Jesus Christ, Mission of]].
-[^e]: TG [[Counselor]].
-[^f]: TG [[Jesus Christ, Power of]].
-[^g]: [[Mosiah 7.27|Mosiah 7:27 (26-27).]]
-[^h]: TG [[Immortality, Immortal]].
-[^i]: TG [[Peace of God]]; [[Peace of God]] of God.
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^b]: [[God, Manifestations of|TG God, Manifestations of]]; [[Jesus Christ, Birth of|Jesus Christ, Birth of]].  
+[^c]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  
+[^d]: [[Governments|TG Governments]]; [[Jesus Christ, Authority of|Jesus Christ, Authority of]]; [[Jesus Christ, Millennial Reign|Jesus Christ, Millennial Reign]]; [[Jesus Christ, Mission of|Jesus Christ, Mission of]].  
+[^e]: [[Counselor|TG Counselor]].  
+[^f]: [[Jesus Christ, Power of|TG Jesus Christ, Power of]].  
+[^g]: [[Mosiah 7.26|Mosiah 7:27 (26–27)]][[Mosiah 7.27|]].  
+[^h]: [[Immortality, Immortal|TG Immortality]].  
+[^i]: [[Peace|TG Peace]]; [[Peace of God|Peace of God]].  

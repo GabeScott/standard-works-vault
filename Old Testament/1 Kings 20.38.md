@@ -5,4 +5,4 @@
 [1 Kings 20:38](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.38?lang=eng#p38)
 
 
-[^a]: HEB headband over his eyes (also v. 41).
+[^a]: HEB headband over his eyes (also [[1 Kings 20.41|v. 41]]).  

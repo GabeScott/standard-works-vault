@@ -5,4 +5,4 @@
 [Abraham 2:15](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/2.15?lang=eng#p15)
 
 
-[^a]: [[Genesis 12.5|Gen. 12:5]]. TG [[Conversion, Convert]].
+[^a]: [[Genesis 12.5|Gen. 12:5]]. [[Conversion, Convert|TG Conversion]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 15:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/15.24?lang=eng#p24)
 
 
-[^a]: [[Numbers 10.8|Num. 10:8.]]
+[^a]: [[Numbers 10.8|Num. 10:8]].  

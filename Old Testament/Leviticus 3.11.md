@@ -5,5 +5,5 @@
 [Leviticus 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/3.11?lang=eng#p11)
 
 
-[^a]: [[Ezekiel 44.7|Ezek. 44:7.]]
-[^b]: [[Leviticus 21.6|Lev. 21:6 (6, 21).]]
+[^a]: [[Ezekiel 44.7|Ezek. 44:7]].  
+[^b]: [[Leviticus 21.6|Lev. 21:6 (6, 21)]][[Leviticus 21.21|]].  

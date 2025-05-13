@@ -5,4 +5,4 @@
 [2 Chronicles 31:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/31.11?lang=eng#p11)
 
 
-[^a]: IE storerooms.
+[^a]: IE storerooms.  

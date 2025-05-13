@@ -5,6 +5,6 @@
 [2 Samuel 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/8.18?lang=eng#p18)
 
 
-[^a]: [[1 Kings 2.25|1 Kgs. 2:25.]]
-[^b]: [[1 Kings 1.38|1 Kgs. 1:38.]]
-[^c]: HEB priests; apparently, in this case, civil ministers.
+[^a]: [[1 Kings 2.25|1 Kgs. 2:25]].  
+[^b]: [[1 Kings 1.38|1 Kgs. 1:38]].  
+[^c]: HEB priests; apparently, in this case, civil ministers.  

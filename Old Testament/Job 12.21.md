@@ -5,4 +5,4 @@
 [Job 12:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/12.21?lang=eng#p21)
 
 
-[^a]: [[Isaiah 40.23|Isa. 40:23.]]
+[^a]: [[Isaiah 40.23|Isa. 40:23]].  

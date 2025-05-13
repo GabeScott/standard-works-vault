@@ -5,6 +5,6 @@
 [Alma 34:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 33.13|Alma 33:13]]; [[Helaman 8.19|Hel. 8:19.]]
-[^b]: [[Alma 33.15|Alma 33:15]]; [[Helaman 8.20|Hel. 8:20 (19-20).]]
-[^c]: [[Alma 33.19|Alma 33:19.]]
+[^a]: [[Alma 33.13|Alma 33:13]]; [[Helaman 8.19|Hel. 8:19]].  
+[^b]: [[Alma 33.15|Alma 33:15]]; [[Helaman 8.19|Hel. 8:20 (19–20)]][[Helaman 8.20|]].  
+[^c]: [[Alma 33.19|Alma 33:19]].  

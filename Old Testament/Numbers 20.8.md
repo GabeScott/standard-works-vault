@@ -5,5 +5,5 @@
 [Numbers 20:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.8?lang=eng#p8)
 
 
-[^a]: See JST Gen. 50:34 (Appendix). Ex. 4:20.
-[^b]: [[Exodus 17.6|Ex. 17:6 (6-7).]]
+[^a]: See [[JST Genesis 50.34|JST Gen. 50:34 (Appendix)]]. [[Exodus 4.20|Ex. 4:20]].  
+[^b]: [[Exodus 17.6|Ex. 17:6 (6–7)]][[Exodus 17.7|]].  

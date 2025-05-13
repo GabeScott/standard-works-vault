@@ -5,4 +5,4 @@
 [Mark 1:38](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.38?lang=eng#p38)
 
 
-[^a]: TG [[Jesus Christ, Mission of]]; [[Teaching with the Spirit]].
+[^a]: [[Jesus Christ, Mission of|TG Jesus Christ, Mission of]]; [[Teaching, Teach, Taught|Teaching]].  

@@ -5,4 +5,4 @@
 [Numbers 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 16.10|Ex. 16:10]]; [[Exodus 24.16|24:16.]]
+[^a]: [[Exodus 16.10|Ex. 16:10]]; [[Exodus 24.16|24:16]].  

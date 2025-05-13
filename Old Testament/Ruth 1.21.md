@@ -5,4 +5,4 @@
 [Ruth 1:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/1.21?lang=eng#p21)
 
 
-[^a]: OR humbled me (so also in the Septuagint and the Latin Vulgate).
+[^a]: OR humbled me (so also in the Septuagint and the Latin Vulgate).  

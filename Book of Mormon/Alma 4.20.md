@@ -5,6 +5,6 @@
 [Alma 4:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p20#p20)
 
 
-[^a]: [[Alma 8.12|Alma 8:12.]]
-[^b]: [[Mosiah 29.42|Mosiah 29:42]]; [[Alma 5.3|Alma 5:3 (3, 44, 49).]]
-[^c]: TG [[Preaching, Preach]].
+[^a]: [[Alma 8.12|Alma 8:12]].  
+[^b]: [[Mosiah 29.42|Mosiah 29:42]]; [[Alma 5.3|Alma 5:3 (3, 44, 49)]][[Alma 5.44|]][[Alma 5.49|]].  
+[^c]: [[Preaching, Preach|TG Preaching]].  

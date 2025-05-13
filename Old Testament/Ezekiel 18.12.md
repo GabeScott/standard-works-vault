@@ -5,4 +5,4 @@
 [Ezekiel 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.12?lang=eng#p12)
 
 
-[^a]: [[2 Nephi 13.14|2 Ne. 13:14 (14-15)]]; [[2 Nephi 28.13|28:13 (12-13)]]; [[Helaman 4.12|Hel. 4:12 (11-13).]]
+[^a]: [[2 Nephi 13.14|2 Ne. 13:14 (14–15)]][[2 Nephi 13.15|]]; [[2 Nephi 28.12|28:13 (12–13)]][[2 Nephi 28.13|]]; [[Helaman 4.11|Hel. 4:12 (11–13)]][[Helaman 4.12|]][[Helaman 4.13|]].  

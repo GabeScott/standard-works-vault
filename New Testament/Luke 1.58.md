@@ -5,5 +5,5 @@
 [Luke 1:58](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.58?lang=eng#p58)
 
 
-[^a]: GR relatives.
-[^b]: TG [[God, Mercy of]].
+[^a]: GR relatives.  
+[^b]: [[God, Mercy of|TG God, Mercy of]].  

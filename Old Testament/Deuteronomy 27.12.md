@@ -5,4 +5,4 @@
 [Deuteronomy 27:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.12?lang=eng#p12)
 
 
-[^a]: [[Deuteronomy 11.29|Deut. 11:29]]; [[Joshua 8.33|Josh. 8:33 (33-35)]]; [[Alma 45.16|Alma 45:16 (15-17)]]; [[D&C 130.21|D&C 130:21.]]
+[^a]: [[Deuteronomy 11.29|Deut. 11:29]]; [[Joshua 8.33|Josh. 8:33 (33–35)]][[Joshua 8.34|]][[Joshua 8.35|]]; [[Alma 45.15|Alma 45:16 (15–17)]][[Alma 45.16|]][[Alma 45.17|]]; [[D&C 130.21|D&C 130:21]].  

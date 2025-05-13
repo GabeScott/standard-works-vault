@@ -5,4 +5,4 @@
 [1 Kings 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.3?lang=eng#p3)
 
 
-[^a]: OR cakes.
+[^a]: OR cakes.  

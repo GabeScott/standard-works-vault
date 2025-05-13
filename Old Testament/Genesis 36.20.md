@@ -5,4 +5,4 @@
 [Genesis 36:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/36.20?lang=eng#p20)
 
 
-[^a]: [[1 Chronicles 1.38|1 Chr. 1:38 (38-42).]]
+[^a]: [[1 Chronicles 1.38|1 Chr. 1:38 (38–42)]][[1 Chronicles 1.39|]][[1 Chronicles 1.40|]][[1 Chronicles 1.41|]][[1 Chronicles 1.42|]].  

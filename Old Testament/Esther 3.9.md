@@ -5,5 +5,5 @@
 [Esther 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/3.9?lang=eng#p9)
 
 
-[^a]: [[Esther 8.3|Esth. 8:3]]; [[Esther 9.24|9:24.]]
-[^b]: [[Esther 7.4|Esth. 7:4.]]
+[^a]: [[Esther 8.3|Esth. 8:3]]; [[Esther 9.24|9:24]].  
+[^b]: [[Esther 7.4|Esth. 7:4]].  

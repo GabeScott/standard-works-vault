@@ -5,5 +5,5 @@
 [Genesis 46:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.5?lang=eng#p5)
 
 
-[^a]: [[Genesis 45.27|Gen. 45:27 (26-28).]]
-[^b]: [[Genesis 45.19|Gen. 45:19.]]
+[^a]: [[Genesis 45.26|Gen. 45:27 (26–28)]][[Genesis 45.27|]][[Genesis 45.28|]].  
+[^b]: [[Genesis 45.19|Gen. 45:19]].  

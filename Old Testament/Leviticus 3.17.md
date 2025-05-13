@@ -5,5 +5,5 @@
 [Leviticus 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/3.17?lang=eng#p17)
 
 
-[^a]: [[Leviticus 7.25|Lev. 7:25]]; [[Ezekiel 44.7|Ezek. 44:7.]]
-[^b]: TG [[Blood, Eating of]].
+[^a]: [[Leviticus 7.25|Lev. 7:25]]; [[Ezekiel 44.7|Ezek. 44:7]].  
+[^b]: [[Blood, Eating of|TG Blood, Eating of]].  

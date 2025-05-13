@@ -5,4 +5,4 @@
 [2 Corinthians 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.10?lang=eng#p10)
 
 
-[^a]: TG [[Deliver, Deliverance]].
+[^a]: [[Deliver, Deliverance|TG Deliver]].  

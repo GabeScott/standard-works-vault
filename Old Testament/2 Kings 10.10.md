@@ -5,4 +5,4 @@
 [2 Kings 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.10?lang=eng#p10)
 
 
-[^a]: [[1 Samuel 3.19|1 Sam. 3:19]]; [[Alma 37.17|Alma 37:17]]; [[D&C 1.38|D&C 1:38.]]
+[^a]: [[1 Samuel 3.19|1 Sam. 3:19]]; [[Alma 37.17|Alma 37:17]]; [[D&C 1.38|D&C 1:38]].  

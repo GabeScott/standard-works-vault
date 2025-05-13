@@ -5,4 +5,4 @@
 [Genesis 24:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.22?lang=eng#p22)
 
 
-[^a]: HEB ring.
+[^a]: HEB ring.  

@@ -5,4 +5,4 @@
 [Matthew 24:43](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.43?lang=eng#p43)
 
 
-[^a]: [[Exodus 22.2|Ex. 22:2 (1-4).]]
+[^a]: [[Exodus 22.1|Ex. 22:2 (1–4)]][[Exodus 22.2|]][[Exodus 22.3|]][[Exodus 22.4|]].  

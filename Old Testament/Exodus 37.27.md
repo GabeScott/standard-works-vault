@@ -5,4 +5,4 @@
 [Exodus 37:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/37.27?lang=eng#p27)
 
 
-[^a]: OR whereby to carry it.
+[^a]: OR whereby to carry it.  

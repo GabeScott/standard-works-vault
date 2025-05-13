@@ -5,4 +5,4 @@
 [Ecclesiastes 12:10](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/12.10?lang=eng#p10)
 
 
-[^a]: HEB words of delight.
+[^a]: HEB words of delight.  

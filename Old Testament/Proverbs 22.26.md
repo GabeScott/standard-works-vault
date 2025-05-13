@@ -5,5 +5,5 @@
 [Proverbs 22:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.26?lang=eng#p26)
 
 
-[^a]: IE shake hands, showing agreement.
-[^b]: [[Proverbs 6.1|Prov. 6:1]]; [[Proverbs 11.15|11:15.]]
+[^a]: IE shake hands, showing agreement.  
+[^b]: [[Proverbs 6.1|Prov. 6:1]]; [[Proverbs 11.15|11:15]].  

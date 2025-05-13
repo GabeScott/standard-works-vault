@@ -5,4 +5,4 @@
 [Acts 2:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.3?lang=eng#p3)
 
 
-[^a]: [[D&C 109.36|D&C 109:36.]]
+[^a]: [[D&C 109.36|D&C 109:36]].  

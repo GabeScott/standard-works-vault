@@ -5,5 +5,5 @@
 [Ezra 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/3.7?lang=eng#p7)
 
 
-[^a]: [[1 Kings 5.6|1 Kgs. 5:6.]]
-[^b]: [[Ezra 1.2|Ezra 1:2 (2-3)]]; [[Ezra 4.3|4:3.]]
+[^a]: [[1 Kings 5.6|1 Kgs. 5:6]].  
+[^b]: [[Ezra 1.2|Ezra 1:2 (2–3)]][[Ezra 1.3|]]; [[Ezra 4.3|4:3]].  

@@ -5,4 +5,4 @@
 [Acts 11:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/11.5?lang=eng#p5)
 
 
-[^a]: [[Acts 22.17|Acts 22:17.]]
+[^a]: [[Acts 22.17|Acts 22:17]].  

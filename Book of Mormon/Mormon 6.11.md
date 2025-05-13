@@ -5,4 +5,4 @@
 [Mormon 6:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p11#p11)
 
 
-[^a]: [[1 Nephi 12.19|1 Ne. 12:19 (19-20)]]; [[Helaman 15.17|Hel. 15:17 (16-17)]]; [[Mormon 3.2|Morm. 3:2.]]
+[^a]: [[1 Nephi 12.19|1 Ne. 12:19 (19–20)]][[1 Nephi 12.20|]]; [[Helaman 15.16|Hel. 15:17 (16–17)]][[Helaman 15.17|]]; [[Mormon 3.2|Morm. 3:2]].  

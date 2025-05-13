@@ -5,5 +5,5 @@
 [Alma 44:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 52.25|Alma 52:25 (25, 32).]]
-[^b]: TG [[Benevolence]].
+[^a]: [[Alma 52.25|Alma 52:25 (25, 32)]][[Alma 52.32|]].  
+[^b]: [[Benevolence|TG Benevolence]].  

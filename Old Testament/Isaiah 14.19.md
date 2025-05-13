@@ -5,5 +5,5 @@
 [Isaiah 14:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.19?lang=eng#p19)
 
 
-[^a]: IE a rejected branch, pruned off and discarded.
-[^b]: IE the very bottom.
+[^a]: IE a rejected branch, pruned off and discarded.  
+[^b]: IE the very bottom.  

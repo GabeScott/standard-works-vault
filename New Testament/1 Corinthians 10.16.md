@@ -5,6 +5,6 @@
 [1 Corinthians 10:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.16?lang=eng#p16)
 
 
-[^a]: [[Matthew 26.27|Matt. 26:27 (26-29).]]
-[^b]: TG [[Israel, Blessings of]].
-[^c]: GR aid, fellowship, partnership.
+[^a]: [[Matthew 26.26|Matt. 26:27 (26–29)]][[Matthew 26.27|]][[Matthew 26.28|]][[Matthew 26.29|]].  
+[^b]: [[Blessing|TG Blessing]].  
+[^c]: GR aid, fellowship, partnership.  

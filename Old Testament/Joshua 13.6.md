@@ -5,4 +5,4 @@
 [Joshua 13:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.6?lang=eng#p6)
 
 
-[^a]: [[Numbers 34.2|Num. 34:2]]; [[Psalms 135.12|Ps. 135:12.]]
+[^a]: [[Numbers 34.2|Num. 34:2]]; [[Psalms 135.12|Ps. 135:12]].  

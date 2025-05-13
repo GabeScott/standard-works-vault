@@ -5,4 +5,4 @@
 [Mark 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.6?lang=eng#p6)
 
 
-[^a]: TG [[Counsel]].
+[^a]: [[Counsel|TG Counsel]].  

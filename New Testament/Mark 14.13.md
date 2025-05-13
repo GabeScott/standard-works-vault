@@ -5,4 +5,4 @@
 [Mark 14:13](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.13?lang=eng#p13)
 
 
-[^a]: [[Luke 22.8|Luke 22:8 (7-13).]]
+[^a]: [[Luke 22.7|Luke 22:8 (7–13)]][[Luke 22.8|]][[Luke 22.9|]][[Luke 22.10|]][[Luke 22.11|]][[Luke 22.12|]][[Luke 22.13|]].  

@@ -5,5 +5,5 @@
 [Job 36:5](https://www.churchofjesuschrist.org/study/scriptures/ot/job/36.5?lang=eng#p5)
 
 
-[^a]: TG [[Hate]].
-[^b]: TG [[God, Wisdom of]].
+[^a]: [[Hate|TG Hate]].  
+[^b]: [[God, Wisdom of|TG God, Wisdom of]].  

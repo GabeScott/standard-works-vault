@@ -5,4 +5,4 @@
 [Alma 1:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p5#p5)
 
 
-[^a]: [[Acts 8.18|Acts 8:18 (17-23).]]
+[^a]: [[Acts 8.17|Acts 8:18 (17–23)]][[Acts 8.18|]][[Acts 8.19|]][[Acts 8.20|]][[Acts 8.21|]][[Acts 8.22|]][[Acts 8.23|]].  

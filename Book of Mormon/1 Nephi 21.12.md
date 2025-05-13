@@ -5,4 +5,4 @@
 [1 Nephi 21:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/21?lang=eng&id=p12#p12)
 
 
-[^a]: [[Isaiah 43.5|Isa. 43:5 (5-7).]]
+[^a]: [[Isaiah 43.5|Isa. 43:5 (5–7)]][[Isaiah 43.6|]][[Isaiah 43.7|]].  

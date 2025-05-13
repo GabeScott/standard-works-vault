@@ -5,5 +5,5 @@
 [2 Kings 13:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/13.23?lang=eng#p23)
 
 
-[^a]: TG [[Compassion]].
-[^b]: [[Exodus 32.13|Ex. 32:13.]]
+[^a]: [[Compassion|TG Compassion]].  
+[^b]: [[Exodus 32.13|Ex. 32:13]].  

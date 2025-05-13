@@ -5,4 +5,4 @@
 [Psalms 104:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.1?lang=eng#p1)
 
 
-[^a]: [[Proverbs 31.25|Prov. 31:25.]]
+[^a]: [[Proverbs 31.25|Prov. 31:25]].  

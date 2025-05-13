@@ -5,5 +5,5 @@
 [Leviticus 23:27](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.27?lang=eng#p27)
 
 
-[^a]: TG [[Meetings]].
-[^b]: IE humble. Acts 27:9.
+[^a]: [[Meetings|TG Meetings]].  
+[^b]: IE humble. [[Acts 27.9|Acts 27:9]].  

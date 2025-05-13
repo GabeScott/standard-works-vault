@@ -5,4 +5,4 @@
 [1 Kings 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.23?lang=eng#p23)
 
 
-[^a]: [[2 Chronicles 18.22|2 Chr. 18:22.]]
+[^a]: [[2 Chronicles 18.22|2 Chr. 18:22]].  

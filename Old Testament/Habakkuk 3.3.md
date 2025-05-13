@@ -5,4 +5,4 @@
 [Habakkuk 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.3?lang=eng#p3)
 
 
-[^a]: This alludes to historic occasions when the Lord miraculously delivered the people. Deut. 33:2 (2-3).
+[^a]: This alludes to historic occasions when the Lord miraculously delivered the people. [[Deuteronomy 33.2|Deut. 33:2 (2–3)]][[Deuteronomy 33.3|]].  

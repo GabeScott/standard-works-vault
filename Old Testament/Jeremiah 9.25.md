@@ -5,4 +5,4 @@
 [Jeremiah 9:25](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.25?lang=eng#p25)
 
 
-[^a]: TG [[Circumcision]].
+[^a]: [[Circumcision|TG Circumcision]].  

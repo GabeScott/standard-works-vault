@@ -5,4 +5,4 @@
 [James 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.10?lang=eng#p10)
 
 
-[^a]: Isa. 40:6-8.
+[^a]: [[Isaiah 40.6|Isa. 40:6–8]][[Isaiah 40.7|]][[Isaiah 40.8|]].  

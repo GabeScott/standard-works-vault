@@ -5,5 +5,5 @@
 [1 Samuel 24:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/24.10?lang=eng#p10)
 
 
-[^a]: TG [[Benevolence]].
-[^b]: [[1 Samuel 26.9|1 Sam. 26:9.]]
+[^a]: [[Benevolence|TG Benevolence]].  
+[^b]: [[1 Samuel 26.9|1 Sam. 26:9]].  

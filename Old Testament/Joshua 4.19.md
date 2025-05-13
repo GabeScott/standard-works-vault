@@ -5,4 +5,4 @@
 [Joshua 4:19](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.19?lang=eng#p19)
 
 
-[^a]: [[Joshua 5.9|Josh. 5:9.]]
+[^a]: [[Joshua 5.9|Josh. 5:9]].  

@@ -5,6 +5,6 @@
 [Revelation 6:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/6.1?lang=eng#p1)
 
 
-[^a]: JST Rev. 6:1 And I saw when the Lamb opened one of the seals, one of the four beasts, and I heard …
-[^b]: TG [[Seal]].
-[^c]: TG [[Cherubim]].
+[^a]: JST Rev. 6:1 And I saw when the Lamb opened one of the seals, one of the four beasts, and I heard …  
+[^b]: [[Seal|TG Seal]].  
+[^c]: [[Cherubim|TG Cherubim]].  

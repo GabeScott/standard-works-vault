@@ -5,4 +5,4 @@
 [Romans 12:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.4?lang=eng#p4)
 
 
-[^a]: GR function, operation.
+[^a]: GR function, operation.  

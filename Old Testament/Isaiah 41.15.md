@@ -5,4 +5,4 @@
 [Isaiah 41:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.15?lang=eng#p15)
 
 
-[^a]: IE Israel’s erstwhile strong enemies.
+[^a]: IE Israel’s erstwhile strong enemies.  

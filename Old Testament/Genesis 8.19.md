@@ -5,4 +5,4 @@
 [Genesis 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.19?lang=eng#p19)
 
 
-[^a]: HEB families.
+[^a]: HEB families.  

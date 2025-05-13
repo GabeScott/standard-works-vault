@@ -5,5 +5,5 @@
 [Ether 4:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/4?lang=eng&id=p3#p3)
 
 
-[^a]: [[Mormon 8.3|Morm. 8:3 (2-3).]]
-[^b]: [[Mormon 8.14|Morm. 8:14]]. TG [[Scriptures, Preservation of]].
+[^a]: [[Mormon 8.2|Morm. 8:3 (2–3)]][[Mormon 8.3|]].  
+[^b]: [[Mormon 8.14|Morm. 8:14]]. [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  

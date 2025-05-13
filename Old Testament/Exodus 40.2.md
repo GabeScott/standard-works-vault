@@ -5,6 +5,6 @@
 [Exodus 40:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 12.2|Ex. 12:2.]]
-[^b]: [[Hebrews 8.2|Heb. 8:2 (2-5).]]
-[^c]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Exodus 12.2|Ex. 12:2]].  
+[^b]: [[Hebrews 8.2|Heb. 8:2 (2–5)]][[Hebrews 8.3|]][[Hebrews 8.4|]][[Hebrews 8.5|]].  
+[^c]: [[Church|TG Church]].  

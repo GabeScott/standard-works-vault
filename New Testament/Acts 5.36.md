@@ -5,4 +5,4 @@
 [Acts 5:36](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.36?lang=eng#p36)
 
 
-[^a]: GR were persuaded by, believed him.
+[^a]: GR were persuaded by, believed him.  

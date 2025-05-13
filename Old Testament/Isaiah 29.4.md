@@ -5,5 +5,5 @@
 [Isaiah 29:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.4?lang=eng#p4)
 
 
-[^a]: [[Moroni 10.27|Moro. 10:27.]]
-[^b]: TG [[Book of Mormon]].
+[^a]: [[Moroni 10.27|Moro. 10:27]].  
+[^b]: [[Book of Mormon|TG Book of Mormon]].  

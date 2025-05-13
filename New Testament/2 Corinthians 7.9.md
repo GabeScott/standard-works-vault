@@ -5,4 +5,4 @@
 [2 Corinthians 7:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/7.9?lang=eng#p9)
 
 
-[^a]: TG [[Poor in Spirit]].
+[^a]: [[Poor in Spirit|TG Poor in Spirit]].  

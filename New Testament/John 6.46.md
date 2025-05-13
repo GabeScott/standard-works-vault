@@ -5,4 +5,4 @@
 [John 6:46](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.46?lang=eng#p46)
 
 
-[^a]: TG [[God, Manifestations of]]; [[God, Privilege of Seeing]]; [[Revelation]].
+[^a]: [[God, Manifestations of|TG God, Manifestations of]]; [[God, Privilege of Seeing|God, Privilege of Seeing]]; [[Revelation|Revelation]].  

@@ -5,4 +5,4 @@
 [Ezra 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.5?lang=eng#p5)
 
 
-[^a]: Dan. 6:28.
+[^a]: [[Daniel 6.28|Dan. 6:28]].  

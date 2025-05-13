@@ -5,5 +5,5 @@
 [Alma 26:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p31#p31)
 
 
-[^a]: [[Acts 21.19|Acts 21:19 (19-20).]]
-[^b]: [[Alma 23.8|Alma 23:8 (8-13)]]; [[Alma 26.4|26:4.]]
+[^a]: [[Acts 21.19|Acts 21:19 (19–20)]][[Acts 21.20|]].  
+[^b]: [[Alma 23.8|Alma 23:8 (8–13)]][[Alma 23.9|]][[Alma 23.10|]][[Alma 23.11|]][[Alma 23.12|]][[Alma 23.13|]]; [[Alma 26.4|26:4]].  

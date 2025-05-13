@@ -5,5 +5,5 @@
 [2 Corinthians 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.3?lang=eng#p3)
 
 
-[^a]: TG [[God, Mercy of]].
-[^b]: TG [[Holy Ghost, Comforter]].
+[^a]: [[God, Mercy of|TG God, Mercy of]].  
+[^b]: [[Comfort|TG Comfort]].  

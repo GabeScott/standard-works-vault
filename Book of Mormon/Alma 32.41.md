@@ -5,5 +5,5 @@
 [Alma 32:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p41#p41)
 
 
-[^a]: TG [[Patience, Patient, Patiently]].
-[^b]: [[Alma 33.23|Alma 33:23]]; [[D&C 63.23|D&C 63:23.]]
+[^a]: [[Patience, Patient, Patiently|TG Patience]].  
+[^b]: [[Alma 33.23|Alma 33:23]]; [[D&C 63.23|D&C 63:23]].  

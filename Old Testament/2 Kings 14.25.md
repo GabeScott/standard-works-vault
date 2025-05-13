@@ -5,4 +5,4 @@
 [2 Kings 14:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/14.25?lang=eng#p25)
 
 
-[^a]: [[Jonah 1.1|Jonah 1:1.]]
+[^a]: [[Jonah 1.1|Jonah 1:1]].  

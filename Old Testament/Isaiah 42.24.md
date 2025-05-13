@@ -5,6 +5,6 @@
 [Isaiah 42:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.24?lang=eng#p24)
 
 
-[^a]: TG [[Israel, Ten Lost Tribes of]].
-[^b]: TG [[Walking in Darkness]].
-[^c]: TG [[Disobedience, Disobey]].
+[^a]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  
+[^b]: [[Walking in Darkness|TG Walking in Darkness]].  
+[^c]: [[Disobedience, Disobey|TG Disobedience]].  

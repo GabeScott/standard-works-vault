@@ -5,4 +5,4 @@
 [Jacob 5:69](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p69#p69)
 
 
-[^a]: [[1 Nephi 22.23|1 Ne. 22:23 (15-17, 23)]]; [[2 Nephi 30.10|2 Ne. 30:10 (9-10).]]
+[^a]: [[1 Nephi 22.15|1 Ne. 22:23 (15–17, 23)]][[1 Nephi 22.16|]][[1 Nephi 22.17|]][[1 Nephi 22.23|]]; [[2 Nephi 30.9|2 Ne. 30:10 (9–10)]][[2 Nephi 30.10|]].  

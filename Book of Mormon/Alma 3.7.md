@@ -5,4 +5,4 @@
 [Alma 3:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p7#p7)
 
 
-[^a]: [[1 Nephi 12.23|1 Ne. 12:23.]]
+[^a]: [[1 Nephi 12.23|1 Ne. 12:23]].  

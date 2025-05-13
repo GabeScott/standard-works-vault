@@ -5,7 +5,7 @@
 [Matthew 23:27](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.27?lang=eng#p27)
 
 
-[^a]: GR whitewashed tombs. Acts 23:3.
-[^b]: [[Luke 11.44|Luke 11:44.]]
-[^c]: TG [[Beauty]].
-[^d]: TG [[Cleanliness]].
+[^a]: GR whitewashed tombs. [[Acts 23.3|Acts 23:3]].  
+[^b]: [[Luke 11.44|Luke 11:44]].  
+[^c]: [[Beauty|TG Beauty]].  
+[^d]: [[Cleanliness|TG Cleanliness]].  

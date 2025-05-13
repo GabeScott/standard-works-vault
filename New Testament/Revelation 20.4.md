@@ -5,6 +5,6 @@
 [Revelation 20:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/20.4?lang=eng#p4)
 
 
-[^a]: Dan. 7:22; [[1 Corinthians 6.2|1 Cor. 6:2]]; [[3 Nephi 27.27|3 Ne. 27:27]]; [[D&C 20.13|D&C 20:13 (5-15)]]; [[D&C 75.21|75:21 (21-22).]]
-[^b]: TG [[Jesus Christ, Millennial Reign]].
-[^c]: TG [[Millennium, Preparing a People for]].
+[^a]: [[Daniel 7.22|Dan. 7:22]]; [[1 Corinthians 6.2|1 Cor. 6:2]]; [[3 Nephi 27.27|3 Ne. 27:27]]; [[D&C 20.5|D&C 20:13 (5–15)]][[D&C 20.6|]][[D&C 20.7|]][[D&C 20.8|]][[D&C 20.9|]][[D&C 20.10|]][[D&C 20.11|]][[D&C 20.12|]][[D&C 20.13|]][[D&C 20.14|]][[D&C 20.15|]]; [[D&C 75.21|75:21 (21–22)]][[D&C 75.22|]].  
+[^b]: [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]].  
+[^c]: [[Millennium|TG Millennium]].  

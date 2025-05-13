@@ -5,5 +5,5 @@
 [Ether 3:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p21#p21)
 
 
-[^a]: [[Ether 4.1|Ether 4:1.]]
-[^b]: [[Luke 2.19|Luke 2:19 (17-20).]]
+[^a]: [[Ether 4.1|Ether 4:1]].  
+[^b]: [[Luke 2.17|Luke 2:19 (17–20)]][[Luke 2.18|]][[Luke 2.19|]][[Luke 2.20|]].  

@@ -5,6 +5,6 @@
 [Isaiah 59:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.9?lang=eng#p9)
 
 
-[^a]: OR charity, righteousness.
-[^b]: [[Jeremiah 8.15|Jer. 8:15.]]
-[^c]: TG [[Walking in Darkness]].
+[^a]: OR charity, righteousness.  
+[^b]: [[Jeremiah 8.15|Jer. 8:15]].  
+[^c]: [[Walking in Darkness|TG Walking in Darkness]].  

@@ -5,4 +5,4 @@
 [Joshua 13:30](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.30?lang=eng#p30)
 
 
-[^a]: [[Numbers 32.41|Num. 32:41.]]
+[^a]: [[Numbers 32.41|Num. 32:41]].  

@@ -5,4 +5,4 @@
 [Ezekiel 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.13?lang=eng#p13)
 
 
-[^a]: [[Revelation 4.5|Rev. 4:5.]]
+[^a]: [[Revelation 4.5|Rev. 4:5]].  

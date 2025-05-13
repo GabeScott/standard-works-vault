@@ -5,4 +5,4 @@
 [Exodus 23:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.28?lang=eng#p28)
 
 
-[^a]: [[Joshua 24.12|Josh. 24:12.]]
+[^a]: [[Joshua 24.12|Josh. 24:12]].  

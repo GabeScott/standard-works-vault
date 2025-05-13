@@ -5,4 +5,4 @@
 [Matthew 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.1?lang=eng#p1)
 
 
-[^a]: JS—H 1:72.
+[^a]: [[Joseph Smith History 1.72|JS—H 1:72]].  

@@ -5,4 +5,4 @@
 [Luke 24:44](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.44?lang=eng#p44)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

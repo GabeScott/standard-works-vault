@@ -5,5 +5,5 @@
 [Isaiah 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.9?lang=eng#p9)
 
 
-[^a]: IE the Israelite people who won’t hearken to the prophets.
-[^b]: [[Helaman 13.26|Hel. 13:26 (25-28).]]
+[^a]: IE the Israelite people who won’t hearken to the prophets.  
+[^b]: [[Helaman 13.25|Hel. 13:26 (25–28)]][[Helaman 13.26|]][[Helaman 13.27|]][[Helaman 13.28|]].  

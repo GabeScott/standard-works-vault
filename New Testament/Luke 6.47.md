@@ -5,4 +5,4 @@
 [Luke 6:47](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.47?lang=eng#p47)
 
 
-[^a]: TG [[Commitment]].
+[^a]: [[Commitment|TG Commitment]].  

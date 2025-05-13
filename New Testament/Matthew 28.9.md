@@ -5,4 +5,4 @@
 [Matthew 28:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.9?lang=eng#p9)
 
 
-[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^a]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  

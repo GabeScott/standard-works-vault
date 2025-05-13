@@ -5,4 +5,4 @@
 [Mark 10:49](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.49?lang=eng#p49)
 
 
-[^a]: [[1 Nephi 17.51|1 Ne. 17:51.]]
+[^a]: [[1 Nephi 17.51|1 Ne. 17:51]].  

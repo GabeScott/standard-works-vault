@@ -5,4 +5,4 @@
 [Jeremiah 26:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.9?lang=eng#p9)
 
 
-[^a]: TG [[Apostasy of Israel]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  

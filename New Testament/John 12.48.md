@@ -5,7 +5,7 @@
 [John 12:48](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.48?lang=eng#p48)
 
 
-[^a]: [[D&C 39.9|D&C 39:9.]]
-[^b]: TG [[Judgment]].
-[^c]: TG [[Gospel]].
-[^d]: TG [[Judgment, the Last]].
+[^a]: [[D&C 39.9|D&C 39:9]].  
+[^b]: [[Judgment|TG Judgment]].  
+[^c]: [[Gospel|TG Gospel]].  
+[^d]: [[Judgment, the Last|TG Judgment, the Last]].  

@@ -5,4 +5,4 @@
 [1 Kings 15:30](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.30?lang=eng#p30)
 
 
-[^a]: TG [[Anger]].
+[^a]: [[Anger|TG Anger]].  

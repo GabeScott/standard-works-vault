@@ -5,4 +5,4 @@
 [1 Kings 9:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.5?lang=eng#p5)
 
 
-[^a]: [[2 Samuel 7.16|2 Sam. 7:16 (12, 16)]]; [[Psalms 132.12|Ps. 132:12.]]
+[^a]: [[2 Samuel 7.12|2 Sam. 7:16 (12, 16)]][[2 Samuel 7.16|]]; [[Psalms 132.12|Ps. 132:12]].  

@@ -5,4 +5,4 @@
 [Proverbs 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/9.4?lang=eng#p4)
 
 
-[^a]: [[D&C 1.23|D&C 1:23.]]
+[^a]: [[D&C 1.23|D&C 1:23]].  

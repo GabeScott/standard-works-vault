@@ -5,5 +5,5 @@
 [Mormon 8:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p16#p16)
 
 
-[^a]: [[3 Nephi 21.11|3 Ne. 21:11 (8-11)]]; [[Ether 3.28|Ether 3:28 (21-28).]]
-[^b]: TG [[Scriptures to Come Forth]].
+[^a]: [[3 Nephi 21.8|3 Ne. 21:11 (8–11)]][[3 Nephi 21.9|]][[3 Nephi 21.10|]][[3 Nephi 21.11|]]; [[Ether 3.21|Ether 3:28 (21–28)]][[Ether 3.22|]][[Ether 3.23|]][[Ether 3.24|]][[Ether 3.25|]][[Ether 3.26|]][[Ether 3.27|]][[Ether 3.28|]].  
+[^b]: [[Scriptures to Come Forth|TG Scriptures to Come Forth]].  

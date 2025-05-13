@@ -5,4 +5,4 @@
 [Nahum 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/2.5?lang=eng#p5)
 
 
-[^a]: HEB nobles, leaders.
+[^a]: HEB nobles, leaders.  

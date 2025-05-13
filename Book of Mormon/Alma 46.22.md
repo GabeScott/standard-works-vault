@@ -5,5 +5,5 @@
 [Alma 46:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p22#p22)
 
 
-[^a]: [[Acts 7.58|Acts 7:58]]; [[Acts 22.20|22:20.]]
-[^b]: TG [[Commitment]].
+[^a]: [[Acts 7.58|Acts 7:58]]; [[Acts 22.20|22:20]].  
+[^b]: [[Commitment|TG Commitment]].  

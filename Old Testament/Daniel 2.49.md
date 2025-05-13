@@ -5,4 +5,4 @@
 [Daniel 2:49](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.49?lang=eng#p49)
 
 
-[^a]: Dan. 3:12.
+[^a]: [[Daniel 3.12|Dan. 3:12]].  

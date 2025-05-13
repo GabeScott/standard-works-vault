@@ -5,4 +5,4 @@
 [Genesis 50:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.5?lang=eng#p5)
 
 
-[^a]: [[Genesis 47.30|Gen. 47:30]]; [[2 Nephi 1.14|2 Ne. 1:14.]]
+[^a]: [[Genesis 47.30|Gen. 47:30]]; [[2 Nephi 1.14|2 Ne. 1:14]].  

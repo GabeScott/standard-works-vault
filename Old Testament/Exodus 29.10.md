@@ -5,5 +5,5 @@
 [Exodus 29:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 43.19|Ezek. 43:19.]]
-[^b]: TG [[Hands, Laying on of]].
+[^a]: [[Ezekiel 43.19|Ezek. 43:19]].  
+[^b]: [[Hands, Laying on of|TG Hands, Laying on of]].  

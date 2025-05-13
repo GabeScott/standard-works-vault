@@ -5,5 +5,5 @@
 [2 Samuel 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/1.14?lang=eng#p14)
 
 
-[^a]: [[2 Samuel 4.10|2 Sam. 4:10.]]
-[^b]: TG [[Anointing, Anoint]].
+[^a]: [[2 Samuel 4.10|2 Sam. 4:10]].  
+[^b]: [[Anointing, Anoint|TG Anointing]].  

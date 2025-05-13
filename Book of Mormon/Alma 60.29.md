@@ -5,4 +5,4 @@
 [Alma 60:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p29#p29)
 
 
-[^a]: [[Isaiah 1.20|Isa. 1:20 (19-20)]]; [[Helaman 13.5|Hel. 13:5]]; [[3 Nephi 2.19|3 Ne. 2:19.]]
+[^a]: [[Isaiah 1.19|Isa. 1:20 (19–20)]][[Isaiah 1.20|]]; [[Helaman 13.5|Hel. 13:5]]; [[3 Nephi 2.19|3 Ne. 2:19]].  

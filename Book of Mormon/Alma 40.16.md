@@ -5,5 +5,5 @@
 [Alma 40:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p16#p16)
 
 
-[^a]: [[Jacob 4.11|Jacob 4:11]]; [[Mosiah 15.21|Mosiah 15:21 (21-23)]]; [[Mosiah 18.9|18:9.]]
-[^b]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Jacob 4.11|Jacob 4:11]]; [[Mosiah 15.21|Mosiah 15:21 (21–23)]][[Mosiah 15.22|]][[Mosiah 15.23|]]; [[Mosiah 18.9|18:9]].  
+[^b]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

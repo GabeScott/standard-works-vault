@@ -5,5 +5,5 @@
 [2 Chronicles 29:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.5?lang=eng#p5)
 
 
-[^a]: [[2 Chronicles 35.6|2 Chr. 35:6.]]
-[^b]: TG [[Filthiness, Filthy]].
+[^a]: [[2 Chronicles 35.6|2 Chr. 35:6]].  
+[^b]: [[Filthiness, Filthy|TG Filthiness]].  

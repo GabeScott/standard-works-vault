@@ -5,5 +5,5 @@
 [Mosiah 26:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mosiah 25.22|Mosiah 25:22 (18-23)]]; [[Alma 4.5|Alma 4:5 (4-5).]]
-[^b]: TG [[Man, Natural, Not Spiritually Reborn]].
+[^a]: [[Mosiah 25.18|Mosiah 25:22 (18–23)]][[Mosiah 25.19|]][[Mosiah 25.20|]][[Mosiah 25.21|]][[Mosiah 25.22|]][[Mosiah 25.23|]]; [[Alma 4.4|Alma 4:5 (4–5)]][[Alma 4.5|]].  
+[^b]: [[Man, Natural, Not Spiritually Reborn|TG Man, Natural, Not Spiritually Reborn]].  

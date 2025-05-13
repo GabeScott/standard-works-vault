@@ -5,4 +5,4 @@
 [Isaiah 29:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.22?lang=eng#p22)
 
 
-[^a]: [[1 Nephi 15.19|1 Ne. 15:19 (19-20).]]
+[^a]: [[1 Nephi 15.19|1 Ne. 15:19 (19–20)]][[1 Nephi 15.20|]].  

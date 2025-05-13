@@ -5,7 +5,7 @@
 [Ezekiel 46:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.1?lang=eng#p1)
 
 
-[^a]: [[1 Chronicles 9.18|1 Chr. 9:18.]]
-[^b]: OR faces.
-[^c]: TG [[Sabbath]].
-[^d]: [[Ezekiel 45.17|Ezek. 45:17.]]
+[^a]: [[1 Chronicles 9.18|1 Chr. 9:18]].  
+[^b]: OR faces.  
+[^c]: [[Sabbath|TG Sabbath]].  
+[^d]: [[Ezekiel 45.17|Ezek. 45:17]].  

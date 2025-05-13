@@ -5,4 +5,4 @@
 [2 Timothy 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.15?lang=eng#p15)
 
 
-[^a]: GR opposed, resisted.
+[^a]: GR opposed, resisted.  

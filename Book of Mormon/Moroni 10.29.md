@@ -5,4 +5,4 @@
 [Moroni 10:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p29#p29)
 
 
-[^a]: TG [[Book of Mormon]].
+[^a]: [[Book of Mormon|TG Book of Mormon]].  

@@ -5,4 +5,4 @@
 [Matthew 18:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.9?lang=eng#p9)
 
 
-[^a]: JST Matt. 18:8-9 … hellfire. And a man’s hand is his friend, and his foot, also; and a man’s eye, are they of his own household.
+[^a]: JST Matt. 18:8–9 … hellfire. And a man’s hand is his friend, and his foot, also; and a man’s eye, are they of his own household.  

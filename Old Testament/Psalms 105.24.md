@@ -5,4 +5,4 @@
 [Psalms 105:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 1.7|Ex. 1:7.]]
+[^a]: [[Exodus 1.7|Ex. 1:7]].  

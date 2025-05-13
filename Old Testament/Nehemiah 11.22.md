@@ -5,4 +5,4 @@
 [Nehemiah 11:22](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/11.22?lang=eng#p22)
 
 
-[^a]: [[D&C 107.16|D&C 107:16 (13-17)]]. TG [[Bishop]].
+[^a]: [[D&C 107.13|D&C 107:16 (13–17)]][[D&C 107.14|]][[D&C 107.15|]][[D&C 107.16|]][[D&C 107.17|]]. [[Bishop|TG Bishop]].  

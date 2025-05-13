@@ -5,4 +5,4 @@
 [Leviticus 13:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.7?lang=eng#p7)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

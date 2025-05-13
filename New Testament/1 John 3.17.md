@@ -5,6 +5,6 @@
 [1 John 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.17?lang=eng#p17)
 
 
-[^a]: 1 Jn. 4:20 (20-21).
-[^b]: [[Luke 3.11|Luke 3:11.]]
-[^c]: GR is hardhearted, void of compassion. TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[1 John 4.20|1 Jn. 4:20 (20–21)]][[1 John 4.21|]].  
+[^b]: [[Luke 3.11|Luke 3:11]].  
+[^c]: GR is hardhearted, void of compassion. [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

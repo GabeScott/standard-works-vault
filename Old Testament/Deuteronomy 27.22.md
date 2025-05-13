@@ -5,4 +5,4 @@
 [Deuteronomy 27:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.22?lang=eng#p22)
 
 
-[^a]: [[Leviticus 20.17|Lev. 20:17.]]
+[^a]: [[Leviticus 20.17|Lev. 20:17]].  

@@ -5,5 +5,5 @@
 [1 John 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.4?lang=eng#p4)
 
 
-[^a]: 1 Jn. 3:6.
-[^b]: TG [[Lying, Liar, Lie]].
+[^a]: [[1 John 3.6|1 Jn. 3:6]].  
+[^b]: [[Lying, Liar, Lie|TG Lying]].  

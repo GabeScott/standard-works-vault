@@ -5,5 +5,5 @@
 [Hebrews 11:4](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.4?lang=eng#p4)
 
 
-[^a]: [[Genesis 4.4|Gen. 4:4.]]
-[^b]: TG [[Self-Sacrifice]].
+[^a]: [[Genesis 4.4|Gen. 4:4]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  

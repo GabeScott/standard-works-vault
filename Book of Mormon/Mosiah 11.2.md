@@ -5,8 +5,8 @@
 [Mosiah 11:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p2#p2)
 
 
-[^a]: [[Jacob 3.5|Jacob 3:5]]; [[Ether 10.5|Ether 10:5.]]
-[^b]: [[1 Kings 14.16|1 Kgs. 14:16]]; [[1 Kings 15.26|15:26]]; [[1 Kings 16.2|16:2]]; [[1 Kings 21.22|21:22]]; [[2 Kings 21.2|2 Kgs. 21:2 (1-9)]]; [[Mosiah 23.12|Mosiah 23:12]]; [[Mosiah 29.31|29:31.]]
-[^c]: [[Mosiah 29.18|Mosiah 29:18.]]
-[^d]: [[2 Nephi 28.15|2 Ne. 28:15.]]
-[^e]: [[Mosiah 23.9|Mosiah 23:9.]]
+[^a]: [[Jacob 3.5|Jacob 3:5]]; [[Ether 10.5|Ether 10:5]].  
+[^b]: [[1 Kings 14.16|1 Kgs. 14:16]]; [[1 Kings 15.26|15:26]]; [[1 Kings 16.2|16:2]]; [[1 Kings 21.22|21:22]]; [[2 Kings 21.1|2 Kgs. 21:2 (1–9)]][[2 Kings 21.2|]][[2 Kings 21.3|]][[2 Kings 21.4|]][[2 Kings 21.5|]][[2 Kings 21.6|]][[2 Kings 21.7|]][[2 Kings 21.8|]][[2 Kings 21.9|]]; [[Mosiah 23.12|Mosiah 23:12]]; [[Mosiah 29.31|29:31]].  
+[^c]: [[Mosiah 29.18|Mosiah 29:18]].  
+[^d]: [[2 Nephi 28.15|2 Ne. 28:15]].  
+[^e]: [[Mosiah 23.9|Mosiah 23:9]].  

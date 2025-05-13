@@ -5,4 +5,4 @@
 [Exodus 36:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.9?lang=eng#p9)
 
 
-[^a]: OR each.
+[^a]: OR each.  

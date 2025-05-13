@@ -5,5 +5,5 @@
 [Genesis 39:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.9?lang=eng#p9)
 
 
-[^a]: TG [[Adulterer, Adultery]]; [[Fornication]].
-[^b]: [[2 Samuel 12.13|2 Sam. 12:13.]]
+[^a]: [[Adulterer, Adultery|TG Adulterer]]; [[Fornication|Fornication]].  
+[^b]: [[2 Samuel 12.13|2 Sam. 12:13]].  

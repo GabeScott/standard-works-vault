@@ -5,4 +5,4 @@
 [Zephaniah 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.15?lang=eng#p15)
 
 
-[^a]: TG [[Jesus Christ, Millennial Reign]].
+[^a]: [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]].  

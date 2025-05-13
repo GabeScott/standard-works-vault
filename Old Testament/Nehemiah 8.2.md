@@ -5,4 +5,4 @@
 [Nehemiah 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 31.11|Deut. 31:11.]]
+[^a]: [[Deuteronomy 31.11|Deut. 31:11]].  

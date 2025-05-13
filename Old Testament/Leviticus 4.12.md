@@ -5,4 +5,4 @@
 [Leviticus 4:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.12?lang=eng#p12)
 
 
-[^a]: [[Hebrews 13.12|Heb. 13:12 (11-12).]]
+[^a]: [[Hebrews 13.11|Heb. 13:12 (11–12)]][[Hebrews 13.12|]].  

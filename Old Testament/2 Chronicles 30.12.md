@@ -5,4 +5,4 @@
 [2 Chronicles 30:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.12?lang=eng#p12)
 
 
-[^a]: [[Moses 7.18|Moses 7:18.]]
+[^a]: [[Moses 7.18|Moses 7:18]].  

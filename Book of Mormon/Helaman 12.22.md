@@ -5,4 +5,4 @@
 [Helaman 12:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p22#p22)
 
 
-[^a]: TG [[Salvation for the Dead]].
+[^a]: [[Salvation|TG Salvation]].  

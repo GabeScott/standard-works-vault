@@ -5,5 +5,5 @@
 [Isaiah 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/18.7?lang=eng#p7)
 
 
-[^a]: [[1 Nephi 22.7|1 Ne. 22:7 (6-8).]]
-[^b]: [[3 Nephi 20.33|3 Ne. 20:33 (29-34)]]; [[D&C 84.2|D&C 84:2.]]
+[^a]: [[1 Nephi 22.6|1 Ne. 22:7 (6–8)]][[1 Nephi 22.7|]][[1 Nephi 22.8|]].  
+[^b]: [[3 Nephi 20.29|3 Ne. 20:33 (29–34)]][[3 Nephi 20.30|]][[3 Nephi 20.31|]][[3 Nephi 20.32|]][[3 Nephi 20.33|]][[3 Nephi 20.34|]]; [[D&C 84.2|D&C 84:2]].  

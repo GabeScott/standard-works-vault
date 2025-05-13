@@ -5,4 +5,4 @@
 [Isaiah 40:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.26?lang=eng#p26)
 
 
-[^a]: [[Psalms 147.4|Ps. 147:4.]]
+[^a]: [[Psalms 147.4|Ps. 147:4]].  

@@ -5,4 +5,4 @@
 [1 Timothy 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/2.13?lang=eng#p13)
 
 
-[^a]: TG [[Man, Physical Creation of]].
+[^a]: [[Man, Physical Creation of|TG Man, Physical Creation of]].  

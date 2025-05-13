@@ -5,4 +5,4 @@
 [Isaiah 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/15.8?lang=eng#p8)
 
 
-[^a]: [[Numbers 21.16|Num. 21:16 (16-18).]]
+[^a]: [[Numbers 21.16|Num. 21:16 (16–18)]][[Numbers 21.17|]][[Numbers 21.18|]].  

@@ -5,4 +5,4 @@
 [Alma 38:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p15#p15)
 
 
-[^a]: [[1 Peter 5.8|1 Pet. 5:8.]]
+[^a]: [[1 Peter 5.8|1 Pet. 5:8]].  

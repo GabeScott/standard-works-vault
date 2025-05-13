@@ -5,4 +5,4 @@
 [Moroni 8:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p1#p1)
 
 
-[^a]: W of M 1:1.
+[^a]: [[Words of Mormon 1.1|W of M 1:1]].  

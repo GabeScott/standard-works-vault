@@ -5,6 +5,6 @@
 [Luke 22:44](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.44?lang=eng#p44)
 
 
-[^a]: TG [[Pain]].
-[^b]: JST Luke 22:44 … and he sweat as it were great drops of blood …
-[^c]: [[Mosiah 3.7|Mosiah 3:7]]; [[D&C 19.18|D&C 19:18]]. TG [[Jesus Christ, Atonement through]].
+[^a]: [[Pain|TG Pain]].  
+[^b]: JST Luke 22:44 … and he sweat as it were great drops of blood …  
+[^c]: [[Mosiah 3.7|Mosiah 3:7]]; [[D&C 19.18|D&C 19:18]]. [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  

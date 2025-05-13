@@ -5,4 +5,4 @@
 [Genesis 46:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.21?lang=eng#p21)
 
 
-[^a]: [[Numbers 26.38|Num. 26:38]]; [[1 Chronicles 7.6|1 Chr. 7:6 (6-12).]]
+[^a]: [[Numbers 26.38|Num. 26:38]]; [[1 Chronicles 7.6|1 Chr. 7:6 (6–12)]][[1 Chronicles 7.7|]][[1 Chronicles 7.8|]][[1 Chronicles 7.9|]][[1 Chronicles 7.10|]][[1 Chronicles 7.11|]][[1 Chronicles 7.12|]].  

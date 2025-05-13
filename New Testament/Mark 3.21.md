@@ -5,4 +5,4 @@
 [Mark 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.21?lang=eng#p21)
 
 
-[^a]: GR out of his senses.
+[^a]: GR out of his senses.  

@@ -5,4 +5,4 @@
 [Mosiah 20:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/20?lang=eng&id=p17#p17)
 
 
-[^a]: [[Mosiah 19.23|Mosiah 19:23 (4-8, 23)]]; [[Mosiah 22.3|22:3]]; [[Alma 1.8|Alma 1:8 (8-9).]]
+[^a]: [[Mosiah 19.4|Mosiah 19:23 (4–8, 23)]][[Mosiah 19.5|]][[Mosiah 19.6|]][[Mosiah 19.7|]][[Mosiah 19.8|]][[Mosiah 19.23|]]; [[Mosiah 22.3|22:3]]; [[Alma 1.8|Alma 1:8 (8–9)]][[Alma 1.9|]].  

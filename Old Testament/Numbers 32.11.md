@@ -5,4 +5,4 @@
 [Numbers 32:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/32.11?lang=eng#p11)
 
 
-[^a]: [[Numbers 14.23|Num. 14:23.]]
+[^a]: [[Numbers 14.23|Num. 14:23]].  

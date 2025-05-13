@@ -5,4 +5,4 @@
 [2 Kings 25:28](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.28?lang=eng#p28)
 
 
-[^a]: [[Jeremiah 52.32|Jer. 52:32 (31-34).]]
+[^a]: [[Jeremiah 52.31|Jer. 52:32 (31–34)]][[Jeremiah 52.32|]][[Jeremiah 52.33|]][[Jeremiah 52.34|]].  

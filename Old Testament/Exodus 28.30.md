@@ -5,4 +5,4 @@
 [Exodus 28:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.30?lang=eng#p30)
 
 
-[^a]: HEB Lights and Perfections. TG [[Urim and Thummim]].
+[^a]: HEB Lights and Perfections. [[Urim and Thummim|TG Urim and Thummim]].  

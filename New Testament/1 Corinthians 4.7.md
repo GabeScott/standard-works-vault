@@ -5,5 +5,5 @@
 [1 Corinthians 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.7?lang=eng#p7)
 
 
-[^a]: GR different from, superior to.
-[^b]: [[Mosiah 4.19|Mosiah 4:19.]]
+[^a]: GR different from, superior to.  
+[^b]: [[Mosiah 4.19|Mosiah 4:19]].  

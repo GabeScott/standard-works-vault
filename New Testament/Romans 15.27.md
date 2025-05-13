@@ -5,6 +5,6 @@
 [Romans 15:27](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.27?lang=eng#p27)
 
 
-[^a]: [[1 Corinthians 9.11|1 Cor. 9:11.]]
-[^b]: TG [[Duty]].
-[^c]: GR material, temporal.
+[^a]: [[1 Corinthians 9.11|1 Cor. 9:11]].  
+[^b]: [[Duty|TG Duty]].  
+[^c]: GR material, temporal.  

@@ -5,4 +5,4 @@
 [Deuteronomy 23:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.13?lang=eng#p13)
 
 
-[^a]: HEB your excrement.
+[^a]: HEB your excrement.  

@@ -5,4 +5,4 @@
 [Psalms 134:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/134.1?lang=eng#p1)
 
 
-[^a]: [[1 Chronicles 9.33|1 Chr. 9:33.]]
+[^a]: [[1 Chronicles 9.33|1 Chr. 9:33]].  

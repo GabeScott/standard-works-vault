@@ -5,5 +5,5 @@
 [Isaiah 44:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 49.5|Isa. 49:5]]; [[Jeremiah 1.5|Jer. 1:5.]]
-[^b]: [[Deuteronomy 33.26|Deut. 33:26.]]
+[^a]: [[Isaiah 49.5|Isa. 49:5]]; [[Jeremiah 1.5|Jer. 1:5]].  
+[^b]: [[Deuteronomy 33.26|Deut. 33:26]].  

@@ -5,4 +5,4 @@
 [Psalms 105:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.22?lang=eng#p22)
 
 
-[^a]: HEB elders.
+[^a]: HEB elders.  

@@ -5,4 +5,4 @@
 [Philemon 1:2](https://www.churchofjesuschrist.org/study/scriptures/nt/philem/1.2?lang=eng#p2)
 
 
-[^a]: Col. 4:17.
+[^a]: [[Colossians 4.17|Col. 4:17]].  

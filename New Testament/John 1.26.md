@@ -5,4 +5,4 @@
 [John 1:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.26?lang=eng#p26)
 
 
-[^a]: [[D&C 52.10|D&C 52:10.]]
+[^a]: [[D&C 52.10|D&C 52:10]].  

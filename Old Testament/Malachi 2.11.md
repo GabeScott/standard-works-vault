@@ -5,5 +5,5 @@
 [Malachi 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.11?lang=eng#p11)
 
 
-[^a]: TG [[Marriage, Interfaith]].
-[^b]: TG [[Unbelief, Unbelievers]].
+[^a]: [[Marriage, Interfaith|TG Marriage, Interfaith]].  
+[^b]: [[Unbelief, Unbelievers|TG Unbelief]].  

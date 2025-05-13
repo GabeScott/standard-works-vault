@@ -5,5 +5,5 @@
 [3 Nephi 3:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p24#p24)
 
 
-[^a]: [[Alma 46.17|Alma 46:17]]; [[Mormon 3.5|Morm. 3:5.]]
-[^b]: [[Alma 22.31|Alma 22:31 (30-31).]]
+[^a]: [[Alma 46.17|Alma 46:17]]; [[Mormon 3.5|Morm. 3:5]].  
+[^b]: [[Alma 22.30|Alma 22:31 (30–31)]][[Alma 22.31|]].  

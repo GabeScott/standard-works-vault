@@ -5,5 +5,5 @@
 [Psalms 22:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.16?lang=eng#p16)
 
 
-[^a]: TG [[Jesus Christ, Betrayal of]].
-[^b]: TG [[Jesus Christ, Crucifixion of]]; [[Jesus Christ, Prophecies about]]; [[Suffering]].
+[^a]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  
+[^b]: [[Jesus Christ, Crucifixion of|TG Jesus Christ, Crucifixion of]]; [[Jesus Christ, Prophecies about|Jesus Christ, Prophecies about]]; [[Suffering|Suffering]].  

@@ -5,4 +5,4 @@
 [Alma 49:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p30#p30)
 
 
-[^a]: [[Alma 30.20|Alma 30:20 (20-23, 31)]]; [[Alma 43.2|43:2]]; [[Alma 46.38|46:38.]]
+[^a]: [[Alma 30.20|Alma 30:20 (20–23, 31)]][[Alma 30.21|]][[Alma 30.22|]][[Alma 30.23|]][[Alma 30.31|]]; [[Alma 43.2|43:2]]; [[Alma 46.38|46:38]].  

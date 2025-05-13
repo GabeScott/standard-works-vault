@@ -5,4 +5,4 @@
 [Isaiah 33:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.8?lang=eng#p8)
 
 
-[^a]: OR annulled the treaty or contract.
+[^a]: OR annulled the treaty or contract.  

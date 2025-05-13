@@ -5,4 +5,4 @@
 [Psalms 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/21.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 45.3|Ps. 45:3.]]
+[^a]: [[Psalms 45.3|Ps. 45:3]].  

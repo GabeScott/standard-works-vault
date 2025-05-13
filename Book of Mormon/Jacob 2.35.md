@@ -5,5 +5,5 @@
 [Jacob 2:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p35#p35)
 
 
-[^a]: [[Jacob 3.5|Jacob 3:5 (5-7).]]
-[^b]: [[Genesis 2.24|Gen. 2:24.]]
+[^a]: [[Jacob 3.5|Jacob 3:5 (5–7)]][[Jacob 3.6|]][[Jacob 3.7|]].  
+[^b]: [[Genesis 2.24|Gen. 2:24]].  

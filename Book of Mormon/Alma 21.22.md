@@ -5,4 +5,4 @@
 [Alma 21:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p22#p22)
 
 
-[^a]: [[Luke 4.8|Luke 4:8]]; [[D&C 93.19|D&C 93:19]]; [[D&C 134.4|134:4 (1-4)]]; A of F 1:11. TG [[Liberty]].
+[^a]: [[Luke 4.8|Luke 4:8]]; [[D&C 93.19|D&C 93:19]]; [[D&C 134.1|134:4 (1–4)]][[D&C 134.2|]][[D&C 134.3|]][[D&C 134.4|]]; [[Articles of Faith 1.11|A of F 1:11]]. [[Liberty|TG Liberty]].  

@@ -5,7 +5,7 @@
 [Mosiah 29:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p40#p40)
 
 
-[^a]: TG [[Tyranny]].
-[^b]: [[Titus 1.11|Titus 1:11.]]
-[^c]: TG [[Bribe, Bribery]].
-[^d]: TG [[Peacemakers]].
+[^a]: [[Tyranny|TG Tyranny]].  
+[^b]: [[Titus 1.11|Titus 1:11]].  
+[^c]: [[Bribe, Bribery|TG Bribe]].  
+[^d]: [[Peacemakers|TG Peacemakers]].  

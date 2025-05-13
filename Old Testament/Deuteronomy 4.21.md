@@ -5,4 +5,4 @@
 [Deuteronomy 4:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.21?lang=eng#p21)
 
 
-[^a]: TG [[God, Indignation of]].
+[^a]: [[God, Indignation of|TG God, Indignation of]].  

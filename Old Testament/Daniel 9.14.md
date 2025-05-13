@@ -5,5 +5,5 @@
 [Daniel 9:14](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 31.28|Jer. 31:28.]]
-[^b]: TG [[Disobedience, Disobey]].
+[^a]: [[Jeremiah 31.28|Jer. 31:28]].  
+[^b]: [[Disobedience, Disobey|TG Disobedience]].  

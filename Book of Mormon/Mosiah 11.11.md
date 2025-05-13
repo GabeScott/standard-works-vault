@@ -5,4 +5,4 @@
 [Mosiah 11:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p11#p11)
 
 
-[^a]: [[Mosiah 11.5|Mosiah 11:5 (5, 14)]]; [[Mosiah 12.17|12:17.]]
+[^a]: [[Mosiah 11.5|Mosiah 11:5 (5, 14)]][[Mosiah 11.14|]]; [[Mosiah 12.17|12:17]].  

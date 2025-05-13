@@ -5,4 +5,4 @@
 [2 Kings 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/12.6?lang=eng#p6)
 
 
-[^a]: OR gaps, holes.
+[^a]: OR gaps, holes.  

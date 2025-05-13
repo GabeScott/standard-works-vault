@@ -5,5 +5,5 @@
 [Romans 10:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.20?lang=eng#p20)
 
 
-[^a]: IE Isaiah.
-[^b]: [[Isaiah 65.1|Isa. 65:1.]]
+[^a]: IE Isaiah.  
+[^b]: [[Isaiah 65.1|Isa. 65:1]].  

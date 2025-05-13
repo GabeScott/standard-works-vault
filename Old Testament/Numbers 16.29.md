@@ -5,4 +5,4 @@
 [Numbers 16:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.29?lang=eng#p29)
 
 
-[^a]: IE by death as all men are.
+[^a]: IE by death as all men are.  

@@ -5,4 +5,4 @@
 [Isaiah 42:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.21?lang=eng#p21)
 
 
-[^a]: TG [[Honorable]].
+[^a]: [[Honor|TG Honor]].  

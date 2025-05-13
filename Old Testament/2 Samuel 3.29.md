@@ -5,4 +5,4 @@
 [2 Samuel 3:29](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/3.29?lang=eng#p29)
 
 
-[^a]: [[1 Kings 2.33|1 Kgs. 2:33 (32-33).]]
+[^a]: [[1 Kings 2.32|1 Kgs. 2:33 (32–33)]][[1 Kings 2.33|]].  

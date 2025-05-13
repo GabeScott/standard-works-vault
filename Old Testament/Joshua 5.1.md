@@ -5,5 +5,5 @@
 [Joshua 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.1?lang=eng#p1)
 
 
-[^a]: Ex. 15:14-16.
-[^b]: [[Joshua 2.11|Josh. 2:11.]]
+[^a]: [[Exodus 15.14|Ex. 15:14–16]][[Exodus 15.15|]][[Exodus 15.16|]].  
+[^b]: [[Joshua 2.11|Josh. 2:11]].  

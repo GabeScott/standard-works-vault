@@ -5,5 +5,5 @@
 [John 12:40](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.40?lang=eng#p40)
 
 
-[^a]: TG [[Spiritual Blindness]].
-[^b]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[Spiritual Blindness|TG Spiritual Blindness]].  
+[^b]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

@@ -5,4 +5,4 @@
 [Joshua 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.4?lang=eng#p4)
 
 
-[^a]: [[Joshua 15.12|Josh. 15:12.]]
+[^a]: [[Joshua 15.12|Josh. 15:12]].  

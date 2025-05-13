@@ -5,6 +5,6 @@
 [Moses 7:32](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.32?lang=eng#p32)
 
 
-[^a]: [[Moses 1.4|Moses 1:4.]]
-[^b]: TG [[God, Intelligence of]]; [[Knowledge]].
-[^c]: TG [[Agency]].
+[^a]: [[Moses 1.4|Moses 1:4]].  
+[^b]: [[God, Intelligence of|TG God, Intelligence of]]; [[Knowledge|Knowledge]].  
+[^c]: [[Agency|TG Agency]].  

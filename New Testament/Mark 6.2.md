@@ -5,4 +5,4 @@
 [Mark 6:2](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.2?lang=eng#p2)
 
 
-[^a]: [[Ecclesiastes 9.16|Eccl. 9:16.]]
+[^a]: [[Ecclesiastes 9.16|Eccl. 9:16]].  

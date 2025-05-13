@@ -5,6 +5,6 @@
 [Acts 14:23](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.23?lang=eng#p23)
 
 
-[^a]: TG [[Authority]]; [[Priesthood, History of]]; [[Priesthood, Ordination]].
-[^b]: TG [[Church Organization]]; [[Elder, Melchizedek Priesthood]].
-[^c]: TG [[Fast, Fasting]].
+[^a]: [[Authority|TG Authority]]; [[Priesthood, History of|Priesthood, History of]]; [[Priesthood, Ordination|Priesthood, Ordination]].  
+[^b]: [[Church Organization|TG Church Organization]]; [[Elder, Melchizedek Priesthood|Elder, Melchizedek Priesthood]].  
+[^c]: [[Fast, Fasting|TG Fast, Fasting]].  

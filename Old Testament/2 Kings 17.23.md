@@ -5,7 +5,7 @@
 [2 Kings 17:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.23?lang=eng#p23)
 
 
-[^a]: [[1 Kings 9.7|1 Kgs. 9:7 (1-7).]]
-[^b]: TG [[Israel, Ten Lost Tribes of]].
-[^c]: [[Hosea 1.6|Hosea 1:6.]]
-[^d]: TG [[Israel, Land of]].
+[^a]: [[1 Kings 9.1|1 Kgs. 9:7 (1–7)]][[1 Kings 9.2|]][[1 Kings 9.3|]][[1 Kings 9.4|]][[1 Kings 9.5|]][[1 Kings 9.6|]][[1 Kings 9.7|]].  
+[^b]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  
+[^c]: [[Hosea 1.6|Hosea 1:6]].  
+[^d]: [[Israel, Land of|TG Israel, Land of]].  

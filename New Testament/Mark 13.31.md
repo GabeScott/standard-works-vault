@@ -5,4 +5,4 @@
 [Mark 13:31](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.31?lang=eng#p31)
 
 
-[^a]: [[D&C 64.31|D&C 64:31.]]
+[^a]: [[D&C 64.31|D&C 64:31]].  

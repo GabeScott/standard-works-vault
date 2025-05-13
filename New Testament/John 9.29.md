@@ -5,4 +5,4 @@
 [John 9:29](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.29?lang=eng#p29)
 
 
-[^a]: [[John 8.14|John 8:14.]]
+[^a]: [[John 8.14|John 8:14]].  

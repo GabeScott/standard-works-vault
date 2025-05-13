@@ -5,4 +5,4 @@
 [Helaman 16:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/16?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 30.53|Alma 30:53.]]
+[^a]: [[Alma 30.53|Alma 30:53]].  

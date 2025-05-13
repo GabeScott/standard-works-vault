@@ -5,4 +5,4 @@
 [Zechariah 14:18](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.18?lang=eng#p18)
 
 
-[^a]: [[Isaiah 60.12|Isa. 60:12.]]
+[^a]: [[Isaiah 60.12|Isa. 60:12]].  

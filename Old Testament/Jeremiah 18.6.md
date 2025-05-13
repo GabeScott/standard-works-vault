@@ -5,4 +5,4 @@
 [Jeremiah 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/18.6?lang=eng#p6)
 
 
-[^a]: [[Isaiah 45.9|Isa. 45:9]]; [[Romans 9.21|Rom. 9:21]]; [[2 Nephi 27.27|2 Ne. 27:27.]]
+[^a]: [[Isaiah 45.9|Isa. 45:9]]; [[Romans 9.21|Rom. 9:21]]; [[2 Nephi 27.27|2 Ne. 27:27]].  

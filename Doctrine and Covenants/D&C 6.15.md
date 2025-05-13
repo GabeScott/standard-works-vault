@@ -5,6 +5,6 @@
 [D&C 6:15](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.15?lang=eng#p15)
 
 
-[^a]: TG [[Mind, Minded]].
-[^b]: [[Ephesians 1.18|Eph. 1:18]]. TG [[Holy Ghost, Mission of]].
-[^c]: TG [[God, Spirit of]].
+[^a]: [[Mind, Minded|TG Mind]].  
+[^b]: [[Ephesians 1.18|Eph. 1:18]]. [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  
+[^c]: [[God, Spirit of|TG God, Spirit of]].  

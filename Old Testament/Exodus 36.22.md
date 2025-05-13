@@ -5,4 +5,4 @@
 [Exodus 36:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.22?lang=eng#p22)
 
 
-[^a]: HEB which made them fit one to another.
+[^a]: HEB which made them fit one to another.  

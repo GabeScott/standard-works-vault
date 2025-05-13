@@ -5,4 +5,4 @@
 [Numbers 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.3?lang=eng#p3)
 
 
-[^a]: IE figurative discourse.
+[^a]: IE figurative discourse.  

@@ -5,4 +5,4 @@
 [Job 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/9.7?lang=eng#p7)
 
 
-[^a]: IE hideth from view.
+[^a]: IE hideth from view.  

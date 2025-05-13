@@ -5,6 +5,6 @@
 [John 8:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.11?lang=eng#p11)
 
 
-[^a]: TG [[Benevolence]]; [[Mercy, Merciful]].
-[^b]: [[D&C 42.25|D&C 42:25.]]
-[^c]: JST John 8:11 … more. And the woman glorified God from that hour, and believed on his name.
+[^a]: [[Benevolence|TG Benevolence]]; [[Mercy, Merciful|Mercy]].  
+[^b]: [[D&C 42.25|D&C 42:25]].  
+[^c]: JST John 8:11 … more. And the woman glorified God from that hour, and believed on his name.  

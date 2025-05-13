@@ -5,6 +5,6 @@
 [3 Nephi 29:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/29?lang=eng&id=p8#p8)
 
 
-[^a]: [[1 Nephi 19.14|1 Ne. 19:14.]]
-[^b]: [[2 Nephi 29.5|2 Ne. 29:5 (4-5)]]. TG [[Backbiting]].
-[^c]: TG [[Israel, Judah, People of]].
+[^a]: [[1 Nephi 19.14|1 Ne. 19:14]].  
+[^b]: [[2 Nephi 29.4|2 Ne. 29:5 (4–5)]][[2 Nephi 29.5|]]. [[Backbiting|TG Backbiting]].  
+[^c]: [[Israel, Judah, People of|TG Israel, Judah, People of]].  

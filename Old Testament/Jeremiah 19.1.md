@@ -5,5 +5,5 @@
 [Jeremiah 19:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/19.1?lang=eng#p1)
 
 
-[^a]: [[Jeremiah 18.2|Jer. 18:2.]]
-[^b]: OR elders.
+[^a]: [[Jeremiah 18.2|Jer. 18:2]].  
+[^b]: OR elders.  

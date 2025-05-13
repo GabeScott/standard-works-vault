@@ -5,4 +5,4 @@
 [Judges 17:9](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/17.9?lang=eng#p9)
 
 
-[^a]: [[Judges 19.1|Judg. 19:1 (1, 18).]]
+[^a]: [[Judges 19.1|Judg. 19:1 (1, 18)]][[Judges 19.18|]].  

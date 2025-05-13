@@ -5,4 +5,4 @@
 [Joshua 6:18](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.18?lang=eng#p18)
 
 
-[^a]: IE those things under a ban for the people to take, or dedicated for a sacrifice to the Lord. Josh. 7:1; [[1 Chronicles 2.7|1 Chr. 2:7.]]
+[^a]: IE those things under a ban for the people to take, or dedicated for a sacrifice to the Lord. [[Joshua 7.1|Josh. 7:1]]; [[1 Chronicles 2.7|1 Chr. 2:7]].  

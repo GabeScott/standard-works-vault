@@ -5,5 +5,5 @@
 [Psalms 98:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/98.3?lang=eng#p3)
 
 
-[^a]: [[Genesis 24.27|Gen. 24:27]]; [[3 Nephi 5.21|3 Ne. 5:21 (21-26).]]
-[^b]: TG [[Salvation for the Dead]].
+[^a]: [[Genesis 24.27|Gen. 24:27]]; [[3 Nephi 5.21|3 Ne. 5:21 (21–26)]][[3 Nephi 5.22|]][[3 Nephi 5.23|]][[3 Nephi 5.24|]][[3 Nephi 5.25|]][[3 Nephi 5.26|]].  
+[^b]: [[Salvation|TG Salvation]].  

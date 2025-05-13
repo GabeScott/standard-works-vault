@@ -5,4 +5,4 @@
 [Job 31:30](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.30?lang=eng#p30)
 
 
-[^a]: TG [[Curse]].
+[^a]: [[Curse|TG Curse]].  

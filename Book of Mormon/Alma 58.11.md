@@ -5,4 +5,4 @@
 [Alma 58:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/58?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Deliver, Deliverance]].
+[^a]: [[Deliver, Deliverance|TG Deliver]].  

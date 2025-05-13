@@ -5,4 +5,4 @@
 [Genesis 28:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.20?lang=eng#p20)
 
 
-[^a]: TG [[Vow]].
+[^a]: [[Vow|TG Vow]].  

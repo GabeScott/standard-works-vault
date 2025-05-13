@@ -5,4 +5,4 @@
 [1 Corinthians 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.1?lang=eng#p1)
 
 
-[^a]: TG [[Testimony]].
+[^a]: [[Testimony|TG Testimony]].  

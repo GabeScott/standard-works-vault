@@ -5,4 +5,4 @@
 [Nehemiah 6:6](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/6.6?lang=eng#p6)
 
 
-[^a]: OR Geshem.
+[^a]: OR Geshem.  

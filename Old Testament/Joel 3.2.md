@@ -5,6 +5,6 @@
 [Joel 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.2?lang=eng#p2)
 
 
-[^a]: [[Micah 4.11|Micah 4:11]]; Zeph. 3:8.
-[^b]: [[Isaiah 66.16|Isa. 66:16]]; [[Jeremiah 25.31|Jer. 25:31]]; [[Ezekiel 38.22|Ezek. 38:22.]]
-[^c]: [[Isaiah 19.25|Isa. 19:25.]]
+[^a]: [[Micah 4.11|Micah 4:11]]; [[Zephaniah 3.8|Zeph. 3:8]].  
+[^b]: [[Isaiah 66.16|Isa. 66:16]]; [[Jeremiah 25.31|Jer. 25:31]]; [[Ezekiel 38.22|Ezek. 38:22]].  
+[^c]: [[Isaiah 19.25|Isa. 19:25]].  

@@ -5,5 +5,5 @@
 [Jacob 7:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 21.8|Alma 21:8]]; [[Alma 30.12|30:12 (12, 22).]]
-[^b]: TG [[False Doctrine]].
+[^a]: [[Alma 21.8|Alma 21:8]]; [[Alma 30.12|30:12 (12, 22)]][[Alma 30.22|]].  
+[^b]: [[False Doctrine|TG False Doctrine]].  

@@ -5,5 +5,5 @@
 [Genesis 24:60](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.60?lang=eng#p60)
 
 
-[^b]: [[Genesis 22.17|Gen. 22:17.]]
-[^c]: TG [[Hate]].
+[^b]: [[Genesis 22.17|Gen. 22:17]].  
+[^c]: [[Hate|TG Hate]].  

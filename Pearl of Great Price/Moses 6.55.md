@@ -5,6 +5,6 @@
 [Moses 6:55](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.55?lang=eng#p55)
 
 
-[^a]: TG [[Conceived in Sin]].
-[^b]: TG [[Death, Spiritual, First]]; [[Man, Natural, Not Spiritually Reborn]].
-[^c]: [[D&C 29.39|D&C 29:39]]. TG [[Opposition]].
+[^a]: [[Conceived in Sin|TG Conceived in Sin]].  
+[^b]: [[Death, Spiritual, First|TG Death, Spiritual, First]]; [[Man, Natural, Not Spiritually Reborn|Man, Natural, Not Spiritually Reborn]].  
+[^c]: [[D&C 29.39|D&C 29:39]]. [[Opposition|TG Opposition]].  

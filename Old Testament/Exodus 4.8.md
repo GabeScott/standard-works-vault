@@ -5,4 +5,4 @@
 [Exodus 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.8?lang=eng#p8)
 
 
-[^a]: TG [[Signs]].
+[^a]: [[Signs|TG Signs]].  

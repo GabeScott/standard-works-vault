@@ -5,4 +5,4 @@
 [Micah 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.12?lang=eng#p12)
 
 
-[^a]: Hab. 1:2.
+[^a]: [[Habakkuk 1.2|Hab. 1:2]].  

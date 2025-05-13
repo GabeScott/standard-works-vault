@@ -5,7 +5,7 @@
 [Deuteronomy 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.6?lang=eng#p6)
 
 
-[^a]: TG [[Israel, Blessings of]]; [[Wisdom]].
-[^b]: TG [[Understanding]].
-[^c]: TG [[Israel, Mission of]].
-[^d]: [[Hosea 8.12|Hosea 8:12 (11-12).]]
+[^a]: [[Israel, Blessings of|TG Israel, Blessings of]]; [[Wisdom|Wisdom]].  
+[^b]: [[Understanding|TG Understanding]].  
+[^c]: [[Israel, Mission of|TG Israel, Mission of]].  
+[^d]: [[Hosea 8.11|Hosea 8:12 (11–12)]][[Hosea 8.12|]].  

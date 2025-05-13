@@ -5,4 +5,4 @@
 [1 Nephi 12:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/12?lang=eng&id=p2#p2)
 
 
-[^a]: [[Enos 1.24|Enos 1:24]]; [[Mormon 8.7|Morm. 8:7 (7-8)]]. TG [[War]].
+[^a]: [[Enos 1.24|Enos 1:24]]; [[Mormon 8.7|Morm. 8:7 (7–8)]][[Mormon 8.8|]]. [[War|TG War]].  

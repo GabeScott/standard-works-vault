@@ -5,5 +5,5 @@
 [Acts 18:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.3?lang=eng#p3)
 
 
-[^a]: [[Acts 20.34|Acts 20:34]]; 1 Thes. 2:9.
-[^b]: TG [[Skill]].
+[^a]: [[Acts 20.34|Acts 20:34]]; [[1 Thessalonians 2.9|1 Thes. 2:9]].  
+[^b]: [[Skill|TG Skill]].  

@@ -5,5 +5,5 @@
 [Revelation 18:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.9?lang=eng#p9)
 
 
-[^a]: [[Jeremiah 51.8|Jer. 51:8.]]
-[^b]: [[Genesis 19.28|Gen. 19:28.]]
+[^a]: [[Jeremiah 51.8|Jer. 51:8]].  
+[^b]: [[Genesis 19.28|Gen. 19:28]].  

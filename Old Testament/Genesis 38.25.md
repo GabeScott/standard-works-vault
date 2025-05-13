@@ -5,4 +5,4 @@
 [Genesis 38:25](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/38.25?lang=eng#p25)
 
 
-[^a]: [[Genesis 38.18|Gen. 38:18.]]
+[^a]: [[Genesis 38.18|Gen. 38:18]].  

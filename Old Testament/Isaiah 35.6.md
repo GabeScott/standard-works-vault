@@ -5,5 +5,5 @@
 [Isaiah 35:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/35.6?lang=eng#p6)
 
 
-[^a]: OR deer.
-[^b]: TG [[Singing, Sing, Sang, Sung]].
+[^a]: OR deer.  
+[^b]: [[Singing, Sing, Sang, Sung|TG Singing]].  

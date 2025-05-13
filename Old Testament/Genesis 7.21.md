@@ -5,4 +5,4 @@
 [Genesis 7:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/7.21?lang=eng#p21)
 
 
-[^a]: OR the whole of mankind.
+[^a]: OR the whole of mankind.  

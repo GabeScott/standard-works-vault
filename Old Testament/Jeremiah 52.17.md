@@ -5,5 +5,5 @@
 [Jeremiah 52:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.17?lang=eng#p17)
 
 
-[^a]: [[Jeremiah 27.19|Jer. 27:19 (16-22).]]
-[^b]: TG [[Genealogy and Temple Work]].
+[^a]: [[Jeremiah 27.16|Jer. 27:19 (16–22)]][[Jeremiah 27.17|]][[Jeremiah 27.18|]][[Jeremiah 27.19|]][[Jeremiah 27.20|]][[Jeremiah 27.21|]][[Jeremiah 27.22|]].  
+[^b]: [[Temple|TG Temple]].  

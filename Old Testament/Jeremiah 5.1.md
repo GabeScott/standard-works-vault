@@ -5,4 +5,4 @@
 [Jeremiah 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.1?lang=eng#p1)
 
 
-[^a]: OR does justly. Gen. 18:26; [[Ezekiel 22.30|Ezek. 22:30.]]
+[^a]: OR does justly. [[Genesis 18.26|Gen. 18:26]]; [[Ezekiel 22.30|Ezek. 22:30]].  

@@ -5,5 +5,5 @@
 [Jeremiah 36:32](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.32?lang=eng#p32)
 
 
-[^a]: TG [[Scribe]].
-[^b]: TG [[Scriptures, Preservation of]].
+[^a]: [[Scribe|TG Scribe]].  
+[^b]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  

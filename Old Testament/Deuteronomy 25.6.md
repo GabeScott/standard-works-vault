@@ -5,6 +5,6 @@
 [Deuteronomy 25:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.6?lang=eng#p6)
 
 
-[^a]: [[Ruth 4.6|Ruth 4:6]]. TG [[Name of the Lord]].
-[^b]: [[Ruth 4.10|Ruth 4:10.]]
-[^c]: HEB blotted.
+[^a]: [[Ruth 4.6|Ruth 4:6]]. [[Name|TG Name]].  
+[^b]: [[Ruth 4.10|Ruth 4:10]].  
+[^c]: HEB blotted.  

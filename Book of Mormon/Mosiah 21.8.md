@@ -5,4 +5,4 @@
 [Mosiah 21:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mosiah 21.29|Mosiah 21:29.]]
+[^a]: [[Mosiah 21.29|Mosiah 21:29]].  

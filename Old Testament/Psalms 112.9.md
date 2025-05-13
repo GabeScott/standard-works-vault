@@ -5,4 +5,4 @@
 [Psalms 112:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/112.9?lang=eng#p9)
 
 
-[^a]: TG [[Almsgiving]]; [[Generosity]].
+[^a]: [[Almsgiving|TG Almsgiving]]; [[Generosity|Generosity]].  

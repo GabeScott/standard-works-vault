@@ -5,5 +5,5 @@
 [Genesis 33:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/33.17?lang=eng#p17)
 
 
-[^a]: IE Booths.
-[^b]: [[Joshua 13.27|Josh. 13:27]]; [[Psalms 60.6|Ps. 60:6.]]
+[^a]: IE Booths.  
+[^b]: [[Joshua 13.27|Josh. 13:27]]; [[Psalms 60.6|Ps. 60:6]].  

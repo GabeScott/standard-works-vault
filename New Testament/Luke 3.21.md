@@ -5,4 +5,4 @@
 [Luke 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.21?lang=eng#p21)
 
 
-[^a]: TG [[Baptism, Essential]]; [[Jesus Christ, Baptism of]].
+[^a]: [[Baptism, Essential|TG Baptism, Essential]]; [[Jesus Christ, Baptism of|Jesus Christ, Baptism of]].  

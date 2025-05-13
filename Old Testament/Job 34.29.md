@@ -5,4 +5,4 @@
 [Job 34:29](https://www.churchofjesuschrist.org/study/scriptures/ot/job/34.29?lang=eng#p29)
 
 
-[^a]: TG [[Silence, Silent]].
+[^a]: [[Silence, Silent|TG Silence]].  

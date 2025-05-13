@@ -5,6 +5,6 @@
 [Ether 2:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p1#p1)
 
 
-[^a]: [[Ether 1.36|Ether 1:36.]]
-[^b]: [[Genesis 10.8|Gen. 10:8]]; [[1 Chronicles 1.10|1 Chr. 1:10.]]
-[^c]: [[Ether 1.41|Ether 1:41]]; [[Ether 6.4|6:4]]; [[Ether 9.18|9:18 (18-19).]]
+[^a]: [[Ether 1.36|Ether 1:36]].  
+[^b]: [[Genesis 10.8|Gen. 10:8]]; [[1 Chronicles 1.10|1 Chr. 1:10]].  
+[^c]: [[Ether 1.41|Ether 1:41]]; [[Ether 6.4|6:4]]; [[Ether 9.18|9:18 (18–19)]][[Ether 9.19|]].  

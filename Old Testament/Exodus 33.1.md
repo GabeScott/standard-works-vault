@@ -5,5 +5,5 @@
 [Exodus 33:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 10.11|Deut. 10:11.]]
-[^b]: [[Genesis 12.7|Gen. 12:7]]; [[Abraham 2.6|Abr. 2:6 (3-6, 19)]]. TG [[Seed of Abraham]].
+[^a]: [[Deuteronomy 10.11|Deut. 10:11]].  
+[^b]: [[Genesis 12.7|Gen. 12:7]]; [[Abraham 2.3|Abr. 2:6 (3–6, 19)]][[Abraham 2.4|]][[Abraham 2.5|]][[Abraham 2.6|]][[Abraham 2.19|]]. [[Seed of Abraham|TG Seed of Abraham]].  

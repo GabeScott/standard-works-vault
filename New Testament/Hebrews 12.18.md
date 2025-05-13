@@ -5,4 +5,4 @@
 [Hebrews 12:18](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.18?lang=eng#p18)
 
 
-[^a]: [[Exodus 19.12|Ex. 19:12 (12, 16, 18).]]
+[^a]: [[Exodus 19.12|Ex. 19:12 (12, 16, 18)]][[Exodus 19.16|]][[Exodus 19.18|]].  

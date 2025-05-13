@@ -5,4 +5,4 @@
 [Acts 20:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.32?lang=eng#p32)
 
 
-[^a]: TG [[Inheritance]].
+[^a]: [[Inheritance|TG Inheritance]].  

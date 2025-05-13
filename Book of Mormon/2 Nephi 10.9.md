@@ -5,5 +5,5 @@
 [2 Nephi 10:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p9#p9)
 
 
-[^a]: [[Isaiah 49.22|Isa. 49:22 (22-23)]]; [[2 Nephi 6.6|2 Ne. 6:6.]]
-[^b]: [[1 Nephi 22.8|1 Ne. 22:8 (1-9)]]; [[Alma 9.24|Alma 9:24]]; [[D&C 3.20|D&C 3:20.]]
+[^a]: [[Isaiah 49.22|Isa. 49:22 (22–23)]][[Isaiah 49.23|]]; [[2 Nephi 6.6|2 Ne. 6:6]].  
+[^b]: [[1 Nephi 22.1|1 Ne. 22:8 (1–9)]][[1 Nephi 22.2|]][[1 Nephi 22.3|]][[1 Nephi 22.4|]][[1 Nephi 22.5|]][[1 Nephi 22.6|]][[1 Nephi 22.7|]][[1 Nephi 22.8|]][[1 Nephi 22.9|]]; [[Alma 9.24|Alma 9:24]]; [[D&C 3.20|D&C 3:20]].  

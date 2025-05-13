@@ -5,6 +5,6 @@
 [Alma 46:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Israel, Remnant of]].
-[^b]: TG [[Israel, Joseph, People of]].
-[^c]: [[Genesis 37.3|Gen. 37:3 (3, 31-36).]]
+[^a]: [[Israel, Remnant of|TG Israel, Remnant of]].  
+[^b]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  
+[^c]: [[Genesis 37.3|Gen. 37:3 (3, 31–36)]][[Genesis 37.31|]][[Genesis 37.32|]][[Genesis 37.33|]][[Genesis 37.34|]][[Genesis 37.35|]][[Genesis 37.36|]].  

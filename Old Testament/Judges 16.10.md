@@ -5,4 +5,4 @@
 [Judges 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16.10?lang=eng#p10)
 
 
-[^a]: TG [[Mocking, Mock, Mocker, Mockery]].
+[^a]: [[Mocking, Mock, Mocker, Mockery|TG Mocking]].  

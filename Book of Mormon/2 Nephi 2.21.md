@@ -5,8 +5,8 @@
 [2 Nephi 2:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p21#p21)
 
 
-[^a]: [[Job 14.1|Job 14:1]]; [[Alma 12.24|Alma 12:24]]; [[Moses 4.23|Moses 4:23 (22-25).]]
-[^b]: TG [[God, Will of]].
-[^c]: [[Alma 34.32|Alma 34:32]]. TG [[Repent, Repentance]].
-[^d]: TG [[Mortality]]; [[Probation, Probationary]].
-[^e]: [[Jacob 7.12|Jacob 7:12.]]
+[^a]: [[Job 14.1|Job 14:1]]; [[Alma 12.24|Alma 12:24]]; [[Moses 4.22|Moses 4:23 (22–25)]][[Moses 4.23|]][[Moses 4.24|]][[Moses 4.25|]].  
+[^b]: [[God, Will of|TG God, Will of]].  
+[^c]: [[Alma 34.32|Alma 34:32]]. [[Repent, Repentance|TG Repent]].  
+[^d]: [[Mortality|TG Mortality]]; [[Probation, Probationary|Probation]].  
+[^e]: [[Jacob 7.12|Jacob 7:12]].  

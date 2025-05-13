@@ -5,4 +5,4 @@
 [Psalms 60:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/60.4?lang=eng#p4)
 
 
-[^a]: [[2 Nephi 29.2|2 Ne. 29:2.]]
+[^a]: [[2 Nephi 29.2|2 Ne. 29:2]].  

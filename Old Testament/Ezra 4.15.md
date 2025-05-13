@@ -5,5 +5,5 @@
 [Ezra 4:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.15?lang=eng#p15)
 
 
-[^a]: TG [[Record Keeping]].
-[^b]: TG [[Scriptures, Writing of]].
+[^a]: [[Record Keeping|TG Record Keeping]].  
+[^b]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  

@@ -5,4 +5,4 @@
 [Numbers 34:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/34.15?lang=eng#p15)
 
 
-[^a]: OR east of Jericho.
+[^a]: OR east of Jericho.  

@@ -5,6 +5,6 @@
 [Alma 37:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mosiah 2.34|Mosiah 2:34]]; [[Alma 33.2|Alma 33:2.]]
-[^b]: [[Mosiah 1.3|Mosiah 1:3 (3-5).]]
-[^c]: TG [[Education]]; [[Scriptures, Value of]].
+[^a]: [[Mosiah 2.34|Mosiah 2:34]]; [[Alma 33.2|Alma 33:2]].  
+[^b]: [[Mosiah 1.3|Mosiah 1:3 (3–5)]][[Mosiah 1.4|]][[Mosiah 1.5|]].  
+[^c]: [[Education|TG Education]]; [[Scriptures, Value of|Scriptures, Value of]].  

@@ -5,4 +5,4 @@
 [Luke 15:32](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.32?lang=eng#p32)
 
 
-[^a]: GR necessary.
+[^a]: GR necessary.  

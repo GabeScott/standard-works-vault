@@ -5,5 +5,5 @@
 [Isaiah 54:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.4?lang=eng#p4)
 
 
-[^a]: TG [[Shame]].
-[^b]: TG [[Reproach]].
+[^a]: [[Shame|TG Shame]].  
+[^b]: [[Reproach|TG Reproach]].  

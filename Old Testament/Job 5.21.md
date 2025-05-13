@@ -5,4 +5,4 @@
 [Job 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/5.21?lang=eng#p21)
 
 
-[^a]: [[D&C 38.30|D&C 38:30.]]
+[^a]: [[D&C 38.30|D&C 38:30]].  

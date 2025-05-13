@@ -5,5 +5,5 @@
 [Alma 24:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 26.32|Alma 26:32.]]
-[^b]: [[Mosiah 16.7|Mosiah 16:7.]]
+[^a]: [[Alma 26.32|Alma 26:32]].  
+[^b]: [[Mosiah 16.7|Mosiah 16:7]].  

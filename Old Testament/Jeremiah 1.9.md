@@ -5,6 +5,6 @@
 [Jeremiah 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.9?lang=eng#p9)
 
 
-[^a]: [[Isaiah 6.7|Isa. 6:7.]]
-[^b]: TG [[Prophecy]].
-[^c]: [[Exodus 4.12|Ex. 4:12 (12-16).]]
+[^a]: [[Isaiah 6.7|Isa. 6:7]].  
+[^b]: [[Prophecy|TG Prophecy]].  
+[^c]: [[Exodus 4.12|Ex. 4:12 (12–16)]][[Exodus 4.13|]][[Exodus 4.14|]][[Exodus 4.15|]][[Exodus 4.16|]].  

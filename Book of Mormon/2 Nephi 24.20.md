@@ -5,5 +5,5 @@
 [2 Nephi 24:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p20#p20)
 
 
-[^a]: [[Psalms 21.10|Ps. 21:10 (10-11)]]; [[Psalms 37.28|37:28]]; [[Psalms 109.13|109:13.]]
-[^b]: TG [[Wickedness, Wicked]].
+[^a]: [[Psalms 21.10|Ps. 21:10 (10–11)]][[Psalms 21.11|]]; [[Psalms 37.28|37:28]]; [[Psalms 109.13|109:13]].  
+[^b]: [[Wickedness, Wicked|TG Wickedness]].  

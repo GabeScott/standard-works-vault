@@ -5,4 +5,4 @@
 [Matthew 17:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.1?lang=eng#p1)
 
 
-[^a]: [[D&C 128.20|D&C 128:20.]]
+[^a]: [[D&C 128.20|D&C 128:20]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 12:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.17?lang=eng#p17)
 
 
-[^a]: HEB grain.
+[^a]: HEB grain.  

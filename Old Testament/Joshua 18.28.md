@@ -5,6 +5,6 @@
 [Joshua 18:28](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/18.28?lang=eng#p28)
 
 
-[^a]: [[Joshua 15.8|Josh. 15:8.]]
-[^b]: [[2 Samuel 21.6|2 Sam. 21:6.]]
-[^c]: [[Judges 1.21|Judg. 1:21]]; [[Judges 19.14|19:14.]]
+[^a]: [[Joshua 15.8|Josh. 15:8]].  
+[^b]: [[2 Samuel 21.6|2 Sam. 21:6]].  
+[^c]: [[Judges 1.21|Judg. 1:21]]; [[Judges 19.14|19:14]].  

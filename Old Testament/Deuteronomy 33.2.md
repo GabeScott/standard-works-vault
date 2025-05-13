@@ -5,5 +5,5 @@
 [Deuteronomy 33:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.2?lang=eng#p2)
 
 
-[^a]: [[Psalms 50.2|Ps. 50:2.]]
-[^b]: Hab. 3:3.
+[^a]: [[Psalms 50.2|Ps. 50:2]].  
+[^b]: [[Habakkuk 3.3|Hab. 3:3]].  

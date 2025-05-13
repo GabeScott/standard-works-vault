@@ -5,4 +5,4 @@
 [Zechariah 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Israel, Judah, People of]].
+[^a]: [[Israel, Judah, People of|TG Israel, Judah, People of]].  

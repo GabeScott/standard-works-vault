@@ -5,4 +5,4 @@
 [Jeremiah 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.22?lang=eng#p22)
 
 
-[^a]: [[Jeremiah 46.11|Jer. 46:11.]]
+[^a]: [[Jeremiah 46.11|Jer. 46:11]].  

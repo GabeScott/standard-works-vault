@@ -5,4 +5,4 @@
 [Mosiah 6:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/6?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

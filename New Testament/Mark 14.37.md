@@ -5,4 +5,4 @@
 [Mark 14:37](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.37?lang=eng#p37)
 
 
-[^a]: [[D&C 76.107|D&C 76:107]]; [[D&C 122.8|122:8 (7-8).]]
+[^a]: [[D&C 76.107|D&C 76:107]]; [[D&C 122.7|122:8 (7–8)]][[D&C 122.8|]].  

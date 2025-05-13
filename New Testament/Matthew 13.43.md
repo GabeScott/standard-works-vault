@@ -5,6 +5,6 @@
 [Matthew 13:43](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.43?lang=eng#p43)
 
 
-[^a]: [[Psalms 68.3|Ps. 68:3]]; [[Alma 40.25|Alma 40:25]]. TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Celestial Glory]].
-[^c]: [[D&C 76.70|D&C 76:70.]]
+[^a]: [[Psalms 68.3|Ps. 68:3]]; [[Alma 40.25|Alma 40:25]]. [[Righteousness|TG Righteousness]].  
+[^b]: [[Celestial Glory|TG Celestial Glory]].  
+[^c]: [[D&C 76.70|D&C 76:70]].  

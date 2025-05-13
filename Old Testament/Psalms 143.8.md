@@ -5,5 +5,5 @@
 [Psalms 143:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/143.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 33.13|Ex. 33:13 (12-13)]]; [[Psalms 25.4|Ps. 25:4 (1-5).]]
-[^b]: [[Psalms 25.1|Ps. 25:1]]; [[Psalms 86.4|86:4]]; Lam. 3:41.
+[^a]: [[Exodus 33.12|Ex. 33:13 (12–13)]][[Exodus 33.13|]]; [[Psalms 25.1|Ps. 25:4 (1–5)]][[Psalms 25.2|]][[Psalms 25.3|]][[Psalms 25.4|]][[Psalms 25.5|]].  
+[^b]: [[Psalms 25.1|Ps. 25:1]]; [[Psalms 86.4|86:4]]; [[Lamentations 3.41|Lam. 3:41]].  

@@ -5,5 +5,5 @@
 [Ecclesiastes 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.6?lang=eng#p6)
 
 
-[^a]: TG [[Laughter, Laugh]]; [[Levity]].
-[^b]: TG [[Vanity]].
+[^a]: [[Laughter, Laugh|TG Laughter]]; [[Levity|Levity]].  
+[^b]: [[Vanity|TG Vanity]].  

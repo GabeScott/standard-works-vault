@@ -5,4 +5,4 @@
 [2 Nephi 19:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p18#p18)
 
 
-[^a]: Mal. 4:1.
+[^a]: [[Malachi 4.1|Mal. 4:1]].  

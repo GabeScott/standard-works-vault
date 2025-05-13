@@ -5,6 +5,6 @@
 [Romans 14:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.23?lang=eng#p23)
 
 
-[^a]: TG [[Doubt, Doubtful]].
-[^b]: TG [[Faith]].
-[^c]: TG [[Sin]].
+[^a]: [[Doubt, Doubtful|TG Doubt]].  
+[^b]: [[Faith|TG Faith]].  
+[^c]: [[Sin|TG Sin]].  

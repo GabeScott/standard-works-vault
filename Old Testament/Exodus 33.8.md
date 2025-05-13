@@ -5,4 +5,4 @@
 [Exodus 33:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.8?lang=eng#p8)
 
 
-[^a]: [[Numbers 16.27|Num. 16:27.]]
+[^a]: [[Numbers 16.27|Num. 16:27]].  

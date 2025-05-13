@@ -5,5 +5,5 @@
 [Alma 53:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Affliction]]; [[Tribulation]].
-[^b]: [[Alma 24.18|Alma 24:18 (17-19)]]; [[Alma 56.7|56:7.]]
+[^a]: [[Affliction|TG Affliction]]; [[Tribulation|Tribulation]].  
+[^b]: [[Alma 24.17|Alma 24:18 (17–19)]][[Alma 24.18|]][[Alma 24.19|]]; [[Alma 56.7|56:7]].  

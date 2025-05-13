@@ -5,5 +5,5 @@
 [Alma 42:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Murder, Murderer]].
-[^b]: TG [[Blood, Shedding of]].
+[^a]: [[Murder, Murderer|TG Murder]].  
+[^b]: [[Blood, Shedding of|TG Blood, Shedding of]].  

@@ -5,4 +5,4 @@
 [Luke 5:37](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.37?lang=eng#p37)
 
 
-[^a]: GR leather bags or wineskins.
+[^a]: GR leather bags or wineskins.  

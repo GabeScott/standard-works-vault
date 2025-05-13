@@ -5,6 +5,6 @@
 [Deuteronomy 29:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.19?lang=eng#p19)
 
 
-[^a]: OR oath; i.e., the covenant is a blessing to those who keep it, but a curse to those who don’t.
-[^b]: [[Psalms 49.18|Ps. 49:18 (16-20).]]
-[^c]: TG [[Drunkenness]].
+[^a]: OR oath; i.e., the covenant is a blessing to those who keep it, but a curse to those who don’t.  
+[^b]: [[Psalms 49.16|Ps. 49:18 (16–20)]][[Psalms 49.17|]][[Psalms 49.18|]][[Psalms 49.19|]][[Psalms 49.20|]].  
+[^c]: [[Drunkenness|TG Drunkenness]].  

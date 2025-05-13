@@ -5,5 +5,5 @@
 [Ephesians 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.15?lang=eng#p15)
 
 
-[^a]: TG [[Reproof, Reprove]].
-[^b]: Col. 2:19. TG [[Jesus Christ, Head of the Church]].
+[^a]: [[Reproof, Reprove|TG Reproof]].  
+[^b]: [[Colossians 2.19|Col. 2:19]]. [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]].  

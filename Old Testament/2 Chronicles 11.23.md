@@ -5,5 +5,5 @@
 [2 Chronicles 11:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/11.23?lang=eng#p23)
 
 
-[^a]: HEB sons.
-[^b]: OR sought for them many wives.
+[^a]: HEB sons.  
+[^b]: OR sought for them many wives.  

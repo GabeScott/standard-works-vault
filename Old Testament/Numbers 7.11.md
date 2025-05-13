@@ -5,4 +5,4 @@
 [Numbers 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/7.11?lang=eng#p11)
 
 
-[^a]: OR one leader per day.
+[^a]: OR one leader per day.  

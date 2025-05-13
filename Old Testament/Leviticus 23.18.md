@@ -5,4 +5,4 @@
 [Leviticus 23:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.18?lang=eng#p18)
 
 
-[^a]: HEB sheep, whole, a year old.
+[^a]: HEB sheep, whole, a year old.  

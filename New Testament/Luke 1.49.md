@@ -5,5 +5,5 @@
 [Luke 1:49](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.49?lang=eng#p49)
 
 
-[^a]: [[Psalms 126.2|Ps. 126:2.]]
-[^b]: [[Psalms 99.3|Ps. 99:3]]; [[Isaiah 57.15|Isa. 57:15.]]
+[^a]: [[Psalms 126.2|Ps. 126:2]].  
+[^b]: [[Psalms 99.3|Ps. 99:3]]; [[Isaiah 57.15|Isa. 57:15]].  

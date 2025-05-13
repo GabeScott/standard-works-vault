@@ -5,4 +5,4 @@
 [Psalms 31:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.9?lang=eng#p9)
 
 
-[^a]: OR body.
+[^a]: OR body.  

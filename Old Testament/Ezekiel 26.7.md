@@ -5,5 +5,5 @@
 [Ezekiel 26:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.7?lang=eng#p7)
 
 
-[^a]: [[Ezekiel 29.18|Ezek. 29:18.]]
-[^b]: [[Jeremiah 1.14|Jer. 1:14.]]
+[^a]: [[Ezekiel 29.18|Ezek. 29:18]].  
+[^b]: [[Jeremiah 1.14|Jer. 1:14]].  

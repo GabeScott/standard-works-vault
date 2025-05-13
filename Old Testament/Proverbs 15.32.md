@@ -5,5 +5,5 @@
 [Proverbs 15:32](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.32?lang=eng#p32)
 
 
-[^a]: OR obeys.
-[^b]: TG [[Understanding]].
+[^a]: OR obeys.  
+[^b]: [[Understanding|TG Understanding]].  

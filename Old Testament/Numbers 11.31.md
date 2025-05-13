@@ -5,4 +5,4 @@
 [Numbers 11:31](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.31?lang=eng#p31)
 
 
-[^a]: [[Exodus 16.13|Ex. 16:13.]]
+[^a]: [[Exodus 16.13|Ex. 16:13]].  

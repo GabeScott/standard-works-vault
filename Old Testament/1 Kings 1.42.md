@@ -5,4 +5,4 @@
 [1 Kings 1:42](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/1.42?lang=eng#p42)
 
 
-[^a]: [[2 Samuel 15.27|2 Sam. 15:27 (27, 36)]]; [[2 Samuel 17.17|17:17.]]
+[^a]: [[2 Samuel 15.27|2 Sam. 15:27 (27, 36)]][[2 Samuel 15.36|]]; [[2 Samuel 17.17|17:17]].  

@@ -5,6 +5,6 @@
 [Leviticus 20:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.17?lang=eng#p17)
 
 
-[^a]: [[Deuteronomy 27.22|Deut. 27:22.]]
-[^b]: OR disgrace (Aramaism).
-[^c]: IE publicly excommunicated.
+[^a]: [[Deuteronomy 27.22|Deut. 27:22]].  
+[^b]: OR disgrace (Aramaism).  
+[^c]: IE publicly excommunicated.  

@@ -5,7 +5,7 @@
 [Numbers 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/5.2?lang=eng#p2)
 
 
-[^a]: Details on the clean and unclean are in Lev. 12:1-15:33.
-[^b]: TG [[Leprosy, Leper, Leprous]].
-[^c]: HEB any discharge. Lev. 15:2 (2-5).
-[^d]: [[Numbers 9.6|Num. 9:6 (6-8).]]
+[^a]: Details on the clean and unclean are in [[Leviticus 12.1|Lev. 12:1–15:33]][[Leviticus 12.2|]][[Leviticus 12.3|]][[Leviticus 12.4|]][[Leviticus 12.5|]][[Leviticus 12.6|]][[Leviticus 12.7|]][[Leviticus 12.8|]].  
+[^b]: [[Leprosy, Leper, Leprous|TG Leprosy]].  
+[^c]: HEB any discharge. [[Leviticus 15.2|Lev. 15:2 (2–5)]][[Leviticus 15.3|]][[Leviticus 15.4|]][[Leviticus 15.5|]].  
+[^d]: [[Numbers 9.6|Num. 9:6 (6–8)]][[Numbers 9.7|]][[Numbers 9.8|]].  

@@ -5,4 +5,4 @@
 [1 Nephi 13:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p29#p29)
 
 
-[^a]: 2 Pet. 3:16.
+[^a]: [[2 Peter 3.16|2 Pet. 3:16]].  

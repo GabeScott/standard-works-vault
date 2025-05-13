@@ -5,4 +5,4 @@
 [Alma 21:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Zeal, Zealous]].
+[^a]: [[Zeal, Zealous|TG Zeal]].  

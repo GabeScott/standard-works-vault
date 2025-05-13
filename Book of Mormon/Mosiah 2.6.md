@@ -5,4 +5,4 @@
 [Mosiah 2:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p6#p6)
 
 
-[^a]: [[Exodus 33.8|Ex. 33:8 (8-10).]]
+[^a]: [[Exodus 33.8|Ex. 33:8 (8–10)]][[Exodus 33.9|]][[Exodus 33.10|]].  

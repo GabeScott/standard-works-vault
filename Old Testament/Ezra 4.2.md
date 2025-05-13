@@ -5,4 +5,4 @@
 [Ezra 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/4.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 17.24|2 Kgs. 17:24.]]
+[^a]: [[2 Kings 17.24|2 Kgs. 17:24]].  

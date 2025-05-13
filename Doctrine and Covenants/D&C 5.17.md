@@ -5,4 +5,4 @@
 [D&C 5:17](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.17?lang=eng#p17)
 
 
-[^a]: TG [[Priesthood, Authority]]; [[Priesthood, Ordination]].
+[^a]: [[Priesthood, Authority|TG Priesthood, Authority]]; [[Priesthood, Ordination|Priesthood, Ordination]].  

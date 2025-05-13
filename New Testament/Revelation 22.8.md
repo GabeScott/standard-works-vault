@@ -5,4 +5,4 @@
 [Revelation 22:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.8?lang=eng#p8)
 
 
-[^a]: [[Revelation 19.10|Rev. 19:10.]]
+[^a]: [[Revelation 19.10|Rev. 19:10]].  

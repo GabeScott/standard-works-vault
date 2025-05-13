@@ -5,4 +5,4 @@
 [Isaiah 42:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.3?lang=eng#p3)
 
 
-[^a]: IE He will not harm nor hurt the weakest.
+[^a]: IE He will not harm nor hurt the weakest.  

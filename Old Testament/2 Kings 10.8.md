@@ -5,4 +5,4 @@
 [2 Kings 10:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.8?lang=eng#p8)
 
 
-[^a]: [[2 Kings 9.7|2 Kgs. 9:7 (1-7).]]
+[^a]: [[2 Kings 9.1|2 Kgs. 9:7 (1–7)]][[2 Kings 9.2|]][[2 Kings 9.3|]][[2 Kings 9.4|]][[2 Kings 9.5|]][[2 Kings 9.6|]][[2 Kings 9.7|]].  

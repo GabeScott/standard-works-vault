@@ -5,5 +5,5 @@
 [Deuteronomy 34:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.12?lang=eng#p12)
 
 
-[^a]: IE power.
-[^b]: OR awesome acts.
+[^a]: IE power.  
+[^b]: OR awesome acts.  

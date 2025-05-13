@@ -5,4 +5,4 @@
 [Genesis 43:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.21?lang=eng#p21)
 
 
-[^a]: [[Genesis 42.27|Gen. 42:27.]]
+[^a]: [[Genesis 42.27|Gen. 42:27]].  

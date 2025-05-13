@@ -5,4 +5,4 @@
 [Jeremiah 31:40](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.40?lang=eng#p40)
 
 
-[^a]: [[D&C 63.49|D&C 63:49.]]
+[^a]: [[D&C 63.49|D&C 63:49]].  

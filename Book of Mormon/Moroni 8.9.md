@@ -5,4 +5,4 @@
 [Moroni 8:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p9#p9)
 
 
-[^a]: [[2 Nephi 31.13|2 Ne. 31:13.]]
+[^a]: [[2 Nephi 31.13|2 Ne. 31:13]].  

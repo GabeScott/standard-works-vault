@@ -5,4 +5,4 @@
 [Mormon 3:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mormon 2.26|Morm. 2:26]]; [[Mormon 3.13|3:13.]]
+[^a]: [[Mormon 2.26|Morm. 2:26]]; [[Mormon 3.13|3:13]].  

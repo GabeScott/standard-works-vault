@@ -5,5 +5,5 @@
 [Ezekiel 20:41](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.41?lang=eng#p41)
 
 
-[^a]: TG [[Israel, Gathering of]].
-[^b]: TG [[Sanctification, Sanctify]].
+[^a]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^b]: [[Sanctification, Sanctify|TG Sanctification]].  

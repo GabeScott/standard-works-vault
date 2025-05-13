@@ -5,6 +5,6 @@
 [Jeremiah 11:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.5?lang=eng#p5)
 
 
-[^a]: [[Deuteronomy 7.12|Deut. 7:12 (12-13)]]; [[D&C 38.20|D&C 38:20.]]
-[^b]: TG [[Israel, Land of]].
-[^c]: [[Exodus 3.8|Ex. 3:8.]]
+[^a]: [[Deuteronomy 7.12|Deut. 7:12 (12–13)]][[Deuteronomy 7.13|]]; [[D&C 38.20|D&C 38:20]].  
+[^b]: [[Israel, Land of|TG Israel, Land of]].  
+[^c]: [[Exodus 3.8|Ex. 3:8]].  

@@ -5,4 +5,4 @@
 [Jacob 5:60](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p60#p60)
 
 
-[^a]: [[Isaiah 27.6|Isa. 27:6.]]
+[^a]: [[Isaiah 27.6|Isa. 27:6]].  

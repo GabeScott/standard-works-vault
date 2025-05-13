@@ -5,5 +5,5 @@
 [Job 42:8](https://www.churchofjesuschrist.org/study/scriptures/ot/job/42.8?lang=eng#p8)
 
 
-[^a]: [[Job 1.5|Job 1:5.]]
-[^b]: [[Genesis 20.7|Gen. 20:7.]]
+[^a]: [[Job 1.5|Job 1:5]].  
+[^b]: [[Genesis 20.7|Gen. 20:7]].  

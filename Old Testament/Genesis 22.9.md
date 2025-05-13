@@ -5,5 +5,5 @@
 [Genesis 22:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.9?lang=eng#p9)
 
 
-[^a]: [[James 2.21|James 2:21.]]
-[^b]: TG [[Self-Sacrifice]].
+[^a]: [[James 2.21|James 2:21]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  

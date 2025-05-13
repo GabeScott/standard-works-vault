@@ -5,4 +5,4 @@
 [1 Peter 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.1?lang=eng#p1)
 
 
-[^a]: TG [[Stranger]].
+[^a]: [[Stranger|TG Stranger]].  

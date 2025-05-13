@@ -5,4 +5,4 @@
 [Helaman 11:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p20#p20)
 
 
-[^a]: [[Jarom 1.6|Jarom 1:6]]; [[Alma 22.27|Alma 22:27 (27, 32-33)]]; [[Helaman 3.8|Hel. 3:8]]; [[3 Nephi 1.17|3 Ne. 1:17.]]
+[^a]: [[Jarom 1.6|Jarom 1:6]]; [[Alma 22.27|Alma 22:27 (27, 32–33)]][[Alma 22.32|]][[Alma 22.33|]]; [[Helaman 3.8|Hel. 3:8]]; [[3 Nephi 1.17|3 Ne. 1:17]].  

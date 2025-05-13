@@ -5,4 +5,4 @@
 [Exodus 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 21.6|Ex. 21:6.]]
+[^a]: [[Exodus 21.6|Ex. 21:6]].  

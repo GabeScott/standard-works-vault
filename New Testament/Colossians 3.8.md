@@ -5,8 +5,8 @@
 [Colossians 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.8?lang=eng#p8)
 
 
-[^a]: [[Ephesians 4.22|Eph. 4:22 (22-24).]]
-[^b]: TG [[Anger]].
-[^c]: TG [[Malice]].
-[^d]: TG [[Blaspheme, Blasphemous, Blasphemy]].
-[^e]: TG [[Profanity]].
+[^a]: [[Ephesians 4.22|Eph. 4:22 (22–24)]][[Ephesians 4.23|]][[Ephesians 4.24|]].  
+[^b]: [[Anger|TG Anger]].  
+[^c]: [[Malice|TG Malice]].  
+[^d]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  
+[^e]: [[Profanity|TG Profanity]].  

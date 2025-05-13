@@ -5,6 +5,6 @@
 [2 Kings 21:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.11?lang=eng#p11)
 
 
-[^a]: [[Jeremiah 15.4|Jer. 15:4.]]
-[^b]: [[2 Kings 24.3|2 Kgs. 24:3 (3-4).]]
-[^c]: [[1 Kings 21.26|1 Kgs. 21:26]]; [[2 Kings 23.26|2 Kgs. 23:26.]]
+[^a]: [[Jeremiah 15.4|Jer. 15:4]].  
+[^b]: [[2 Kings 24.3|2 Kgs. 24:3 (3–4)]][[2 Kings 24.4|]].  
+[^c]: [[1 Kings 21.26|1 Kgs. 21:26]]; [[2 Kings 23.26|2 Kgs. 23:26]].  

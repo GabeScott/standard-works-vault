@@ -5,5 +5,5 @@
 [Matthew 4:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.16?lang=eng#p16)
 
 
-[^a]: [[D&C 57.10|D&C 57:10.]]
-[^b]: TG [[Jesus Christ, Light of the World]]; [[Jesus Christ, Prophecies about]].
+[^a]: [[D&C 57.10|D&C 57:10]].  
+[^b]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]]; [[Jesus Christ, Prophecies about|Jesus Christ, Prophecies about]].  

@@ -5,4 +5,4 @@
 [Leviticus 27:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/27.16?lang=eng#p16)
 
 
-[^a]: [[Ezekiel 45.11|Ezek. 45:11.]]
+[^a]: [[Ezekiel 45.11|Ezek. 45:11]].  

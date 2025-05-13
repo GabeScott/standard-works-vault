@@ -5,6 +5,6 @@
 [Ezekiel 21:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.31?lang=eng#p31)
 
 
-[^a]: TG [[God, Indignation of]].
-[^b]: [[Ezekiel 22.21|Ezek. 22:21 (20-21).]]
-[^c]: [[D&C 43.26|D&C 43:26.]]
+[^a]: [[God, Indignation of|TG God, Indignation of]].  
+[^b]: [[Ezekiel 22.20|Ezek. 22:21 (20–21)]][[Ezekiel 22.21|]].  
+[^c]: [[D&C 43.26|D&C 43:26]].  

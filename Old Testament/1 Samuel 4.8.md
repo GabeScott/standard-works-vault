@@ -5,4 +5,4 @@
 [1 Samuel 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/4.8?lang=eng#p8)
 
 
-[^a]: [[1 Nephi 7.11|1 Ne. 7:11 (10-12).]]
+[^a]: [[1 Nephi 7.10|1 Ne. 7:11 (10–12)]][[1 Nephi 7.11|]][[1 Nephi 7.12|]].  

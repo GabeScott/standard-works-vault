@@ -5,6 +5,6 @@
 [Numbers 13:22](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.22?lang=eng#p22)
 
 
-[^a]: HEB went up through the Negev.
-[^b]: [[Joshua 14.9|Josh. 14:9.]]
-[^c]: [[Psalms 78.12|Ps. 78:12]]; [[Isaiah 19.11|Isa. 19:11.]]
+[^a]: HEB went up through the Negev.  
+[^b]: [[Joshua 14.9|Josh. 14:9]].  
+[^c]: [[Psalms 78.12|Ps. 78:12]]; [[Isaiah 19.11|Isa. 19:11]].  

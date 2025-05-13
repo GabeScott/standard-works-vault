@@ -5,4 +5,4 @@
 [Genesis 41:56](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.56?lang=eng#p56)
 
 
-[^a]: [[Genesis 47.14|Gen. 47:14.]]
+[^a]: [[Genesis 47.14|Gen. 47:14]].  

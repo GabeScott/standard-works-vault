@@ -5,4 +5,4 @@
 [Mosiah 15:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p31#p31)
 
 
-[^a]: TG [[Salvation for the Dead]].
+[^a]: [[Salvation|TG Salvation]].  

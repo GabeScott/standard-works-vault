@@ -5,4 +5,4 @@
 [3 Nephi 21:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p8#p8)
 
 
-[^a]: [[3 Nephi 20.45|3 Ne. 20:45.]]
+[^a]: [[3 Nephi 20.45|3 Ne. 20:45]].  

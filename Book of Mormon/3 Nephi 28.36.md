@@ -5,5 +5,5 @@
 [3 Nephi 28:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p36#p36)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
-[^b]: [[3 Nephi 28.8|3 Ne. 28:8 (8-9)]]. TG [[Immortality, Immortal]]; [[Mortality]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  
+[^b]: [[3 Nephi 28.8|3 Ne. 28:8 (8–9)]][[3 Nephi 28.9|]]. [[Immortality, Immortal|TG Immortality]]; [[Mortality|Mortality]].  

@@ -5,4 +5,4 @@
 [Psalms 64:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/64.6?lang=eng#p6)
 
 
-[^a]: [[D&C 10.25|D&C 10:25 (22-28).]]
+[^a]: [[D&C 10.22|D&C 10:25 (22–28)]][[D&C 10.23|]][[D&C 10.24|]][[D&C 10.25|]][[D&C 10.26|]][[D&C 10.27|]][[D&C 10.28|]].  

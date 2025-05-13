@@ -5,4 +5,4 @@
 [Ezekiel 44:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.25?lang=eng#p25)
 
 
-[^a]: [[Leviticus 21.1|Lev. 21:1 (1-3).]]
+[^a]: [[Leviticus 21.1|Lev. 21:1 (1–3)]][[Leviticus 21.2|]][[Leviticus 21.3|]].  

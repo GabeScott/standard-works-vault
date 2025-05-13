@@ -5,5 +5,5 @@
 [Isaiah 37:32](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/37.32?lang=eng#p32)
 
 
-[^a]: TG [[Israel, Remnant of]].
-[^b]: TG [[Zeal, Zealous]].
+[^a]: [[Israel, Remnant of|TG Israel, Remnant of]].  
+[^b]: [[Zeal, Zealous|TG Zeal]].  

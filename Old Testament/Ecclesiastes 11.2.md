@@ -5,4 +5,4 @@
 [Ecclesiastes 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/11.2?lang=eng#p2)
 
 
-[^a]: [[D&C 39.21|D&C 39:21.]]
+[^a]: [[D&C 39.21|D&C 39:21]].  

@@ -5,4 +5,4 @@
 [Philippians 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.6?lang=eng#p6)
 
 
-[^a]: GR complete, accomplish.
+[^a]: GR complete, accomplish.  

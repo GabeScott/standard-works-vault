@@ -5,4 +5,4 @@
 [Psalms 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/16.2?lang=eng#p2)
 
 
-[^a]: HEB I have no good apart from Thee.
+[^a]: HEB I have no good apart from Thee.  

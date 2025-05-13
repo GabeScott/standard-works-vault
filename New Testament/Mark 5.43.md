@@ -5,4 +5,4 @@
 [Mark 5:43](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.43?lang=eng#p43)
 
 
-[^a]: GR strongly warned them.
+[^a]: GR strongly warned them.  

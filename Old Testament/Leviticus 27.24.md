@@ -5,4 +5,4 @@
 [Leviticus 27:24](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/27.24?lang=eng#p24)
 
 
-[^a]: [[Leviticus 25.28|Lev. 25:28.]]
+[^a]: [[Leviticus 25.28|Lev. 25:28]].  

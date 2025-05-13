@@ -5,5 +5,5 @@
 [Genesis 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 15.2|Gen. 15:2.]]
-[^b]: [[Genesis 24.2|JST Gen. 24:2 … hand … Gen. 47:29.]]
+[^a]: [[Genesis 15.2|Gen. 15:2]].  
+[^b]: JST Gen. 24:2 … hand … [[Genesis 47.29|Gen. 47:29]].  

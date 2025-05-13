@@ -5,5 +5,5 @@
 [Proverbs 19:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.15?lang=eng#p15)
 
 
-[^a]: TG [[Laziness]]; [[Procrastination, Procrastinate]].
-[^b]: TG [[Idleness, Idle, Idler]].
+[^a]: [[Laziness|TG Laziness]]; [[Procrastination, Procrastinate|Procrastination]].  
+[^b]: [[Idleness, Idle, Idler|TG Idleness]].  

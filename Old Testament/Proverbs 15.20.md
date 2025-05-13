@@ -5,5 +5,5 @@
 [Proverbs 15:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.20?lang=eng#p20)
 
 
-[^a]: [[Proverbs 10.1|Prov. 10:1.]]
-[^b]: TG [[Marriage, Motherhood]].
+[^a]: [[Proverbs 10.1|Prov. 10:1]].  
+[^b]: [[Marriage, Motherhood|TG Marriage, Motherhood]].  

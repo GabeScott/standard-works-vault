@@ -5,5 +5,5 @@
 [Galatians 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.13?lang=eng#p13)
 
 
-[^a]: TG [[Abundant Life]]; [[Liberty]].
-[^b]: TG [[Self-Sacrifice]].
+[^a]: [[Abundant Life|TG Abundant Life]]; [[Liberty|Liberty]].  
+[^b]: [[Self-Sacrifice|TG Self-Sacrifice]].  

@@ -5,5 +5,5 @@
 [Genesis 19:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 19.1|JST Gen. 19:1 … three …]]
-[^b]: HEB messengers. TG [[Angels]].
+[^a]: JST Gen. 19:1 … three …  
+[^b]: HEB messengers. [[Angels|TG Angels]].  

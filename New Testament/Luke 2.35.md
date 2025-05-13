@@ -5,4 +5,4 @@
 [Luke 2:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.35?lang=eng#p35)
 
 
-[^a]: [[John 19.25|John 19:25.]]
+[^a]: [[John 19.25|John 19:25]].  

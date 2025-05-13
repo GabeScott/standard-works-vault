@@ -5,6 +5,6 @@
 [Jonah 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/3.5?lang=eng#p5)
 
 
-[^a]: [[Alma 31.5|Alma 31:5.]]
-[^b]: [[Matthew 12.41|Matt. 12:41.]]
-[^c]: TG [[Fast, Fasting]].
+[^a]: [[Alma 31.5|Alma 31:5]].  
+[^b]: [[Matthew 12.41|Matt. 12:41]].  
+[^c]: [[Fast, Fasting|TG Fast, Fasting]].  

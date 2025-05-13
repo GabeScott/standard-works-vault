@@ -5,8 +5,8 @@
 [1 Peter 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.11?lang=eng#p11)
 
 
-[^a]: TG [[Stranger]].
-[^b]: GR resident aliens, sojourners.
-[^c]: TG [[Abstain, Abstinence]].
-[^d]: TG [[Lust]].
-[^e]: TG [[War]].
+[^a]: [[Stranger|TG Stranger]].  
+[^b]: GR resident aliens, sojourners.  
+[^c]: [[Abstain, Abstinence|TG Abstain]].  
+[^d]: [[Lust|TG Lust]].  
+[^e]: [[War|TG War]].  

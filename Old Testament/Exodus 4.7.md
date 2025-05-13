@@ -5,5 +5,5 @@
 [Exodus 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.7?lang=eng#p7)
 
 
-[^a]: OR drew.
-[^b]: HEB restored like.
+[^a]: OR drew.  
+[^b]: HEB restored like.  

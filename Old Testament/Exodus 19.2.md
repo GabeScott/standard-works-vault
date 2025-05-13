@@ -5,4 +5,4 @@
 [Exodus 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.2?lang=eng#p2)
 
 
-[^a]: OR encamped.
+[^a]: OR encamped.  

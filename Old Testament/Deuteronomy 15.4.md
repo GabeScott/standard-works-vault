@@ -5,4 +5,4 @@
 [Deuteronomy 15:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.4?lang=eng#p4)
 
 
-[^a]: HEB To the end that there may be no needy.
+[^a]: HEB To the end that there may be no needy.  

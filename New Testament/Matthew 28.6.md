@@ -5,5 +5,5 @@
 [Matthew 28:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.6?lang=eng#p6)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]]; [[Jesus Christ, Resurrection]].
-[^b]: TG [[Jesus Christ, Lord]].
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]]; [[Resurrection|Resurrection]].  
+[^b]: [[Jesus Christ, Lord|TG Jesus Christ, Lord]].  

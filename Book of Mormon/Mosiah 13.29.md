@@ -5,5 +5,5 @@
 [Mosiah 13:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p29#p29)
 
 
-[^a]: [[Joshua 1.8|Josh. 1:8]]; [[Hebrews 9.10|Heb. 9:10 (8-10)]]; [[Mosiah 3.14|Mosiah 3:14 (14-15)]]; [[Alma 25.15|Alma 25:15 (15-16)]]; [[D&C 41.5|D&C 41:5 (4-5).]]
-[^b]: [[1 Nephi 17.45|1 Ne. 17:45]]; [[Alma 46.8|Alma 46:8.]]
+[^a]: [[Joshua 1.8|Josh. 1:8]]; [[Hebrews 9.8|Heb. 9:10 (8–10)]][[Hebrews 9.9|]][[Hebrews 9.10|]]; [[Mosiah 3.14|Mosiah 3:14 (14–15)]][[Mosiah 3.15|]]; [[Alma 25.15|Alma 25:15 (15–16)]][[Alma 25.16|]]; [[D&C 41.4|D&C 41:5 (4–5)]][[D&C 41.5|]].  
+[^b]: [[1 Nephi 17.45|1 Ne. 17:45]]; [[Alma 46.8|Alma 46:8]].  

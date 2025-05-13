@@ -5,4 +5,4 @@
 [Moroni 6:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/6?lang=eng&id=p3#p3)
 
 
-[^a]: [[2 Nephi 9.23|2 Ne. 9:23]]. TG [[Jesus Christ, Taking the Name of]].
+[^a]: [[2 Nephi 9.23|2 Ne. 9:23]]. [[Jesus Christ, Taking the Name of|TG Jesus Christ, Taking the Name of]].  

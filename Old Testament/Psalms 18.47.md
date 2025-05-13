@@ -5,4 +5,4 @@
 [Psalms 18:47](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.47?lang=eng#p47)
 
 
-[^a]: [[Psalms 47.3|Ps. 47:3.]]
+[^a]: [[Psalms 47.3|Ps. 47:3]].  

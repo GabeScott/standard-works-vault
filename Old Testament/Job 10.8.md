@@ -5,4 +5,4 @@
 [Job 10:8](https://www.churchofjesuschrist.org/study/scriptures/ot/job/10.8?lang=eng#p8)
 
 
-[^a]: TG [[Jesus Christ, Creator]].
+[^a]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  

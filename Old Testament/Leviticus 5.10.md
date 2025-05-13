@@ -5,4 +5,4 @@
 [Leviticus 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/5.10?lang=eng#p10)
 
 
-[^a]: HEB the statute.
+[^a]: HEB the statute.  

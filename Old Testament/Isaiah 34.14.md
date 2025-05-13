@@ -5,4 +5,4 @@
 [Isaiah 34:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/34.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 13.21|Isa. 13:21.]]
+[^a]: [[Isaiah 13.21|Isa. 13:21]].  

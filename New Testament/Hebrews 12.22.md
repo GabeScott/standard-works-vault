@@ -5,5 +5,5 @@
 [Hebrews 12:22](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.22?lang=eng#p22)
 
 
-[^a]: TG [[Zion, Sion]].
-[^b]: TG [[Angels]].
+[^a]: [[Zion, Sion|TG Zion]].  
+[^b]: [[Angels|TG Angels]].  

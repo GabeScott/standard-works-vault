@@ -5,5 +5,5 @@
 [Genesis 45:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/45.3?lang=eng#p3)
 
 
-[^a]: [[Acts 7.13|Acts 7:13.]]
-[^b]: [[Job 23.15|Job 23:15.]]
+[^a]: [[Acts 7.13|Acts 7:13]].  
+[^b]: [[Job 23.15|Job 23:15]].  

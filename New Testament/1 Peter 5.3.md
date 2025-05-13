@@ -5,5 +5,5 @@
 [1 Peter 5:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/5.3?lang=eng#p3)
 
 
-[^a]: [[D&C 121.41|D&C 121:41 (41-42).]]
-[^b]: TG [[Example, Ensample]].
+[^a]: [[D&C 121.41|D&C 121:41 (41–42)]][[D&C 121.42|]].  
+[^b]: [[Example, Ensample|TG Example]].  

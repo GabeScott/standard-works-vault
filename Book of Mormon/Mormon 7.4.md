@@ -5,4 +5,4 @@
 [Mormon 7:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/7?lang=eng&id=p4#p4)
 
 
-[^a]: [[Alma 43.47|Alma 43:47.]]
+[^a]: [[Alma 43.47|Alma 43:47]].  

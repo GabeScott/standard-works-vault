@@ -5,5 +5,5 @@
 [Alma 17:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p3#p3)
 
 
-[^a]: TG [[Fast, Fasting]].
-[^b]: W of M 1:17. TG [[Authority]]; [[Teaching with the Spirit]].
+[^a]: [[Fast, Fasting|TG Fast, Fasting]].  
+[^b]: [[Words of Mormon 1.17|W of M 1:17]]. [[Authority|TG Authority]]; [[Teaching with the Spirit|Teaching with the Spirit]].  

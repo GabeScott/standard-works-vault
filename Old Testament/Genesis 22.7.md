@@ -5,4 +5,4 @@
 [Genesis 22:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.7?lang=eng#p7)
 
 
-[^a]: OR Yes, my son.
+[^a]: OR Yes, my son.  

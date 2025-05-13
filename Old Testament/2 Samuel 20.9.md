@@ -5,4 +5,4 @@
 [2 Samuel 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/20.9?lang=eng#p9)
 
 
-[^a]: [[Proverbs 27.6|Prov. 27:6.]]
+[^a]: [[Proverbs 27.6|Prov. 27:6]].  

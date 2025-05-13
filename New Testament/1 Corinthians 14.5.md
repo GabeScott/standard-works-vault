@@ -5,5 +5,5 @@
 [1 Corinthians 14:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.5?lang=eng#p5)
 
 
-[^a]: GR wish.
-[^b]: TG [[Prophecy]].
+[^a]: GR wish.  
+[^b]: [[Prophecy|TG Prophecy]].  

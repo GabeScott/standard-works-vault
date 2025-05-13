@@ -5,5 +5,5 @@
 [Isaiah 48:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.20?lang=eng#p20)
 
 
-[^a]: [[Isaiah 52.11|Isa. 52:11.]]
-[^b]: TG [[Israel, Bondage of, in Other Lands]].
+[^a]: [[Isaiah 52.11|Isa. 52:11]].  
+[^b]: [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  

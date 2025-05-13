@@ -5,7 +5,7 @@
 [Isaiah 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.12?lang=eng#p12)
 
 
-[^a]: HEB lyre.
-[^b]: HEB drums.
-[^c]: TG [[Rebellion, Rebel]].
-[^d]: [[Psalms 28.5|Ps. 28:5 (4-5).]]
+[^a]: HEB lyre.  
+[^b]: HEB drums.  
+[^c]: [[Rebellion, Rebel|TG Rebellion]].  
+[^d]: [[Psalms 28.4|Ps. 28:5 (4–5)]][[Psalms 28.5|]].  

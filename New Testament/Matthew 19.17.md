@@ -5,6 +5,6 @@
 [Matthew 19:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.17?lang=eng#p17)
 
 
-[^a]: TG [[God, Perfection of]].
-[^b]: [[Proverbs 4.22|Prov. 4:22.]]
-[^c]: [[1 Nephi 22.31|1 Ne. 22:31.]]
+[^a]: [[God, Perfection of|TG God, Perfection of]].  
+[^b]: [[Proverbs 4.22|Prov. 4:22]].  
+[^c]: [[1 Nephi 22.31|1 Ne. 22:31]].  

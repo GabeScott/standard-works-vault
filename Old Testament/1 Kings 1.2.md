@@ -5,4 +5,4 @@
 [1 Kings 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/1.2?lang=eng#p2)
 
 
-[^a]: IE wait upon.
+[^a]: IE wait upon.  

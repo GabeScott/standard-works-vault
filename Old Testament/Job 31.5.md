@@ -5,5 +5,5 @@
 [Job 31:5](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.5?lang=eng#p5)
 
 
-[^a]: TG [[Rashness]].
-[^b]: TG [[Deceit, Deceive]].
+[^a]: [[Rashness|TG Rashness]].  
+[^b]: [[Deceit, Deceive|TG Deceit]].  

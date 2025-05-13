@@ -5,5 +5,5 @@
 [Mormon 8:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p10#p10)
 
 
-[^a]: [[3 Nephi 28.7|3 Ne. 28:7]]; 4 Ne. 1:37 (14, 37); [[Ether 12.17|Ether 12:17.]]
-[^b]: [[Words of Mormon 1.16|Morm. 1:16.]]
+[^a]: [[3 Nephi 28.7|3 Ne. 28:7]]; [[4 Nephi 1.14|4 Ne. 1:37 (14, 37)]][[4 Nephi 1.37|]]; [[Ether 12.17|Ether 12:17]].  
+[^b]: [[Mormon 1.16|Morm. 1:16]].  

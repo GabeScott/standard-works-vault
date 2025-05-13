@@ -5,4 +5,4 @@
 [Ether 14:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/14?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 16.11|Alma 16:11 (9-11).]]
+[^a]: [[Alma 16.9|Alma 16:11 (9–11)]][[Alma 16.10|]][[Alma 16.11|]].  

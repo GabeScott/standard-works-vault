@@ -5,5 +5,5 @@
 [Luke 10:29](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.29?lang=eng#p29)
 
 
-[^a]: [[Luke 16.15|Luke 16:15.]]
-[^b]: TG [[Neighbor]].
+[^a]: [[Luke 16.15|Luke 16:15]].  
+[^b]: [[Neighbor|TG Neighbor]].  

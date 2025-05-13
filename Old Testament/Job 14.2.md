@@ -5,4 +5,4 @@
 [Job 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/job/14.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 38.12|Isa. 38:12 (10-13).]]
+[^a]: [[Isaiah 38.10|Isa. 38:12 (10–13)]][[Isaiah 38.11|]][[Isaiah 38.12|]][[Isaiah 38.13|]].  

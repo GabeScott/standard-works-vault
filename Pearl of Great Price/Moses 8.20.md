@@ -5,4 +5,4 @@
 [Moses 8:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 5.29|Gen. 5:29]]. TG [[Repent, Repentance]].
+[^a]: [[Genesis 5.29|Gen. 5:29]]. [[Repent, Repentance|TG Repent]].  

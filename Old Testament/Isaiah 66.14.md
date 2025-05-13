@@ -5,5 +5,5 @@
 [Isaiah 66:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.14?lang=eng#p14)
 
 
-[^a]: TG [[Protection, Divine]].
-[^b]: TG [[God, Indignation of]].
+[^a]: [[Protection, Divine|TG Protection, Divine]].  
+[^b]: [[God, Indignation of|TG God, Indignation of]].  

@@ -5,4 +5,4 @@
 [Ezekiel 23:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.24?lang=eng#p24)
 
 
-[^a]: [[2 Kings 25.6|2 Kgs. 25:6 (6-7).]]
+[^a]: [[2 Kings 25.6|2 Kgs. 25:6 (6–7)]][[2 Kings 25.7|]].  

@@ -5,4 +5,4 @@
 [Alma 5:44](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p44#p44)
 
 
-[^a]: [[Mosiah 29.42|Mosiah 29:42.]]
+[^a]: [[Mosiah 29.42|Mosiah 29:42]].  

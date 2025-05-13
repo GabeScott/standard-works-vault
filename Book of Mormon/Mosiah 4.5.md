@@ -5,4 +5,4 @@
 [Mosiah 4:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p5#p5)
 
 
-[^a]: [[Moses 1.10|Moses 1:10.]]
+[^a]: [[Moses 1.10|Moses 1:10]].  

@@ -5,4 +5,4 @@
 [Hosea 10:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/10.5?lang=eng#p5)
 
 
-[^a]: [[1 Kings 12.28|1 Kgs. 12:28.]]
+[^a]: [[1 Kings 12.28|1 Kgs. 12:28]].  

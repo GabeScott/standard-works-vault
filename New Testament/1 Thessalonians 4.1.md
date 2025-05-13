@@ -5,7 +5,7 @@
 [1 Thessalonians 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/4.1?lang=eng#p1)
 
 
-[^a]: Philip. 4:9.
-[^b]: TG [[Walking with God]].
-[^c]: Col. 1:10.
-[^d]: 1 Thes. 3:12.
+[^a]: [[Philippians 4.9|Philip. 4:9]].  
+[^b]: [[Walking with God|TG Walking with God]].  
+[^c]: [[Colossians 1.10|Col. 1:10]].  
+[^d]: [[1 Thessalonians 3.12|1 Thes. 3:12]].  

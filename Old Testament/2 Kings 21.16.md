@@ -5,5 +5,5 @@
 [2 Kings 21:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.16?lang=eng#p16)
 
 
-[^a]: [[2 Kings 24.4|2 Kgs. 24:4.]]
-[^b]: TG [[Blood, Shedding of]].
+[^a]: [[2 Kings 24.4|2 Kgs. 24:4]].  
+[^b]: [[Blood, Shedding of|TG Blood, Shedding of]].  

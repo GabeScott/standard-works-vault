@@ -5,4 +5,4 @@
 [Numbers 23:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/23.3?lang=eng#p3)
 
 
-[^a]: HEB a bare hill.
+[^a]: HEB a bare hill.  

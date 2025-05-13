@@ -5,4 +5,4 @@
 [Moses 4:17](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.17?lang=eng#p17)
 
 
-[^a]: [[Moses 3.17|Moses 3:17.]]
+[^a]: [[Moses 3.17|Moses 3:17]].  

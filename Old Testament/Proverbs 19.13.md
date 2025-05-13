@@ -5,6 +5,6 @@
 [Proverbs 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.13?lang=eng#p13)
 
 
-[^a]: TG [[Marriage, Fatherhood]].
-[^b]: [[Proverbs 21.9|Prov. 21:9.]]
-[^c]: [[Proverbs 27.15|Prov. 27:15.]]
+[^a]: [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  
+[^b]: [[Proverbs 21.9|Prov. 21:9]].  
+[^c]: [[Proverbs 27.15|Prov. 27:15]].  

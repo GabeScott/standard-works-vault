@@ -5,5 +5,5 @@
 [Alma 30:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p31#p31)
 
 
-[^a]: [[Helaman 13.22|Hel. 13:22]]. TG [[Boast, Boasting]].
-[^b]: [[Alma 23.4|Alma 23:4.]]
+[^a]: [[Helaman 13.22|Hel. 13:22]]. [[Boast, Boasting|TG Boast]].  
+[^b]: [[Alma 23.4|Alma 23:4]].  

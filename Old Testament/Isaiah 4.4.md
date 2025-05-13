@@ -5,7 +5,7 @@
 [Isaiah 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/4.4?lang=eng#p4)
 
 
-[^a]: IE When the Lord has cleansed the earth (v. 4), He will set up His dwelling and His protective presence here (vv. 5-6).
-[^b]: Mal. 3:2.
-[^c]: TG [[Millennium, Preparing a People for]].
-[^d]: TG [[World, End of]].
+[^a]: IE When the Lord has cleansed the earth ([[Isaiah 4.4|v. 4]]), He will set up His dwelling and His protective presence here ([[Isaiah 4.5|vv. 5–6]][[Isaiah 4.6|]]).  
+[^b]: [[Malachi 3.2|Mal. 3:2]].  
+[^c]: [[Millennium, Preparing a People for|TG Millennium, Preparing a People for]].  
+[^d]: [[World, End of|TG World, End of]].  

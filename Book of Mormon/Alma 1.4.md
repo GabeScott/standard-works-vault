@@ -5,8 +5,8 @@
 [Alma 1:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p4#p4)
 
 
-[^a]: [[Alma 15.15|Alma 15:15]]; [[Alma 21.6|21:6]]; [[Alma 30.17|30:17]]; [[Mormon 8.31|Morm. 8:31.]]
-[^b]: TG [[Humility, Humble]]; [[Meek, Meekness]].
-[^c]: TG [[Jesus Christ, Creator]]; [[Man, Physical Creation of]].
-[^d]: TG [[Jesus Christ, Redeemer]]; [[Redemption]].
-[^e]: [[Moses 4.1|Moses 4:1 (1-4).]]
+[^a]: [[Alma 15.15|Alma 15:15]]; [[Alma 21.6|21:6]]; [[Alma 30.17|30:17]]; [[Mormon 8.31|Morm. 8:31]].  
+[^b]: [[Humility, Humble|TG Humility]]; [[Meek, Meekness|Meek]].  
+[^c]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]]; [[Man, Physical Creation of|Man, Physical Creation of]].  
+[^d]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]]; [[Redemption|Redemption]].  
+[^e]: [[Moses 4.1|Moses 4:1 (1–4)]][[Moses 4.2|]][[Moses 4.3|]][[Moses 4.4|]].  

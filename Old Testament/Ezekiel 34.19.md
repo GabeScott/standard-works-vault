@@ -5,4 +5,4 @@
 [Ezekiel 34:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.19?lang=eng#p19)
 
 
-[^a]: [[1 Nephi 19.7|1 Ne. 19:7.]]
+[^a]: [[1 Nephi 19.7|1 Ne. 19:7]].  

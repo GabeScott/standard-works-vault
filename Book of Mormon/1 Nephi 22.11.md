@@ -5,4 +5,4 @@
 [1 Nephi 22:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Israel, Mission of]].
+[^a]: [[Israel, Mission of|TG Israel, Mission of]].  

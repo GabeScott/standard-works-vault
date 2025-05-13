@@ -5,5 +5,5 @@
 [Jacob 6:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/6?lang=eng&id=p7#p7)
 
 
-[^a]: [[Psalms 119.28|Ps. 119:28.]]
-[^b]: [[Alma 5.52|Alma 5:52]]; [[3 Nephi 27.11|3 Ne. 27:11 (11-12).]]
+[^a]: [[Psalms 119.28|Ps. 119:28]].  
+[^b]: [[Alma 5.52|Alma 5:52]]; [[3 Nephi 27.11|3 Ne. 27:11 (11–12)]][[3 Nephi 27.12|]].  

@@ -5,5 +5,5 @@
 [Genesis 24:32](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.32?lang=eng#p32)
 
 
-[^a]: [[Judges 19.21|Judg. 19:21.]]
-[^b]: TG [[Wash, Washing]].
+[^a]: [[Judges 19.21|Judg. 19:21]].  
+[^b]: [[Wash, Washing|TG Wash]].  

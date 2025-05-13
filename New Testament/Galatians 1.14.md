@@ -5,7 +5,7 @@
 [Galatians 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.14?lang=eng#p14)
 
 
-[^a]: GR was advancing.
-[^b]: GR men of my age.
-[^c]: TG [[Zeal, Zealous]].
-[^d]: TG [[Traditions of Men]].
+[^a]: GR was advancing.  
+[^b]: GR men of my age.  
+[^c]: [[Zeal, Zealous|TG Zeal]].  
+[^d]: [[Traditions of Men|TG Traditions of Men]].  

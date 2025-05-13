@@ -5,4 +5,4 @@
 [Matthew 22:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.10?lang=eng#p10)
 
 
-[^a]: [[Matthew 13.47|Matt. 13:47 (47-53).]]
+[^a]: [[Matthew 13.47|Matt. 13:47 (47–53)]][[Matthew 13.48|]][[Matthew 13.49|]][[Matthew 13.50|]][[Matthew 13.51|]][[Matthew 13.52|]][[Matthew 13.53|]].  

@@ -5,4 +5,4 @@
 [Helaman 13:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p11#p11)
 
 
-[^a]: [[1 Samuel 7.3|1 Sam. 7:3]]; [[3 Nephi 10.6|3 Ne. 10:6 (5-7).]]
+[^a]: [[1 Samuel 7.3|1 Sam. 7:3]]; [[3 Nephi 10.5|3 Ne. 10:6 (5–7)]][[3 Nephi 10.6|]][[3 Nephi 10.7|]].  

@@ -5,6 +5,6 @@
 [James 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.1?lang=eng#p1)
 
 
-[^a]: JST James 3:1 … strive not for the mastery, knowing that in so doing we shall receive the greater condemnation.
-[^b]: GR (also) teachers.
-[^c]: [[D&C 82.3|D&C 82:3.]]
+[^a]: JST James 3:1 … strive not for the mastery, knowing that in so doing we shall receive the greater condemnation.  
+[^b]: GR (also) teachers.  
+[^c]: [[D&C 82.3|D&C 82:3]].  

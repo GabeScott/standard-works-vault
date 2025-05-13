@@ -5,5 +5,5 @@
 [1 Corinthians 15:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.6?lang=eng#p6)
 
 
-[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
-[^b]: GR more than, over.
+[^a]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  
+[^b]: GR more than, over.  

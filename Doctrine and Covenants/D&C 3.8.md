@@ -5,7 +5,7 @@
 [D&C 3:8](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.8?lang=eng#p8)
 
 
-[^a]: TG [[God, Power of]].
-[^b]: [[Ephesians 6.16|Eph. 6:16]]; [[1 Nephi 15.24|1 Ne. 15:24]]; [[D&C 27.17|D&C 27:17.]]
-[^c]: TG [[Devil, Church of]].
-[^d]: [[Psalms 81.7|Ps. 81:7]]; [[Alma 9.17|Alma 9:17]]; [[Alma 38.5|38:5.]]
+[^a]: [[God, Power of|TG God, Power of]].  
+[^b]: [[Ephesians 6.16|Eph. 6:16]]; [[1 Nephi 15.24|1 Ne. 15:24]]; [[D&C 27.17|D&C 27:17]].  
+[^c]: [[Devil|TG Devil]].  
+[^d]: [[Psalms 81.7|Ps. 81:7]]; [[Alma 9.17|Alma 9:17]]; [[Alma 38.5|38:5]].  

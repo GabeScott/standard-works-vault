@@ -5,8 +5,8 @@
 [Exodus 34:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.9?lang=eng#p9)
 
 
-[^a]: TG [[Grace]].
-[^b]: TG [[Stiffnecked, Stiffneckedness]].
-[^c]: TG [[Forgive, Forgiveness]].
-[^d]: [[Exodus 33.13|Ex. 33:13.]]
-[^e]: TG [[Inheritance]].
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  
+[^c]: [[Forgive, Forgiveness|TG Forgive]].  
+[^d]: [[Exodus 33.13|Ex. 33:13]].  
+[^e]: [[Inheritance|TG Inheritance]].  

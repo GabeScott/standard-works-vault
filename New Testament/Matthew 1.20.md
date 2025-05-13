@@ -5,6 +5,6 @@
 [Matthew 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.20?lang=eng#p20)
 
 
-[^a]: TG [[Dream]].
-[^b]: [[2 Nephi 19.7|2 Ne. 19:7.]]
-[^c]: [[Luke 1.35|Luke 1:35]]; [[Alma 7.10|Alma 7:10.]]
+[^a]: [[Dream|TG Dream]].  
+[^b]: [[2 Nephi 19.7|2 Ne. 19:7]].  
+[^c]: [[Luke 1.35|Luke 1:35]]; [[Alma 7.10|Alma 7:10]].  

@@ -5,4 +5,4 @@
 [Judges 9:45](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.45?lang=eng#p45)
 
 
-[^a]: IE covered the soil with salt, supposed to ensure desolation.
+[^a]: IE covered the soil with salt, supposed to ensure desolation.  

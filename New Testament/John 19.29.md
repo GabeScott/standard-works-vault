@@ -5,4 +5,4 @@
 [John 19:29](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.29?lang=eng#p29)
 
 
-[^a]: [[Psalms 69.21|Ps. 69:21.]]
+[^a]: [[Psalms 69.21|Ps. 69:21]].  

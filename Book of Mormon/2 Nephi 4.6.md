@@ -5,6 +5,6 @@
 [2 Nephi 4:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Nephi 2.23|1 Ne. 2:23.]]
-[^b]: TG [[Curse]].
-[^c]: [[D&C 68.25|D&C 68:25 (25-29).]]
+[^a]: [[1 Nephi 2.23|1 Ne. 2:23]].  
+[^b]: [[Curse|TG Curse]].  
+[^c]: [[D&C 68.25|D&C 68:25 (25–29)]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]][[D&C 68.29|]].  

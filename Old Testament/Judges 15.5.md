@@ -5,6 +5,6 @@
 [Judges 15:5](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/15.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 22.6|Ex. 22:6.]]
-[^b]: OR grain.
-[^c]: IE olive trees.
+[^a]: [[Exodus 22.6|Ex. 22:6]].  
+[^b]: OR grain.  
+[^c]: IE olive trees.  

@@ -5,5 +5,5 @@
 [1 Nephi 16:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p23#p23)
 
 
-[^a]: TG [[Initiative]].
-[^b]: TG [[Honoring Father and Mother]].
+[^a]: [[Initiative|TG Initiative]].  
+[^b]: [[Honoring Father and Mother|TG Honoring Father and Mother]].  

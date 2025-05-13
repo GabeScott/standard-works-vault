@@ -5,5 +5,5 @@
 [Psalms 15:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/15.5?lang=eng#p5)
 
 
-[^a]: TG [[Usury]].
-[^b]: OR a bribe.
+[^a]: [[Usury|TG Usury]].  
+[^b]: OR a bribe.  

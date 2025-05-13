@@ -5,5 +5,5 @@
 [1 Kings 7:51](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.51?lang=eng#p51)
 
 
-[^a]: TG [[Genealogy and Temple Work]].
-[^b]: [[2 Samuel 8.11|2 Sam. 8:11 (10-11).]]
+[^a]: [[Temple|TG Temple]].  
+[^b]: [[2 Samuel 8.10|2 Sam. 8:11 (10–11)]][[2 Samuel 8.11|]].  

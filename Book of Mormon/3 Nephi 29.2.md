@@ -5,4 +5,4 @@
 [3 Nephi 29:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/29?lang=eng&id=p2#p2)
 
 
-[^a]: [[Matthew 24.48|Matt. 24:48]]; [[Luke 12.45|Luke 12:45.]]
+[^a]: [[Matthew 24.48|Matt. 24:48]]; [[Luke 12.45|Luke 12:45]].  

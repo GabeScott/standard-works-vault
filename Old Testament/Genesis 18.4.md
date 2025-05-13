@@ -5,5 +5,5 @@
 [Genesis 18:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.4?lang=eng#p4)
 
 
-[^a]: TG [[Wash, Washing]].
-[^b]: TG [[Hospitality]].
+[^a]: [[Wash, Washing|TG Wash]].  
+[^b]: [[Hospitality|TG Hospitality]].  

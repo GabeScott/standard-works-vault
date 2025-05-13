@@ -5,5 +5,5 @@
 [Genesis 16:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.9?lang=eng#p9)
 
 
-[^a]: TG [[Angels]].
-[^b]: TG [[Submissiveness, Submit]].
+[^a]: [[Angels|TG Angels]].  
+[^b]: [[Submissiveness, Submit|TG Submissiveness]].  

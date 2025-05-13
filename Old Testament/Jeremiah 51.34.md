@@ -5,4 +5,4 @@
 [Jeremiah 51:34](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.34?lang=eng#p34)
 
 
-[^a]: HEB sea monster.
+[^a]: HEB sea monster.  

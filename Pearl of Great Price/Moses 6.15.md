@@ -5,10 +5,10 @@
 [Moses 6:15](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.15?lang=eng#p15)
 
 
-[^a]: [[Moses 8.14|Moses 8:14 (13-15).]]
-[^b]: [[3 Nephi 6.15|3 Ne. 6:15.]]
-[^c]: [[Moses 5.13|Moses 5:13.]]
-[^d]: TG [[War]].
-[^e]: TG [[Conspiracy]].
-[^f]: TG [[Secret Combinations]].
-[^g]: [[Ether 8.23|Ether 8:23]]. TG [[Selfishness]].
+[^a]: [[Moses 8.13|Moses 8:14 (13–15)]][[Moses 8.14|]][[Moses 8.15|]].  
+[^b]: [[3 Nephi 6.15|3 Ne. 6:15]].  
+[^c]: [[Moses 5.13|Moses 5:13]].  
+[^d]: [[War|TG War]].  
+[^e]: [[Conspiracy|TG Conspiracy]].  
+[^f]: [[Secret Combinations|TG Secret Combinations]].  
+[^g]: [[Ether 8.23|Ether 8:23]]. [[Selfishness|TG Selfishness]].  

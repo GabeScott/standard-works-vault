@@ -5,4 +5,4 @@
 [Isaiah 60:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 49.23|Isa. 49:23]]; [[Revelation 3.9|Rev. 3:9]]; [[D&C 49.10|D&C 49:10]]; [[D&C 64.43|64:43 (41-43)]]; [[D&C 97.19|97:19 (19-20).]]
+[^a]: [[Isaiah 49.23|Isa. 49:23]]; [[Revelation 3.9|Rev. 3:9]]; [[D&C 49.10|D&C 49:10]]; [[D&C 64.41|64:43 (41–43)]][[D&C 64.42|]][[D&C 64.43|]]; [[D&C 97.19|97:19 (19–20)]][[D&C 97.20|]].  

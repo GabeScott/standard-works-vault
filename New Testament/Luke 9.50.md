@@ -5,4 +5,4 @@
 [Luke 9:50](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.50?lang=eng#p50)
 
 
-[^a]: [[Matthew 12.30|Matt. 12:30]]; [[Mark 9.40|Mark 9:40.]]
+[^a]: [[Matthew 12.30|Matt. 12:30]]; [[Mark 9.40|Mark 9:40]].  

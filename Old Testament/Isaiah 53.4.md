@@ -5,5 +5,5 @@
 [Isaiah 53:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.4?lang=eng#p4)
 
 
-[^a]: [[Isaiah 50.6|Isa. 50:6]]; Philip. 2:7 (5-8).
-[^b]: TG [[Compassion]]; [[Jesus Christ, Redeemer]].
+[^a]: [[Isaiah 50.6|Isa. 50:6]]; [[Philippians 2.5|Philip. 2:7 (5–8)]][[Philippians 2.6|]][[Philippians 2.7|]][[Philippians 2.8|]].  
+[^b]: [[Compassion|TG Compassion]]; [[Jesus Christ, Redeemer|Jesus Christ, Redeemer]].  

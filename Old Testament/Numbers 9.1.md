@@ -5,4 +5,4 @@
 [Numbers 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/9.1?lang=eng#p1)
 
 
-[^a]: [[Numbers 1.1|Num. 1:1.]]
+[^a]: [[Numbers 1.1|Num. 1:1]].  

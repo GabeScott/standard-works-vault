@@ -5,6 +5,6 @@
 [Exodus 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 26.22|Gen. 26:22]]; [[Deuteronomy 26.5|Deut. 26:5.]]
-[^b]: [[Psalms 105.24|Ps. 105:24.]]
-[^c]: OR grew.
+[^a]: [[Genesis 26.22|Gen. 26:22]]; [[Deuteronomy 26.5|Deut. 26:5]].  
+[^b]: [[Psalms 105.24|Ps. 105:24]].  
+[^c]: OR grew.  

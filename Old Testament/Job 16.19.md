@@ -5,4 +5,4 @@
 [Job 16:19](https://www.churchofjesuschrist.org/study/scriptures/ot/job/16.19?lang=eng#p19)
 
 
-[^a]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^a]: [[Heaven|TG Heaven]].  

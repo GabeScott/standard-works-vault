@@ -5,5 +5,5 @@
 [James 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.22?lang=eng#p22)
 
 
-[^a]: TG [[Good Works]].
-[^b]: TG [[Perfection, Perfect, Perfectly]].
+[^a]: [[Good Works|TG Good Works]].  
+[^b]: [[Perfection, Perfect, Perfectly|TG Perfection]].  

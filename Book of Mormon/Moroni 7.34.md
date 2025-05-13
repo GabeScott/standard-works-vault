@@ -5,4 +5,4 @@
 [Moroni 7:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p34#p34)
 
 
-[^a]: [[3 Nephi 27.20|3 Ne. 27:20]]; [[Ether 4.18|Ether 4:18.]]
+[^a]: [[3 Nephi 27.20|3 Ne. 27:20]]; [[Ether 4.18|Ether 4:18]].  

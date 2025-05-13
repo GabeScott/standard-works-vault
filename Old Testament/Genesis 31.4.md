@@ -5,4 +5,4 @@
 [Genesis 31:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.4?lang=eng#p4)
 
 
-[^a]: TG [[Marriage, Husbands]].
+[^a]: [[Marriage, Husbands|TG Marriage, Husbands]].  

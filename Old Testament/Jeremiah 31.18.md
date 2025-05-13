@@ -5,4 +5,4 @@
 [Jeremiah 31:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.18?lang=eng#p18)
 
 
-[^a]: Lam. 5:21.
+[^a]: [[Lamentations 5.21|Lam. 5:21]].  

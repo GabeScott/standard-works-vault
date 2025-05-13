@@ -5,4 +5,4 @@
 [Exodus 7:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.19?lang=eng#p19)
 
 
-[^a]: [[Exodus 4.9|Ex. 4:9.]]
+[^a]: [[Exodus 4.9|Ex. 4:9]].  

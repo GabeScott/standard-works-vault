@@ -5,5 +5,5 @@
 [Numbers 18:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.11?lang=eng#p11)
 
 
-[^a]: [[Exodus 29.27|Ex. 29:27 (27-28)]]; [[Leviticus 7.34|Lev. 7:34.]]
-[^b]: [[Leviticus 22.3|Lev. 22:3 (2-3, 11-13).]]
+[^a]: [[Exodus 29.27|Ex. 29:27 (27–28)]][[Exodus 29.28|]]; [[Leviticus 7.34|Lev. 7:34]].  
+[^b]: [[Leviticus 22.2|Lev. 22:3 (2–3, 11–13)]][[Leviticus 22.3|]][[Leviticus 22.11|]][[Leviticus 22.12|]][[Leviticus 22.13|]].  

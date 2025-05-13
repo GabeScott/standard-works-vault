@@ -5,4 +5,4 @@
 [Exodus 32:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.9?lang=eng#p9)
 
 
-[^a]: TG [[Apostasy of Israel]]; [[Stiffnecked, Stiffneckedness]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]]; [[Stiffnecked, Stiffneckedness|Stiffnecked]].  

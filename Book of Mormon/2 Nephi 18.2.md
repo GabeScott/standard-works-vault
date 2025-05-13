@@ -5,4 +5,4 @@
 [2 Nephi 18:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Witness, Witnesses]].
+[^a]: [[Witness, Witnesses|TG Witness]].  

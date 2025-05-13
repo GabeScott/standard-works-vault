@@ -5,4 +5,4 @@
 [Mormon 6:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p10#p10)
 
 
-[^a]: [[Judges 1.4|Judg. 1:4.]]
+[^a]: [[Judges 1.4|Judg. 1:4]].  

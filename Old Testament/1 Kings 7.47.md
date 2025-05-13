@@ -5,4 +5,4 @@
 [1 Kings 7:47](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.47?lang=eng#p47)
 
 
-[^a]: [[2 Kings 25.16|2 Kgs. 25:16.]]
+[^a]: [[2 Kings 25.16|2 Kgs. 25:16]].  

@@ -5,4 +5,4 @@
 [Exodus 37:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/37.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 25.23|Ex. 25:23 (23-29)]]; [[1 Kings 7.48|1 Kgs. 7:48.]]
+[^a]: [[Exodus 25.23|Ex. 25:23 (23–29)]][[Exodus 25.24|]][[Exodus 25.25|]][[Exodus 25.26|]][[Exodus 25.27|]][[Exodus 25.28|]][[Exodus 25.29|]]; [[1 Kings 7.48|1 Kgs. 7:48]].  

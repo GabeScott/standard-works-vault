@@ -5,5 +5,5 @@
 [Isaiah 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.19?lang=eng#p19)
 
 
-[^a]: [[Revelation 6.15|Rev. 6:15.]]
-[^b]: TG [[Courage, Courageous]]; [[Fearful]].
+[^a]: [[Revelation 6.15|Rev. 6:15]].  
+[^b]: [[Courage, Courageous|TG Courage]]; [[Fearful|Fearful]].  

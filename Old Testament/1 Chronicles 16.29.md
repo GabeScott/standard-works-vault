@@ -5,6 +5,6 @@
 [1 Chronicles 16:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.29?lang=eng#p29)
 
 
-[^a]: TG [[Assembly for Worship]].
-[^b]: TG [[Beauty]].
-[^c]: TG [[Holiness]].
+[^a]: [[Assembly for Worship|TG Assembly for Worship]].  
+[^b]: [[Beauty|TG Beauty]].  
+[^c]: [[Holiness|TG Holiness]].  

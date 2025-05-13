@@ -5,4 +5,4 @@
 [2 Samuel 22:41](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.41?lang=eng#p41)
 
 
-[^a]: [[Genesis 49.8|Gen. 49:8.]]
+[^a]: [[Genesis 49.8|Gen. 49:8]].  

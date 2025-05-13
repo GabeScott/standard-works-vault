@@ -5,9 +5,9 @@
 [Genesis 18:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.19?lang=eng#p19)
 
 
-[^a]: TG [[God, Omniscience of]].
-[^b]: TG [[Family, Children, Responsibilities toward]]; [[Teaching with the Spirit]].
-[^c]: TG [[Children]]; [[Family]].
-[^d]: [[Alma 23.3|Alma 23:3.]]
-[^e]: TG [[Loyalty]]; [[Trustworthiness]].
-[^f]: TG [[Judgment]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^b]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]]; [[Teaching, Teach, Taught|Teaching]].  
+[^c]: [[Children|TG Children]]; [[Family|Family]].  
+[^d]: [[Alma 23.3|Alma 23:3]].  
+[^e]: [[Loyalty|TG Loyalty]]; [[Trustworthiness|Trustworthiness]].  
+[^f]: [[Judgment|TG Judgment]].  

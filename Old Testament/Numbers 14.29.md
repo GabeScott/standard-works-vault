@@ -5,5 +5,5 @@
 [Numbers 14:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.29?lang=eng#p29)
 
 
-[^a]: [[Hebrews 3.17|Heb. 3:17.]]
-[^b]: [[Numbers 26.65|Num. 26:65]]; [[Ezekiel 20.13|Ezek. 20:13 (13, 15).]]
+[^a]: [[Hebrews 3.17|Heb. 3:17]].  
+[^b]: [[Numbers 26.65|Num. 26:65]]; [[Ezekiel 20.13|Ezek. 20:13 (13, 15)]][[Ezekiel 20.15|]].  

@@ -5,5 +5,5 @@
 [Numbers 20:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 106.33|Ps. 106:33.]]
-[^b]: TG [[Rashness]].
+[^a]: [[Psalms 106.33|Ps. 106:33]].  
+[^b]: [[Rashness|TG Rashness]].  

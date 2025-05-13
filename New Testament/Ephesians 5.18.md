@@ -5,5 +5,5 @@
 [Ephesians 5:18](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.18?lang=eng#p18)
 
 
-[^a]: TG [[Drunkenness]]; [[Word of Wisdom]].
-[^b]: TG [[Temperance, Temperate]].
+[^a]: [[Drunkenness|TG Drunkenness]]; [[Word of Wisdom|Word of Wisdom]].  
+[^b]: [[Temperance, Temperate|TG Temperance]].  

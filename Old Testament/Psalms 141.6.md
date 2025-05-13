@@ -5,4 +5,4 @@
 [Psalms 141:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/141.6?lang=eng#p6)
 
 
-[^a]: IE the righteous.
+[^a]: IE the righteous.  

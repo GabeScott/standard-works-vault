@@ -5,6 +5,6 @@
 [Matthew 11:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.19?lang=eng#p19)
 
 
-[^a]: GR a drunkard.
-[^b]: GR tax collectors.
-[^c]: GR by her deeds, works.
+[^a]: GR a drunkard.  
+[^b]: GR tax collectors.  
+[^c]: GR by her deeds, works.  

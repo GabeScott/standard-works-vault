@@ -5,4 +5,4 @@
 [Deuteronomy 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.2?lang=eng#p2)
 
 
-[^a]: [[Mosiah 23.21|Mosiah 23:21]]; [[Helaman 12.3|Hel. 12:3]]; [[D&C 95.1|D&C 95:1]]; [[D&C 98.21|98:21]]; [[D&C 105.6|105:6.]]
+[^a]: [[Mosiah 23.21|Mosiah 23:21]]; [[Helaman 12.3|Hel. 12:3]]; [[D&C 95.1|D&C 95:1]]; [[D&C 98.21|98:21]]; [[D&C 105.6|105:6]].  

@@ -5,4 +5,4 @@
 [Acts 7:54](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.54?lang=eng#p54)
 
 
-[^a]: [[1 Nephi 16.2|1 Ne. 16:2 (1-4).]]
+[^a]: [[1 Nephi 16.1|1 Ne. 16:2 (1–4)]][[1 Nephi 16.2|]][[1 Nephi 16.3|]][[1 Nephi 16.4|]].  

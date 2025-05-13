@@ -5,5 +5,5 @@
 [Numbers 28:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.7?lang=eng#p7)
 
 
-[^a]: HEB each (also v. 13).
-[^b]: [[Genesis 35.14|Gen. 35:14.]]
+[^a]: HEB each (also [[Numbers 28.13|v. 13]]).  
+[^b]: [[Genesis 35.14|Gen. 35:14]].  

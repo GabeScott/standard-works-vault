@@ -5,4 +5,4 @@
 [Ether 4:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/4?lang=eng&id=p14#p14)
 
 
-[^a]: [[D&C 121.26|D&C 121:26 (26-29).]]
+[^a]: [[D&C 121.26|D&C 121:26 (26–29)]][[D&C 121.27|]][[D&C 121.28|]][[D&C 121.29|]].  

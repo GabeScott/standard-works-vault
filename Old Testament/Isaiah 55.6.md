@@ -5,4 +5,4 @@
 [Isaiah 55:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.6?lang=eng#p6)
 
 
-[^a]: TG [[God, Access to]].
+[^a]: [[God, Access to|TG God, Access to]].  

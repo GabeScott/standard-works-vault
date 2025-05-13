@@ -5,4 +5,4 @@
 [Proverbs 20:30](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.30?lang=eng#p30)
 
 
-[^a]: IE flogging, strokes, blows.
+[^a]: IE flogging, strokes, blows.  

@@ -5,4 +5,4 @@
 [Revelation 18:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.6?lang=eng#p6)
 
 
-[^a]: [[D&C 1.9|D&C 1:9]]. TG [[Retribution]].
+[^a]: [[D&C 1.9|D&C 1:9]]. [[Retribution|TG Retribution]].  

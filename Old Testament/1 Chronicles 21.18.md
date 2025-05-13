@@ -5,5 +5,5 @@
 [1 Chronicles 21:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.18?lang=eng#p18)
 
 
-[^a]: [[Mosiah 4.1|Mosiah 4:1.]]
-[^b]: [[2 Chronicles 3.1|2 Chr. 3:1 (1-2).]]
+[^a]: [[Mosiah 4.1|Mosiah 4:1]].  
+[^b]: [[2 Chronicles 3.1|2 Chr. 3:1 (1–2)]][[2 Chronicles 3.2|]].  

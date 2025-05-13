@@ -5,4 +5,4 @@
 [1 Kings 4:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.28?lang=eng#p28)
 
 
-[^a]: OR fast steeds.
+[^a]: OR fast steeds.  

@@ -5,4 +5,4 @@
 [1 Chronicles 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/1.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 10.4|Gen. 10:4 (2-5).]]
+[^a]: [[Genesis 10.2|Gen. 10:4 (2–5)]][[Genesis 10.3|]][[Genesis 10.4|]][[Genesis 10.5|]].  

@@ -5,4 +5,4 @@
 [Abraham 1:28](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.28?lang=eng#p28)
 
 
-[^a]: [[Moses 6.5|Moses 6:5]]. TG [[Scriptures, Writing of]].
+[^a]: [[Moses 6.5|Moses 6:5]]. [[Scriptures, Writing of|TG Scriptures, Writing of]].  

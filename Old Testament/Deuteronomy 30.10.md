@@ -5,4 +5,4 @@
 [Deuteronomy 30:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.10?lang=eng#p10)
 
 
-[^a]: [[Mosiah 7.33|Mosiah 7:33.]]
+[^a]: [[Mosiah 7.33|Mosiah 7:33]].  

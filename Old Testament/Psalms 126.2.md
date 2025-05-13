@@ -5,5 +5,5 @@
 [Psalms 126:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/126.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 36.36|Ezek. 36:36.]]
-[^b]: [[Luke 1.49|Luke 1:49.]]
+[^a]: [[Ezekiel 36.36|Ezek. 36:36]].  
+[^b]: [[Luke 1.49|Luke 1:49]].  

@@ -5,7 +5,7 @@
 [Mosiah 2:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p20#p20)
 
 
-[^a]: [[Job 1.21|Job 1:21]]; [[Psalms 34.1|Ps. 34:1 (1-3)]]; [[D&C 59.21|D&C 59:21]]; [[D&C 62.7|62:7]]; [[D&C 78.19|78:19.]]
-[^b]: [[1 Samuel 12.24|1 Sam. 12:24]]; [[1 Nephi 18.16|1 Ne. 18:16]]; [[D&C 136.28|D&C 136:28.]]
-[^c]: [[D&C 63.3|D&C 63:3.]]
-[^d]: [[Nehemiah 12.43|Neh. 12:43.]]
+[^a]: [[Job 1.21|Job 1:21]]; [[Psalms 34.1|Ps. 34:1 (1–3)]][[Psalms 34.2|]][[Psalms 34.3|]]; [[D&C 59.21|D&C 59:21]]; [[D&C 62.7|62:7]]; [[D&C 78.19|78:19]].  
+[^b]: [[1 Samuel 12.24|1 Sam. 12:24]]; [[1 Nephi 18.16|1 Ne. 18:16]]; [[D&C 136.28|D&C 136:28]].  
+[^c]: [[D&C 63.3|D&C 63:3]].  
+[^d]: [[Nehemiah 12.43|Neh. 12:43]].  

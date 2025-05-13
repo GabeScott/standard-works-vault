@@ -5,6 +5,6 @@
 [Alma 5:42](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p42#p42)
 
 
-[^a]: [[Alma 3.27|Alma 3:27 (26-27)]]; [[D&C 29.45|D&C 29:45.]]
-[^b]: [[Romans 6.23|Rom. 6:23.]]
-[^c]: [[Helaman 14.18|Hel. 14:18 (16-18).]]
+[^a]: [[Alma 3.26|Alma 3:27 (26–27)]][[Alma 3.27|]]; [[D&C 29.45|D&C 29:45]].  
+[^b]: [[Romans 6.23|Rom. 6:23]].  
+[^c]: [[Helaman 14.16|Hel. 14:18 (16–18)]][[Helaman 14.17|]][[Helaman 14.18|]].  

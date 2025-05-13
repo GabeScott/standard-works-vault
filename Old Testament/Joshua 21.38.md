@@ -5,4 +5,4 @@
 [Joshua 21:38](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.38?lang=eng#p38)
 
 
-[^a]: [[Joshua 20.8|Josh. 20:8.]]
+[^a]: [[Joshua 20.8|Josh. 20:8]].  

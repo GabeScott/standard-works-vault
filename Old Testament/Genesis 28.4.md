@@ -5,4 +5,4 @@
 [Genesis 28:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.4?lang=eng#p4)
 
 
-[^a]: TG [[Seed of Abraham]].
+[^a]: [[Seed of Abraham|TG Seed of Abraham]].  

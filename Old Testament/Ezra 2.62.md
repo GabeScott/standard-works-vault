@@ -5,9 +5,9 @@
 [Ezra 2:62](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/2.62?lang=eng#p62)
 
 
-[^a]: OR record.
-[^b]: HEB they that traced their genealogy.
-[^c]: TG [[Book of Remembrance]]; [[Genealogy and Temple Work]].
-[^d]: TG [[Worthiness, Worthy]].
-[^e]: OR excluded.
-[^f]: TG [[Priesthood, Qualifying for]].
+[^a]: OR record.  
+[^b]: HEB they that traced their genealogy.  
+[^c]: [[Book of Remembrance|TG Book of Remembrance]]; [[Genealogy and Temple Work|Genealogy and Temple Work]].  
+[^d]: [[Worthiness, Worthy|TG Worthiness]].  
+[^e]: OR excluded.  
+[^f]: [[Priesthood, Qualifying for|TG Priesthood, Qualifying for]].  

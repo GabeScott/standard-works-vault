@@ -5,4 +5,4 @@
 [Jeremiah 23:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.19?lang=eng#p19)
 
 
-[^a]: [[3 Nephi 21.21|3 Ne. 21:21 (20-21).]]
+[^a]: [[3 Nephi 21.20|3 Ne. 21:21 (20–21)]][[3 Nephi 21.21|]].  

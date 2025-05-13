@@ -5,6 +5,6 @@
 [Luke 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.14?lang=eng#p14)
 
 
-[^a]: GR for extortion.
-[^b]: TG [[Contentment]].
-[^c]: TG [[Wages]].
+[^a]: GR for extortion.  
+[^b]: [[Contentment|TG Contentment]].  
+[^c]: [[Wages|TG Wages]].  

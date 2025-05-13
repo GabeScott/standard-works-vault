@@ -5,5 +5,5 @@
 [1 Kings 8:63](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.63?lang=eng#p63)
 
 
-[^a]: TG [[Self-Sacrifice]].
-[^b]: TG [[Dedication, Dedicate]].
+[^a]: [[Sacrifice|TG Sacrifice]].  
+[^b]: [[Dedication, Dedicate|TG Dedication]].  

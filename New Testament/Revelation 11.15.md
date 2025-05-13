@@ -5,6 +5,6 @@
 [Revelation 11:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/11.15?lang=eng#p15)
 
 
-[^a]: TG [[Kings, Earthly]].
-[^c]: Dan. 7:13 (9-14).
-[^d]: TG [[Jesus Christ, Millennial Reign]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  
+[^c]: [[Daniel 7.9|Dan. 7:13 (9–14)]][[Daniel 7.10|]][[Daniel 7.11|]][[Daniel 7.12|]][[Daniel 7.13|]][[Daniel 7.14|]].  
+[^d]: [[Jesus Christ, Millennial Reign|TG Jesus Christ, Millennial Reign]].  

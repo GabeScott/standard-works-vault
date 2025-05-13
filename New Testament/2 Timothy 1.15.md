@@ -5,4 +5,4 @@
 [2 Timothy 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.15?lang=eng#p15)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

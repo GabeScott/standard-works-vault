@@ -5,4 +5,4 @@
 [Mosiah 20:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/20?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mosiah 11.12|Mosiah 11:12.]]
+[^a]: [[Mosiah 11.12|Mosiah 11:12]].  

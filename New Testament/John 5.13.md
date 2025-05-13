@@ -5,4 +5,4 @@
 [John 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.13?lang=eng#p13)
 
 
-[^a]: GR knew.
+[^a]: GR knew.  

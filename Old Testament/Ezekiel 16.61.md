@@ -5,5 +5,5 @@
 [Ezekiel 16:61](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.61?lang=eng#p61)
 
 
-[^a]: [[Ezekiel 36.31|Ezek. 36:31.]]
-[^b]: TG [[Repent, Repentance]].
+[^a]: [[Ezekiel 36.31|Ezek. 36:31]].  
+[^b]: [[Repent, Repentance|TG Repent]].  

@@ -5,4 +5,4 @@
 [Acts 10:47](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.47?lang=eng#p47)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]].
+[^a]: [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  

@@ -5,4 +5,4 @@
 [Acts 27:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.22?lang=eng#p22)
 
 
-[^a]: [[Acts 27.44|Acts 27:44.]]
+[^a]: [[Acts 27.44|Acts 27:44]].  

@@ -5,4 +5,4 @@
 [Mark 7:5](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.5?lang=eng#p5)
 
 
-[^a]: TG [[Wash, Washing]].
+[^a]: [[Wash, Washing|TG Wash]].  

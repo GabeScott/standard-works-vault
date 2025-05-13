@@ -5,5 +5,5 @@
 [Jeremiah 6:29](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.29?lang=eng#p29)
 
 
-[^a]: OR blew the fire.
-[^b]: OR the smelting is in vain.
+[^a]: OR blew the fire.  
+[^b]: OR the smelting is in vain.  

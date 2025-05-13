@@ -5,5 +5,5 @@
 [Leviticus 16:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.13?lang=eng#p13)
 
 
-[^a]: [[Revelation 8.3|Rev. 8:3 (2-4).]]
-[^b]: IE upon the ark containing the stone tablets and other written revelations.
+[^a]: [[Revelation 8.2|Rev. 8:3 (2–4)]][[Revelation 8.3|]][[Revelation 8.4|]].  
+[^b]: IE upon the ark containing the stone tablets and other written revelations.  

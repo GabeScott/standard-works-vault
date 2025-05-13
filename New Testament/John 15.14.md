@@ -5,5 +5,5 @@
 [John 15:14](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.14?lang=eng#p14)
 
 
-[^a]: [[D&C 84.63|D&C 84:63.]]
-[^b]: TG [[Commandments of God]].
+[^a]: [[D&C 84.63|D&C 84:63]].  
+[^b]: [[Commandments of God|TG Commandments of God]].  

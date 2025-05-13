@@ -5,4 +5,4 @@
 [Mark 1:31](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.31?lang=eng#p31)
 
 
-[^a]: TG [[Health]].
+[^a]: [[Heal, Healing|TG Heal]].  

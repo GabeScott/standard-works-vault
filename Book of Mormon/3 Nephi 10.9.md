@@ -5,5 +5,5 @@
 [3 Nephi 10:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/10?lang=eng&id=p9#p9)
 
 
-[^a]: [[3 Nephi 8.19|3 Ne. 8:19 (3, 19-23).]]
-[^b]: [[Helaman 14.21|Hel. 14:21.]]
+[^a]: [[3 Nephi 8.3|3 Ne. 8:19 (3, 19–23)]][[3 Nephi 8.19|]][[3 Nephi 8.20|]][[3 Nephi 8.21|]][[3 Nephi 8.22|]][[3 Nephi 8.23|]].  
+[^b]: [[Helaman 14.21|Hel. 14:21]].  

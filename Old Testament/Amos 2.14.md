@@ -5,6 +5,6 @@
 [Amos 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/2.14?lang=eng#p14)
 
 
-[^a]: [[Amos 9.1|Amos 9:1.]]
-[^b]: [[Ecclesiastes 9.11|Eccl. 9:11.]]
-[^c]: TG [[Deliver, Deliverance]].
+[^a]: [[Amos 9.1|Amos 9:1]].  
+[^b]: [[Ecclesiastes 9.11|Eccl. 9:11]].  
+[^c]: [[Deliver, Deliverance|TG Deliver]].  

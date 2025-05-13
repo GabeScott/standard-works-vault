@@ -5,5 +5,5 @@
 [Isaiah 65:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.11?lang=eng#p11)
 
 
-[^a]: HEB Gad (an idol of fortune).
-[^b]: HEB Meni (an idol of fate).
+[^a]: HEB Gad (an idol of fortune).  
+[^b]: HEB Meni (an idol of fate).  

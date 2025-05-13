@@ -5,4 +5,4 @@
 [Numbers 4:41](https://www.churchofjesuschrist.org/study/scriptures/ot/num/4.41?lang=eng#p41)
 
 
-[^a]: [[Exodus 6.17|Ex. 6:17.]]
+[^a]: [[Exodus 6.17|Ex. 6:17]].  

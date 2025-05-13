@@ -5,8 +5,8 @@
 [Alma 42:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p15#p15)
 
 
-[^a]: [[2 Nephi 9.10|2 Ne. 9:10]]; [[Mosiah 16.8|Mosiah 16:8 (7-8)]]. TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]].
-[^b]: TG [[Jesus Christ, Mission of]].
-[^c]: [[Alma 12.32|Alma 12:32]]. TG [[God, Justice of]].
-[^d]: TG [[God, Perfection of]].
-[^e]: TG [[God, Mercy of]].
+[^a]: [[2 Nephi 9.10|2 Ne. 9:10]]; [[Mosiah 16.7|Mosiah 16:8 (7–8)]][[Mosiah 16.8|]]. [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer|Jesus Christ, Redeemer]].  
+[^b]: [[Jesus Christ, Mission of|TG Jesus Christ, Mission of]].  
+[^c]: [[Alma 12.32|Alma 12:32]]. [[Justice|TG Justice]].  
+[^d]: [[God, Perfection of|TG God, Perfection of]].  
+[^e]: [[God, Mercy of|TG God, Mercy of]].  

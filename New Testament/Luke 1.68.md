@@ -5,6 +5,6 @@
 [Luke 1:68](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.68?lang=eng#p68)
 
 
-[^a]: TG [[Thanksgiving]].
-[^b]: [[Luke 7.16|Luke 7:16.]]
-[^c]: TG [[Jesus Christ, Redeemer]].
+[^a]: [[Thanksgiving|TG Thanksgiving]].  
+[^b]: [[Luke 7.16|Luke 7:16]].  
+[^c]: [[Jesus Christ, Redeemer|TG Jesus Christ, Redeemer]].  

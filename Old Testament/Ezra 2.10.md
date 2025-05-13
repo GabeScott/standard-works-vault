@@ -5,4 +5,4 @@
 [Ezra 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/2.10?lang=eng#p10)
 
 
-[^a]: [[Nehemiah 7.15|Neh. 7:15.]]
+[^a]: [[Nehemiah 7.15|Neh. 7:15]].  

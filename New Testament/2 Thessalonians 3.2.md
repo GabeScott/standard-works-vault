@@ -5,4 +5,4 @@
 [2 Thessalonians 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.2?lang=eng#p2)
 
 
-[^a]: GR unsuitable, absurd, improper.
+[^a]: GR unsuitable, absurd, improper.  

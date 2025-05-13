@@ -5,4 +5,4 @@
 [Acts 20:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.13?lang=eng#p13)
 
 
-[^a]: GR travel by land, on foot.
+[^a]: GR travel by land, on foot.  

@@ -5,4 +5,4 @@
 [1 Kings 10:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.16?lang=eng#p16)
 
 
-[^a]: HEB shields or breastplates.
+[^a]: HEB shields or breastplates.  

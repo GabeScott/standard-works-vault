@@ -5,8 +5,8 @@
 [Leviticus 20:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.6?lang=eng#p6)
 
 
-[^a]: HEB to magic or necromancy.
-[^b]: TG [[Spirits, Evil or Unclean]].
-[^c]: TG [[Sorcery]].
-[^d]: [[2 Nephi 18.19|2 Ne. 18:19.]]
-[^e]: TG [[Excommunication]].
+[^a]: HEB to magic or necromancy.  
+[^b]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  
+[^c]: [[Sorcery|TG Sorcery]].  
+[^d]: [[2 Nephi 18.19|2 Ne. 18:19]].  
+[^e]: [[Excommunication|TG Excommunication]].  

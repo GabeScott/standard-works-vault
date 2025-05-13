@@ -5,4 +5,4 @@
 [Isaiah 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.13?lang=eng#p13)
 
 
-[^a]: HEB contend. Micah 6:2.
+[^a]: HEB contend. [[Micah 6.2|Micah 6:2]].  

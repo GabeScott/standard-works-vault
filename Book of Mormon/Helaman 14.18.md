@@ -5,5 +5,5 @@
 [Helaman 14:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p18#p18)
 
 
-[^a]: [[Luke 13.7|Luke 13:7.]]
-[^b]: TG [[Death, Spiritual, Second]].
+[^a]: [[Luke 13.7|Luke 13:7]].  
+[^b]: [[Death, Spiritual, Second|TG Death, Spiritual, Second]].  

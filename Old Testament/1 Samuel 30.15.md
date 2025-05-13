@@ -5,4 +5,4 @@
 [1 Samuel 30:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/30.15?lang=eng#p15)
 
 
-[^a]: [[Deuteronomy 23.15|Deut. 23:15.]]
+[^a]: [[Deuteronomy 23.15|Deut. 23:15]].  

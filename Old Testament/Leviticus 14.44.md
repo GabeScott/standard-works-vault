@@ -5,4 +5,4 @@
 [Leviticus 14:44](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.44?lang=eng#p44)
 
 
-[^a]: HEB malignant.
+[^a]: HEB malignant.  

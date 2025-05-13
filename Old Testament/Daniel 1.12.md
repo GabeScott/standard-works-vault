@@ -5,4 +5,4 @@
 [Daniel 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/1.12?lang=eng#p12)
 
 
-[^a]: IE foods made of seeds, grains, etc. Mosiah 9:9 (8-9); [[D&C 89.14|D&C 89:14.]]
+[^a]: IE foods made of seeds, grains, etc. [[Mosiah 9.8|Mosiah 9:9 (8–9)]][[Mosiah 9.9|]]; [[D&C 89.14|D&C 89:14]].  

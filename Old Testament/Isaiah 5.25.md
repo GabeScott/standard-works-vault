@@ -5,5 +5,5 @@
 [Isaiah 5:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.25?lang=eng#p25)
 
 
-[^a]: TG [[God, Indignation of]].
-[^b]: TG [[God, Access to]].
+[^a]: [[God, Indignation of|TG God, Indignation of]].  
+[^b]: [[God, Access to|TG God, Access to]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 28:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/28.15?lang=eng#p15)
 
 
-[^a]: [[Exodus 25.37|Ex. 25:37.]]
+[^a]: [[Exodus 25.37|Ex. 25:37]].  

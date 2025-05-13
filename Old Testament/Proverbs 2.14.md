@@ -5,4 +5,4 @@
 [Proverbs 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/2.14?lang=eng#p14)
 
 
-[^a]: OR perverseness.
+[^a]: OR perverseness.  

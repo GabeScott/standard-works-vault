@@ -5,4 +5,4 @@
 [Luke 13:31](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.31?lang=eng#p31)
 
 
-[^a]: [[Luke 3.19|Luke 3:19.]]
+[^a]: [[Luke 3.19|Luke 3:19]].  

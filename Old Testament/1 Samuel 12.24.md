@@ -5,6 +5,6 @@
 [1 Samuel 12:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.24?lang=eng#p24)
 
 
-[^a]: TG [[Reverence]].
-[^b]: TG [[Commitment]].
-[^c]: [[Mosiah 2.20|Mosiah 2:20 (20-21).]]
+[^a]: [[Reverence|TG Reverence]].  
+[^b]: [[Commitment|TG Commitment]].  
+[^c]: [[Mosiah 2.20|Mosiah 2:20 (20–21)]][[Mosiah 2.21|]].  

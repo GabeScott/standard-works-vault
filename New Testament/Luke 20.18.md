@@ -5,4 +5,4 @@
 [Luke 20:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.18?lang=eng#p18)
 
 
-[^a]: GR scatter like chaff.
+[^a]: GR scatter like chaff.  

@@ -5,4 +5,4 @@
 [1 Kings 16:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.13?lang=eng#p13)
 
 
-[^a]: TG [[Unrighteous Dominion]].
+[^a]: [[Unrighteous Dominion|TG Unrighteous Dominion]].  

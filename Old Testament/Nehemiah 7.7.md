@@ -5,4 +5,4 @@
 [Nehemiah 7:7](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/7.7?lang=eng#p7)
 
 
-[^a]: [[Ezra 2.2|Ezra 2:2.]]
+[^a]: [[Ezra 2.2|Ezra 2:2]].  

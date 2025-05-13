@@ -5,4 +5,4 @@
 [Leviticus 18:26](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.26?lang=eng#p26)
 
 
-[^a]: TG [[Obedience, Obedient, Obey]].
+[^a]: [[Obedience, Obedient, Obey|TG Obedience]].  

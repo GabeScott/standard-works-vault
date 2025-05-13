@@ -5,5 +5,5 @@
 [Isaiah 65:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.1?lang=eng#p1)
 
 
-[^a]: [[Romans 10.20|Rom. 10:20.]]
-[^b]: [[Isaiah 63.19|Isa. 63:19.]]
+[^a]: [[Romans 10.20|Rom. 10:20]].  
+[^b]: [[Isaiah 63.19|Isa. 63:19]].  

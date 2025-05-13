@@ -5,4 +5,4 @@
 [Moses 6:37](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.37?lang=eng#p37)
 
 
-[^a]: [[Matthew 11.6|Matt. 11:6]]; [[1 Nephi 16.2|1 Ne. 16:2 (1-3)]]; [[Mosiah 13.7|Mosiah 13:7.]]
+[^a]: [[Matthew 11.6|Matt. 11:6]]; [[1 Nephi 16.1|1 Ne. 16:2 (1–3)]][[1 Nephi 16.2|]][[1 Nephi 16.3|]]; [[Mosiah 13.7|Mosiah 13:7]].  

@@ -5,4 +5,4 @@
 [John 20:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.12?lang=eng#p12)
 
 
-[^a]: TG [[Angels]].
+[^a]: [[Angels|TG Angels]].  

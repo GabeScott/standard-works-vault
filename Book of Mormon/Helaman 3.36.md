@@ -5,4 +5,4 @@
 [Helaman 3:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p36#p36)
 
 
-[^a]: TG [[Treasure]].
+[^a]: [[Treasure|TG Treasure]].  

@@ -5,4 +5,4 @@
 [2 Corinthians 9:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/9.11?lang=eng#p11)
 
 
-[^a]: TG [[Thanksgiving]].
+[^a]: [[Thanksgiving|TG Thanksgiving]].  

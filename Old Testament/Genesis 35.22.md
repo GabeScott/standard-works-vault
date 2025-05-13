@@ -5,6 +5,6 @@
 [Genesis 35:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.22?lang=eng#p22)
 
 
-[^a]: TG [[Sexual Immorality]].
-[^b]: [[Exodus 1.1|Ex. 1:1 (1-4).]]
-[^c]: TG [[Israel, Twelve Tribes of]].
+[^a]: [[Sexual Immorality|TG Sexual Immorality]].  
+[^b]: [[Exodus 1.1|Ex. 1:1 (1–4)]][[Exodus 1.2|]][[Exodus 1.3|]][[Exodus 1.4|]].  
+[^c]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  

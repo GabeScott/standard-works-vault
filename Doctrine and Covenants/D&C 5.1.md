@@ -5,4 +5,4 @@
 [D&C 5:1](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.1?lang=eng#p1)
 
 
-[^a]: [[D&C 5.23|D&C 5:23 (23-24)]]; JS—H 1:61.
+[^a]: [[D&C 5.23|D&C 5:23 (23–24)]][[D&C 5.24|]]; [[Joseph Smith History 1.61|JS—H 1:61]].  

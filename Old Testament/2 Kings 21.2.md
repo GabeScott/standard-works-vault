@@ -5,5 +5,5 @@
 [2 Kings 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.2?lang=eng#p2)
 
 
-[^a]: TG [[Sin]].
-[^b]: TG [[Apostasy of Israel]].
+[^a]: [[Sin|TG Sin]].  
+[^b]: [[Apostasy of Israel|TG Apostasy of Israel]].  

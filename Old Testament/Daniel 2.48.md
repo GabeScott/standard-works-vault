@@ -5,4 +5,4 @@
 [Daniel 2:48](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.48?lang=eng#p48)
 
 
-[^a]: [[Genesis 41.40|Gen. 41:40.]]
+[^a]: [[Genesis 41.40|Gen. 41:40]].  

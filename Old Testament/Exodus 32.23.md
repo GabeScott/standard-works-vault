@@ -5,5 +5,5 @@
 [Exodus 32:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.23?lang=eng#p23)
 
 
-[^a]: [[Acts 7.40|Acts 7:40]]; [[1 Nephi 17.42|1 Ne. 17:42.]]
-[^b]: [[Exodus 32.1|Ex. 32:1.]]
+[^a]: [[Acts 7.40|Acts 7:40]]; [[1 Nephi 17.42|1 Ne. 17:42]].  
+[^b]: [[Exodus 32.1|Ex. 32:1]].  

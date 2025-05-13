@@ -5,4 +5,4 @@
 [Mormon 3:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p19#p19)
 
 
-[^a]: [[1 Nephi 12.10|1 Ne. 12:10 (9-10)]]; [[3 Nephi 27.27|3 Ne. 27:27.]]
+[^a]: [[1 Nephi 12.9|1 Ne. 12:10 (9–10)]][[1 Nephi 12.10|]]; [[3 Nephi 27.27|3 Ne. 27:27]].  

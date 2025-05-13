@@ -5,6 +5,6 @@
 [2 Samuel 22:47](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.47?lang=eng#p47)
 
 
-[^a]: [[D&C 76.22|D&C 76:22 (22-23).]]
-[^b]: [[Exodus 15.2|Ex. 15:2.]]
-[^c]: [[Psalms 89.26|Ps. 89:26]]; [[Psalms 95.1|95:1.]]
+[^a]: [[D&C 76.22|D&C 76:22 (22–23)]][[D&C 76.23|]].  
+[^b]: [[Exodus 15.2|Ex. 15:2]].  
+[^c]: [[Psalms 89.26|Ps. 89:26]]; [[Psalms 95.1|95:1]].  

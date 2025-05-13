@@ -5,4 +5,4 @@
 [1 Samuel 12:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.17?lang=eng#p17)
 
 
-[^a]: TG [[Kings, Earthly]].
+[^a]: [[Kings, Earthly|TG Kings, Earthly]].  

@@ -5,4 +5,4 @@
 [Mark 10:52](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.52?lang=eng#p52)
 
 
-[^a]: GR saved, preserved, healed thee.
+[^a]: GR saved, preserved, healed thee.  

@@ -5,4 +5,4 @@
 [Alma 44:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p4#p4)
 
 
-[^a]: [[Mark 4.40|Mark 4:40 (35-41).]]
+[^a]: [[Mark 4.35|Mark 4:40 (35–41)]][[Mark 4.36|]][[Mark 4.37|]][[Mark 4.38|]][[Mark 4.39|]][[Mark 4.40|]][[Mark 4.41|]].  

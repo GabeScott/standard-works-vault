@@ -5,4 +5,4 @@
 [Leviticus 21:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/21.14?lang=eng#p14)
 
 
-[^a]: [[Ezekiel 44.22|Ezek. 44:22.]]
+[^a]: [[Ezekiel 44.22|Ezek. 44:22]].  

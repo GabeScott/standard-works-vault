@@ -5,4 +5,4 @@
 [James 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.9?lang=eng#p9)
 
 
-[^a]: TG [[Backbiting]]; [[Malice]].
+[^a]: [[Backbiting|TG Backbiting]]; [[Malice|Malice]].  

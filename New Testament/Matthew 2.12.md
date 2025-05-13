@@ -5,4 +5,4 @@
 [Matthew 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Dream]].
+[^a]: [[Dream|TG Dream]].  

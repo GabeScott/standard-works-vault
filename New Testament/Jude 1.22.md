@@ -5,4 +5,4 @@
 [Jude 1:22](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.22?lang=eng#p22)
 
 
-[^a]: TG [[Compassion]].
+[^a]: [[Compassion|TG Compassion]].  

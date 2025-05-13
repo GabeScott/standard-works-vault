@@ -5,5 +5,5 @@
 [2 Kings 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/5.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 30.2|Gen. 30:2.]]
-[^b]: [[1 Kings 20.7|1 Kgs. 20:7.]]
+[^a]: [[Genesis 30.2|Gen. 30:2]].  
+[^b]: [[1 Kings 20.7|1 Kgs. 20:7]].  

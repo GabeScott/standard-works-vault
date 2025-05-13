@@ -5,8 +5,8 @@
 [1 Corinthians 10:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.13?lang=eng#p13)
 
 
-[^a]: GR seized upon.
-[^b]: [[Job 4.7|Job 4:7 (1, 2, 7)]]; [[Job 37.23|37:23]]; [[Psalms 34.17|Ps. 34:17 (17, 19)]]; [[1 Nephi 22.19|1 Ne. 22:19]]; [[Alma 14.11|Alma 14:11]]. TG [[Testament]].
-[^c]: TG [[Temptation]].
-[^d]: [[D&C 95.1|D&C 95:1.]]
-[^e]: TG [[Strength]].
+[^a]: GR seized upon.  
+[^b]: [[Job 4.1|Job 4:7 (1, 2, 7)]][[Job 4.2|]][[Job 4.7|]]; [[Job 37.23|37:23]]; [[Psalms 34.17|Ps. 34:17 (17, 19)]][[Psalms 34.19|]]; [[1 Nephi 22.19|1 Ne. 22:19]]; [[Alma 14.11|Alma 14:11]]. [[Test, Try, Prove|TG Test]].  
+[^c]: [[Temptation|TG Temptation]].  
+[^d]: [[D&C 95.1|D&C 95:1]].  
+[^e]: [[Strength|TG Strength]].  

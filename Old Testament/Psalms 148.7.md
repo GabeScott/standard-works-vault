@@ -5,4 +5,4 @@
 [Psalms 148:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/148.7?lang=eng#p7)
 
 
-[^a]: HEB sea monsters.
+[^a]: HEB sea monsters.  

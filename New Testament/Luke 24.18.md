@@ -5,4 +5,4 @@
 [Luke 24:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.18?lang=eng#p18)
 
 
-[^a]: [[John 19.25|John 19:25.]]
+[^a]: [[John 19.25|John 19:25]].  

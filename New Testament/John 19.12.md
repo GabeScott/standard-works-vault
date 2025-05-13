@@ -5,4 +5,4 @@
 [John 19:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.12?lang=eng#p12)
 
 
-[^a]: [[John 18.37|John 18:37 (33, 36-37).]]
+[^a]: [[John 18.33|John 18:37 (33, 36–37)]][[John 18.36|]][[John 18.37|]].  

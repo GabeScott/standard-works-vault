@@ -5,5 +5,5 @@
 [Abraham 3:9](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.9?lang=eng#p9)
 
 
-[^a]: TG [[Astronomy]].
-[^b]: [[D&C 77.3|D&C 77:3]]; [[D&C 88.42|88:42 (37-42)]]. TG [[Order]].
+[^a]: [[Astronomy|TG Astronomy]].  
+[^b]: [[D&C 77.3|D&C 77:3]]; [[D&C 88.37|88:42 (37–42)]][[D&C 88.38|]][[D&C 88.39|]][[D&C 88.40|]][[D&C 88.41|]][[D&C 88.42|]]. [[Order|TG Order]].  

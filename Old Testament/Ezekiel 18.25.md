@@ -5,5 +5,5 @@
 [Ezekiel 18:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.25?lang=eng#p25)
 
 
-[^a]: [[Ezekiel 33.17|Ezek. 33:17.]]
-[^b]: HEB right or just.
+[^a]: [[Ezekiel 33.17|Ezek. 33:17]].  
+[^b]: HEB right or just.  

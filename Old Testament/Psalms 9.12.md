@@ -5,6 +5,6 @@
 [Psalms 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/9.12?lang=eng#p12)
 
 
-[^a]: HEB avenges.
-[^b]: [[Genesis 9.5|Gen. 9:5.]]
-[^c]: TG [[Humility, Humble]].
+[^a]: HEB avenges.  
+[^b]: [[Genesis 9.5|Gen. 9:5]].  
+[^c]: [[Humility, Humble|TG Humility]].  

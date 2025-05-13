@@ -5,4 +5,4 @@
 [Mosiah 27:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p30#p30)
 
 
-[^a]: [[D&C 84.46|D&C 84:46 (45-46).]]
+[^a]: [[D&C 84.45|D&C 84:46 (45–46)]][[D&C 84.46|]].  

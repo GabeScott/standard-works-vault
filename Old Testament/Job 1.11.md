@@ -5,5 +5,5 @@
 [Job 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.11?lang=eng#p11)
 
 
-[^a]: [[Job 19.21|Job 19:21.]]
-[^b]: TG [[Curse]].
+[^a]: [[Job 19.21|Job 19:21]].  
+[^b]: [[Curse|TG Curse]].  

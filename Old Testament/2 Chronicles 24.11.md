@@ -5,4 +5,4 @@
 [2 Chronicles 24:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/24.11?lang=eng#p11)
 
 
-[^a]: [[2 Kings 12.10|2 Kgs. 12:10.]]
+[^a]: [[2 Kings 12.10|2 Kgs. 12:10]].  

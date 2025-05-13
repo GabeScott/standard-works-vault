@@ -5,4 +5,4 @@
 [Moses 1:28](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.28?lang=eng#p28)
 
 
-[^a]: [[Moses 7.23|Moses 7:23.]]
+[^a]: [[Moses 7.23|Moses 7:23]].  

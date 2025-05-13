@@ -5,5 +5,5 @@
 [3 Nephi 15:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/15?lang=eng&id=p21#p21)
 
 
-[^a]: [[John 10.16|John 10:16 (14-16).]]
-[^b]: TG [[Jesus Christ, Good Shepherd]].
+[^a]: [[John 10.14|John 10:16 (14–16)]][[John 10.15|]][[John 10.16|]].  
+[^b]: [[Jesus Christ, Good Shepherd|TG Jesus Christ, Good Shepherd]].  

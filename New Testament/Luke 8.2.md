@@ -5,4 +5,4 @@
 [Luke 8:2](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.2?lang=eng#p2)
 
 
-[^a]: [[Mark 16.9|Mark 16:9 (1, 9).]]
+[^a]: [[Mark 16.1|Mark 16:9 (1, 9)]][[Mark 16.9|]].  

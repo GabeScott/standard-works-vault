@@ -5,4 +5,4 @@
 [2 Samuel 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/9.2?lang=eng#p2)
 
 
-[^a]: [[2 Samuel 16.1|2 Sam. 16:1.]]
+[^a]: [[2 Samuel 16.1|2 Sam. 16:1]].  

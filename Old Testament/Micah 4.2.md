@@ -5,8 +5,8 @@
 [Micah 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/4.2?lang=eng#p2)
 
 
-[^a]: TG [[Zion, Sion]].
-[^b]: TG [[Walking with God]].
-[^c]: [[D&C 58.13|D&C 58:13.]]
-[^d]: TG [[Jerusalem, New]].
-[^e]: TG [[Jerusalem]].
+[^a]: [[Zion, Sion|TG Zion]].  
+[^b]: [[Walking with God|TG Walking with God]].  
+[^c]: [[D&C 58.13|D&C 58:13]].  
+[^d]: [[Jerusalem, New|TG Jerusalem, New]].  
+[^e]: [[Jerusalem|TG Jerusalem]].  

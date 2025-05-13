@@ -5,5 +5,5 @@
 [Alma 14:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/14?lang=eng&id=p19#p19)
 
 
-[^a]: [[John 19.10|John 19:10 (9-10).]]
-[^b]: [[Mosiah 7.8|Mosiah 7:8.]]
+[^a]: [[John 19.9|John 19:10 (9–10)]][[John 19.10|]].  
+[^b]: [[Mosiah 7.8|Mosiah 7:8]].  

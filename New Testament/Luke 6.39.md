@@ -5,6 +5,6 @@
 [Luke 6:39](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.39?lang=eng#p39)
 
 
-[^a]: TG [[Trust Not in the Arm of Flesh]].
-[^b]: TG [[Leadership]].
-[^c]: GR pit, well, cistern.
+[^a]: [[Trust Not in the Arm of Flesh|TG Trust Not in the Arm of Flesh]].  
+[^b]: [[Leadership|TG Leadership]].  
+[^c]: GR pit, well, cistern.  

@@ -5,6 +5,6 @@
 [Leviticus 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.2?lang=eng#p2)
 
 
-[^a]: [[Leviticus 9.24|Lev. 9:24]]; [[2 Nephi 30.10|2 Ne. 30:10.]]
-[^b]: [[Leviticus 10.19|Lev. 10:19.]]
-[^c]: [[Numbers 3.4|Num. 3:4]]; [[1 Chronicles 24.2|1 Chr. 24:2]]; [[Acts 5.5|Acts 5:5 (1-10).]]
+[^a]: [[Leviticus 9.24|Lev. 9:24]]; [[2 Nephi 30.10|2 Ne. 30:10]].  
+[^b]: [[Leviticus 10.19|Lev. 10:19]].  
+[^c]: [[Numbers 3.4|Num. 3:4]]; [[1 Chronicles 24.2|1 Chr. 24:2]]; [[Acts 5.1|Acts 5:5 (1–10)]][[Acts 5.2|]][[Acts 5.3|]][[Acts 5.4|]][[Acts 5.5|]][[Acts 5.6|]][[Acts 5.7|]][[Acts 5.8|]][[Acts 5.9|]][[Acts 5.10|]].  

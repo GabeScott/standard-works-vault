@@ -5,7 +5,7 @@
 [Jacob 7:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Testament]].
-[^b]: [[Mosiah 12.30|Mosiah 12:30]]; [[Alma 30.42|Alma 30:42 (41-42).]]
-[^c]: [[Alma 30.53|Alma 30:53.]]
-[^d]: [[Numbers 26.10|Num. 26:10]]; [[D&C 124.53|D&C 124:53 (50-53).]]
+[^a]: [[Test, Try, Prove|TG Test]].  
+[^b]: [[Mosiah 12.30|Mosiah 12:30]]; [[Alma 30.41|Alma 30:42 (41–42)]][[Alma 30.42|]].  
+[^c]: [[Alma 30.53|Alma 30:53]].  
+[^d]: [[Numbers 26.10|Num. 26:10]]; [[D&C 124.50|D&C 124:53 (50–53)]][[D&C 124.51|]][[D&C 124.52|]][[D&C 124.53|]].  

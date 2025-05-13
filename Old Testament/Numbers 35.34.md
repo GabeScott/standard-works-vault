@@ -5,5 +5,5 @@
 [Numbers 35:34](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.34?lang=eng#p34)
 
 
-[^a]: [[Leviticus 18.24|Lev. 18:24 (24-30).]]
-[^b]: TG [[God, Presence of]].
+[^a]: [[Leviticus 18.24|Lev. 18:24 (24–30)]][[Leviticus 18.25|]][[Leviticus 18.26|]][[Leviticus 18.27|]][[Leviticus 18.28|]][[Leviticus 18.29|]][[Leviticus 18.30|]].  
+[^b]: [[God, Presence of|TG God, Presence of]].  

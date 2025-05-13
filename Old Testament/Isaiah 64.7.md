@@ -5,4 +5,4 @@
 [Isaiah 64:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/64.7?lang=eng#p7)
 
 
-[^a]: [[Isaiah 54.8|Isa. 54:8.]]
+[^a]: [[Isaiah 54.8|Isa. 54:8]].  

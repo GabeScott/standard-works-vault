@@ -5,5 +5,5 @@
 [Proverbs 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.12?lang=eng#p12)
 
 
-[^a]: TG [[Hate]]; [[Malice]].
-[^b]: TG [[Contention]].
+[^a]: [[Hate|TG Hate]]; [[Malice|Malice]].  
+[^b]: [[Contention|TG Contention]].  

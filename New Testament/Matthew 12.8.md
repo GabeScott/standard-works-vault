@@ -5,4 +5,4 @@
 [Matthew 12:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.8?lang=eng#p8)
 
 
-[^a]: TG [[Sabbath]].
+[^a]: [[Sabbath|TG Sabbath]].  

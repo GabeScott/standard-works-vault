@@ -5,6 +5,6 @@
 [Alma 17:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p36#p36)
 
 
-[^a]: [[Ether 12.15|Ether 12:15.]]
-[^b]: [[Alma 18.16|Alma 18:16 (16, 20).]]
-[^c]: [[Alma 18.3|Alma 18:3.]]
+[^a]: [[Ether 12.15|Ether 12:15]].  
+[^b]: [[Alma 18.16|Alma 18:16 (16, 20)]][[Alma 18.20|]].  
+[^c]: [[Alma 18.3|Alma 18:3]].  

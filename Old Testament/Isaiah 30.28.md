@@ -5,6 +5,6 @@
 [Isaiah 30:28](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.28?lang=eng#p28)
 
 
-[^a]: [[Isaiah 11.4|Isa. 11:4.]]
-[^b]: [[Isaiah 8.8|Isa. 8:8.]]
-[^c]: TG [[Vanity]].
+[^a]: [[Isaiah 11.4|Isa. 11:4]].  
+[^b]: [[Isaiah 8.8|Isa. 8:8]].  
+[^c]: [[Vanity|TG Vanity]].  

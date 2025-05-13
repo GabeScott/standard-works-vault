@@ -5,5 +5,5 @@
 [2 Nephi 4:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p20#p20)
 
 
-[^a]: [[2 Corinthians 4.16|2 Cor. 4:16.]]
-[^b]: [[1 Nephi 17.6|1 Ne. 17:6]]. TG [[Affliction]]; [[Holy Ghost, Comforter]].
+[^a]: [[2 Corinthians 4.16|2 Cor. 4:16]].  
+[^b]: [[1 Nephi 17.6|1 Ne. 17:6]]. [[Affliction|TG Affliction]]; [[Comfort|Comfort]].  

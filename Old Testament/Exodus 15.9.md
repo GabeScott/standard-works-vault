@@ -5,5 +5,5 @@
 [Exodus 15:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.9?lang=eng#p9)
 
 
-[^a]: [[Exodus 14.9|Ex. 14:9.]]
-[^b]: HEB soul; i.e., desire. TG [[Lust]].
+[^a]: [[Exodus 14.9|Ex. 14:9]].  
+[^b]: HEB soul; i.e., desire. [[Lust|TG Lust]].  

@@ -5,4 +5,4 @@
 [2 Kings 20:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.20?lang=eng#p20)
 
 
-[^a]: [[2 Chronicles 32.30|2 Chr. 32:30]]; [[Isaiah 22.9|Isa. 22:9.]]
+[^a]: [[2 Chronicles 32.30|2 Chr. 32:30]]; [[Isaiah 22.9|Isa. 22:9]].  

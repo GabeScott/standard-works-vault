@@ -5,4 +5,4 @@
 [Jeremiah 48:38](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.38?lang=eng#p38)
 
 
-[^a]: [[Psalms 31.12|Ps. 31:12]]; [[Jeremiah 22.28|Jer. 22:28]]; [[Hosea 8.8|Hosea 8:8.]]
+[^a]: [[Psalms 31.12|Ps. 31:12]]; [[Jeremiah 22.28|Jer. 22:28]]; [[Hosea 8.8|Hosea 8:8]].  

@@ -5,5 +5,5 @@
 [Ether 14:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/14?lang=eng&id=p22#p22)
 
 
-[^a]: [[Hosea 4.2|Hosea 4:2 (1-3).]]
-[^b]: [[Isaiah 14.11|Isa. 14:11 (9-11).]]
+[^a]: [[Hosea 4.1|Hosea 4:2 (1–3)]][[Hosea 4.2|]][[Hosea 4.3|]].  
+[^b]: [[Isaiah 14.9|Isa. 14:11 (9–11)]][[Isaiah 14.10|]][[Isaiah 14.11|]].  

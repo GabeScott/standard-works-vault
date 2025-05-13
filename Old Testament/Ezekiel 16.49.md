@@ -5,6 +5,6 @@
 [Ezekiel 16:49](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.49?lang=eng#p49)
 
 
-[^a]: [[Genesis 13.13|Gen. 13:13.]]
-[^b]: TG [[Pride]].
-[^c]: TG [[Idleness, Idle, Idler]]; [[Laziness]].
+[^a]: [[Genesis 13.13|Gen. 13:13]].  
+[^b]: [[Pride|TG Pride]].  
+[^c]: [[Idleness, Idle, Idler|TG Idleness]]; [[Laziness|Laziness]].  

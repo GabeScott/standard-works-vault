@@ -5,4 +5,4 @@
 [3 Nephi 11:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p38#p38)
 
 
-[^a]: TG [[Baptism, Qualifications for]].
+[^a]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  

@@ -5,4 +5,4 @@
 [Leviticus 13:51](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.51?lang=eng#p51)
 
 
-[^a]: HEB malignant leprosy.
+[^a]: HEB malignant leprosy.  

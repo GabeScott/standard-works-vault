@@ -5,4 +5,4 @@
 [Judges 16:12](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16.12?lang=eng#p12)
 
 
-[^a]: [[Joshua 8.13|Josh. 8:13.]]
+[^a]: [[Joshua 8.13|Josh. 8:13]].  

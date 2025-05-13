@@ -5,5 +5,5 @@
 [Judges 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.10?lang=eng#p10)
 
 
-[^a]: IE on animals used by rich merchants, leaders.
-[^b]: Hebrew meaning uncertain; perhaps “on rich cloths, carpets.”
+[^a]: IE on animals used by rich merchants, leaders.  
+[^b]: Hebrew meaning uncertain; perhaps “on rich cloths, carpets.”  

@@ -5,4 +5,4 @@
 [Judges 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/10.13?lang=eng#p13)
 
 
-[^a]: TG [[Deliver, Deliverance]].
+[^a]: [[Deliver, Deliverance|TG Deliver]].  

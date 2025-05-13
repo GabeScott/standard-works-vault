@@ -5,5 +5,5 @@
 [Helaman 5:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p30#p30)
 
 
-[^a]: [[Moses 1.25|Moses 1:25.]]
-[^b]: [[1 Kings 19.12|1 Kgs. 19:12]]; [[D&C 85.6|D&C 85:6 (6-7).]]
+[^a]: [[Moses 1.25|Moses 1:25]].  
+[^b]: [[1 Kings 19.12|1 Kgs. 19:12]]; [[D&C 85.6|D&C 85:6 (6–7)]][[D&C 85.7|]].  

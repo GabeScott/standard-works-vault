@@ -5,4 +5,4 @@
 [Acts 24:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.16?lang=eng#p16)
 
 
-[^a]: TG [[Conscience]].
+[^a]: [[Conscience|TG Conscience]].  

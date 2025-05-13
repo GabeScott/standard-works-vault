@@ -5,5 +5,5 @@
 [John 6:37](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.37?lang=eng#p37)
 
 
-[^a]: [[3 Nephi 15.24|3 Ne. 15:24]]; [[D&C 27.14|D&C 27:14]]; [[D&C 50.41|50:41 (41-42)]]; [[D&C 84.63|84:63.]]
-[^b]: [[John 17.2|John 17:2.]]
+[^a]: [[3 Nephi 15.24|3 Ne. 15:24]]; [[D&C 27.14|D&C 27:14]]; [[D&C 50.41|50:41 (41–42)]][[D&C 50.42|]]; [[D&C 84.63|84:63]].  
+[^b]: [[John 17.2|John 17:2]].  

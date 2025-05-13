@@ -5,7 +5,7 @@
 [Isaiah 5:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.20?lang=eng#p20)
 
 
-[^a]: TG [[Evil]].
-[^b]: TG [[Discernment, Spiritual]]; [[God, the Standard of Righteousness]].
-[^c]: TG [[Darkness, Spiritual]].
-[^d]: TG [[Light]].
+[^a]: [[Evil|TG Evil]].  
+[^b]: [[Discernment, Spiritual|TG Discernment, Spiritual]]; [[God, the Standard of Righteousness|God, the Standard of Righteousness]].  
+[^c]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  
+[^d]: [[Light [noun]|TG Light [noun]]].  

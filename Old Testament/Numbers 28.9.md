@@ -5,4 +5,4 @@
 [Numbers 28:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.9?lang=eng#p9)
 
 
-[^a]: [[Matthew 12.5|Matt. 12:5.]]
+[^a]: [[Matthew 12.5|Matt. 12:5]].  

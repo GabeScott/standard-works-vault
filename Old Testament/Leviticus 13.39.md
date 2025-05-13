@@ -5,4 +5,4 @@
 [Leviticus 13:39](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.39?lang=eng#p39)
 
 
-[^a]: HEB white.
+[^a]: HEB white.  

@@ -5,4 +5,4 @@
 [Leviticus 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.5?lang=eng#p5)
 
 
-[^a]: HEB by whom he may become unclean.
+[^a]: HEB by whom he may become unclean.  

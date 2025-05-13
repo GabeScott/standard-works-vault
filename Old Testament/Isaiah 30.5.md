@@ -5,5 +5,5 @@
 [Isaiah 30:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.5?lang=eng#p5)
 
 
-[^a]: OR will be.
-[^b]: [[Jeremiah 2.36|Jer. 2:36.]]
+[^a]: OR will be.  
+[^b]: [[Jeremiah 2.36|Jer. 2:36]].  

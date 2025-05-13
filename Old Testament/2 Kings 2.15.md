@@ -5,5 +5,5 @@
 [2 Kings 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.15?lang=eng#p15)
 
 
-[^a]: [[D&C 2.2|D&C 2:2 (1-3)]]; [[D&C 27.9|27:9.]]
-[^b]: TG [[Priesthood, Ordination]].
+[^a]: [[D&C 2.1|D&C 2:2 (1–3)]][[D&C 2.2|]][[D&C 2.3|]]; [[D&C 27.9|27:9]].  
+[^b]: [[Priesthood, Ordination|TG Priesthood, Ordination]].  

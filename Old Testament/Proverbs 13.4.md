@@ -5,4 +5,4 @@
 [Proverbs 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.4?lang=eng#p4)
 
 
-[^a]: TG [[Apathy]]; [[Laziness]].
+[^a]: [[Apathy|TG Apathy]]; [[Laziness|Laziness]].  

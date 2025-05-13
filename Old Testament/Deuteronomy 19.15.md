@@ -5,5 +5,5 @@
 [Deuteronomy 19:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.15?lang=eng#p15)
 
 
-[^a]: [[Matthew 26.60|Matt. 26:60]]; [[1 Timothy 5.19|1 Tim. 5:19.]]
-[^b]: [[2 Corinthians 13.1|2 Cor. 13:1]]; [[2 Nephi 27.12|2 Ne. 27:12 (12, 14)]]; [[D&C 6.28|D&C 6:28.]]
+[^a]: [[Matthew 26.60|Matt. 26:60]]; [[1 Timothy 5.19|1 Tim. 5:19]].  
+[^b]: [[2 Corinthians 13.1|2 Cor. 13:1]]; [[2 Nephi 27.12|2 Ne. 27:12 (12, 14)]][[2 Nephi 27.14|]]; [[D&C 6.28|D&C 6:28]].  

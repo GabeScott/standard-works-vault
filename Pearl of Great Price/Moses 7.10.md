@@ -5,4 +5,4 @@
 [Moses 7:10](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.10?lang=eng#p10)
 
 
-[^a]: [[Moses 5.8|Moses 5:8]]; [[Moses 6.57|6:57.]]
+[^a]: [[Moses 5.8|Moses 5:8]]; [[Moses 6.57|6:57]].  

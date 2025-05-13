@@ -5,4 +5,4 @@
 [2 Nephi 15:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p17#p17)
 
 
-[^a]: [[Isaiah 10.16|Isa. 10:16.]]
+[^a]: [[Isaiah 10.16|Isa. 10:16]].  

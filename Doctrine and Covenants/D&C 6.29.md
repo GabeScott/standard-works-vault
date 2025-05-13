@@ -5,4 +5,4 @@
 [D&C 6:29](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.29?lang=eng#p29)
 
 
-[^a]: [[John 15.20|John 15:20.]]
+[^a]: [[John 15.20|John 15:20]].  

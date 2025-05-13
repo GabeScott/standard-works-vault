@@ -5,6 +5,6 @@
 [Galatians 3:29](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.29?lang=eng#p29)
 
 
-[^a]: TG [[Conversion, Convert]].
-[^b]: TG [[Seed of Abraham]].
-[^c]: [[Galatians 4.28|Gal. 4:28.]]
+[^a]: [[Conversion, Convert|TG Conversion]].  
+[^b]: [[Seed of Abraham|TG Seed of Abraham]].  
+[^c]: [[Galatians 4.28|Gal. 4:28]].  

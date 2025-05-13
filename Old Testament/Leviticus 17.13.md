@@ -5,4 +5,4 @@
 [Leviticus 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/17.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 24.7|Ezek. 24:7.]]
+[^a]: [[Ezekiel 24.7|Ezek. 24:7]].  

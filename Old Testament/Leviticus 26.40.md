@@ -5,4 +5,4 @@
 [Leviticus 26:40](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.40?lang=eng#p40)
 
 
-[^a]: TG [[Confession]].
+[^a]: [[Confession|TG Confession]].  

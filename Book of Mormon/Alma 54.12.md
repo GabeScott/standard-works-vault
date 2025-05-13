@@ -5,4 +5,4 @@
 [Alma 54:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/54?lang=eng&id=p12#p12)
 
 
-[^a]: [[2 Nephi 5.8|2 Ne. 5:8 (5-8).]]
+[^a]: [[2 Nephi 5.5|2 Ne. 5:8 (5–8)]][[2 Nephi 5.6|]][[2 Nephi 5.7|]][[2 Nephi 5.8|]].  

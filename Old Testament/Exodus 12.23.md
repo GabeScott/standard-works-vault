@@ -5,7 +5,7 @@
 [Exodus 12:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.23?lang=eng#p23)
 
 
-[^a]: [[D&C 89.21|D&C 89:21.]]
-[^b]: TG [[Passover]].
-[^c]: OR allow.
-[^d]: TG [[Protection, Divine]].
+[^a]: [[D&C 89.21|D&C 89:21]].  
+[^b]: [[Passover|TG Passover]].  
+[^c]: OR allow.  
+[^d]: [[Protection, Divine|TG Protection, Divine]].  

@@ -5,5 +5,5 @@
 [Isaiah 33:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.1?lang=eng#p1)
 
 
-[^a]: [[Isaiah 17.14|Isa. 17:14]]; Hab. 2:8 (6-8).
-[^b]: [[Isaiah 21.2|Isa. 21:2.]]
+[^a]: [[Isaiah 17.14|Isa. 17:14]]; [[Habakkuk 2.6|Hab. 2:8 (6–8)]][[Habakkuk 2.7|]][[Habakkuk 2.8|]].  
+[^b]: [[Isaiah 21.2|Isa. 21:2]].  

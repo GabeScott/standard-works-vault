@@ -5,5 +5,5 @@
 [Proverbs 14:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.8?lang=eng#p8)
 
 
-[^a]: [[2 Nephi 28.30|2 Ne. 28:30.]]
-[^b]: TG [[Deceit, Deceive]].
+[^a]: [[2 Nephi 28.30|2 Ne. 28:30]].  
+[^b]: [[Deceit, Deceive|TG Deceit]].  

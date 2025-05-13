@@ -5,7 +5,7 @@
 [Ezekiel 34:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.16?lang=eng#p16)
 
 
-[^a]: [[Luke 15.4|Luke 15:4]]; [[Luke 19.10|19:10.]]
-[^b]: TG [[Sickness, Sick]].
-[^c]: [[Isaiah 10.16|Isa. 10:16.]]
-[^d]: [[Jeremiah 10.24|Jer. 10:24.]]
+[^a]: [[Luke 15.4|Luke 15:4]]; [[Luke 19.10|19:10]].  
+[^b]: [[Sickness, Sick|TG Sickness]].  
+[^c]: [[Isaiah 10.16|Isa. 10:16]].  
+[^d]: [[Jeremiah 10.24|Jer. 10:24]].  

@@ -5,6 +5,6 @@
 [Alma 23:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/23?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 22.23|Alma 22:23.]]
-[^b]: [[Genesis 18.19|Gen. 18:19.]]
-[^c]: [[Alma 26.24|Alma 26:24.]]
+[^a]: [[Alma 22.23|Alma 22:23]].  
+[^b]: [[Genesis 18.19|Gen. 18:19]].  
+[^c]: [[Alma 26.24|Alma 26:24]].  

@@ -5,4 +5,4 @@
 [Judges 21:20](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/21.20?lang=eng#p20)
 
 
-[^a]: [[Joshua 8.13|Josh. 8:13.]]
+[^a]: [[Joshua 8.13|Josh. 8:13]].  

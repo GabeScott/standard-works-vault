@@ -5,4 +5,4 @@
 [1 Peter 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.21?lang=eng#p21)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential.
+[^a]: [[Baptism|TG Baptism]]; [[Baptism, Essential|Baptism, Essential]].  

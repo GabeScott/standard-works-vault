@@ -5,5 +5,5 @@
 [Mosiah 28:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/28?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 17.16|Alma 17:16.]]
-[^b]: [[Jacob 7.24|Jacob 7:24]]; [[Mosiah 1.5|Mosiah 1:5]]; [[Alma 26.9|Alma 26:9.]]
+[^a]: [[Alma 17.16|Alma 17:16]].  
+[^b]: [[Jacob 7.24|Jacob 7:24]]; [[Mosiah 1.5|Mosiah 1:5]]; [[Alma 26.9|Alma 26:9]].  

@@ -5,4 +5,4 @@
 [Judges 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/3.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 106.35|Ps. 106:35.]]
+[^a]: [[Psalms 106.35|Ps. 106:35]].  

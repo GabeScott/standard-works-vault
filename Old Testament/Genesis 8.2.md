@@ -5,4 +5,4 @@
 [Genesis 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 7.11|Gen. 7:11.]]
+[^a]: [[Genesis 7.11|Gen. 7:11]].  

@@ -5,4 +5,4 @@
 [John 6:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.11?lang=eng#p11)
 
 
-[^a]: [[D&C 46.32|D&C 46:32]]; [[D&C 59.7|59:7.]]
+[^a]: [[D&C 46.32|D&C 46:32]]; [[D&C 59.7|59:7]].  

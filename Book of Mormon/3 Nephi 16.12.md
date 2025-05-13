@@ -5,4 +5,4 @@
 [3 Nephi 16:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/16?lang=eng&id=p12#p12)
 
 
-[^a]: [[Helaman 15.13|Hel. 15:13]]. TG [[Israel, Restoration of]]; [[Knowledge]].
+[^a]: [[Helaman 15.13|Hel. 15:13]]. [[Israel, Restoration of|TG Israel, Restoration of]]; [[Knowledge|Knowledge]].  

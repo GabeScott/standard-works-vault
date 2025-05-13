@@ -5,5 +5,5 @@
 [2 Chronicles 19:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/19.11?lang=eng#p11)
 
 
-[^a]: [[D&C 107.87|D&C 107:87 (87-88).]]
-[^b]: TG [[Courage, Courageous]].
+[^a]: [[D&C 107.87|D&C 107:87 (87–88)]][[D&C 107.88|]].  
+[^b]: [[Courage, Courageous|TG Courage]].  

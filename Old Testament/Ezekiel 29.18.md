@@ -5,4 +5,4 @@
 [Ezekiel 29:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.18?lang=eng#p18)
 
 
-[^a]: [[Ezekiel 26.7|Ezek. 26:7.]]
+[^a]: [[Ezekiel 26.7|Ezek. 26:7]].  

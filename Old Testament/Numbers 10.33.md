@@ -5,4 +5,4 @@
 [Numbers 10:33](https://www.churchofjesuschrist.org/study/scriptures/ot/num/10.33?lang=eng#p33)
 
 
-[^a]: TG [[Ark of the Covenant]].
+[^a]: [[Ark of the Covenant|TG Ark of the Covenant]].  

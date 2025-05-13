@@ -5,5 +5,5 @@
 [Micah 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.14?lang=eng#p14)
 
 
-[^a]: [[Leviticus 26.26|Lev. 26:26.]]
-[^b]: OR thy hunger shall be in thy inward parts.
+[^a]: [[Leviticus 26.26|Lev. 26:26]].  
+[^b]: OR thy hunger shall be in thy inward parts.  

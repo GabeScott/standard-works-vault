@@ -5,9 +5,9 @@
 [2 Nephi 28:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p14#p14)
 
 
-[^a]: [[Proverbs 21.4|Prov. 21:4]]. TG [[Stiffnecked, Stiffneckedness]].
-[^b]: TG [[Whore, Whoredom]].
-[^c]: [[2 Nephi 12.5|2 Ne. 12:5]]; [[Mosiah 14.6|Mosiah 14:6]]; [[Alma 5.37|Alma 5:37.]]
-[^d]: [[Mormon 8.36|Morm. 8:36.]]
-[^e]: 2 Pet. 3:17.
-[^f]: [[Matthew 22.29|Matt. 22:29]]; [[2 Nephi 27.35|2 Ne. 27:35 (34-35)]]; [[D&C 33.4|D&C 33:4.]]
+[^a]: [[Proverbs 21.4|Prov. 21:4]]. [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  
+[^b]: [[Whore, Whoredom|TG Whore]].  
+[^c]: [[2 Nephi 12.5|2 Ne. 12:5]]; [[Mosiah 14.6|Mosiah 14:6]]; [[Alma 5.37|Alma 5:37]].  
+[^d]: [[Mormon 8.36|Morm. 8:36]].  
+[^e]: [[2 Peter 3.17|2 Pet. 3:17]].  
+[^f]: [[Matthew 22.29|Matt. 22:29]]; [[2 Nephi 27.34|2 Ne. 27:35 (34–35)]][[2 Nephi 27.35|]]; [[D&C 33.4|D&C 33:4]].  

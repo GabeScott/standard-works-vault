@@ -5,4 +5,4 @@
 [Luke 9:52](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.52?lang=eng#p52)
 
 
-[^a]: [[Matthew 10.5|Matt. 10:5.]]
+[^a]: [[Matthew 10.5|Matt. 10:5]].  

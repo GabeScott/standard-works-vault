@@ -5,6 +5,6 @@
 [Leviticus 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/3.1?lang=eng#p1)
 
 
-[^a]: TG [[Self-Sacrifice]].
-[^b]: [[2 Chronicles 29.35|2 Chr. 29:35.]]
-[^c]: HEB whole, sound.
+[^a]: [[Sacrifice|TG Sacrifice]].  
+[^b]: [[2 Chronicles 29.35|2 Chr. 29:35]].  
+[^c]: HEB whole, sound.  

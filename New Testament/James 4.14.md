@@ -5,4 +5,4 @@
 [James 4:14](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.14?lang=eng#p14)
 
 
-[^a]: [[1 Corinthians 7.31|1 Cor. 7:31 (29-31)]]; [[Jacob 7.26|Jacob 7:26.]]
+[^a]: [[1 Corinthians 7.29|1 Cor. 7:31 (29–31)]][[1 Corinthians 7.30|]][[1 Corinthians 7.31|]]; [[Jacob 7.26|Jacob 7:26]].  

@@ -5,4 +5,4 @@
 [Acts 7:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.4?lang=eng#p4)
 
 
-[^a]: [[Genesis 11.31|Gen. 11:31.]]
+[^a]: [[Genesis 11.31|Gen. 11:31]].  

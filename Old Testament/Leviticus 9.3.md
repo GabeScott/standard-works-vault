@@ -5,4 +5,4 @@
 [Leviticus 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/9.3?lang=eng#p3)
 
 
-[^a]: [[Leviticus 10.16|Lev. 10:16 (16-19).]]
+[^a]: [[Leviticus 10.16|Lev. 10:16 (16–19)]][[Leviticus 10.17|]][[Leviticus 10.18|]][[Leviticus 10.19|]].  

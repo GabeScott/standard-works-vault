@@ -5,4 +5,4 @@
 [Exodus 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.13?lang=eng#p13)
 
 
-[^a]: TG [[Stewardship, Steward]].
+[^a]: [[Stewardship, Steward|TG Stewardship]].  

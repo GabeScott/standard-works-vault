@@ -5,5 +5,5 @@
 [Psalms 72:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/72.14?lang=eng#p14)
 
 
-[^a]: TG [[Redemption]].
-[^b]: TG [[Life, Sanctity of]].
+[^a]: [[Redemption|TG Redemption]].  
+[^b]: [[Life, Sanctity of|TG Life, Sanctity of]].  

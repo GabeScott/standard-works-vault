@@ -5,4 +5,4 @@
 [Psalms 109:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.16?lang=eng#p16)
 
 
-[^a]: [[Psalms 86.1|Ps. 86:1]]; [[Alma 5.55|Alma 5:55 (54-56)]]; [[Helaman 6.39|Hel. 6:39 (39-40)]]; [[D&C 56.16|D&C 56:16.]]
+[^a]: [[Psalms 86.1|Ps. 86:1]]; [[Alma 5.54|Alma 5:55 (54–56)]][[Alma 5.55|]][[Alma 5.56|]]; [[Helaman 6.39|Hel. 6:39 (39–40)]][[Helaman 6.40|]]; [[D&C 56.16|D&C 56:16]].  

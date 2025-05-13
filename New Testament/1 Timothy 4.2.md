@@ -5,6 +5,6 @@
 [1 Timothy 4:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.2?lang=eng#p2)
 
 
-[^a]: TG [[Lying, Liar, Lie]].
-[^b]: TG [[Hypocrisy, Hypocrite]].
-[^c]: TG [[Conscience]]; [[Spiritual Blindness]].
+[^a]: [[Lying, Liar, Lie|TG Lying]].  
+[^b]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  
+[^c]: [[Conscience|TG Conscience]]; [[Spiritual Blindness|Spiritual Blindness]].  

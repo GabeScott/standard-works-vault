@@ -5,6 +5,6 @@
 [Ezekiel 44:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.30?lang=eng#p30)
 
 
-[^a]: [[Exodus 22.29|Ex. 22:29]]; [[Nehemiah 10.35|Neh. 10:35.]]
-[^b]: OR offering.
-[^c]: [[Numbers 15.20|Num. 15:20.]]
+[^a]: [[Exodus 22.29|Ex. 22:29]]; [[Nehemiah 10.35|Neh. 10:35]].  
+[^b]: OR offering.  
+[^c]: [[Numbers 15.20|Num. 15:20]].  

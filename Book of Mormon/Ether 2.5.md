@@ -5,6 +5,6 @@
 [Ether 2:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p5#p5)
 
 
-[^a]: [[Numbers 9.17|Num. 9:17]]; [[Ether 1.42|Ether 1:42.]]
-[^b]: [[Exodus 13.21|Ex. 13:21.]]
-[^c]: TG [[Guidance, Divine]].
+[^a]: [[Numbers 9.17|Num. 9:17]]; [[Ether 1.42|Ether 1:42]].  
+[^b]: [[Exodus 13.21|Ex. 13:21]].  
+[^c]: [[Guidance, Divine|TG Guidance, Divine]].  

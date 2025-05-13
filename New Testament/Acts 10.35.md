@@ -5,8 +5,8 @@
 [Acts 10:35](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.35?lang=eng#p35)
 
 
-[^a]: [[Romans 10.12|Rom. 10:12 (12-13)]]; [[Alma 26.37|Alma 26:37 (36-37)]]. TG [[Nations]].
-[^b]: TG [[Reverence]].
-[^c]: TG [[Good Works]].
-[^d]: TG [[God, the Standard of Righteousness]].
-[^e]: [[1 Samuel 2.30|1 Sam. 2:30.]]
+[^a]: [[Romans 10.12|Rom. 10:12 (12–13)]][[Romans 10.13|]]; [[Alma 26.36|Alma 26:37 (36–37)]][[Alma 26.37|]]. [[Nations|TG Nations]].  
+[^b]: [[Reverence|TG Reverence]].  
+[^c]: [[Good Works|TG Good Works]].  
+[^d]: [[Righteousness|TG Righteousness]].  
+[^e]: [[1 Samuel 2.30|1 Sam. 2:30]].  

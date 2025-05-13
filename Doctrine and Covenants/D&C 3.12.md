@@ -5,6 +5,6 @@
 [D&C 3:12](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.12?lang=eng#p12)
 
 
-[^a]: [[D&C 1.29|D&C 1:29]]; [[D&C 5.4|5:4 (4, 30-31).]]
-[^b]: TG [[Sacred]]; [[Sacrilege]].
-[^c]: [[D&C 10.6|D&C 10:6 (6-8).]]
+[^a]: [[D&C 1.29|D&C 1:29]]; [[D&C 5.4|5:4 (4, 30–31)]][[D&C 5.30|]][[D&C 5.31|]].  
+[^b]: [[Sacred|TG Sacred]]; [[Sacrilege|Sacrilege]].  
+[^c]: [[D&C 10.6|D&C 10:6 (6–8)]][[D&C 10.7|]][[D&C 10.8|]].  

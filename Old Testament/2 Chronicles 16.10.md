@@ -5,4 +5,4 @@
 [2 Chronicles 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/16.10?lang=eng#p10)
 
 
-[^a]: OR stocks.
+[^a]: OR stocks.  

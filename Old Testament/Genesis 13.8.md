@@ -5,5 +5,5 @@
 [Genesis 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/13.8?lang=eng#p8)
 
 
-[^a]: TG [[Contention]]; [[Strife]].
-[^b]: [[Genesis 12.5|Gen. 12:5.]]
+[^a]: [[Contention|TG Contention]]; [[Strife|Strife]].  
+[^b]: [[Genesis 12.5|Gen. 12:5]].  

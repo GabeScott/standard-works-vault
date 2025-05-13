@@ -5,4 +5,4 @@
 [Mosiah 18:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Baptism, Immersion]].
+[^a]: [[Baptism, Immersion|TG Baptism, Immersion]].  

@@ -5,4 +5,4 @@
 [Proverbs 21:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.8?lang=eng#p8)
 
 
-[^a]: OR Perverse is the way of a man of crime. Prov. 11:20.
+[^a]: OR Perverse is the way of a man of crime. [[Proverbs 11.20|Prov. 11:20]].  

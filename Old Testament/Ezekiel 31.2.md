@@ -5,4 +5,4 @@
 [Ezekiel 31:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/31.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 19.1|Isa. 19:1]]; [[Ezekiel 32.2|Ezek. 32:2.]]
+[^a]: [[Isaiah 19.1|Isa. 19:1]]; [[Ezekiel 32.2|Ezek. 32:2]].  

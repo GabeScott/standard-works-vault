@@ -5,4 +5,4 @@
 [Jeremiah 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.13?lang=eng#p13)
 
 
-[^a]: [[Jeremiah 5.12|Jer. 5:12.]]
+[^a]: [[Jeremiah 5.12|Jer. 5:12]].  

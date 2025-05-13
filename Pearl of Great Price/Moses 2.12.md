@@ -5,4 +5,4 @@
 [Moses 2:12](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 1.12|Gen. 1:12.]]
+[^a]: [[Genesis 1.12|Gen. 1:12]].  

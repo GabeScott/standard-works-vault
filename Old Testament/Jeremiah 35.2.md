@@ -5,4 +5,4 @@
 [Jeremiah 35:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/35.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 10.15|2 Kgs. 10:15]]; [[1 Chronicles 2.55|1 Chr. 2:55.]]
+[^a]: [[2 Kings 10.15|2 Kgs. 10:15]]; [[1 Chronicles 2.55|1 Chr. 2:55]].  

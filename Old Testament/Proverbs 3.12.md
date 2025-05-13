@@ -5,5 +5,5 @@
 [Proverbs 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.12?lang=eng#p12)
 
 
-[^a]: [[Helaman 15.3|Hel. 15:3.]]
-[^b]: TG [[Marriage, Fatherhood]].
+[^a]: [[Helaman 15.3|Hel. 15:3]].  
+[^b]: [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  

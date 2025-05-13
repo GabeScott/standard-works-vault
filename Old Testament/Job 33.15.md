@@ -5,4 +5,4 @@
 [Job 33:15](https://www.churchofjesuschrist.org/study/scriptures/ot/job/33.15?lang=eng#p15)
 
 
-[^a]: TG [[Dream]].
+[^a]: [[Dream|TG Dream]].  

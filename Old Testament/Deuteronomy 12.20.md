@@ -5,4 +5,4 @@
 [Deuteronomy 12:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.20?lang=eng#p20)
 
 
-[^a]: OR territory.
+[^a]: OR territory.  

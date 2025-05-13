@@ -5,4 +5,4 @@
 [Alma 27:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p21#p21)
 
 
-[^a]: [[Alma 25.13|Alma 25:13 (1, 13)]]; [[Alma 43.11|43:11.]]
+[^a]: [[Alma 25.1|Alma 25:13 (1, 13)]][[Alma 25.13|]]; [[Alma 43.11|43:11]].  

@@ -5,4 +5,4 @@
 [1 Nephi 17:51](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p51#p51)
 
 
-[^a]: [[Genesis 6.14|Gen. 6:14 (14-16)]]; [[1 Nephi 18.1|1 Ne. 18:1.]]
+[^a]: [[Genesis 6.14|Gen. 6:14 (14–16)]][[Genesis 6.15|]][[Genesis 6.16|]]; [[1 Nephi 18.1|1 Ne. 18:1]].  

@@ -5,4 +5,4 @@
 [Helaman 13:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p14#p14)
 
 
-[^a]: [[Genesis 15.16|Gen. 15:16]]; [[Alma 37.31|Alma 37:31]]; [[D&C 61.31|D&C 61:31]]; [[D&C 101.11|101:11.]]
+[^a]: [[Genesis 15.16|Gen. 15:16]]; [[Alma 37.31|Alma 37:31]]; [[D&C 61.31|D&C 61:31]]; [[D&C 101.11|101:11]].  

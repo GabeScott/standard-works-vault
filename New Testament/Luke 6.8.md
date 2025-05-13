@@ -5,4 +5,4 @@
 [Luke 6:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.8?lang=eng#p8)
 
 
-[^a]: [[John 2.24|John 2:24 (23-25).]]
+[^a]: [[John 2.23|John 2:24 (23–25)]][[John 2.24|]][[John 2.25|]].  

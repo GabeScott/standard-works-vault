@@ -5,4 +5,4 @@
 [Matthew 17:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.15?lang=eng#p15)
 
 
-[^a]: GR throws himself.
+[^a]: GR throws himself.  

@@ -5,4 +5,4 @@
 [Lamentations 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 17.20|Ezek. 17:20 (13, 20).]]
+[^a]: [[Ezekiel 17.13|Ezek. 17:20 (13, 20)]][[Ezekiel 17.20|]].  

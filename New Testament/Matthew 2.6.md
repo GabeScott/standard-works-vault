@@ -5,7 +5,7 @@
 [Matthew 2:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.6?lang=eng#p6)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
-[^b]: TG [[Israel, Judah, People of]].
-[^c]: [[1 Chronicles 5.2|1 Chr. 5:2]]; [[Micah 5.2|Micah 5:2]]; [[John 7.42|John 7:42.]]
-[^d]: GR tend, protect, nurture.
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^b]: [[Israel, Judah, People of|TG Israel, Judah, People of]].  
+[^c]: [[1 Chronicles 5.2|1 Chr. 5:2]]; [[Micah 5.2|Micah 5:2]]; [[John 7.42|John 7:42]].  
+[^d]: GR tend, protect, nurture.  

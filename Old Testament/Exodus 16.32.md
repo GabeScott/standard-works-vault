@@ -5,4 +5,4 @@
 [Exodus 16:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.32?lang=eng#p32)
 
 
-[^a]: OR posterity (also v. 33).
+[^a]: OR posterity (also [[Exodus 16.33|v. 33]]).  

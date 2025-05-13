@@ -5,4 +5,4 @@
 [Exodus 22:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.19?lang=eng#p19)
 
 
-[^a]: [[D&C 59.6|D&C 59:6.]]
+[^a]: [[D&C 59.6|D&C 59:6]].  

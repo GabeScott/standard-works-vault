@@ -5,9 +5,9 @@
 [Hebrews 12:9](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.9?lang=eng#p9)
 
 
-[^a]: TG [[Marriage, Fatherhood]].
-[^b]: TG [[Family, Love within]].
-[^c]: TG [[Reverence]].
-[^d]: TG [[Agency]]; [[Submissiveness, Submit]].
-[^e]: TG [[God the Father, Elohim]]; [[Man, Potential to Become like Heavenly Father]].
-[^f]: TG [[Man, Antemortal Existence of]]; [[Man, a Spirit Child of Heavenly Father]]; [[Spirit Body]]; [[Spirit Creation]].
+[^a]: [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  
+[^b]: [[Family, Love within|TG Family, Love within]].  
+[^c]: [[Reverence|TG Reverence]].  
+[^d]: [[Agency|TG Agency]]; [[Submissiveness, Submit|Submissiveness]].  
+[^e]: [[God the Father, Elohim|TG God the Father, Elohim]]; [[Man, Potential to Become like Heavenly Father|Man, Potential to Become like Heavenly Father]].  
+[^f]: [[Man, Antemortal Existence of|TG Man, Antemortal Existence of]]; [[Man, a Spirit Child of Heavenly Father|Man, a Spirit Child of Heavenly Father]]; [[Spirit Body|Spirit Body]]; [[Spirit Creation|Spirit Creation]].  

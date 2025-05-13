@@ -5,4 +5,4 @@
 [Helaman 2:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/2?lang=eng&id=p10#p10)
 
 
-[^a]: [[Helaman 3.23|Hel. 3:23.]]
+[^a]: [[Helaman 3.23|Hel. 3:23]].  

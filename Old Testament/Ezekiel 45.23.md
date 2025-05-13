@@ -5,4 +5,4 @@
 [Ezekiel 45:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.23?lang=eng#p23)
 
 
-[^a]: [[Numbers 28.15|Num. 28:15.]]
+[^a]: [[Numbers 28.15|Num. 28:15]].  

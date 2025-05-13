@@ -5,4 +5,4 @@
 [Deuteronomy 28:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.9?lang=eng#p9)
 
 
-[^a]: TG [[Holiness]].
+[^a]: [[Holiness|TG Holiness]].  

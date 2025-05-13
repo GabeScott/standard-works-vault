@@ -5,4 +5,4 @@
 [Joshua 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.14?lang=eng#p14)
 
 
-[^a]: [[Exodus 23.20|Ex. 23:20 (20-23).]]
+[^a]: [[Exodus 23.20|Ex. 23:20 (20–23)]][[Exodus 23.21|]][[Exodus 23.22|]][[Exodus 23.23|]].  

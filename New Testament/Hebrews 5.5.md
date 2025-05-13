@@ -5,4 +5,4 @@
 [Hebrews 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.5?lang=eng#p5)
 
 
-[^a]: [[Hebrews 1.5|Heb. 1:5.]]
+[^a]: [[Hebrews 1.5|Heb. 1:5]].  

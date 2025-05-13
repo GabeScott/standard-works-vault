@@ -5,4 +5,4 @@
 [Jeremiah 29:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.14?lang=eng#p14)
 
 
-[^a]: TG [[Israel, Gathering of]]; [[Israel, Judah, People of]].
+[^a]: [[Israel, Gathering of|TG Israel, Gathering of]]; [[Israel, Judah, People of|Israel, Judah, People of]].  

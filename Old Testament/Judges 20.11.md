@@ -5,4 +5,4 @@
 [Judges 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/20.11?lang=eng#p11)
 
 
-[^a]: OR united.
+[^a]: OR united.  

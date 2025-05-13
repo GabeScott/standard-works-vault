@@ -5,6 +5,6 @@
 [Psalms 127:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/127.3?lang=eng#p3)
 
 
-[^a]: TG [[Birth Control]]; [[Family, Patriarchal]].
-[^b]: TG [[Marriage, Fatherhood]].
-[^c]: TG [[Reward]].
+[^a]: [[Birth Control|TG Birth Control]]; [[Family, Patriarchal|Family, Patriarchal]].  
+[^b]: [[Marriage, Fatherhood|TG Marriage, Fatherhood]].  
+[^c]: [[Reward|TG Reward]].  

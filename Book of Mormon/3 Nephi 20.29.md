@@ -5,6 +5,6 @@
 [3 Nephi 20:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p29#p29)
 
 
-[^a]: [[Isaiah 44.21|Isa. 44:21]]; [[3 Nephi 16.11|3 Ne. 16:11 (11-12).]]
-[^b]: TG [[Israel, Gathering of]].
-[^c]: [[Amos 9.15|Amos 9:15]]; [[Alma 7.10|Alma 7:10]]; [[D&C 133.24|D&C 133:24]]. TG [[Israel, Land of]].
+[^a]: [[Isaiah 44.21|Isa. 44:21]]; [[3 Nephi 16.11|3 Ne. 16:11 (11–12)]][[3 Nephi 16.12|]].  
+[^b]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^c]: [[Amos 9.15|Amos 9:15]]; [[Alma 7.10|Alma 7:10]]; [[D&C 133.24|D&C 133:24]]. [[Israel, Land of|TG Israel, Land of]].  

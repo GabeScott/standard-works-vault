@@ -5,4 +5,4 @@
 [3 Nephi 12:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p26#p26)
 
 
-[^a]: [[Alma 11.3|Alma 11:3]]; [[Alma 30.33|30:33.]]
+[^a]: [[Alma 11.3|Alma 11:3]]; [[Alma 30.33|30:33]].  

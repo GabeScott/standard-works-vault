@@ -5,4 +5,4 @@
 [Proverbs 1:30](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.30?lang=eng#p30)
 
 
-[^a]: TG [[Reproof, Reprove]].
+[^a]: [[Reproof, Reprove|TG Reproof]].  

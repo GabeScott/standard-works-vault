@@ -5,4 +5,4 @@
 [Zephaniah 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.6?lang=eng#p6)
 
 
-[^a]: OR pastures and meadows.
+[^a]: OR pastures and meadows.  

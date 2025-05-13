@@ -5,4 +5,4 @@
 [Jeremiah 31:38](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.38?lang=eng#p38)
 
 
-[^a]: [[Zechariah 14.10|Zech. 14:10.]]
+[^a]: [[Zechariah 14.10|Zech. 14:10]].  

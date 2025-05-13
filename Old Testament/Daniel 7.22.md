@@ -5,6 +5,6 @@
 [Daniel 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.22?lang=eng#p22)
 
 
-[^a]: [[D&C 27.11|D&C 27:11]]; 116.
-[^b]: [[1 Corinthians 6.2|1 Cor. 6:2]]; [[Revelation 20.4|Rev. 20:4]]. TG [[Judgment]].
-[^c]: [[D&C 20.13|D&C 20:13.]]
+[^a]: [[D&C 27.11|D&C 27:11]]; [[D&C 116.1|116]].  
+[^b]: [[1 Corinthians 6.2|1 Cor. 6:2]]; [[Revelation 20.4|Rev. 20:4]]. [[Judgment|TG Judgment]].  
+[^c]: [[D&C 20.13|D&C 20:13]].  

@@ -5,5 +5,5 @@
 [Romans 11:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.6?lang=eng#p6)
 
 
-[^a]: TG [[Grace]].
-[^b]: [[Romans 2.6|Rom. 2:6 (5-10).]]
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[Romans 2.5|Rom. 2:6 (5–10)]][[Romans 2.6|]][[Romans 2.7|]][[Romans 2.8|]][[Romans 2.9|]][[Romans 2.10|]].  

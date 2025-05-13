@@ -5,5 +5,5 @@
 [2 Samuel 15:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/15.24?lang=eng#p24)
 
 
-[^a]: [[2 Samuel 8.17|2 Sam. 8:17]]; [[2 Samuel 19.11|19:11.]]
-[^b]: [[1 Samuel 22.20|1 Sam. 22:20 (20, 23)]]; [[1 Kings 2.26|1 Kgs. 2:26.]]
+[^a]: [[2 Samuel 8.17|2 Sam. 8:17]]; [[2 Samuel 19.11|19:11]].  
+[^b]: [[1 Samuel 22.20|1 Sam. 22:20 (20, 23)]][[1 Samuel 22.23|]]; [[1 Kings 2.26|1 Kgs. 2:26]].  

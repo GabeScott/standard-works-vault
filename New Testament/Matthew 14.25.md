@@ -5,4 +5,4 @@
 [Matthew 14:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.25?lang=eng#p25)
 
 
-[^a]: IE between three and six in the morning.
+[^a]: IE between three and six in the morning.  

@@ -5,5 +5,5 @@
 [Ezekiel 43:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.7?lang=eng#p7)
 
 
-[^a]: [[Isaiah 60.13|Isa. 60:13]]; [[Matthew 5.35|Matt. 5:35.]]
-[^b]: [[Ezekiel 20.39|Ezek. 20:39]]; [[Ezekiel 39.7|39:7.]]
+[^a]: [[Isaiah 60.13|Isa. 60:13]]; [[Matthew 5.35|Matt. 5:35]].  
+[^b]: [[Ezekiel 20.39|Ezek. 20:39]]; [[Ezekiel 39.7|39:7]].  

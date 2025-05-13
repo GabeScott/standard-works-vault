@@ -5,5 +5,5 @@
 [Hebrews 5:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.2?lang=eng#p2)
 
 
-[^a]: TG [[Compassion]].
-[^b]: GR straying, wandering.
+[^a]: [[Compassion|TG Compassion]].  
+[^b]: GR straying, wandering.  

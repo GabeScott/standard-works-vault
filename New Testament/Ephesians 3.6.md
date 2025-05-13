@@ -5,4 +5,4 @@
 [Ephesians 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.6?lang=eng#p6)
 
 
-[^a]: TG [[Gentiles]].
+[^a]: [[Gentiles|TG Gentiles]].  

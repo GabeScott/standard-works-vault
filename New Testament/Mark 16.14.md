@@ -5,6 +5,6 @@
 [Mark 16:14](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.14?lang=eng#p14)
 
 
-[^a]: TG [[Apostles]].
-[^b]: [[Matthew 14.31|Matt. 14:31]]; [[Mark 4.40|Mark 4:40]]; [[Luke 24.25|Luke 24:25.]]
-[^c]: TG [[Stiffnecked, Stiffneckedness]].
+[^a]: [[Apostles|TG Apostles]].  
+[^b]: [[Matthew 14.31|Matt. 14:31]]; [[Mark 4.40|Mark 4:40]]; [[Luke 24.25|Luke 24:25]].  
+[^c]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  

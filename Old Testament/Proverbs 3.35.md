@@ -5,5 +5,5 @@
 [Proverbs 3:35](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.35?lang=eng#p35)
 
 
-[^a]: TG [[Wisdom]].
-[^b]: TG [[Shame]].
+[^a]: [[Wisdom|TG Wisdom]].  
+[^b]: [[Shame|TG Shame]].  

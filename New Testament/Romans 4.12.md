@@ -5,4 +5,4 @@
 [Romans 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.12?lang=eng#p12)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

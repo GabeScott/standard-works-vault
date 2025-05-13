@@ -5,6 +5,6 @@
 [1 Nephi 19:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p9#p9)
 
 
-[^a]: [[Isaiah 50.6|Isa. 50:6 (5-6)]]; [[Matthew 27.30|Matt. 27:30.]]
-[^b]: TG [[Kindness]].
-[^c]: TG [[Forbear, Forbearance]].
+[^a]: [[Isaiah 50.5|Isa. 50:6 (5–6)]][[Isaiah 50.6|]]; [[Matthew 27.30|Matt. 27:30]].  
+[^b]: [[Kindness|TG Kindness]].  
+[^c]: [[Forbear, Forbearance|TG Forbear]].  

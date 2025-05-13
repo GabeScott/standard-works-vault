@@ -5,4 +5,4 @@
 [Joshua 18:11](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/18.11?lang=eng#p11)
 
 
-[^a]: [[Genesis 42.4|Gen. 42:4]]; [[Genesis 44.29|44:29]]; [[Genesis 49.27|49:27 (26-28).]]
+[^a]: [[Genesis 42.4|Gen. 42:4]]; [[Genesis 44.29|44:29]]; [[Genesis 49.26|49:27 (26–28)]][[Genesis 49.27|]][[Genesis 49.28|]].  

@@ -5,6 +5,6 @@
 [Acts 13:45](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.45?lang=eng#p45)
 
 
-[^a]: TG [[Envy, Envious]].
-[^b]: [[Luke 11.52|Luke 11:52]]; 1 Thes. 2:16.
-[^c]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^a]: [[Envy, Envious|TG Envy]].  
+[^b]: [[Luke 11.52|Luke 11:52]]; [[1 Thessalonians 2.16|1 Thes. 2:16]].  
+[^c]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  

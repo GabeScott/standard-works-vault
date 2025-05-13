@@ -5,7 +5,7 @@
 [Ephesians 5:2](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.2?lang=eng#p2)
 
 
-[^a]: TG [[Walking with God]].
-[^b]: [[Hebrews 8.3|Heb. 8:3.]]
-[^c]: TG [[Self-Sacrifice]].
-[^d]: [[Genesis 8.21|Gen. 8:21]]; [[Leviticus 1.9|Lev. 1:9.]]
+[^a]: [[Walking with God|TG Walking with God]].  
+[^b]: [[Hebrews 8.3|Heb. 8:3]].  
+[^c]: [[Self-Sacrifice|TG Self-Sacrifice]].  
+[^d]: [[Genesis 8.21|Gen. 8:21]]; [[Leviticus 1.9|Lev. 1:9]].  

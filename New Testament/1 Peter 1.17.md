@@ -5,5 +5,5 @@
 [1 Peter 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.17?lang=eng#p17)
 
 
-[^a]: TG [[Good Works]].
-[^b]: TG [[Reverence]].
+[^a]: [[Good Works|TG Good Works]].  
+[^b]: [[Reverence|TG Reverence]].  

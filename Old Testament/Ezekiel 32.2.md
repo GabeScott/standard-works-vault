@@ -5,6 +5,6 @@
 [Ezekiel 32:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/32.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 19.1|Isa. 19:1]]; [[Ezekiel 31.2|Ezek. 31:2.]]
-[^b]: HEB monster.
-[^c]: TG [[Pollution, Pollute]].
+[^a]: [[Isaiah 19.1|Isa. 19:1]]; [[Ezekiel 31.2|Ezek. 31:2]].  
+[^b]: HEB monster.  
+[^c]: [[Pollution, Pollute|TG Pollution]].  

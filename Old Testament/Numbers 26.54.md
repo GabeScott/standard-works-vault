@@ -5,5 +5,5 @@
 [Numbers 26:54](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.54?lang=eng#p54)
 
 
-[^a]: IE a large tribe (also v. 56).
-[^b]: IE a small tribe.
+[^a]: IE a large tribe (also [[Numbers 26.56|v. 56]]).  
+[^b]: IE a small tribe.  

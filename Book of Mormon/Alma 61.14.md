@@ -5,5 +5,5 @@
 [Alma 61:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/61?lang=eng&id=p14#p14)
 
 
-[^a]: TG [[Reproof, Reprove]].
-[^b]: [[Alma 43.47|Alma 43:47.]]
+[^a]: [[Reproof, Reprove|TG Reproof]].  
+[^b]: [[Alma 43.47|Alma 43:47]].  

@@ -5,4 +5,4 @@
 [3 Nephi 1:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p17#p17)
 
 
-[^a]: [[Helaman 11.20|Hel. 11:20.]]
+[^a]: [[Helaman 11.20|Hel. 11:20]].  

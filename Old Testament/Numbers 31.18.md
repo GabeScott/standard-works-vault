@@ -5,4 +5,4 @@
 [Numbers 31:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.18?lang=eng#p18)
 
 
-[^a]: OR young girls.
+[^a]: OR young girls.  

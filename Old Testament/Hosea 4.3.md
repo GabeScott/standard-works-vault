@@ -5,4 +5,4 @@
 [Hosea 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.3?lang=eng#p3)
 
 
-[^a]: [[Joel 1.10|Joel 1:10.]]
+[^a]: [[Joel 1.10|Joel 1:10]].  

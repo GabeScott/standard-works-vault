@@ -5,5 +5,5 @@
 [1 Nephi 10:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p9#p9)
 
 
-[^a]: [[John 1.28|John 1:28.]]
-[^b]: TG [[Jesus Christ, Baptism of]].
+[^a]: [[John 1.28|John 1:28]].  
+[^b]: [[Jesus Christ, Baptism of|TG Jesus Christ, Baptism of]].  

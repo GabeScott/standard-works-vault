@@ -5,5 +5,5 @@
 [Alma 35:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/35?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 27.26|Alma 27:26.]]
-[^b]: [[Alma 30.59|Alma 30:59.]]
+[^a]: [[Alma 27.26|Alma 27:26]].  
+[^b]: [[Alma 30.59|Alma 30:59]].  

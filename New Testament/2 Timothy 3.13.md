@@ -5,4 +5,4 @@
 [2 Timothy 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.13?lang=eng#p13)
 
 
-[^a]: GR diviners, imposters, cheats.
+[^a]: GR diviners, imposters, cheats.  

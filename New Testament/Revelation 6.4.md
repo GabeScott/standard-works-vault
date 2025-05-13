@@ -5,4 +5,4 @@
 [Revelation 6:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/6.4?lang=eng#p4)
 
 
-[^a]: [[D&C 1.35|D&C 1:35.]]
+[^a]: [[D&C 1.35|D&C 1:35]].  

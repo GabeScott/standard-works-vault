@@ -5,5 +5,5 @@
 [Isaiah 14:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.18?lang=eng#p18)
 
 
-[^a]: [[Ezekiel 32.27|Ezek. 32:27.]]
-[^b]: IE his family tomb.
+[^a]: [[Ezekiel 32.27|Ezek. 32:27]].  
+[^b]: IE his family tomb.  

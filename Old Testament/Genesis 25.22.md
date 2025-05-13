@@ -5,4 +5,4 @@
 [Genesis 25:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.22?lang=eng#p22)
 
 
-[^a]: TG [[Prayer, Pray]].
+[^a]: [[Prayer, Pray|TG Prayer]].  

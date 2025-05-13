@@ -5,4 +5,4 @@
 [1 Corinthians 14:23](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.23?lang=eng#p23)
 
 
-[^a]: [[Acts 2.13|Acts 2:13 (12-13).]]
+[^a]: [[Acts 2.12|Acts 2:13 (12–13)]][[Acts 2.13|]].  

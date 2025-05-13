@@ -5,4 +5,4 @@
 [1 Nephi 6:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/6?lang=eng&id=p5#p5)
 
 
-[^a]: [[Galatians 1.10|Gal. 1:10]]; 1 Thes. 2:4; [[Hebrews 13.21|Heb. 13:21]]; W of M 1:4.
+[^a]: [[Galatians 1.10|Gal. 1:10]]; [[1 Thessalonians 2.4|1 Thes. 2:4]]; [[Hebrews 13.21|Heb. 13:21]]; [[Words of Mormon 1.4|W of M 1:4]].  

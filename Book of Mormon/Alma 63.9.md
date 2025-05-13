@@ -5,4 +5,4 @@
 [Alma 63:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/63?lang=eng&id=p9#p9)
 
 
-[^a]: [[Helaman 3.12|Hel. 3:12 (11-12)]]; [[Helaman 6.6|6:6.]]
+[^a]: [[Helaman 3.11|Hel. 3:12 (11–12)]][[Helaman 3.12|]]; [[Helaman 6.6|6:6]].  

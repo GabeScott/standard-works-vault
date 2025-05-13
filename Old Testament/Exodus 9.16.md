@@ -5,7 +5,7 @@
 [Exodus 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.16?lang=eng#p16)
 
 
-[^b]: OR let thee remain.
-[^c]: HEB show thee.
-[^d]: [[Nehemiah 9.10|Neh. 9:10]]; [[Psalms 106.8|Ps. 106:8]]; [[Isaiah 63.14|Isa. 63:14]]; [[Ezekiel 20.9|Ezek. 20:9]]. TG [[Name of the Lord]].
-[^e]: TG [[Preaching, Preach]].
+[^b]: OR let thee remain.  
+[^c]: HEB show thee.  
+[^d]: [[Nehemiah 9.10|Neh. 9:10]]; [[Psalms 106.8|Ps. 106:8]]; [[Isaiah 63.14|Isa. 63:14]]; [[Ezekiel 20.9|Ezek. 20:9]]. [[Name|TG Name]].  
+[^e]: [[Preaching, Preach|TG Preaching]].  

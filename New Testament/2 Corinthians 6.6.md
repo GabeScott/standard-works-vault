@@ -5,7 +5,7 @@
 [2 Corinthians 6:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/6.6?lang=eng#p6)
 
 
-[^a]: TG [[Purity, Pure]].
-[^b]: TG [[Forbear, Forbearance]].
-[^c]: TG [[Kindness]].
-[^d]: [[D&C 121.41|D&C 121:41 (41-42).]]
+[^a]: [[Purity, Pure|TG Purity]].  
+[^b]: [[Forbear, Forbearance|TG Forbear]].  
+[^c]: [[Kindness|TG Kindness]].  
+[^d]: [[D&C 121.41|D&C 121:41 (41–42)]][[D&C 121.42|]].  

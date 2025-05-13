@@ -5,4 +5,4 @@
 [Zephaniah 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.11?lang=eng#p11)
 
 
-[^a]: IE a district of Jerusalem.
+[^a]: IE a district of Jerusalem.  

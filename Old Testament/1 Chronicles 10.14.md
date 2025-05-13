@@ -5,4 +5,4 @@
 [1 Chronicles 10:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/10.14?lang=eng#p14)
 
 
-[^a]: [[1 Samuel 13.14|1 Sam. 13:14.]]
+[^a]: [[1 Samuel 13.14|1 Sam. 13:14]].  

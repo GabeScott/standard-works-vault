@@ -5,4 +5,4 @@
 [2 Nephi 27:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p31#p31)
 
 
-[^a]: [[Isaiah 29.20|Isa. 29:20.]]
+[^a]: [[Isaiah 29.20|Isa. 29:20]].  

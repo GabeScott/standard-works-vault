@@ -5,4 +5,4 @@
 [Alma 62:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p16#p16)
 
 
-[^a]: Alma 44:15, 20; [[3 Nephi 5.4|3 Ne. 5:4.]]
+[^a]: [[Alma 44.15|Alma 44:15, 20]][[Alma 44.20|]]; [[3 Nephi 5.4|3 Ne. 5:4]].  

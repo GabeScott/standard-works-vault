@@ -5,5 +5,5 @@
 [Jeremiah 44:28](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.28?lang=eng#p28)
 
 
-[^a]: [[Ezekiel 6.8|Ezek. 6:8]]; [[Ezekiel 7.16|7:16.]]
-[^b]: [[Moses 4.30|Moses 4:30.]]
+[^a]: [[Ezekiel 6.8|Ezek. 6:8]]; [[Ezekiel 7.16|7:16]].  
+[^b]: [[Moses 4.30|Moses 4:30]].  

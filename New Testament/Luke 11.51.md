@@ -5,4 +5,4 @@
 [Luke 11:51](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.51?lang=eng#p51)
 
 
-[^a]: [[Matthew 23.35|Matt. 23:35.]]
+[^a]: [[Matthew 23.35|Matt. 23:35]].  

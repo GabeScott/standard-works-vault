@@ -5,4 +5,4 @@
 [1 Chronicles 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/23.4?lang=eng#p4)
 
 
-[^a]: [[Deuteronomy 16.18|Deut. 16:18.]]
+[^a]: [[Deuteronomy 16.18|Deut. 16:18]].  

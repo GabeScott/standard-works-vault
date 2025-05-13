@@ -5,4 +5,4 @@
 [Jeremiah 18:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/18.2?lang=eng#p2)
 
 
-[^a]: [[Jeremiah 19.1|Jer. 19:1 (1-2).]]
+[^a]: [[Jeremiah 19.1|Jer. 19:1 (1–2)]][[Jeremiah 19.2|]].  

@@ -5,4 +5,4 @@
 [3 Nephi 4:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/4?lang=eng&id=p13#p13)
 
 
-[^a]: [[3 Nephi 3.18|3 Ne. 3:18.]]
+[^a]: [[3 Nephi 3.18|3 Ne. 3:18]].  

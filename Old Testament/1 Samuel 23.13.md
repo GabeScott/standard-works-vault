@@ -5,4 +5,4 @@
 [1 Samuel 23:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/23.13?lang=eng#p13)
 
 
-[^a]: [[2 Samuel 2.3|2 Sam. 2:3]]; [[2 Samuel 19.41|19:41.]]
+[^a]: [[2 Samuel 2.3|2 Sam. 2:3]]; [[2 Samuel 19.41|19:41]].  

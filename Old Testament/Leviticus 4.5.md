@@ -5,4 +5,4 @@
 [Leviticus 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.5?lang=eng#p5)
 
 
-[^a]: [[Leviticus 16.14|Lev. 16:14]]; [[Numbers 19.4|Num. 19:4]]; [[Hebrews 9.13|Heb. 9:13 (13-14).]]
+[^a]: [[Leviticus 16.14|Lev. 16:14]]; [[Numbers 19.4|Num. 19:4]]; [[Hebrews 9.13|Heb. 9:13 (13–14)]][[Hebrews 9.14|]].  

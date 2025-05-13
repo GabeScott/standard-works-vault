@@ -5,4 +5,4 @@
 [Joshua 23:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.7?lang=eng#p7)
 
 
-[^a]: [[Exodus 23.13|Ex. 23:13.]]
+[^a]: [[Exodus 23.13|Ex. 23:13]].  

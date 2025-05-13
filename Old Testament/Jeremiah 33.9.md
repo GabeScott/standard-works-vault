@@ -5,4 +5,4 @@
 [Jeremiah 33:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/33.9?lang=eng#p9)
 
 
-[^a]: [[Jeremiah 49.25|Jer. 49:25.]]
+[^a]: [[Jeremiah 49.25|Jer. 49:25]].  

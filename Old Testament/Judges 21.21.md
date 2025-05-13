@@ -5,4 +5,4 @@
 [Judges 21:21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/21.21?lang=eng#p21)
 
 
-[^a]: [[Mosiah 20.1|Mosiah 20:1 (1-5).]]
+[^a]: [[Mosiah 20.1|Mosiah 20:1 (1–5)]][[Mosiah 20.2|]][[Mosiah 20.3|]][[Mosiah 20.4|]][[Mosiah 20.5|]].  

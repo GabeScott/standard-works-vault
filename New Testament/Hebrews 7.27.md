@@ -5,7 +5,7 @@
 [Hebrews 7:27](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.27?lang=eng#p27)
 
 
-[^a]: [[Hebrews 10.11|Heb. 10:11.]]
-[^b]: TG [[Self-Sacrifice]].
-[^c]: [[Romans 6.10|Rom. 6:10]]; [[Hebrews 10.10|Heb. 10:10.]]
-[^d]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]].
+[^a]: [[Hebrews 10.11|Heb. 10:11]].  
+[^b]: [[Sacrifice|TG Sacrifice]].  
+[^c]: [[Romans 6.10|Rom. 6:10]]; [[Hebrews 10.10|Heb. 10:10]].  
+[^d]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer|Jesus Christ, Redeemer]].  

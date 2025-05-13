@@ -5,4 +5,4 @@
 [Luke 22:37](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.37?lang=eng#p37)
 
 
-[^a]: [[Isaiah 53.12|Isa. 53:12.]]
+[^a]: [[Isaiah 53.12|Isa. 53:12]].  

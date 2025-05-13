@@ -5,5 +5,5 @@
 [Helaman 4:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p26#p26)
 
 
-[^a]: [[Ezekiel 19.8|Ezek. 19:8 (6-9)]]. TG [[Weak, Weaker]].
-[^b]: [[Alma 46.8|Alma 46:8]]; [[Helaman 6.32|Hel. 6:32]]; [[Helaman 7.6|7:6]]; [[Helaman 11.26|11:26]]; [[Helaman 12.2|12:2.]]
+[^a]: [[Ezekiel 19.6|Ezek. 19:8 (6–9)]][[Ezekiel 19.7|]][[Ezekiel 19.8|]][[Ezekiel 19.9|]]. [[Weak, Weaker|TG Weak]].  
+[^b]: [[Alma 46.8|Alma 46:8]]; [[Helaman 6.32|Hel. 6:32]]; [[Helaman 7.6|7:6]]; [[Helaman 11.26|11:26]]; [[Helaman 12.2|12:2]].  

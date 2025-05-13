@@ -5,4 +5,4 @@
 [Mark 10:43](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.43?lang=eng#p43)
 
 
-[^a]: [[D&C 50.26|D&C 50:26 (26-27).]]
+[^a]: [[D&C 50.26|D&C 50:26 (26–27)]][[D&C 50.27|]].  

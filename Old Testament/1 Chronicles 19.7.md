@@ -5,4 +5,4 @@
 [1 Chronicles 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/19.7?lang=eng#p7)
 
 
-[^a]: [[Joshua 13.9|Josh. 13:9 (9, 16).]]
+[^a]: [[Joshua 13.9|Josh. 13:9 (9, 16)]][[Joshua 13.16|]].  

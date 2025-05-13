@@ -5,4 +5,4 @@
 [Helaman 1:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p33#p33)
 
 
-[^a]: [[Alma 44.15|Alma 44:15.]]
+[^a]: [[Alma 44.15|Alma 44:15]].  

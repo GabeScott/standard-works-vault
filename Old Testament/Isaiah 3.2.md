@@ -5,4 +5,4 @@
 [Isaiah 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.2?lang=eng#p2)
 
 
-[^a]: OR elder (also v. 5).
+[^a]: OR elder (also [[Isaiah 3.5|v. 5]]).  

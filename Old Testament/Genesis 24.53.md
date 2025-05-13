@@ -5,4 +5,4 @@
 [Genesis 24:53](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.53?lang=eng#p53)
 
 
-[^a]: HEB things of silver and gold.
+[^a]: HEB things of silver and gold.  

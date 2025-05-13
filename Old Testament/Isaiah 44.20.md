@@ -5,5 +5,5 @@
 [Isaiah 44:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.20?lang=eng#p20)
 
 
-[^a]: [[Hosea 4.12|Hosea 4:12]]; [[Romans 1.21|Rom. 1:21.]]
-[^b]: [[Psalms 144.8|Ps. 144:8.]]
+[^a]: [[Hosea 4.12|Hosea 4:12]]; [[Romans 1.21|Rom. 1:21]].  
+[^b]: [[Psalms 144.8|Ps. 144:8]].  

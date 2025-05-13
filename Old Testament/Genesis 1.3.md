@@ -5,5 +5,5 @@
 [Genesis 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 33.9|Ps. 33:9.]]
-[^b]: TG [[Light]].
+[^a]: [[Psalms 33.9|Ps. 33:9]].  
+[^b]: [[Light [noun]|TG Light [noun]]].  

@@ -5,4 +5,4 @@
 [Ezekiel 14:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.11?lang=eng#p11)
 
 
-[^a]: TG [[Israel, Mission of]].
+[^a]: [[Israel, Mission of|TG Israel, Mission of]].  

@@ -5,5 +5,5 @@
 [Mark 10:27](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.27?lang=eng#p27)
 
 
-[^a]: JST Mark 10:26 … With men that trust in riches, it is impossible; but not impossible with men who trust in God and leave all for my sake, for with such all these things are possible.
-[^b]: TG [[God, Power of]].
+[^a]: JST Mark 10:26 … With men that trust in riches, it is impossible; but not impossible with men who trust in God and leave all for my sake, for with such all these things are possible.  
+[^b]: [[God, Power of|TG God, Power of]].  

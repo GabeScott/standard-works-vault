@@ -5,4 +5,4 @@
 [Jeremiah 31:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.16?lang=eng#p16)
 
 
-[^a]: TG [[Reward]].
+[^a]: [[Reward|TG Reward]].  

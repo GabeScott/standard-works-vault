@@ -5,4 +5,4 @@
 [Numbers 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.6?lang=eng#p6)
 
 
-[^a]: [[Deuteronomy 10.8|Deut. 10:8.]]
+[^a]: [[Deuteronomy 10.8|Deut. 10:8]].  

@@ -5,4 +5,4 @@
 [Moses 7:58](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.58?lang=eng#p58)
 
 
-[^a]: Dan. 12:8 (8-13).
+[^a]: [[Daniel 12.8|Dan. 12:8 (8–13)]].  

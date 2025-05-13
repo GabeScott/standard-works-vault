@@ -5,4 +5,4 @@
 [Alma 14:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/14?lang=eng&id=p20#p20)
 
 
-[^a]: [[Matthew 27.40|Matt. 27:40 (39-43).]]
+[^a]: [[Matthew 27.39|Matt. 27:40 (39–43)]][[Matthew 27.40|]][[Matthew 27.41|]][[Matthew 27.42|]][[Matthew 27.43|]].  

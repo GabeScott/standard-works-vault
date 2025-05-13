@@ -5,4 +5,4 @@
 [Amos 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.5?lang=eng#p5)
 
 
-[^a]: [[Amos 3.14|Amos 3:14.]]
+[^a]: [[Amos 3.14|Amos 3:14]].  

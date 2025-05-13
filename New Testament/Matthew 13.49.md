@@ -5,7 +5,7 @@
 [Matthew 13:49](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.49?lang=eng#p49)
 
 
-[^a]: TG [[World, End of]].
-[^b]: JST Matt. 13:49-51 … world. And the world is the children of the wicked. The angels …
-[^c]: GR separate.
-[^d]: TG [[God, the Standard of Righteousness]].
+[^a]: [[World, End of|TG World, End of]].  
+[^b]: JST Matt. 13:49–51 … world. And the world is the children of the wicked. The angels …  
+[^c]: GR separate.  
+[^d]: [[Righteousness|TG Righteousness]].  

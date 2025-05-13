@@ -5,4 +5,4 @@
 [Proverbs 15:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.4?lang=eng#p4)
 
 
-[^a]: TG [[Honesty]]; [[Profanity]].
+[^a]: [[Honesty|TG Honesty]]; [[Profanity|Profanity]].  

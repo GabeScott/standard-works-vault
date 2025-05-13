@@ -5,5 +5,5 @@
 [Matthew 6:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.4?lang=eng#p4)
 
 
-[^a]: TG [[Welfare]].
-[^b]: [[Luke 14.14|Luke 14:14.]]
+[^a]: [[Welfare|TG Welfare]].  
+[^b]: [[Luke 14.14|Luke 14:14]].  

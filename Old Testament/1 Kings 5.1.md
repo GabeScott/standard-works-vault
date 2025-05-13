@@ -5,5 +5,5 @@
 [1 Kings 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/5.1?lang=eng#p1)
 
 
-[^a]: [[2 Samuel 5.11|2 Sam. 5:11.]]
-[^b]: The Hebrew term here expresses the affection held by one friend for another; [[1 Samuel 16.21|1 Sam. 16:21]]; 18:1, 3.
+[^a]: [[2 Samuel 5.11|2 Sam. 5:11]].  
+[^b]: The Hebrew term here expresses the affection held by one friend for another; [[1 Samuel 16.21|1 Sam. 16:21]]; [[1 Samuel 18.1|18:1, 3]][[1 Samuel 18.3|]].  

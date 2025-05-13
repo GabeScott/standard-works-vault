@@ -5,4 +5,4 @@
 [Acts 19:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.3?lang=eng#p3)
 
 
-[^a]: [[Matthew 3.11|Matt. 3:11]]; [[Acts 18.25|Acts 18:25.]]
+[^a]: [[Matthew 3.11|Matt. 3:11]]; [[Acts 18.25|Acts 18:25]].  

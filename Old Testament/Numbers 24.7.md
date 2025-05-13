@@ -5,5 +5,5 @@
 [Numbers 24:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.7?lang=eng#p7)
 
 
-[^a]: HEB Water shall flow from his branches.
-[^b]: IE the Amalekites.
+[^a]: HEB Water shall flow from his branches.  
+[^b]: IE the Amalekites.  

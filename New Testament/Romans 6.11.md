@@ -5,4 +5,4 @@
 [Romans 6:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.11?lang=eng#p11)
 
 
-[^a]: [[Galatians 2.19|Gal. 2:19.]]
+[^a]: [[Galatians 2.19|Gal. 2:19]].  

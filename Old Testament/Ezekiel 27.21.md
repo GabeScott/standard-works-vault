@@ -5,4 +5,4 @@
 [Ezekiel 27:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.21?lang=eng#p21)
 
 
-[^a]: HEB traded.
+[^a]: HEB traded.  

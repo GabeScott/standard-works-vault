@@ -5,4 +5,4 @@
 [Exodus 29:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.21?lang=eng#p21)
 
 
-[^a]: OR thus he shall be sanctified.
+[^a]: OR thus he shall be sanctified.  

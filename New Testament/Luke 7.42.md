@@ -5,5 +5,5 @@
 [Luke 7:42](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.42?lang=eng#p42)
 
 
-[^a]: TG [[Forgive, Forgiveness]].
-[^b]: TG [[Jesus Christ, Teaching Mode of]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]].  
+[^b]: [[Jesus Christ, Teaching Mode of|TG Jesus Christ, Teaching Mode of]].  

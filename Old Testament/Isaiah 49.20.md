@@ -5,4 +5,4 @@
 [Isaiah 49:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.20?lang=eng#p20)
 
 
-[^a]: OR tight or narrow.
+[^a]: OR tight or narrow.  

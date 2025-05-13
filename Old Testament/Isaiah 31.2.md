@@ -5,5 +5,5 @@
 [Isaiah 31:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/31.2?lang=eng#p2)
 
 
-[^a]: IE calamity upon evildoers.
-[^b]: [[Numbers 23.19|Num. 23:19.]]
+[^a]: IE calamity upon evildoers.  
+[^b]: [[Numbers 23.19|Num. 23:19]].  

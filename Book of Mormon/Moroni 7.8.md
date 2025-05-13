@@ -5,5 +5,5 @@
 [Moroni 7:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p8#p8)
 
 
-[^a]: [[Proverbs 15.8|Prov. 15:8.]]
-[^b]: [[1 Chronicles 29.9|1 Chr. 29:9]]; [[D&C 64.34|D&C 64:34.]]
+[^a]: [[Proverbs 15.8|Prov. 15:8]].  
+[^b]: [[1 Chronicles 29.9|1 Chr. 29:9]]; [[D&C 64.34|D&C 64:34]].  

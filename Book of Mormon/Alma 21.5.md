@@ -5,6 +5,6 @@
 [Alma 21:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 16.13|Alma 16:13.]]
-[^b]: [[Mosiah 27.11|Mosiah 27:11 (11-15).]]
-[^c]: [[Moses 8.21|Moses 8:21.]]
+[^a]: [[Alma 16.13|Alma 16:13]].  
+[^b]: [[Mosiah 27.11|Mosiah 27:11 (11–15)]][[Mosiah 27.12|]][[Mosiah 27.13|]][[Mosiah 27.14|]][[Mosiah 27.15|]].  
+[^c]: [[Moses 8.21|Moses 8:21]].  

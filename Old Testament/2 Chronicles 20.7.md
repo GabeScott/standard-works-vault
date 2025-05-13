@@ -5,4 +5,4 @@
 [2 Chronicles 20:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/20.7?lang=eng#p7)
 
 
-[^a]: TG [[Seed of Abraham]].
+[^a]: [[Seed of Abraham|TG Seed of Abraham]].  

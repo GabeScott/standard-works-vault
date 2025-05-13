@@ -5,4 +5,4 @@
 [Isaiah 22:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.15?lang=eng#p15)
 
 
-[^a]: IE a personal warning to Shebna (vv. 15-19).
+[^a]: IE a personal warning to Shebna ([[Isaiah 22.15|vv. 15–19]][[Isaiah 22.16|]][[Isaiah 22.17|]][[Isaiah 22.18|]][[Isaiah 22.19|]]).  

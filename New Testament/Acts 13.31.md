@@ -5,5 +5,5 @@
 [Acts 13:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.31?lang=eng#p31)
 
 
-[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
-[^b]: [[Acts 10.39|Acts 10:39 (39-43)]]; [[Acts 22.15|22:15 (14-16).]]
+[^a]: [[Jesus Christ, Appearances, Postmortal|TG Jesus Christ, Appearances, Postmortal]].  
+[^b]: [[Acts 10.39|Acts 10:39 (39–43)]][[Acts 10.40|]][[Acts 10.41|]][[Acts 10.42|]][[Acts 10.43|]]; [[Acts 22.14|22:15 (14–16)]][[Acts 22.15|]][[Acts 22.16|]].  

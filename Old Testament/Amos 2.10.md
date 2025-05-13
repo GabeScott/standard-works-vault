@@ -5,5 +5,5 @@
 [Amos 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/2.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 12.51|Ex. 12:51]]; [[Amos 3.1|Amos 3:1.]]
-[^b]: [[Numbers 14.33|Num. 14:33.]]
+[^a]: [[Exodus 12.51|Ex. 12:51]]; [[Amos 3.1|Amos 3:1]].  
+[^b]: [[Numbers 14.33|Num. 14:33]].  

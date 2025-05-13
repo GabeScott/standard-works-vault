@@ -5,4 +5,4 @@
 [Acts 25:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/25.19?lang=eng#p19)
 
 
-[^a]: GR religion.
+[^a]: GR religion.  

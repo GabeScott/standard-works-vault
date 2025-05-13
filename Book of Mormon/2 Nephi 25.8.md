@@ -5,6 +5,6 @@
 [2 Nephi 25:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Scriptures, Value of]].
-[^b]: [[2 Nephi 27.6|2 Ne. 27:6]]; [[Enos 1.16|Enos 1:16 (13-16)]]; [[Mormon 5.12|Morm. 5:12]]; [[D&C 3.20|D&C 3:20 (16-20).]]
-[^c]: TG [[Last Days]].
+[^a]: [[Scriptures, Value of|TG Scriptures, Value of]].  
+[^b]: [[2 Nephi 27.6|2 Ne. 27:6]]; [[Enos 1.13|Enos 1:16 (13–16)]][[Enos 1.14|]][[Enos 1.15|]][[Enos 1.16|]]; [[Mormon 5.12|Morm. 5:12]]; [[D&C 3.16|D&C 3:20 (16–20)]][[D&C 3.17|]][[D&C 3.18|]][[D&C 3.19|]][[D&C 3.20|]].  
+[^c]: [[Last Days|TG Last Days]].  

@@ -5,5 +5,5 @@
 [Ezekiel 28:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.12?lang=eng#p12)
 
 
-[^a]: [[Ezekiel 27.2|Ezek. 27:2]]; [[Ether 15.16|Ether 15:16.]]
-[^b]: Lam. 2:15; [[Ezekiel 27.3|Ezek. 27:3.]]
+[^a]: [[Ezekiel 27.2|Ezek. 27:2]]; [[Ether 15.16|Ether 15:16]].  
+[^b]: [[Lamentations 2.15|Lam. 2:15]]; [[Ezekiel 27.3|Ezek. 27:3]].  

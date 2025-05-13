@@ -5,6 +5,6 @@
 [Titus 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.10?lang=eng#p10)
 
 
-[^a]: GR idle speakers, disputers.
-[^b]: TG [[Apostasy of the Early Christian Church]].
-[^c]: TG [[Circumcision]].
+[^a]: GR idle speakers, disputers.  
+[^b]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  
+[^c]: [[Circumcision|TG Circumcision]].  

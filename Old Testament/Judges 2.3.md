@@ -5,4 +5,4 @@
 [Judges 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 23.33|Ex. 23:33.]]
+[^a]: [[Exodus 23.33|Ex. 23:33]].  

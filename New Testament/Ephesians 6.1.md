@@ -5,5 +5,5 @@
 [Ephesians 6:1](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.1?lang=eng#p1)
 
 
-[^a]: TG [[Children]].
-[^b]: TG [[Counsel]]; [[Family, Children, Duties of]]; [[Respecter]].
+[^a]: [[Children|TG Children]].  
+[^b]: [[Counsel|TG Counsel]]; [[Family, Children, Duties of|Family, Children, Duties of]]; [[Respect|Respect]].  

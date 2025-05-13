@@ -5,4 +5,4 @@
 [Psalms 68:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.21?lang=eng#p21)
 
 
-[^a]: Hab. 3:13; [[Moses 4.21|Moses 4:21 (20-21).]]
+[^a]: [[Habakkuk 3.13|Hab. 3:13]]; [[Moses 4.20|Moses 4:21 (20–21)]][[Moses 4.21|]].  

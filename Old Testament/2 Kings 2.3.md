@@ -5,4 +5,4 @@
 [2 Kings 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.3?lang=eng#p3)
 
 
-[^a]: [[1 Kings 20.35|1 Kgs. 20:35.]]
+[^a]: [[1 Kings 20.35|1 Kgs. 20:35]].  

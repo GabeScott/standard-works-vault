@@ -5,6 +5,6 @@
 [2 Chronicles 33:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.3?lang=eng#p3)
 
 
-[^a]: [[2 Chronicles 34.3|2 Chr. 34:3 (3-7).]]
-[^b]: [[Jeremiah 9.14|Jer. 9:14.]]
-[^c]: HEB asheroth—fertility worship symbols.
+[^a]: [[2 Chronicles 34.3|2 Chr. 34:3 (3–7)]][[2 Chronicles 34.4|]][[2 Chronicles 34.5|]][[2 Chronicles 34.6|]][[2 Chronicles 34.7|]].  
+[^b]: [[Jeremiah 9.14|Jer. 9:14]].  
+[^c]: HEB asheroth—fertility worship symbols.  

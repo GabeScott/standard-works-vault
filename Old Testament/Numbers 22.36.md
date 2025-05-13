@@ -5,4 +5,4 @@
 [Numbers 22:36](https://www.churchofjesuschrist.org/study/scriptures/ot/num/22.36?lang=eng#p36)
 
 
-[^a]: OR boundary.
+[^a]: OR boundary.  

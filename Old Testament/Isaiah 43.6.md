@@ -5,5 +5,5 @@
 [Isaiah 43:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.6?lang=eng#p6)
 
 
-[^a]: TG [[Israel, Ten Lost Tribes of]].
-[^b]: OR Deliver up.
+[^a]: [[Israel, Ten Lost Tribes of|TG Israel, Ten Lost Tribes of]].  
+[^b]: OR Deliver up.  

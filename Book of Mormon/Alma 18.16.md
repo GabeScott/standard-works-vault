@@ -5,6 +5,6 @@
 [Alma 18:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p16#p16)
 
 
-[^a]: [[Genesis 41.38|Gen. 41:38]]; [[1 Nephi 1.12|1 Ne. 1:12]]; [[Mosiah 27.24|Mosiah 27:24.]]
-[^b]: [[Alma 12.3|Alma 12:3.]]
-[^c]: [[Alma 17.36|Alma 17:36.]]
+[^a]: [[Genesis 41.38|Gen. 41:38]]; [[1 Nephi 1.12|1 Ne. 1:12]]; [[Mosiah 27.24|Mosiah 27:24]].  
+[^b]: [[Alma 12.3|Alma 12:3]].  
+[^c]: [[Alma 17.36|Alma 17:36]].  

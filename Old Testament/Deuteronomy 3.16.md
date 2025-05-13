@@ -5,6 +5,6 @@
 [Deuteronomy 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.16?lang=eng#p16)
 
 
-[^a]: [[Numbers 21.24|Num. 21:24]]; [[Deuteronomy 4.48|Deut. 4:48 (47-49)]]; [[Joshua 13.9|Josh. 13:9 (7-12)]]; [[Judges 11.13|Judg. 11:13.]]
-[^b]: HEB with the middle of the valley as the border.
-[^c]: [[Numbers 21.24|Num. 21:24.]]
+[^a]: [[Numbers 21.24|Num. 21:24]]; [[Deuteronomy 4.47|Deut. 4:48 (47–49)]][[Deuteronomy 4.48|]][[Deuteronomy 4.49|]]; [[Joshua 13.7|Josh. 13:9 (7–12)]][[Joshua 13.8|]][[Joshua 13.9|]][[Joshua 13.10|]][[Joshua 13.11|]][[Joshua 13.12|]]; [[Judges 11.13|Judg. 11:13]].  
+[^b]: HEB with the middle of the valley as the border.  
+[^c]: [[Numbers 21.24|Num. 21:24]].  

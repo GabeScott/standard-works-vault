@@ -5,5 +5,5 @@
 [2 Chronicles 31:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/31.19?lang=eng#p19)
 
 
-[^a]: [[Leviticus 25.34|Lev. 25:34 (32-34).]]
-[^b]: OR open land.
+[^a]: [[Leviticus 25.32|Lev. 25:34 (32–34)]][[Leviticus 25.33|]][[Leviticus 25.34|]].  
+[^b]: OR open land.  

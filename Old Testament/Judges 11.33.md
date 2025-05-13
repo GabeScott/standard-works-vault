@@ -5,4 +5,4 @@
 [Judges 11:33](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.33?lang=eng#p33)
 
 
-[^a]: [[Ezekiel 27.17|Ezek. 27:17.]]
+[^a]: [[Ezekiel 27.17|Ezek. 27:17]].  

@@ -5,4 +5,4 @@
 [Proverbs 22:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.21?lang=eng#p21)
 
 
-[^a]: [[D&C 18.3|D&C 18:3]]; [[D&C 98.11|98:11.]]
+[^a]: [[D&C 18.3|D&C 18:3]]; [[D&C 98.11|98:11]].  

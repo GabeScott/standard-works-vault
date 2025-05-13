@@ -5,9 +5,9 @@
 [2 Nephi 5:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Skill]].
-[^b]: TG [[Art]].
-[^c]: [[Jarom 1.8|Jarom 1:8.]]
-[^d]: [[Joshua 8.31|Josh. 8:31]]; [[1 Nephi 18.25|1 Ne. 18:25]]; [[Jacob 2.12|Jacob 2:12 (12-13)]]; [[Helaman 6.9|Hel. 6:9 (9-11)]]; [[Ether 9.17|Ether 9:17]]; [[Ether 10.23|10:23 (12, 23)]]; [[Moses 5.46|Moses 5:46.]]
-[^e]: [[Genesis 4.22|Gen. 4:22.]]
-[^f]: [[Exodus 31.4|Ex. 31:4 (4-5)]]; [[1 Kings 6.21|1 Kgs. 6:21 (21-22)]]; [[D&C 124.26|D&C 124:26 (26-27).]]
+[^a]: [[Skill|TG Skill]].  
+[^b]: [[Art|TG Art]].  
+[^c]: [[Jarom 1.8|Jarom 1:8]].  
+[^d]: [[Joshua 8.31|Josh. 8:31]]; [[1 Nephi 18.25|1 Ne. 18:25]]; [[Jacob 2.12|Jacob 2:12 (12–13)]][[Jacob 2.13|]]; [[Helaman 6.9|Hel. 6:9 (9–11)]][[Helaman 6.10|]][[Helaman 6.11|]]; [[Ether 9.17|Ether 9:17]]; [[Ether 10.12|10:23 (12, 23)]][[Ether 10.23|]]; [[Moses 5.46|Moses 5:46]].  
+[^e]: [[Genesis 4.22|Gen. 4:22]].  
+[^f]: [[Exodus 31.4|Ex. 31:4 (4–5)]][[Exodus 31.5|]]; [[1 Kings 6.21|1 Kgs. 6:21 (21–22)]][[1 Kings 6.22|]]; [[D&C 124.26|D&C 124:26 (26–27)]][[D&C 124.27|]].  

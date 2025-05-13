@@ -5,4 +5,4 @@
 [Job 19:19](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.19?lang=eng#p19)
 
 
-[^a]: OR intimate.
+[^a]: OR intimate.  

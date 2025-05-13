@@ -5,6 +5,6 @@
 [2 Nephi 27:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p22#p22)
 
 
-[^a]: TG [[Witness, Witnesses]].
-[^b]: TG [[God, Wisdom of]].
-[^c]: [[Ether 4.7|Ether 4:7 (6-7)]]. TG [[Mysteries of Godliness]].
+[^a]: [[Witness, Witnesses|TG Witness]].  
+[^b]: [[God, Wisdom of|TG God, Wisdom of]].  
+[^c]: [[Ether 4.6|Ether 4:7 (6–7)]][[Ether 4.7|]]. [[Mysteries of Godliness|TG Mysteries of Godliness]].  

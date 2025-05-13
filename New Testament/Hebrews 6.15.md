@@ -5,4 +5,4 @@
 [Hebrews 6:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.15?lang=eng#p15)
 
 
-[^a]: TG [[Perseverance]].
+[^a]: [[Perseverance|TG Perseverance]].  

@@ -5,8 +5,8 @@
 [Alma 33:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 33.1|Alma 33:1]]; [[Alma 34.4|34:4.]]
-[^b]: [[Alma 32.41|Alma 32:41]]; [[D&C 63.23|D&C 63:23.]]
-[^c]: [[Alma 32.43|Alma 32:43.]]
-[^d]: [[Mosiah 24.15|Mosiah 24:15 (13-15)]]; [[Alma 31.38|Alma 31:38.]]
-[^e]: TG [[Agency]].
+[^a]: [[Alma 33.1|Alma 33:1]]; [[Alma 34.4|34:4]].  
+[^b]: [[Alma 32.41|Alma 32:41]]; [[D&C 63.23|D&C 63:23]].  
+[^c]: [[Alma 32.43|Alma 32:43]].  
+[^d]: [[Mosiah 24.13|Mosiah 24:15 (13–15)]][[Mosiah 24.14|]][[Mosiah 24.15|]]; [[Alma 31.38|Alma 31:38]].  
+[^e]: [[Agency|TG Agency]].  

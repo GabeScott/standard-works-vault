@@ -5,5 +5,5 @@
 [Alma 4:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Pride]]; [[Vanity]]; [[Worldliness]].
-[^b]: [[Alma 1.21|Alma 1:21.]]
+[^a]: [[Pride|TG Pride]]; [[Vanity|Vanity]]; [[Worldliness|Worldliness]].  
+[^b]: [[Alma 1.21|Alma 1:21]].  

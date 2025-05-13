@@ -5,6 +5,6 @@
 [Haggai 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/1.1?lang=eng#p1)
 
 
-[^a]: Probably 520 B.C. Darius Hystaspes reigned 521-486 B.C.
-[^b]: Hag. 2:1, 10 (10, 20).
-[^c]: Grandson of Jehoiachin, former king of Judah. 1 Chr. 3:19 (17-19); [[Ezra 2.2|Ezra 2:2 (1-2)]]; [[Matthew 1.12|Matt. 1:12 (11-13).]]
+[^a]: Probably 520 B.C. Darius Hystaspes reigned 521–486 B.C.  
+[^b]: [[Haggai 2.10|Hag. 2:1, 10 (10, 20)]][[Haggai 2.20|]].  
+[^c]: Grandson of Jehoiachin, former king of Judah. [[1 Chronicles 3.17|1 Chr. 3:19 (17–19)]][[1 Chronicles 3.18|]][[1 Chronicles 3.19|]]; [[Ezra 2.1|Ezra 2:2 (1–2)]][[Ezra 2.2|]]; [[Matthew 1.11|Matt. 1:12 (11–13)]][[Matthew 1.12|]][[Matthew 1.13|]].  

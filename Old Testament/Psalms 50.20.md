@@ -5,4 +5,4 @@
 [Psalms 50:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.20?lang=eng#p20)
 
 
-[^a]: TG [[Slander]].
+[^a]: [[Slander|TG Slander]].  

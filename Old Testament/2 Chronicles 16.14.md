@@ -5,4 +5,4 @@
 [2 Chronicles 16:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/16.14?lang=eng#p14)
 
 
-[^a]: IE of the spices, as incense. 2 Chr. 21:19.
+[^a]: IE of the spices, as incense. [[2 Chronicles 21.19|2 Chr. 21:19]].  

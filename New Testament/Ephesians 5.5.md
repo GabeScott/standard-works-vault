@@ -5,6 +5,6 @@
 [Ephesians 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.5?lang=eng#p5)
 
 
-[^a]: TG [[Chastity, Chaste]]; [[Whore, Whoredom]].
-[^b]: TG [[Uncleanness, Unclean]].
-[^c]: TG [[Inheritance]]; [[Worthiness, Worthy]].
+[^a]: [[Chastity, Chaste|TG Chastity]]; [[Whore, Whoredom|Whore]].  
+[^b]: [[Uncleanness, Unclean|TG Uncleanness]].  
+[^c]: [[Inheritance|TG Inheritance]]; [[Worthiness, Worthy|Worthiness]].  

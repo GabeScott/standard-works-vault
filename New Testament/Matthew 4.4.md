@@ -5,8 +5,8 @@
 [Matthew 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.4?lang=eng#p4)
 
 
-[^a]: [[Deuteronomy 8.3|Deut. 8:3]]; [[D&C 84.44|D&C 84:44 (43-44).]]
-[^b]: TG [[Mortality]].
-[^c]: TG [[Bread]].
-[^d]: TG [[Revelation]].
-[^e]: TG [[God, Body of, Corporeal Nature]].
+[^a]: [[Deuteronomy 8.3|Deut. 8:3]]; [[D&C 84.43|D&C 84:44 (43–44)]][[D&C 84.44|]].  
+[^b]: [[Mortality|TG Mortality]].  
+[^c]: [[Bread|TG Bread]].  
+[^d]: [[Revelation|TG Revelation]].  
+[^e]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  

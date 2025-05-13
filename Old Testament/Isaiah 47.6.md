@@ -5,4 +5,4 @@
 [Isaiah 47:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.6?lang=eng#p6)
 
 
-[^a]: IE Israel’s Babylonian captivity is predicted.
+[^a]: IE Israel’s Babylonian captivity is predicted.  

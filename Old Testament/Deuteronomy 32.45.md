@@ -5,4 +5,4 @@
 [Deuteronomy 32:45](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.45?lang=eng#p45)
 
 
-[^a]: IE of all generations.
+[^a]: IE of all generations.  

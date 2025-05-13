@@ -5,5 +5,5 @@
 [Deuteronomy 13:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/13.17?lang=eng#p17)
 
 
-[^a]: HEB you shall not retain any of the confiscated property.
-[^b]: [[Numbers 25.4|Num. 25:4.]]
+[^a]: HEB you shall not retain any of the confiscated property.  
+[^b]: [[Numbers 25.4|Num. 25:4]].  

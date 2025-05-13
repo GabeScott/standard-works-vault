@@ -5,4 +5,4 @@
 [Psalms 93:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/93.3?lang=eng#p3)
 
 
-[^a]: HEB rivers, streams.
+[^a]: HEB rivers, streams.  

@@ -5,5 +5,5 @@
 [2 Corinthians 10:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.8?lang=eng#p8)
 
 
-[^a]: [[2 Corinthians 13.10|2 Cor. 13:10]]. TG [[Called of God]].
-[^b]: TG [[Edification, Edify]].
+[^a]: [[2 Corinthians 13.10|2 Cor. 13:10]]. [[Called of God|TG Called of God]].  
+[^b]: [[Edification, Edify|TG Edification]].  

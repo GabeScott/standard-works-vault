@@ -5,4 +5,4 @@
 [Luke 20:34](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.34?lang=eng#p34)
 
 
-[^a]: TG [[Marriage, Marry]]; [[Marriage, Temporal]].
+[^a]: [[Marriage, Marry|TG Marriage, Marry]]; [[Marriage, Temporal|Marriage, Temporal]].  

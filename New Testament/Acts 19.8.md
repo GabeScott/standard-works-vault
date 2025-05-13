@@ -5,5 +5,5 @@
 [Acts 19:8](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.8?lang=eng#p8)
 
 
-[^a]: [[Acts 17.17|Acts 17:17]]; [[Acts 18.4|18:4 (4, 19).]]
-[^b]: TG [[Disputations, Dispute]].
+[^a]: [[Acts 17.17|Acts 17:17]]; [[Acts 18.4|18:4 (4, 19)]][[Acts 18.19|]].  
+[^b]: [[Disputations, Dispute|TG Disputations]].  

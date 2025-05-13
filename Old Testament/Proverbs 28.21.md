@@ -5,6 +5,6 @@
 [Proverbs 28:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.21?lang=eng#p21)
 
 
-[^a]: [[Proverbs 24.23|Prov. 24:23]]; [[James 2.9|James 2:9.]]
-[^b]: [[Ezekiel 13.19|Ezek. 13:19.]]
-[^c]: TG [[Bread]].
+[^a]: [[Proverbs 24.23|Prov. 24:23]]; [[James 2.9|James 2:9]].  
+[^b]: [[Ezekiel 13.19|Ezek. 13:19]].  
+[^c]: [[Bread|TG Bread]].  

@@ -5,4 +5,4 @@
 [2 Nephi 27:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p11#p11)
 
 
-[^a]: [[Luke 12.3|Luke 12:3]]; [[Mormon 5.8|Morm. 5:8]]; D&C 121:26-31.
+[^a]: [[Luke 12.3|Luke 12:3]]; [[Mormon 5.8|Morm. 5:8]]; [[D&C 121.26|D&C 121:26–31]][[D&C 121.27|]][[D&C 121.28|]][[D&C 121.29|]][[D&C 121.30|]][[D&C 121.31|]].  

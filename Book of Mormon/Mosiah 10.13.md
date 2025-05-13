@@ -5,5 +5,5 @@
 [Mosiah 10:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p13#p13)
 
 
-[^a]: [[1 Nephi 18.23|1 Ne. 18:23.]]
-[^b]: [[2 Nephi 5.5|2 Ne. 5:5 (5-9).]]
+[^a]: [[1 Nephi 18.23|1 Ne. 18:23]].  
+[^b]: [[2 Nephi 5.5|2 Ne. 5:5 (5–9)]][[2 Nephi 5.6|]][[2 Nephi 5.7|]][[2 Nephi 5.8|]][[2 Nephi 5.9|]].  

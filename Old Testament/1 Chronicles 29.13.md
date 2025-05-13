@@ -5,4 +5,4 @@
 [1 Chronicles 29:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.13?lang=eng#p13)
 
 
-[^a]: TG [[Thanksgiving]].
+[^a]: [[Thanksgiving|TG Thanksgiving]].  

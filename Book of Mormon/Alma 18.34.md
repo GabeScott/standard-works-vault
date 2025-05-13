@@ -5,5 +5,5 @@
 [Alma 18:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p34#p34)
 
 
-[^a]: [[Mosiah 7.27|Mosiah 7:27]]; [[Ether 3.15|Ether 3:15 (13-16).]]
-[^b]: TG [[Teaching with the Spirit]].
+[^a]: [[Mosiah 7.27|Mosiah 7:27]]; [[Ether 3.13|Ether 3:15 (13–16)]][[Ether 3.14|]][[Ether 3.15|]][[Ether 3.16|]].  
+[^b]: [[Teaching with the Spirit|TG Teaching with the Spirit]].  

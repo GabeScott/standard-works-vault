@@ -5,4 +5,4 @@
 [John 11:55](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.55?lang=eng#p55)
 
 
-[^a]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Purification, Purify, Purifying|TG Purification]].  

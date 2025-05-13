@@ -5,4 +5,4 @@
 [2 Chronicles 27:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/27.1?lang=eng#p1)
 
 
-[^a]: [[Mormon 2.2|Morm. 2:2.]]
+[^a]: [[Mormon 2.2|Morm. 2:2]].  

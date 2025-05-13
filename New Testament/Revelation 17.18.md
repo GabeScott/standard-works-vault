@@ -5,4 +5,4 @@
 [Revelation 17:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.18?lang=eng#p18)
 
 
-[^a]: [[Revelation 14.8|Rev. 14:8.]]
+[^a]: [[Revelation 14.8|Rev. 14:8]].  

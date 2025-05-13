@@ -5,4 +5,4 @@
 [1 Samuel 14:52](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.52?lang=eng#p52)
 
 
-[^a]: HEB strong or intense.
+[^a]: HEB strong or intense.  

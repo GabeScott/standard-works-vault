@@ -5,4 +5,4 @@
 [2 Samuel 21:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/21.8?lang=eng#p8)
 
 
-[^a]: [[2 Samuel 3.7|2 Sam. 3:7 (7-8).]]
+[^a]: [[2 Samuel 3.7|2 Sam. 3:7 (7–8)]][[2 Samuel 3.8|]].  

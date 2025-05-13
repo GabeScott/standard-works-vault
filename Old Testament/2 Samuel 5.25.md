@@ -5,4 +5,4 @@
 [2 Samuel 5:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.25?lang=eng#p25)
 
 
-[^a]: [[2 Samuel 8.12|2 Sam. 8:12.]]
+[^a]: [[2 Samuel 8.12|2 Sam. 8:12]].  

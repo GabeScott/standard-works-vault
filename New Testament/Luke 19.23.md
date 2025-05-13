@@ -5,5 +5,5 @@
 [Luke 19:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.23?lang=eng#p23)
 
 
-[^a]: GR collected.
-[^b]: TG [[Usury]].
+[^a]: GR collected.  
+[^b]: [[Usury|TG Usury]].  

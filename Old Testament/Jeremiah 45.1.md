@@ -5,4 +5,4 @@
 [Jeremiah 45:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/45.1?lang=eng#p1)
 
 
-[^a]: [[Jeremiah 36.4|Jer. 36:4.]]
+[^a]: [[Jeremiah 36.4|Jer. 36:4]].  

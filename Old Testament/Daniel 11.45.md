@@ -5,4 +5,4 @@
 [Daniel 11:45](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.45?lang=eng#p45)
 
 
-[^a]: Dan. 9:16; [[D&C 133.13|D&C 133:13.]]
+[^a]: [[Daniel 9.16|Dan. 9:16]]; [[D&C 133.13|D&C 133:13]].  

@@ -5,4 +5,4 @@
 [Isaiah 24:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.13?lang=eng#p13)
 
 
-[^a]: HEB peoples or nations.
+[^a]: HEB peoples or nations.  

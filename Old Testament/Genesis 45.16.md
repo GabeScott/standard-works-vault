@@ -5,4 +5,4 @@
 [Genesis 45:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/45.16?lang=eng#p16)
 
 
-[^a]: [[Genesis 41.37|Gen. 41:37.]]
+[^a]: [[Genesis 41.37|Gen. 41:37]].  

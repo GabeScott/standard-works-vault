@@ -5,4 +5,4 @@
 [Job 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/job/3.17?lang=eng#p17)
 
 
-[^a]: TG [[Paradise, Paradisiacal]].
+[^a]: [[Paradise, Paradisiacal|TG Paradise]].  

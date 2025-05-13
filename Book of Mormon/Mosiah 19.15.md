@@ -5,4 +5,4 @@
 [Mosiah 19:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/19?lang=eng&id=p15#p15)
 
 
-[^a]: [[Mosiah 7.15|Mosiah 7:15.]]
+[^a]: [[Mosiah 7.15|Mosiah 7:15]].  

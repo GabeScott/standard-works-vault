@@ -5,5 +5,5 @@
 [Jeremiah 45:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/45.5?lang=eng#p5)
 
 
-[^a]: [[Mark 8.36|Mark 8:36 (36-37).]]
-[^b]: [[Jeremiah 21.9|Jer. 21:9]]; [[Jeremiah 39.18|39:18.]]
+[^a]: [[Mark 8.36|Mark 8:36 (36–37)]][[Mark 8.37|]].  
+[^b]: [[Jeremiah 21.9|Jer. 21:9]]; [[Jeremiah 39.18|39:18]].  

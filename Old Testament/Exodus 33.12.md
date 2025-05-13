@@ -5,6 +5,6 @@
 [Exodus 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 32.34|Ex. 32:34.]]
-[^b]: [[John 10.14|John 10:14.]]
-[^c]: [[Isaiah 45.3|Isa. 45:3 (3-4)]]; JS—H 1:33 (17, 33, 49).
+[^a]: [[Exodus 32.34|Ex. 32:34]].  
+[^b]: [[John 10.14|John 10:14]].  
+[^c]: [[Isaiah 45.3|Isa. 45:3 (3–4)]][[Isaiah 45.4|]]; [[Joseph Smith History 1.17|JS—H 1:33 (17, 33, 49)]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.49|]].  

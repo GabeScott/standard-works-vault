@@ -5,4 +5,4 @@
 [Romans 7:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.17?lang=eng#p17)
 
 
-[^a]: GR produce, work.
+[^a]: GR produce, work.  

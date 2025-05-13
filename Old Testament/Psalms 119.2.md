@@ -5,4 +5,4 @@
 [Psalms 119:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.2?lang=eng#p2)
 
 
-[^a]: TG [[Children of Light]].
+[^a]: [[Children of Light|TG Children of Light]].  

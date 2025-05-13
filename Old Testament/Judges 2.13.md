@@ -5,4 +5,4 @@
 [Judges 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.13?lang=eng#p13)
 
 
-[^a]: [[1 Samuel 7.4|1 Sam. 7:4.]]
+[^a]: [[1 Samuel 7.4|1 Sam. 7:4]].  

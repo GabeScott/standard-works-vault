@@ -5,4 +5,4 @@
 [John 1:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.28?lang=eng#p28)
 
 
-[^a]: [[1 Nephi 10.9|1 Ne. 10:9.]]
+[^a]: [[1 Nephi 10.9|1 Ne. 10:9]].  

@@ -5,4 +5,4 @@
 [Psalms 32:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/32.4?lang=eng#p4)
 
 
-[^a]: IE strength dried up as.
+[^a]: IE strength dried up as.  

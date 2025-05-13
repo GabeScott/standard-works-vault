@@ -5,4 +5,4 @@
 [1 Samuel 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.7?lang=eng#p7)
 
 
-[^a]: OR milk cows.
+[^a]: OR milk cows.  

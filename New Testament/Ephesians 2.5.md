@@ -5,4 +5,4 @@
 [Ephesians 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.5?lang=eng#p5)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Resurrection|TG Resurrection]].  

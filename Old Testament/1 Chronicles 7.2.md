@@ -5,4 +5,4 @@
 [1 Chronicles 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/7.2?lang=eng#p2)
 
 
-[^a]: [[2 Samuel 24.9|2 Sam. 24:9 (1-2, 9).]]
+[^a]: [[2 Samuel 24.1|2 Sam. 24:9 (1–2, 9)]][[2 Samuel 24.2|]][[2 Samuel 24.9|]].  

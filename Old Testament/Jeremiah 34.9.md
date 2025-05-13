@@ -5,4 +5,4 @@
 [Jeremiah 34:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.9?lang=eng#p9)
 
 
-[^a]: OR enslave them.
+[^a]: OR enslave them.  

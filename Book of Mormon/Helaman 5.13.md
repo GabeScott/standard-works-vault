@@ -5,4 +5,4 @@
 [Helaman 5:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p13#p13)
 
 
-[^a]: [[Mosiah 1.4|Mosiah 1:4]]; [[Alma 18.36|Alma 18:36]]; [[Alma 36.1|36:1]]; [[Moses 6.58|Moses 6:58.]]
+[^a]: [[Mosiah 1.4|Mosiah 1:4]]; [[Alma 18.36|Alma 18:36]]; [[Alma 36.1|36:1]]; [[Moses 6.58|Moses 6:58]].  

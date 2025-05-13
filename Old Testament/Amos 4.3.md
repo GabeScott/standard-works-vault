@@ -5,4 +5,4 @@
 [Amos 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/4.3?lang=eng#p3)
 
 
-[^a]: OR broken places.
+[^a]: OR broken places.  

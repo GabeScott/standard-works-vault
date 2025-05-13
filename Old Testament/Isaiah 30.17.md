@@ -5,4 +5,4 @@
 [Isaiah 30:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.17?lang=eng#p17)
 
 
-[^a]: [[D&C 113.6|D&C 113:6.]]
+[^a]: [[D&C 113.6|D&C 113:6]].  

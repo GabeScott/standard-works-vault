@@ -5,4 +5,4 @@
 [Alma 40:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p17#p17)
 
 
-[^a]: [[D&C 76.17|D&C 76:17 (17, 32, 50)]]. TG [[Judgment, the Last]].
+[^a]: [[D&C 76.17|D&C 76:17 (17, 32, 50)]][[D&C 76.32|]][[D&C 76.50|]]. [[Judgment, the Last|TG Judgment, the Last]].  

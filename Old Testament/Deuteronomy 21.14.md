@@ -5,5 +5,5 @@
 [Deuteronomy 21:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/21.14?lang=eng#p14)
 
 
-[^a]: [[Deuteronomy 24.7|Deut. 24:7.]]
-[^b]: HEB treat her harshly.
+[^a]: [[Deuteronomy 24.7|Deut. 24:7]].  
+[^b]: HEB treat her harshly.  

@@ -5,5 +5,5 @@
 [Helaman 1:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p16#p16)
 
 
-[^a]: [[Alma 52.3|Alma 52:3.]]
-[^b]: [[Ezekiel 28.5|Ezek. 28:5 (4-5).]]
+[^a]: [[Alma 52.3|Alma 52:3]].  
+[^b]: [[Ezekiel 28.4|Ezek. 28:5 (4–5)]][[Ezekiel 28.5|]].  

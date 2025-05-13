@@ -5,4 +5,4 @@
 [1 Nephi 17:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Mocking, Mock, Mocker, Mockery]]; [[Persecution, Persecute]].
+[^a]: [[Mocking, Mock, Mocker, Mockery|TG Mocking]]; [[Persecution, Persecute|Persecution]].  

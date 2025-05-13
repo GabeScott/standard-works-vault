@@ -5,5 +5,5 @@
 [Ecclesiastes 4:9](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/4.9?lang=eng#p9)
 
 
-[^a]: [[Moses 3.24|Moses 3:24.]]
-[^b]: TG [[Reward]].
+[^a]: [[Moses 3.24|Moses 3:24]].  
+[^b]: [[Reward|TG Reward]].  

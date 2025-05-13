@@ -5,4 +5,4 @@
 [4 Nephi 1:49](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p49#p49)
 
 
-[^a]: [[Enos 1.13|Enos 1:13]]; [[Mormon 5.9|Morm. 5:9.]]
+[^a]: [[Enos 1.13|Enos 1:13]]; [[Mormon 5.9|Morm. 5:9]].  

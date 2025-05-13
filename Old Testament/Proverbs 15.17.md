@@ -5,5 +5,5 @@
 [Proverbs 15:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.17?lang=eng#p17)
 
 
-[^a]: [[Proverbs 17.1|Prov. 17:1]]. TG [[Love]].
-[^b]: IE fattened ox.
+[^a]: [[Proverbs 17.1|Prov. 17:1]]. [[Love|TG Love]].  
+[^b]: IE fattened ox.  

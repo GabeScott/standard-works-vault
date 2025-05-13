@@ -5,5 +5,5 @@
 [Mark 8:17](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/8.17?lang=eng#p17)
 
 
-[^a]: GR do you still have hardened hearts?
-[^b]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: GR do you still have hardened hearts?  
+[^b]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

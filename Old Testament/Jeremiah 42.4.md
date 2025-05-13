@@ -5,4 +5,4 @@
 [Jeremiah 42:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.4?lang=eng#p4)
 
 
-[^a]: [[Numbers 21.7|Num. 21:7]]; [[1 Samuel 7.5|1 Sam. 7:5]]; [[2 Nephi 33.3|2 Ne. 33:3]]; [[Enos 1.9|Enos 1:9.]]
+[^a]: [[Numbers 21.7|Num. 21:7]]; [[1 Samuel 7.5|1 Sam. 7:5]]; [[2 Nephi 33.3|2 Ne. 33:3]]; [[Enos 1.9|Enos 1:9]].  

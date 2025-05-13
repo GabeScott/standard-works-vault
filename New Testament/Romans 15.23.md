@@ -5,4 +5,4 @@
 [Romans 15:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.23?lang=eng#p23)
 
 
-[^a]: GR opportunity.
+[^a]: GR opportunity.  

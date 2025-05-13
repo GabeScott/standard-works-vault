@@ -5,4 +5,4 @@
 [Psalms 106:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.11?lang=eng#p11)
 
 
-[^a]: [[Exodus 14.28|Ex. 14:28.]]
+[^a]: [[Exodus 14.28|Ex. 14:28]].  

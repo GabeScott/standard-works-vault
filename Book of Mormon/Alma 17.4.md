@@ -5,6 +5,6 @@
 [Alma 17:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p4#p4)
 
 
-[^a]: [[Alma 29.14|Alma 29:14.]]
-[^b]: TG [[Missionary Work]].
-[^c]: [[Numbers 5.7|Num. 5:7 (6-10)]]; [[Mosiah 26.29|Mosiah 26:29 (29, 35)]]; [[3 Nephi 1.25|3 Ne. 1:25.]]
+[^a]: [[Alma 29.14|Alma 29:14]].  
+[^b]: [[Missionary Work|TG Missionary Work]].  
+[^c]: [[Numbers 5.6|Num. 5:7 (6–10)]][[Numbers 5.7|]][[Numbers 5.8|]][[Numbers 5.9|]][[Numbers 5.10|]]; [[Mosiah 26.29|Mosiah 26:29 (29, 35)]][[Mosiah 26.35|]]; [[3 Nephi 1.25|3 Ne. 1:25]].  

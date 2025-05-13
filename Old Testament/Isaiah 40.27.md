@@ -5,4 +5,4 @@
 [Isaiah 40:27](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.27?lang=eng#p27)
 
 
-[^a]: IE disregarded by.
+[^a]: IE disregarded by.  

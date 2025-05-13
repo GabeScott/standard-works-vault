@@ -5,7 +5,7 @@
 [1 Peter 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.12?lang=eng#p12)
 
 
-[^a]: [[Psalms 33.18|Ps. 33:18]]. TG [[Abundant Life]]; [[Reward]].
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: TG [[Prayer, Pray]].
-[^d]: TG [[Evil]].
+[^a]: [[Psalms 33.18|Ps. 33:18]]. [[Abundant Life|TG Abundant Life]]; [[Reward|Reward]].  
+[^b]: [[Righteousness|TG Righteousness]].  
+[^c]: [[Prayer, Pray|TG Prayer]].  
+[^d]: [[Evil|TG Evil]].  

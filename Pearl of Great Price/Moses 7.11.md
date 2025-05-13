@@ -5,5 +5,5 @@
 [Moses 7:11](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.11?lang=eng#p11)
 
 
-[^a]: TG [[Baptism, Essential]].
-[^b]: TG [[Grace]].
+[^a]: [[Baptism, Essential|TG Baptism, Essential]].  
+[^b]: [[Grace|TG Grace]].  

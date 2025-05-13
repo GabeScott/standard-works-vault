@@ -5,4 +5,4 @@
 [Genesis 35:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 27.43|Gen. 27:43 (41-45).]]
+[^a]: [[Genesis 27.41|Gen. 27:43 (41–45)]][[Genesis 27.42|]][[Genesis 27.43|]][[Genesis 27.44|]][[Genesis 27.45|]].  

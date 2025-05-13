@@ -5,5 +5,5 @@
 [Exodus 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/5.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 9.17|Ex. 9:17]]; [[Exodus 10.3|10:3]]; [[Alma 9.6|Alma 9:6]]; [[Moses 5.16|Moses 5:16.]]
-[^b]: TG [[God, Knowledge about]].
+[^a]: [[Exodus 9.17|Ex. 9:17]]; [[Exodus 10.3|10:3]]; [[Alma 9.6|Alma 9:6]]; [[Moses 5.16|Moses 5:16]].  
+[^b]: [[God, Knowledge about|TG God, Knowledge about]].  

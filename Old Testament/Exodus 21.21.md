@@ -5,5 +5,5 @@
 [Exodus 21:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.21?lang=eng#p21)
 
 
-[^a]: IE remains alive.
-[^b]: [[Exodus 21.21|JST Ex. 21:21 … put to death …]]
+[^a]: IE remains alive.  
+[^b]: JST Ex. 21:21 … put to death …  

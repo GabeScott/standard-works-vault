@@ -5,6 +5,6 @@
 [Genesis 49:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.1?lang=eng#p1)
 
 
-[^a]: [[2 Nephi 4.12|2 Ne. 4:12]]; [[Alma 8.22|Alma 8:22]]; [[Alma 45.15|45:15.]]
-[^b]: TG [[Family, Patriarchal]].
-[^c]: TG [[Last Days]].
+[^a]: [[2 Nephi 4.12|2 Ne. 4:12]]; [[Alma 8.22|Alma 8:22]]; [[Alma 45.15|45:15]].  
+[^b]: [[Patriarch|TG Patriarch]].  
+[^c]: [[Last Days|TG Last Days]].  

@@ -5,8 +5,8 @@
 [Ether 4:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/4?lang=eng&id=p12#p12)
 
 
-[^a]: [[Omni 1.25|Omni 1:25]]; [[Alma 5.40|Alma 5:40]]; [[Moroni 7.16|Moro. 7:16 (12-17).]]
-[^b]: [[3 Nephi 11.35|3 Ne. 11:35]]; [[3 Nephi 28.34|28:34.]]
-[^c]: TG [[Jesus Christ, Light of the World]].
-[^d]: Col. 3:4.
-[^e]: [[Alma 38.9|Alma 38:9.]]
+[^a]: [[Omni 1.25|Omni 1:25]]; [[Alma 5.40|Alma 5:40]]; [[Moroni 7.12|Moro. 7:16 (12–17)]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]].  
+[^b]: [[3 Nephi 11.35|3 Ne. 11:35]]; [[3 Nephi 28.34|28:34]].  
+[^c]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]].  
+[^d]: [[Colossians 3.4|Col. 3:4]].  
+[^e]: [[Alma 38.9|Alma 38:9]].  

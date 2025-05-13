@@ -5,4 +5,4 @@
 [Mark 7:6](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.6?lang=eng#p6)
 
 
-[^a]: TG [[Apostasy of Israel]]; [[Hypocrisy, Hypocrite]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]]; [[Hypocrisy, Hypocrite|Hypocrisy]].  

@@ -5,4 +5,4 @@
 [Ezekiel 36:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 6.2|Ezek. 6:2.]]
+[^a]: [[Ezekiel 6.2|Ezek. 6:2]].  

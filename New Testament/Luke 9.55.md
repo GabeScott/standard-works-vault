@@ -5,4 +5,4 @@
 [Luke 9:55](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.55?lang=eng#p55)
 
 
-[^a]: TG [[Spirits, Evil or Unclean]].
+[^a]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

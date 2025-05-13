@@ -5,4 +5,4 @@
 [Titus 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.6?lang=eng#p6)
 
 
-[^a]: GR debauchery or insubordination.
+[^a]: GR debauchery or insubordination.  

@@ -5,4 +5,4 @@
 [2 Chronicles 36:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.17?lang=eng#p17)
 
 
-[^a]: Lam. 2:21.
+[^a]: [[Lamentations 2.21|Lam. 2:21]].  

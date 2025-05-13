@@ -5,5 +5,5 @@
 [Exodus 28:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.3?lang=eng#p3)
 
 
-[^a]: Ex. 35:10, 25.
-[^b]: TG [[Wisdom]].
+[^a]: [[Exodus 35.10|Ex. 35:10, 25]][[Exodus 35.25|]].  
+[^b]: [[Wisdom|TG Wisdom]].  

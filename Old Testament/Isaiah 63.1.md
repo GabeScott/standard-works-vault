@@ -5,5 +5,5 @@
 [Isaiah 63:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.1?lang=eng#p1)
 
 
-[^a]: TG [[Jesus Christ, Second Coming]].
-[^b]: IE the worldly nations; [[D&C 1.36|D&C 1:36.]]
+[^a]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  
+[^b]: IE the worldly nations; [[D&C 1.36|D&C 1:36]].  

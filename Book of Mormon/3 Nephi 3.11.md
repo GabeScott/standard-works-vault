@@ -5,4 +5,4 @@
 [3 Nephi 3:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p11#p11)
 
 
-[^a]: [[Helaman 14.30|Hel. 14:30.]]
+[^a]: [[Helaman 14.30|Hel. 14:30]].  

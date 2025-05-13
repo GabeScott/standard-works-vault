@@ -5,5 +5,5 @@
 [Alma 8:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 2.20|Alma 2:20]]; [[Alma 6.7|6:7.]]
-[^b]: TG [[Church Organization]].
+[^a]: [[Alma 2.20|Alma 2:20]]; [[Alma 6.7|6:7]].  
+[^b]: [[Church Organization|TG Church Organization]].  

@@ -5,4 +5,4 @@
 [Joshua 13:5](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.5?lang=eng#p5)
 
 
-[^a]: [[1 Kings 5.18|1 Kgs. 5:18.]]
+[^a]: [[1 Kings 5.18|1 Kgs. 5:18]].  

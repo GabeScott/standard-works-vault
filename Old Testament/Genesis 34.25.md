@@ -5,4 +5,4 @@
 [Genesis 34:25](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/34.25?lang=eng#p25)
 
 
-[^a]: [[Genesis 49.5|Gen. 49:5 (5-7).]]
+[^a]: [[Genesis 49.5|Gen. 49:5 (5–7)]][[Genesis 49.6|]][[Genesis 49.7|]].  

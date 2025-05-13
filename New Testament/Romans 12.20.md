@@ -5,4 +5,4 @@
 [Romans 12:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.20?lang=eng#p20)
 
 
-[^a]: [[2 Kings 6.22|2 Kgs. 6:22]]. TG [[Enemies, Enemy]].
+[^a]: [[2 Kings 6.22|2 Kgs. 6:22]]. [[Enemies, Enemy|TG Enemies]].  

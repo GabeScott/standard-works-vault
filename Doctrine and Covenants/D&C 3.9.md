@@ -5,4 +5,4 @@
 [D&C 3:9](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.9?lang=eng#p9)
 
 
-[^a]: [[Acts 1.25|Acts 1:25]]; [[1 Corinthians 10.12|1 Cor. 10:12]]. TG [[Apostasy of Individuals]].
+[^a]: [[Acts 1.25|Acts 1:25]]; [[1 Corinthians 10.12|1 Cor. 10:12]]. [[Apostasy of Individuals|TG Apostasy of Individuals]].  

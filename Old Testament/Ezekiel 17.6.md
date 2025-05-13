@@ -5,4 +5,4 @@
 [Ezekiel 17:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.6?lang=eng#p6)
 
 
-[^a]: TG [[Vineyard of the Lord]].
+[^a]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  

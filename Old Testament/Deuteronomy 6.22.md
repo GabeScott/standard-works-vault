@@ -5,4 +5,4 @@
 [Deuteronomy 6:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.22?lang=eng#p22)
 
 
-[^a]: OR grievous.
+[^a]: OR grievous.  

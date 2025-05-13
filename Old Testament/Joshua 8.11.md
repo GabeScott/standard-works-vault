@@ -5,4 +5,4 @@
 [Joshua 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.11?lang=eng#p11)
 
 
-[^a]: OR set camp.
+[^a]: OR set camp.  

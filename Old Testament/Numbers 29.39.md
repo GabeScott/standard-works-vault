@@ -5,4 +5,4 @@
 [Numbers 29:39](https://www.churchofjesuschrist.org/study/scriptures/ot/num/29.39?lang=eng#p39)
 
 
-[^a]: [[1 Chronicles 23.31|1 Chr. 23:31]]; [[Ezra 3.5|Ezra 3:5.]]
+[^a]: [[1 Chronicles 23.31|1 Chr. 23:31]]; [[Ezra 3.5|Ezra 3:5]].  

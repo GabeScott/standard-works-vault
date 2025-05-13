@@ -5,4 +5,4 @@
 [Joshua 13:22](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.22?lang=eng#p22)
 
 
-[^a]: TG [[Sorcery]].
+[^a]: [[Sorcery|TG Sorcery]].  

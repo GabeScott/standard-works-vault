@@ -5,4 +5,4 @@
 [Helaman 6:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p30#p30)
 
 
-[^a]: [[Alma 5.40|Alma 5:40 (39-42)]]; [[Moroni 7.12|Moro. 7:12 (12, 17)]]; [[Moses 4.4|Moses 4:4.]]
+[^a]: [[Alma 5.39|Alma 5:40 (39–42)]][[Alma 5.40|]][[Alma 5.41|]][[Alma 5.42|]]; [[Moroni 7.12|Moro. 7:12 (12, 17)]][[Moroni 7.17|]]; [[Moses 4.4|Moses 4:4]].  

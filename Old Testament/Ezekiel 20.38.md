@@ -5,7 +5,7 @@
 [Ezekiel 20:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.38?lang=eng#p38)
 
 
-[^a]: [[Ezekiel 34.17|Ezek. 34:17 (17, 20, 22).]]
-[^b]: TG [[Rebellion, Rebel]].
-[^c]: [[Ezekiel 13.9|Ezek. 13:9.]]
-[^d]: TG [[Israel, Land of]].
+[^a]: [[Ezekiel 34.17|Ezek. 34:17 (17, 20, 22)]][[Ezekiel 34.20|]][[Ezekiel 34.22|]].  
+[^b]: [[Rebellion, Rebel|TG Rebellion]].  
+[^c]: [[Ezekiel 13.9|Ezek. 13:9]].  
+[^d]: [[Israel, Land of|TG Israel, Land of]].  

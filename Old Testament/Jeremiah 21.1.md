@@ -5,5 +5,5 @@
 [Jeremiah 21:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/21.1?lang=eng#p1)
 
 
-[^a]: [[2 Chronicles 36.12|2 Chr. 36:12 (10-13).]]
-[^b]: [[Jeremiah 20.1|Jer. 20:1]]; [[Jeremiah 38.1|38:1.]]
+[^a]: [[2 Chronicles 36.10|2 Chr. 36:12 (10–13)]][[2 Chronicles 36.11|]][[2 Chronicles 36.12|]][[2 Chronicles 36.13|]].  
+[^b]: [[Jeremiah 20.1|Jer. 20:1]]; [[Jeremiah 38.1|38:1]].  

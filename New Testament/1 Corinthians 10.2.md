@@ -5,4 +5,4 @@
 [1 Corinthians 10:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.2?lang=eng#p2)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential.
+[^a]: [[Baptism|TG Baptism]]; [[Baptism, Essential|Baptism, Essential]].  

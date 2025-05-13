@@ -5,4 +5,4 @@
 [Acts 14:27](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.27?lang=eng#p27)
 
 
-[^a]: [[2 Corinthians 2.12|2 Cor. 2:12.]]
+[^a]: [[2 Corinthians 2.12|2 Cor. 2:12]].  

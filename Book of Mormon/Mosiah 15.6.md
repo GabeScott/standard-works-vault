@@ -5,5 +5,5 @@
 [Mosiah 15:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p6#p6)
 
 
-[^a]: [[Isaiah 53.7|Isa. 53:7.]]
-[^b]: [[Luke 23.9|Luke 23:9]]; [[John 19.9|John 19:9 (9-10)]]; [[Mosiah 14.7|Mosiah 14:7]]. TG [[Jesus Christ, Trials of]].
+[^a]: [[Isaiah 53.7|Isa. 53:7]].  
+[^b]: [[Luke 23.9|Luke 23:9]]; [[John 19.9|John 19:9 (9–10)]][[John 19.10|]]; [[Mosiah 14.7|Mosiah 14:7]]. [[Jesus Christ, Trials of|TG Jesus Christ, Trials of]].  

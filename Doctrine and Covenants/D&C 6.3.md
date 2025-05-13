@@ -5,6 +5,6 @@
 [D&C 6:3](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.3?lang=eng#p3)
 
 
-[^a]: [[Joel 3.13|Joel 3:13]]; [[D&C 101.64|D&C 101:64.]]
-[^b]: TG [[Procrastination, Procrastinate]].
-[^c]: TG [[Treasure]].
+[^a]: [[Joel 3.13|Joel 3:13]]; [[D&C 101.64|D&C 101:64]].  
+[^b]: [[Procrastination, Procrastinate|TG Procrastination]].  
+[^c]: [[Treasure|TG Treasure]].  

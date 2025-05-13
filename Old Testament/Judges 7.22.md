@@ -5,4 +5,4 @@
 [Judges 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7.22?lang=eng#p22)
 
 
-[^a]: [[1 Samuel 14.20|1 Sam. 14:20]]; [[2 Chronicles 20.23|2 Chr. 20:23.]]
+[^a]: [[1 Samuel 14.20|1 Sam. 14:20]]; [[2 Chronicles 20.23|2 Chr. 20:23]].  

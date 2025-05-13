@@ -5,5 +5,5 @@
 [Mosiah 11:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p13#p13)
 
 
-[^a]: [[Mosiah 7.5|Mosiah 7:5.]]
-[^b]: [[Omni 1.12|Omni 1:12 (12-13).]]
+[^a]: [[Mosiah 7.5|Mosiah 7:5]].  
+[^b]: [[Omni 1.12|Omni 1:12 (12–13)]][[Omni 1.13|]].  

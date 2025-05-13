@@ -5,6 +5,6 @@
 [1 Nephi 18:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p1#p1)
 
 
-[^a]: [[1 Nephi 17.55|1 Ne. 17:55.]]
-[^b]: TG [[Art]].
-[^c]: [[1 Nephi 17.49|1 Ne. 17:49 (8, 17, 49-51).]]
+[^a]: [[1 Nephi 17.55|1 Ne. 17:55]].  
+[^b]: [[Art|TG Art]].  
+[^c]: [[1 Nephi 17.8|1 Ne. 17:49 (8, 17, 49–51)]][[1 Nephi 17.17|]][[1 Nephi 17.49|]][[1 Nephi 17.50|]][[1 Nephi 17.51|]].  

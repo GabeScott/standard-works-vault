@@ -5,5 +5,5 @@
 [Genesis 43:34](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.34?lang=eng#p34)
 
 
-[^a]: [[2 Samuel 11.8|2 Sam. 11:8.]]
-[^b]: [[Genesis 45.22|Gen. 45:22.]]
+[^a]: [[2 Samuel 11.8|2 Sam. 11:8]].  
+[^b]: [[Genesis 45.22|Gen. 45:22]].  

@@ -5,4 +5,4 @@
 [1 Nephi 10:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p15#p15)
 
 
-[^a]: [[1 Nephi 1.17|1 Ne. 1:17 (16-18).]]
+[^a]: [[1 Nephi 1.16|1 Ne. 1:17 (16–18)]][[1 Nephi 1.17|]][[1 Nephi 1.18|]].  

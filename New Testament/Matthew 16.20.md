@@ -5,4 +5,4 @@
 [Matthew 16:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.20?lang=eng#p20)
 
 
-[^a]: TG [[Jesus Christ, Messiah]].
+[^a]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  

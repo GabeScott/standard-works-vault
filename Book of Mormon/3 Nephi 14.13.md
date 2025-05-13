@@ -5,5 +5,5 @@
 [3 Nephi 14:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p13#p13)
 
 
-[^a]: [[Luke 13.24|Luke 13:24]]; [[3 Nephi 27.33|3 Ne. 27:33.]]
-[^b]: [[D&C 132.25|D&C 132:25.]]
+[^a]: [[Luke 13.24|Luke 13:24]]; [[3 Nephi 27.33|3 Ne. 27:33]].  
+[^b]: [[D&C 132.25|D&C 132:25]].  

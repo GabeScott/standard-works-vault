@@ -5,6 +5,6 @@
 [Helaman 5:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Missionary Work]].
-[^b]: Mal. 2:6.
-[^c]: [[Helaman 15.4|Hel. 15:4.]]
+[^a]: [[Missionary Work|TG Missionary Work]].  
+[^b]: [[Malachi 2.6|Mal. 2:6]].  
+[^c]: [[Helaman 15.4|Hel. 15:4]].  

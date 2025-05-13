@@ -5,5 +5,5 @@
 [Proverbs 23:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.20?lang=eng#p20)
 
 
-[^a]: HEB imbibers of wine.
-[^b]: OR gluttonous eaters of meat. TG [[Rioting and Reveling]].
+[^a]: HEB imbibers of wine.  
+[^b]: OR gluttonous eaters of meat. [[Rioting and Reveling|TG Rioting and Reveling]].  

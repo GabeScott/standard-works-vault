@@ -5,4 +5,4 @@
 [Ecclesiastes 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.14?lang=eng#p14)
 
 
-[^a]: TG [[Adversity]].
+[^a]: [[Adversity|TG Adversity]].  

@@ -5,4 +5,4 @@
 [Mosiah 6:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/6?lang=eng&id=p1#p1)
 
 
-[^a]: [[D&C 128.8|D&C 128:8.]]
+[^a]: [[D&C 128.8|D&C 128:8]].  

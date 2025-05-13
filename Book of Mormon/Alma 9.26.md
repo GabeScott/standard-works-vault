@@ -5,8 +5,8 @@
 [Alma 9:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p26#p26)
 
 
-[^a]: [[Alma 7.7|Alma 7:7.]]
-[^b]: TG [[Jesus Christ, Glory of]].
-[^c]: TG [[Grace]].
-[^d]: TG [[God, Mercy of]].
-[^e]: [[Deuteronomy 26.7|Deut. 26:7]]; [[Isaiah 65.24|Isa. 65:24.]]
+[^a]: [[Alma 7.7|Alma 7:7]].  
+[^b]: [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  
+[^c]: [[Grace|TG Grace]].  
+[^d]: [[God, Mercy of|TG God, Mercy of]].  
+[^e]: [[Deuteronomy 26.7|Deut. 26:7]]; [[Isaiah 65.24|Isa. 65:24]].  

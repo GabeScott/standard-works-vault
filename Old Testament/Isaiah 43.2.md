@@ -5,6 +5,6 @@
 [Isaiah 43:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.2?lang=eng#p2)
 
 
-[^a]: [[Psalms 66.12|Ps. 66:12.]]
-[^b]: Dan. 3:27.
-[^c]: [[Psalms 91.5|Ps. 91:5 (5-8).]]
+[^a]: [[Psalms 66.12|Ps. 66:12]].  
+[^b]: [[Daniel 3.27|Dan. 3:27]].  
+[^c]: [[Psalms 91.5|Ps. 91:5 (5–8)]][[Psalms 91.6|]][[Psalms 91.7|]][[Psalms 91.8|]].  

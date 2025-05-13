@@ -5,4 +5,4 @@
 [1 Samuel 25:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.25?lang=eng#p25)
 
 
-[^a]: IE Fool (insensitive, churlish person). Such a name must have been given him by those who knew him.
+[^a]: IE Fool (insensitive, churlish person). Such a name must have been given him by those who knew him.  

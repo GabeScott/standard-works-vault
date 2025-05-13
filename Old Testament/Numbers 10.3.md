@@ -5,4 +5,4 @@
 [Numbers 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/10.3?lang=eng#p3)
 
 
-[^a]: HEB tent of meeting.
+[^a]: HEB tent of meeting.  

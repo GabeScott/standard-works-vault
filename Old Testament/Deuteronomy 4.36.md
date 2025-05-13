@@ -5,5 +5,5 @@
 [Deuteronomy 4:36](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.36?lang=eng#p36)
 
 
-[^a]: TG [[Edification, Edify]].
-[^b]: TG [[God, Manifestations of]].
+[^a]: [[Edification, Edify|TG Edification]].  
+[^b]: [[God, Manifestations of|TG God, Manifestations of]].  

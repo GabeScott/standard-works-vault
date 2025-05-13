@@ -5,4 +5,4 @@
 [Job 34:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/34.22?lang=eng#p22)
 
 
-[^a]: [[Alma 12.14|Alma 12:14 (14-15)]]; [[D&C 1.2|D&C 1:2.]]
+[^a]: [[Alma 12.14|Alma 12:14 (14–15)]][[Alma 12.15|]]; [[D&C 1.2|D&C 1:2]].  

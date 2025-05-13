@@ -5,5 +5,5 @@
 [Deuteronomy 5:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.29?lang=eng#p29)
 
 
-[^a]: [[1 Chronicles 29.19|1 Chr. 29:19.]]
-[^b]: [[Job 1.1|Job 1:1]]; [[Mosiah 15.26|Mosiah 15:26 (26-27)]]; [[D&C 1.7|D&C 1:7.]]
+[^a]: [[1 Chronicles 29.19|1 Chr. 29:19]].  
+[^b]: [[Job 1.1|Job 1:1]]; [[Mosiah 15.26|Mosiah 15:26 (26–27)]][[Mosiah 15.27|]]; [[D&C 1.7|D&C 1:7]].  

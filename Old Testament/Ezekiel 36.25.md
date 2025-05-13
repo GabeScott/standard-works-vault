@@ -5,6 +5,6 @@
 [Ezekiel 36:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.25?lang=eng#p25)
 
 
-[^a]: [[Isaiah 52.15|Isa. 52:15]]; [[3 Nephi 20.45|3 Ne. 20:45.]]
-[^b]: TG [[Filthiness, Filthy]].
-[^c]: [[Ezekiel 37.23|Ezek. 37:23.]]
+[^a]: [[Isaiah 52.15|Isa. 52:15]]; [[3 Nephi 20.45|3 Ne. 20:45]].  
+[^b]: [[Filthiness, Filthy|TG Filthiness]].  
+[^c]: [[Ezekiel 37.23|Ezek. 37:23]].  

@@ -5,5 +5,5 @@
 [2 Chronicles 11:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/11.13?lang=eng#p13)
 
 
-[^a]: IE took their stand on his side.
-[^b]: IE borders.
+[^a]: IE took their stand on his side.  
+[^b]: IE borders.  

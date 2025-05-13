@@ -5,5 +5,5 @@
 [Moroni 7:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p35#p35)
 
 
-[^a]: [[2 Nephi 33.11|2 Ne. 33:11]]; [[Ether 5.4|Ether 5:4 (4-6).]]
-[^b]: [[Mormon 9.15|Morm. 9:15]]; [[D&C 35.8|D&C 35:8.]]
+[^a]: [[2 Nephi 33.11|2 Ne. 33:11]]; [[Ether 5.4|Ether 5:4 (4–6)]][[Ether 5.5|]][[Ether 5.6|]].  
+[^b]: [[Mormon 9.15|Morm. 9:15]]; [[D&C 35.8|D&C 35:8]].  

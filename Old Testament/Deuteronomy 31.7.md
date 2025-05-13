@@ -5,4 +5,4 @@
 [Deuteronomy 31:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.7?lang=eng#p7)
 
 
-[^a]: [[Deuteronomy 1.38|Deut. 1:38.]]
+[^a]: [[Deuteronomy 1.38|Deut. 1:38]].  

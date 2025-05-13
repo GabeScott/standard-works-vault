@@ -5,4 +5,4 @@
 [Judges 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.15?lang=eng#p15)
 
 
-[^a]: [[1 Samuel 9.21|1 Sam. 9:21.]]
+[^a]: [[1 Samuel 9.21|1 Sam. 9:21]].  

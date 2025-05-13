@@ -5,5 +5,5 @@
 [Alma 34:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p12#p12)
 
 
-[^a]: TG [[Blood, Shedding of]]; [[Life, Sanctity of]].
-[^b]: TG [[Capital Punishment]]; [[Murder, Murderer]].
+[^a]: [[Blood, Shedding of|TG Blood, Shedding of]]; [[Life, Sanctity of|Life, Sanctity of]].  
+[^b]: [[Capital Punishment|TG Capital Punishment]]; [[Murder, Murderer|Murder]].  

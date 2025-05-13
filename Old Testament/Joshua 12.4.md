@@ -5,4 +5,4 @@
 [Joshua 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/12.4?lang=eng#p4)
 
 
-[^a]: [[Deuteronomy 3.11|Deut. 3:11.]]
+[^a]: [[Deuteronomy 3.11|Deut. 3:11]].  

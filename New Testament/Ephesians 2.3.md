@@ -5,5 +5,5 @@
 [Ephesians 2:3](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.3?lang=eng#p3)
 
 
-[^a]: TG [[Lust]].
-[^b]: TG [[Man, Natural, Not Spiritually Reborn]].
+[^a]: [[Lust|TG Lust]].  
+[^b]: [[Man, Natural, Not Spiritually Reborn|TG Man, Natural, Not Spiritually Reborn]].  

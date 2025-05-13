@@ -5,4 +5,4 @@
 [Isaiah 7:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.21?lang=eng#p21)
 
 
-[^a]: IE only a few self-sustaining survivors shall remain.
+[^a]: IE only a few self-sustaining survivors shall remain.  

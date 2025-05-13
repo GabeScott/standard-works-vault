@@ -5,4 +5,4 @@
 [Mark 10:18](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.18?lang=eng#p18)
 
 
-[^a]: [[Ether 4.12|Ether 4:12 (11-12).]]
+[^a]: [[Ether 4.11|Ether 4:12 (11–12)]][[Ether 4.12|]].  

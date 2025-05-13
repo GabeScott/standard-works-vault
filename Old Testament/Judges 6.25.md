@@ -5,5 +5,5 @@
 [Judges 6:25](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.25?lang=eng#p25)
 
 
-[^a]: [[2 Kings 3.2|2 Kgs. 3:2.]]
-[^b]: HEB asherah—a pole or tree representing a fertility goddess (also vv. 26, 28, 30). Deut. 7:5; [[2 Kings 18.4|2 Kgs. 18:4.]]
+[^a]: [[2 Kings 3.2|2 Kgs. 3:2]].  
+[^b]: HEB asherah—a pole or tree representing a fertility goddess (also [[Judges 6.26|vv. 26, 28, 30]][[Judges 6.28|]][[Judges 6.30|]]). [[Deuteronomy 7.5|Deut. 7:5]]; [[2 Kings 18.4|2 Kgs. 18:4]].  

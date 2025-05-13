@@ -5,4 +5,4 @@
 [Acts 19:40](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.40?lang=eng#p40)
 
 
-[^a]: TG [[Rioting and Reveling]].
+[^a]: [[Rioting and Reveling|TG Rioting and Reveling]].  

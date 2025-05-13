@@ -5,4 +5,4 @@
 [John 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/john/2.18?lang=eng#p18)
 
 
-[^a]: TG [[Sign Seekers]].
+[^a]: [[Sign Seekers|TG Sign Seekers]].  

@@ -5,6 +5,6 @@
 [Mormon 9:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p26#p26)
 
 
-[^a]: [[2 Nephi 26.20|2 Ne. 26:20]]; [[2 Nephi 28.5|28:5 (4-6, 15).]]
-[^b]: [[3 Nephi 29.5|3 Ne. 29:5 (4-7).]]
-[^c]: [[Proverbs 13.13|Prov. 13:13.]]
+[^a]: [[2 Nephi 26.20|2 Ne. 26:20]]; [[2 Nephi 28.4|28:5 (4–6, 15)]][[2 Nephi 28.5|]][[2 Nephi 28.6|]][[2 Nephi 28.15|]].  
+[^b]: [[3 Nephi 29.4|3 Ne. 29:5 (4–7)]][[3 Nephi 29.5|]][[3 Nephi 29.6|]][[3 Nephi 29.7|]].  
+[^c]: [[Proverbs 13.13|Prov. 13:13]].  

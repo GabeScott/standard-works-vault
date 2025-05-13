@@ -5,4 +5,4 @@
 [Romans 11:32](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.32?lang=eng#p32)
 
 
-[^a]: GR closed up together.
+[^a]: GR closed up together.  

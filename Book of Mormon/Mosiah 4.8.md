@@ -5,4 +5,4 @@
 [Mosiah 4:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p8#p8)
 
 
-[^a]: [[Acts 4.12|Acts 4:12]]; [[2 Nephi 31.21|2 Ne. 31:21]]; [[Mosiah 3.17|Mosiah 3:17.]]
+[^a]: [[Acts 4.12|Acts 4:12]]; [[2 Nephi 31.21|2 Ne. 31:21]]; [[Mosiah 3.17|Mosiah 3:17]].  

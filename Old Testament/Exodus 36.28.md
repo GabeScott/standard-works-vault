@@ -5,4 +5,4 @@
 [Exodus 36:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.28?lang=eng#p28)
 
 
-[^a]: IE those adjoining the west side.
+[^a]: IE those adjoining the west side.  

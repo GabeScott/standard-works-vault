@@ -5,5 +5,5 @@
 [Ezekiel 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/25.9?lang=eng#p9)
 
 
-[^a]: [[Joshua 12.3|Josh. 12:3.]]
-[^b]: [[1 Chronicles 5.8|1 Chr. 5:8.]]
+[^a]: [[Joshua 12.3|Josh. 12:3]].  
+[^b]: [[1 Chronicles 5.8|1 Chr. 5:8]].  

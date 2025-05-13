@@ -5,4 +5,4 @@
 [Psalms 37:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.38?lang=eng#p38)
 
 
-[^a]: HEB future.
+[^a]: HEB future.  

@@ -5,4 +5,4 @@
 [Ether 2:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p23#p23)
 
 
-[^a]: [[Genesis 6.16|Gen. 6:16.]]
+[^a]: [[Genesis 6.16|Gen. 6:16]].  

@@ -5,6 +5,6 @@
 [Isaiah 41:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.19?lang=eng#p19)
 
 
-[^a]: OR acacia.
-[^b]: OR cypress. Isa. 60:13.
-[^c]: HEB ash tree.
+[^a]: OR acacia.  
+[^b]: OR cypress. [[Isaiah 60.13|Isa. 60:13]].  
+[^c]: HEB ash tree.  

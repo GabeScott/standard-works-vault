@@ -5,4 +5,4 @@
 [2 Chronicles 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/19.9?lang=eng#p9)
 
 
-[^a]: [[Exodus 18.21|Ex. 18:21.]]
+[^a]: [[Exodus 18.21|Ex. 18:21]].  

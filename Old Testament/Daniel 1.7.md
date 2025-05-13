@@ -5,4 +5,4 @@
 [Daniel 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/1.7?lang=eng#p7)
 
 
-[^a]: Dan. 2:26.
+[^a]: [[Daniel 2.26|Dan. 2:26]].  

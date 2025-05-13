@@ -5,4 +5,4 @@
 [Deuteronomy 22:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.21?lang=eng#p21)
 
 
-[^a]: TG [[Capital Punishment]].
+[^a]: [[Capital Punishment|TG Capital Punishment]].  

@@ -5,4 +5,4 @@
 [Jude 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.24?lang=eng#p24)
 
 
-[^a]: [[Revelation 14.4|Rev. 14:4 (2-5).]]
+[^a]: [[Revelation 14.2|Rev. 14:4 (2–5)]][[Revelation 14.3|]][[Revelation 14.4|]][[Revelation 14.5|]].  

@@ -5,4 +5,4 @@
 [Ezekiel 26:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.9?lang=eng#p9)
 
 
-[^a]: OR battering rams.
+[^a]: OR battering rams.  

@@ -5,6 +5,6 @@
 [Joshua 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/12.3?lang=eng#p3)
 
 
-[^a]: OR Dead Sea.
-[^b]: [[Ezekiel 25.9|Ezek. 25:9.]]
-[^c]: OR the slopes of Pisgah.
+[^a]: OR Dead Sea.  
+[^b]: [[Ezekiel 25.9|Ezek. 25:9]].  
+[^c]: OR the slopes of Pisgah.  

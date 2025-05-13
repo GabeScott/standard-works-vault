@@ -5,4 +5,4 @@
 [Ecclesiastes 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/12.11?lang=eng#p11)
 
 
-[^a]: IE sharp-pointed sticks to spur oxen onward.
+[^a]: IE sharp-pointed sticks to spur oxen onward.  

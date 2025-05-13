@@ -5,6 +5,6 @@
 [James 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Reconciliation, Reconcile]]; [[Submissiveness, Submit]].
-[^b]: TG [[Abstain, Abstinence]]; [[Self-Mastery]].
-[^c]: TG [[Devil, Church of]].
+[^a]: [[Reconciliation, Reconcile|TG Reconciliation]]; [[Submissiveness, Submit|Submissiveness]].  
+[^b]: [[Abstain, Abstinence|TG Abstain]]; [[Self-Mastery|Self-Mastery]].  
+[^c]: [[Devil|TG Devil]].  

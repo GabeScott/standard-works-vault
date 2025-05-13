@@ -5,4 +5,4 @@
 [Helaman 9:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/9?lang=eng&id=p2#p2)
 
 
-[^a]: Dan. 2:9.
+[^a]: [[Daniel 2.9|Dan. 2:9]].  

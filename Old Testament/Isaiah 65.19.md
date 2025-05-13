@@ -5,4 +5,4 @@
 [Isaiah 65:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.19?lang=eng#p19)
 
 
-[^a]: [[Isaiah 62.5|Isa. 62:5.]]
+[^a]: [[Isaiah 62.5|Isa. 62:5]].  

@@ -5,5 +5,5 @@
 [Psalms 39:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/39.8?lang=eng#p8)
 
 
-[^a]: TG [[Deliver, Deliverance]].
-[^b]: TG [[Transgressor]].
+[^a]: [[Deliver, Deliverance|TG Deliver]].  
+[^b]: [[Transgress, Transgression|TG Transgress]].  

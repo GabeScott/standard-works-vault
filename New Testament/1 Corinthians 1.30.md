@@ -5,4 +5,4 @@
 [1 Corinthians 1:30](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.30?lang=eng#p30)
 
 
-[^a]: TG [[Sanctification, Sanctify]].
+[^a]: [[Sanctification, Sanctify|TG Sanctification]].  

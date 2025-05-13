@@ -5,4 +5,4 @@
 [Matthew 18:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.18?lang=eng#p18)
 
 
-[^a]: TG [[Apostles]]; [[Priesthood, Keys of]]; [[Sealing, Sealed]].
+[^a]: [[Apostles|TG Apostles]]; [[Priesthood, Keys of|Priesthood, Keys of]]; [[Sealing, Sealed|Sealing]].  

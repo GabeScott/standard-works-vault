@@ -5,5 +5,5 @@
 [Romans 16:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/16.16?lang=eng#p16)
 
 
-[^a]: JST Rom. 16:16 … salutation …
-[^b]: TG [[Jesus Christ, Head of the Church]].
+[^a]: JST Rom. 16:16 … salutation …  
+[^b]: [[Jesus Christ, Head of the Church|TG Jesus Christ, Head of the Church]].  

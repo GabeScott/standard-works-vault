@@ -5,5 +5,5 @@
 [2 Chronicles 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/5.8?lang=eng#p8)
 
 
-[^a]: TG [[Cherubim]].
-[^b]: [[D&C 77.4|D&C 77:4.]]
+[^a]: [[Cherubim|TG Cherubim]].  
+[^b]: [[D&C 77.4|D&C 77:4]].  

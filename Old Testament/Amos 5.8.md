@@ -5,9 +5,9 @@
 [Amos 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.8?lang=eng#p8)
 
 
-[^a]: IE the Pleiades.
-[^b]: TG [[Astronomy]].
-[^c]: [[Amos 4.13|Amos 4:13.]]
-[^d]: [[Amos 8.9|Amos 8:9.]]
-[^e]: [[Amos 9.6|Amos 9:6.]]
-[^f]: HEB Jehovah.
+[^a]: IE the Pleiades.  
+[^b]: [[Astronomy|TG Astronomy]].  
+[^c]: [[Amos 4.13|Amos 4:13]].  
+[^d]: [[Amos 8.9|Amos 8:9]].  
+[^e]: [[Amos 9.6|Amos 9:6]].  
+[^f]: HEB Jehovah.  

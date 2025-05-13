@@ -5,4 +5,4 @@
 [1 Kings 10:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/10.19?lang=eng#p19)
 
 
-[^a]: HEB armrests.
+[^a]: HEB armrests.  

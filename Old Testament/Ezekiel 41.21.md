@@ -5,4 +5,4 @@
 [Ezekiel 41:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.21?lang=eng#p21)
 
 
-[^a]: [[Ezekiel 46.2|Ezek. 46:2.]]
+[^a]: [[Ezekiel 46.2|Ezek. 46:2]].  

@@ -5,5 +5,5 @@
 [Numbers 19:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/19.4?lang=eng#p4)
 
 
-[^a]: [[Leviticus 4.5|Lev. 4:5 (5-6).]]
-[^b]: HEB tent of meeting.
+[^a]: [[Leviticus 4.5|Lev. 4:5 (5–6)]][[Leviticus 4.6|]].  
+[^b]: HEB tent of meeting.  

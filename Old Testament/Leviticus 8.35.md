@@ -5,5 +5,5 @@
 [Leviticus 8:35](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.35?lang=eng#p35)
 
 
-[^a]: HEB by the opening of the tent of meeting you shall sit.
-[^b]: [[Numbers 3.7|Num. 3:7]]; [[Deuteronomy 11.1|Deut. 11:1.]]
+[^a]: HEB by the opening of the tent of meeting you shall sit.  
+[^b]: [[Numbers 3.7|Num. 3:7]]; [[Deuteronomy 11.1|Deut. 11:1]].  

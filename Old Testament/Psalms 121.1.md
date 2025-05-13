@@ -5,4 +5,4 @@
 [Psalms 121:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/121.1?lang=eng#p1)
 
 
-[^a]: [[Psalms 123.1|Ps. 123:1.]]
+[^a]: [[Psalms 123.1|Ps. 123:1]].  

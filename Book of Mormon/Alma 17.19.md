@@ -5,5 +5,5 @@
 [Alma 17:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p19#p19)
 
 
-[^a]: [[Alma 21.18|Alma 21:18 (18, 20)]]; [[Alma 22.1|22:1 (1, 4)]]; [[Alma 25.13|25:13.]]
-[^b]: [[1 Nephi 7.6|1 Ne. 7:6 (4-6).]]
+[^a]: [[Alma 21.18|Alma 21:18 (18, 20)]][[Alma 21.20|]]; [[Alma 22.1|22:1 (1, 4)]][[Alma 22.4|]]; [[Alma 25.13|25:13]].  
+[^b]: [[1 Nephi 7.4|1 Ne. 7:6 (4–6)]][[1 Nephi 7.5|]][[1 Nephi 7.6|]].  

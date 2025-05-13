@@ -5,4 +5,4 @@
 [Mosiah 9:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/9?lang=eng&id=p11#p11)
 
 
-[^a]: [[Exodus 1.9|Ex. 1:9 (9-10).]]
+[^a]: [[Exodus 1.9|Ex. 1:9 (9–10)]][[Exodus 1.10|]].  

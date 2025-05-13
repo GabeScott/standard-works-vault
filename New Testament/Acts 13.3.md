@@ -5,5 +5,5 @@
 [Acts 13:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.3?lang=eng#p3)
 
 
-[^a]: TG [[Authority]]; Priesthood, [[Authority]].
-[^b]: TG [[Hands, Laying on of]]; [[Priesthood, Ordination]].
+[^a]: [[Authority|TG Authority]]; [[Priesthood, Authority|Priesthood, Authority]].  
+[^b]: [[Hands, Laying on of|TG Hands, Laying on of]]; [[Priesthood, Ordination|Priesthood, Ordination]].  

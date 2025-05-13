@@ -5,4 +5,4 @@
 [Ezekiel 23:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.30?lang=eng#p30)
 
 
-[^a]: [[Ezekiel 6.9|Ezek. 6:9.]]
+[^a]: [[Ezekiel 6.9|Ezek. 6:9]].  

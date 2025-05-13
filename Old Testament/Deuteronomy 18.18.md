@@ -5,6 +5,6 @@
 [Deuteronomy 18:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.18?lang=eng#p18)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
-[^b]: [[John 8.28|John 8:28]]; [[John 12.49|12:49 (49-50)]]; [[John 17.8|17:8]]; [[D&C 1.38|D&C 1:38.]]
-[^c]: [[John 4.25|John 4:25]]; [[John 12.50|12:50.]]
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^b]: [[John 8.28|John 8:28]]; [[John 12.49|12:49 (49–50)]][[John 12.50|]]; [[John 17.8|17:8]]; [[D&C 1.38|D&C 1:38]].  
+[^c]: [[John 4.25|John 4:25]]; [[John 12.50|12:50]].  

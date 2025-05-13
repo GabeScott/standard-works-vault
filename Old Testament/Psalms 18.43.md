@@ -5,4 +5,4 @@
 [Psalms 18:43](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.43?lang=eng#p43)
 
 
-[^a]: HEB nations.
+[^a]: HEB nations.  

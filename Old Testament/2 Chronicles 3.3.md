@@ -5,5 +5,5 @@
 [2 Chronicles 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/3.3?lang=eng#p3)
 
 
-[^a]: [[1 Kings 6.2|1 Kgs. 6:2]]; [[D&C 119.2|D&C 119:2 (1-2).]]
-[^b]: OR ancient measure.
+[^a]: [[1 Kings 6.2|1 Kgs. 6:2]]; [[D&C 119.1|D&C 119:2 (1–2)]][[D&C 119.2|]].  
+[^b]: OR ancient measure.  

@@ -5,4 +5,4 @@
 [2 Chronicles 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/1.14?lang=eng#p14)
 
 
-[^a]: [[1 Kings 4.26|1 Kgs. 4:26.]]
+[^a]: [[1 Kings 4.26|1 Kgs. 4:26]].  

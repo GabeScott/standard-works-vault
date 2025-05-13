@@ -5,4 +5,4 @@
 [Luke 23:45](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.45?lang=eng#p45)
 
 
-[^a]: GR middle.
+[^a]: GR middle.  

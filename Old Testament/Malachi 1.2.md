@@ -5,5 +5,5 @@
 [Malachi 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/1.2?lang=eng#p2)
 
 
-[^a]: TG [[God, Love of]]; [[Love]].
-[^b]: [[Romans 9.13|Rom. 9:13.]]
+[^a]: [[God, Love of|TG God, Love of]]; [[Love|Love]].  
+[^b]: [[Romans 9.13|Rom. 9:13]].  

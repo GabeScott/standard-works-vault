@@ -5,4 +5,4 @@
 [Alma 43:50](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p50#p50)
 
 
-[^a]: [[Exodus 17.11|Ex. 17:11 (8-13).]]
+[^a]: [[Exodus 17.8|Ex. 17:11 (8–13)]][[Exodus 17.9|]][[Exodus 17.10|]][[Exodus 17.11|]][[Exodus 17.12|]][[Exodus 17.13|]].  

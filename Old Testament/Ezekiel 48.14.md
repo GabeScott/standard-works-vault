@@ -5,4 +5,4 @@
 [Ezekiel 48:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.14?lang=eng#p14)
 
 
-[^a]: [[Leviticus 27.28|Lev. 27:28 (10, 28, 33).]]
+[^a]: [[Leviticus 27.10|Lev. 27:28 (10, 28, 33)]][[Leviticus 27.28|]][[Leviticus 27.33|]].  

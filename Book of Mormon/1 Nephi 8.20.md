@@ -5,5 +5,5 @@
 [1 Nephi 8:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p20#p20)
 
 
-[^a]: [[Matthew 7.14|Matt. 7:14]]; [[2 Nephi 31.18|2 Ne. 31:18 (17-20).]]
-[^b]: [[Matthew 13.38|Matt. 13:38.]]
+[^a]: [[Matthew 7.14|Matt. 7:14]]; [[2 Nephi 31.17|2 Ne. 31:18 (17–20)]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].  
+[^b]: [[Matthew 13.38|Matt. 13:38]].  

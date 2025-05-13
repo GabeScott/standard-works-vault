@@ -5,4 +5,4 @@
 [Numbers 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/8.19?lang=eng#p19)
 
 
-[^a]: TG [[Priesthood, Aaronic]].
+[^a]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  

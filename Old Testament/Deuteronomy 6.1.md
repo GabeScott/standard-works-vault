@@ -5,5 +5,5 @@
 [Deuteronomy 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 20.19|Ezek. 20:19.]]
-[^b]: HEB ordinances (also v. 20).
+[^a]: [[Ezekiel 20.19|Ezek. 20:19]].  
+[^b]: HEB ordinances (also [[Deuteronomy 6.20|v. 20]]).  

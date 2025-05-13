@@ -5,4 +5,4 @@
 [Leviticus 16:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.14?lang=eng#p14)
 
 
-[^a]: [[Leviticus 4.5|Lev. 4:5 (5-6).]]
+[^a]: [[Leviticus 4.5|Lev. 4:5 (5–6)]][[Leviticus 4.6|]].  

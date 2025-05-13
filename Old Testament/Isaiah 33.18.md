@@ -5,4 +5,4 @@
 [Isaiah 33:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.18?lang=eng#p18)
 
 
-[^a]: OR tallyman (i.e., of the former Assyrian conqueror).
+[^a]: OR tallyman (i.e., of the former Assyrian conqueror).  

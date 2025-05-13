@@ -5,6 +5,6 @@
 [Alma 13:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p27#p27)
 
 
-[^a]: [[Mosiah 28.3|Mosiah 28:3 (3-4).]]
-[^b]: [[Mosiah 25.11|Mosiah 25:11.]]
-[^c]: TG [[Apathy]]; [[Procrastination, Procrastinate]].
+[^a]: [[Mosiah 28.3|Mosiah 28:3 (3–4)]][[Mosiah 28.4|]].  
+[^b]: [[Mosiah 25.11|Mosiah 25:11]].  
+[^c]: [[Apathy|TG Apathy]]; [[Procrastination, Procrastinate|Procrastination]].  

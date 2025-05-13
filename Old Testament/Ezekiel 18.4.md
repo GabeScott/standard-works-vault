@@ -5,5 +5,5 @@
 [Ezekiel 18:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.4?lang=eng#p4)
 
 
-[^a]: TG [[God, Justice of]]; [[Sin]].
-[^b]: TG [[Punish, Punishment]].
+[^a]: [[Justice|TG Justice]]; [[Sin|Sin]].  
+[^b]: [[Punish, Punishment|TG Punish]].  

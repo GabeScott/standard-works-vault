@@ -5,4 +5,4 @@
 [3 Nephi 6:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p3#p3)
 
 
-[^a]: [[3 Nephi 5.4|3 Ne. 5:4.]]
+[^a]: [[3 Nephi 5.4|3 Ne. 5:4]].  

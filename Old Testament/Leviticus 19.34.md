@@ -5,6 +5,6 @@
 [Leviticus 19:34](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.34?lang=eng#p34)
 
 
-[^a]: TG [[Fellowshipping]]; [[Stranger]].
-[^b]: HEB as a citizen of yours.
-[^c]: [[Deuteronomy 10.19|Deut. 10:19]]. TG [[Love]].
+[^a]: [[Fellowshipping|TG Fellowshipping]]; [[Stranger|Stranger]].  
+[^b]: HEB as a citizen of yours.  
+[^c]: [[Deuteronomy 10.19|Deut. 10:19]]. [[Love|TG Love]].  

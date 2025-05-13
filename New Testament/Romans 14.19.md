@@ -5,5 +5,5 @@
 [Romans 14:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.19?lang=eng#p19)
 
 
-[^a]: TG [[Peace of God]]; [[Peace of God]]makers.
-[^b]: TG [[Edification, Edify]].
+[^a]: [[Peace|TG Peace]]; [[Peacemakers|Peacemakers]].  
+[^b]: [[Edification, Edify|TG Edification]].  

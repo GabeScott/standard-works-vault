@@ -5,4 +5,4 @@
 [Leviticus 26:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.18?lang=eng#p18)
 
 
-[^a]: OR chastise.
+[^a]: OR chastise.  

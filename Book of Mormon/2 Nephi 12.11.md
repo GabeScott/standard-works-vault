@@ -5,4 +5,4 @@
 [2 Nephi 12:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p11#p11)
 
 
-[^a]: [[2 Nephi 15.15|2 Ne. 15:15 (15-16).]]
+[^a]: [[2 Nephi 15.15|2 Ne. 15:15 (15–16)]][[2 Nephi 15.16|]].  

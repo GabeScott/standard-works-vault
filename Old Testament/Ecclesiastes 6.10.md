@@ -5,4 +5,4 @@
 [Ecclesiastes 6:10](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/6.10?lang=eng#p10)
 
 
-[^a]: [[Job 9.3|Job 9:3 (1-4)]]; [[Isaiah 45.9|Isa. 45:9.]]
+[^a]: [[Job 9.1|Job 9:3 (1–4)]][[Job 9.2|]][[Job 9.3|]][[Job 9.4|]]; [[Isaiah 45.9|Isa. 45:9]].  

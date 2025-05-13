@@ -5,5 +5,5 @@
 [Alma 34:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p35#p35)
 
 
-[^a]: [[2 Nephi 28.19|2 Ne. 28:19 (19-23).]]
-[^b]: [[2 Nephi 9.9|2 Ne. 9:9]]; [[3 Nephi 2.10|3 Ne. 2:10]]. TG [[Devil, Church of]]; [[Sealing, Sealed]].
+[^a]: [[2 Nephi 28.19|2 Ne. 28:19 (19–23)]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.23|]].  
+[^b]: [[2 Nephi 9.9|2 Ne. 9:9]]; [[3 Nephi 2.10|3 Ne. 2:10]]. [[Devil|TG Devil]]; [[Sealing, Sealed|Sealing]].  

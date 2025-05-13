@@ -5,4 +5,4 @@
 [Mormon 6:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p5#p5)
 
 
-[^a]: W of M 1:2.
+[^a]: [[Words of Mormon 1.2|W of M 1:2]].  

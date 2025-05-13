@@ -5,4 +5,4 @@
 [Ezekiel 23:45](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.45?lang=eng#p45)
 
 
-[^a]: [[Ezekiel 16.38|Ezek. 16:38.]]
+[^a]: [[Ezekiel 16.38|Ezek. 16:38]].  

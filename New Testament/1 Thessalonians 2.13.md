@@ -5,4 +5,4 @@
 [1 Thessalonians 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/2.13?lang=eng#p13)
 
 
-[^a]: TG [[Thanksgiving]].
+[^a]: [[Thanksgiving|TG Thanksgiving]].  

@@ -5,8 +5,8 @@
 [Alma 30:44](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p44#p44)
 
 
-[^a]: [[Mosiah 13.33|Mosiah 13:33 (33-34).]]
-[^b]: [[Job 12.8|Job 12:8 (7-10)]]. TG [[Nature, Earth]].
-[^c]: [[D&C 88.47|D&C 88:47.]]
-[^d]: [[Helaman 12.15|Hel. 12:15 (11-15).]]
-[^e]: [[Moses 6.63|Moses 6:63]]. TG [[Astronomy]].
+[^a]: [[Mosiah 13.33|Mosiah 13:33 (33–34)]][[Mosiah 13.34|]].  
+[^b]: [[Job 12.7|Job 12:8 (7–10)]][[Job 12.8|]][[Job 12.9|]][[Job 12.10|]]. [[Nature, Earth|TG Nature, Earth]].  
+[^c]: [[D&C 88.47|D&C 88:47]].  
+[^d]: [[Helaman 12.11|Hel. 12:15 (11–15)]][[Helaman 12.12|]][[Helaman 12.13|]][[Helaman 12.14|]][[Helaman 12.15|]].  
+[^e]: [[Moses 6.63|Moses 6:63]]. [[Astronomy|TG Astronomy]].  

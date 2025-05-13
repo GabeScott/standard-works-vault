@@ -5,5 +5,5 @@
 [1 Peter 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.16?lang=eng#p16)
 
 
-[^a]: TG [[Conscience]].
-[^b]: JST 1 Pet. 3:16 … conduct …
+[^a]: [[Conscience|TG Conscience]].  
+[^b]: JST 1 Pet. 3:16 … conduct …  

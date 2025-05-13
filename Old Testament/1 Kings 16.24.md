@@ -5,4 +5,4 @@
 [1 Kings 16:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.24?lang=eng#p24)
 
 
-[^a]: [[2 Kings 3.1|2 Kgs. 3:1.]]
+[^a]: [[2 Kings 3.1|2 Kgs. 3:1]].  

@@ -5,4 +5,4 @@
 [Proverbs 10:31](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.31?lang=eng#p31)
 
 
-[^a]: OR perverse.
+[^a]: OR perverse.  

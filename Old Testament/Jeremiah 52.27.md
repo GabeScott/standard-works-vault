@@ -5,4 +5,4 @@
 [Jeremiah 52:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.27?lang=eng#p27)
 
 
-[^a]: Lam. 1:3 (1-3).
+[^a]: [[Lamentations 1.1|Lam. 1:3 (1–3)]][[Lamentations 1.2|]][[Lamentations 1.3|]].  

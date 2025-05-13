@@ -5,4 +5,4 @@
 [1 Corinthians 10:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.9?lang=eng#p9)
 
 
-[^a]: TG [[Testament]].
+[^a]: [[Test, Try, Prove|TG Test]].  

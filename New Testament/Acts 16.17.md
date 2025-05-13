@@ -5,4 +5,4 @@
 [Acts 16:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.17?lang=eng#p17)
 
 
-[^a]: [[James 2.19|James 2:19.]]
+[^a]: [[James 2.19|James 2:19]].  

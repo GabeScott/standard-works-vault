@@ -5,4 +5,4 @@
 [Galatians 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.18?lang=eng#p18)
 
 
-[^a]: [[Acts 9.26|Acts 9:26.]]
+[^a]: [[Acts 9.26|Acts 9:26]].  

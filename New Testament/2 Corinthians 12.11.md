@@ -5,4 +5,4 @@
 [2 Corinthians 12:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.11?lang=eng#p11)
 
 
-[^a]: [[1 Corinthians 9.1|1 Cor. 9:1.]]
+[^a]: [[1 Corinthians 9.1|1 Cor. 9:1]].  

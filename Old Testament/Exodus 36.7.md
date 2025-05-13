@@ -5,4 +5,4 @@
 [Exodus 36:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.7?lang=eng#p7)
 
 
-[^a]: OR materials.
+[^a]: OR materials.  

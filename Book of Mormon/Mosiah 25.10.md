@@ -5,4 +5,4 @@
 [Mosiah 25:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/25?lang=eng&id=p10#p10)
 
 
-[^a]: [[Mosiah 24.17|Mosiah 24:17]]; [[Mosiah 27.16|27:16.]]
+[^a]: [[Mosiah 24.17|Mosiah 24:17]]; [[Mosiah 27.16|27:16]].  

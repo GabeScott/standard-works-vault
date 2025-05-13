@@ -5,9 +5,9 @@
 [2 Nephi 9:53](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p53#p53)
 
 
-[^a]: TG [[Covenants]].
-[^b]: TG [[Jesus Christ, Condescension of]].
-[^c]: TG [[Grace]].
-[^d]: TG [[Compassion]]; [[God, Mercy of]].
-[^e]: TG [[Protection, Divine]].
-[^f]: TG [[Vineyard of the Lord]].
+[^a]: [[Covenants|TG Covenants]].  
+[^b]: [[Jesus Christ, Condescension of|TG Jesus Christ, Condescension of]].  
+[^c]: [[Grace|TG Grace]].  
+[^d]: [[Compassion|TG Compassion]]; [[God, Mercy of|God, Mercy of]].  
+[^e]: [[Protection, Divine|TG Protection, Divine]].  
+[^f]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  

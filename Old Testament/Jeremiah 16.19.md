@@ -5,5 +5,5 @@
 [Jeremiah 16:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.19?lang=eng#p19)
 
 
-[^a]: OR nations.
-[^b]: [[D&C 93.39|D&C 93:39.]]
+[^a]: OR nations.  
+[^b]: [[D&C 93.39|D&C 93:39]].  

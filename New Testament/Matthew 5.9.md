@@ -5,5 +5,5 @@
 [Matthew 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.9?lang=eng#p9)
 
 
-[^a]: TG [[Contentment]]; [[Peace of God]]; [[Peace of God]]makers.
-[^b]: TG [[Sons and Daughters of God]].
+[^a]: [[Contentment|TG Contentment]]; [[Peace|Peace]]; [[Peacemakers|Peacemakers]].  
+[^b]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  

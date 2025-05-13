@@ -5,4 +5,4 @@
 [Hebrews 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.4?lang=eng#p4)
 
 
-[^a]: TG [[Sabbath]].
+[^a]: [[Sabbath|TG Sabbath]].  

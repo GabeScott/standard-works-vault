@@ -5,4 +5,4 @@
 [Exodus 34:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.5?lang=eng#p5)
 
 
-[^a]: [[Exodus 33.19|Ex. 33:19.]]
+[^a]: [[Exodus 33.19|Ex. 33:19]].  

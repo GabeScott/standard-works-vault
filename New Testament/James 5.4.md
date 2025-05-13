@@ -5,5 +5,5 @@
 [James 5:4](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.4?lang=eng#p4)
 
 
-[^a]: TG [[Wages]].
-[^b]: [[Jeremiah 22.13|Jer. 22:13.]]
+[^a]: [[Wages|TG Wages]].  
+[^b]: [[Jeremiah 22.13|Jer. 22:13]].  

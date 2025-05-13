@@ -5,6 +5,6 @@
 [Amos 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/1.1?lang=eng#p1)
 
 
-[^a]: [[Hosea 1.1|Hosea 1:1.]]
-[^b]: [[Amos 7.10|Amos 7:10.]]
-[^c]: [[Zechariah 14.5|Zech. 14:5.]]
+[^a]: [[Hosea 1.1|Hosea 1:1]].  
+[^b]: [[Amos 7.10|Amos 7:10]].  
+[^c]: [[Zechariah 14.5|Zech. 14:5]].  

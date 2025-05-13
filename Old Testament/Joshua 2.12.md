@@ -5,5 +5,5 @@
 [Joshua 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/2.12?lang=eng#p12)
 
 
-[^a]: OR covenant.
-[^b]: TG [[Benevolence]].
+[^a]: OR covenant.  
+[^b]: [[Benevolence|TG Benevolence]].  

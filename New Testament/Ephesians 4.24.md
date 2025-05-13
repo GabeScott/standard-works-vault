@@ -5,5 +5,5 @@
 [Ephesians 4:24](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.24?lang=eng#p24)
 
 
-[^a]: TG [[Man, New, Spiritually Reborn]]; [[Mission of Early Saints]].
-[^b]: TG [[God, the Standard of Righteousness]].
+[^a]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]]; [[Mission of Early Saints|Mission of Early Saints]].  
+[^b]: [[Righteousness|TG Righteousness]].  

@@ -5,4 +5,4 @@
 [Isaiah 41:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.21?lang=eng#p21)
 
 
-[^a]: [[D&C 71.8|D&C 71:8 (7-10).]]
+[^a]: [[D&C 71.7|D&C 71:8 (7–10)]][[D&C 71.8|]][[D&C 71.9|]][[D&C 71.10|]].  

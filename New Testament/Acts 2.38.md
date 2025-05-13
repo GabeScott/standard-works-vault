@@ -5,10 +5,10 @@
 [Acts 2:38](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.38?lang=eng#p38)
 
 
-[^a]: [[D&C 49.11|D&C 49:11 (11-14).]]
-[^b]: TG [[Baptism, Qualifications for]]; [[Repent, Repentance]]; [[Salvation for the Dead]].
-[^c]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential.
-[^d]: TG [[Name of the Lord]].
-[^e]: TG [[Remission of Sins]].
-[^f]: TG [[Holy Ghost, Gift of]].
-[^g]: [[Acts 8.17|Acts 8:17 (14-17)]]. TG [[Holy Ghost, Baptism of]].
+[^a]: [[D&C 49.11|D&C 49:11 (11–14)]][[D&C 49.12|]][[D&C 49.13|]][[D&C 49.14|]].  
+[^b]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]]; [[Repent, Repentance|Repent]]; [[Salvation|Salvation]].  
+[^c]: [[Baptism|TG Baptism]]; [[Baptism, Essential|Baptism, Essential]].  
+[^d]: [[Name|TG Name]].  
+[^e]: [[Remission of Sins|TG Remission of Sins]].  
+[^f]: [[Holy Ghost, Gift of|TG Holy Ghost, Gift of]].  
+[^g]: [[Acts 8.14|Acts 8:17 (14–17)]][[Acts 8.15|]][[Acts 8.16|]][[Acts 8.17|]]. [[Holy Ghost, Baptism of|TG Holy Ghost, Baptism of]].  

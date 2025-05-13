@@ -5,7 +5,7 @@
 [Ezekiel 18:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.31?lang=eng#p31)
 
 
-[^a]: [[Ezekiel 20.7|Ezek. 20:7.]]
-[^b]: TG [[Conversion, Convert]]; [[Heart]].
-[^c]: TG [[Man, New, Spiritually Reborn]].
-[^d]: [[Ezekiel 33.11|Ezek. 33:11.]]
+[^a]: [[Ezekiel 20.7|Ezek. 20:7]].  
+[^b]: [[Conversion, Convert|TG Conversion]]; [[Heart|Heart]].  
+[^c]: [[Man, New, Spiritually Reborn|TG Man, New, Spiritually Reborn]].  
+[^d]: [[Ezekiel 33.11|Ezek. 33:11]].  

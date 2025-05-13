@@ -5,8 +5,8 @@
 [Nehemiah 10:29](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.29?lang=eng#p29)
 
 
-[^a]: JST Neh. 10:29 … an oath, that a curse should come upon them if they did not walk …
-[^b]: [[D&C 132.4|D&C 132:4]]. TG [[Curse]].
-[^c]: [[Mosiah 18.10|Mosiah 18:10 (8-11).]]
-[^d]: [[Psalms 119.106|Ps. 119:106.]]
-[^e]: JST Neh. 10:29 … their God …
+[^a]: JST Neh. 10:29 … an oath, that a curse should come upon them if they did not walk …  
+[^b]: [[D&C 132.4|D&C 132:4]]. [[Curse|TG Curse]].  
+[^c]: [[Mosiah 18.8|Mosiah 18:10 (8–11)]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.11|]].  
+[^d]: [[Psalms 119.106|Ps. 119:106]].  
+[^e]: JST Neh. 10:29 … their God …  

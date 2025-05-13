@@ -5,4 +5,4 @@
 [Daniel 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.14?lang=eng#p14)
 
 
-[^a]: Dan. 2:11.
+[^a]: [[Daniel 2.11|Dan. 2:11]].  

@@ -5,5 +5,5 @@
 [3 Nephi 28:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p10#p10)
 
 
-[^a]: [[John 16.15|John 16:15]]; [[D&C 76.59|D&C 76:59]]; [[D&C 84.38|84:38 (37-38).]]
-[^b]: [[Deuteronomy 6.4|Deut. 6:4]]; [[Galatians 3.20|Gal. 3:20]]; [[2 Nephi 31.21|2 Ne. 31:21]]; [[3 Nephi 11.27|3 Ne. 11:27 (27-28, 36)]]; [[Mormon 7.7|Morm. 7:7]]; [[D&C 20.28|D&C 20:28.]]
+[^a]: [[John 16.15|John 16:15]]; [[D&C 76.59|D&C 76:59]]; [[D&C 84.37|84:38 (37–38)]][[D&C 84.38|]].  
+[^b]: [[Deuteronomy 6.4|Deut. 6:4]]; [[Galatians 3.20|Gal. 3:20]]; [[2 Nephi 31.21|2 Ne. 31:21]]; [[3 Nephi 11.27|3 Ne. 11:27 (27–28, 36)]][[3 Nephi 11.28|]][[3 Nephi 11.36|]]; [[Mormon 7.7|Morm. 7:7]]; [[D&C 20.28|D&C 20:28]].  

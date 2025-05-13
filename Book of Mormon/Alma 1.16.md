@@ -5,5 +5,5 @@
 [Alma 1:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p16#p16)
 
 
-[^a]: TG [[False Doctrine]].
-[^b]: TG [[Riches]]; [[Vanity]].
+[^a]: [[False Doctrine|TG False Doctrine]].  
+[^b]: [[Riches|TG Riches]]; [[Vanity|Vanity]].  

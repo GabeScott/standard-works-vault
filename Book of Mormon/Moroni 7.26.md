@@ -5,6 +5,6 @@
 [Moroni 7:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p26#p26)
 
 
-[^a]: [[D&C 3.20|D&C 3:20.]]
-[^b]: TG [[Sons and Daughters of God]].
-[^c]: [[3 Nephi 18.20|3 Ne. 18:20]]. TG [[Prayer, Pray]].
+[^a]: [[D&C 3.20|D&C 3:20]].  
+[^b]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  
+[^c]: [[3 Nephi 18.20|3 Ne. 18:20]]. [[Prayer, Pray|TG Prayer]].  

@@ -5,4 +5,4 @@
 [Isaiah 26:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.20?lang=eng#p20)
 
 
-[^a]: IE until the cleansing of the earth is over.
+[^a]: IE until the cleansing of the earth is over.  

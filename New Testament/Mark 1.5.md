@@ -5,5 +5,5 @@
 [Mark 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.5?lang=eng#p5)
 
 
-[^a]: TG [[Baptism, Immersion]].
-[^b]: TG [[Baptism, Qualifications for]].
+[^a]: [[Baptism, Immersion|TG Baptism, Immersion]].  
+[^b]: [[Baptism, Qualifications for|TG Baptism, Qualifications for]].  

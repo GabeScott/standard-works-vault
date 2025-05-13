@@ -5,5 +5,5 @@
 [Ephesians 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.9?lang=eng#p9)
 
 
-[^a]: [[Ephesians 3.4|Eph. 3:4]]; [[D&C 107.19|D&C 107:19.]]
-[^b]: TG [[God, Will of]].
+[^a]: [[Ephesians 3.4|Eph. 3:4]]; [[D&C 107.19|D&C 107:19]].  
+[^b]: [[God, Will of|TG God, Will of]].  

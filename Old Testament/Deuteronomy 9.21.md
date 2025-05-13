@@ -5,5 +5,5 @@
 [Deuteronomy 9:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.21?lang=eng#p21)
 
 
-[^a]: [[Exodus 32.20|Ex. 32:20.]]
-[^b]: OR crushed.
+[^a]: [[Exodus 32.20|Ex. 32:20]].  
+[^b]: OR crushed.  

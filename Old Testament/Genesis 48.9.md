@@ -5,4 +5,4 @@
 [Genesis 48:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.9?lang=eng#p9)
 
 
-[^a]: [[Genesis 49.26|Gen. 49:26.]]
+[^a]: [[Genesis 49.26|Gen. 49:26]].  

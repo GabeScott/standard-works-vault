@@ -5,4 +5,4 @@
 [Job 30:31](https://www.churchofjesuschrist.org/study/scriptures/ot/job/30.31?lang=eng#p31)
 
 
-[^a]: HEB pipe, flute.
+[^a]: HEB pipe, flute.  

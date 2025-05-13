@@ -5,6 +5,6 @@
 [Isaiah 27:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/27.11?lang=eng#p11)
 
 
-[^a]: [[Jacob 5.58|Jacob 5:58 (58, 77).]]
-[^b]: TG [[Understanding]].
-[^c]: [[Deuteronomy 32.6|Deut. 32:6.]]
+[^a]: [[Jacob 5.58|Jacob 5:58 (58, 77)]][[Jacob 5.77|]].  
+[^b]: [[Understanding|TG Understanding]].  
+[^c]: [[Deuteronomy 32.6|Deut. 32:6]].  

@@ -5,4 +5,4 @@
 [Joshua 24:31](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.31?lang=eng#p31)
 
 
-[^a]: [[Judges 2.7|Judg. 2:7.]]
+[^a]: [[Judges 2.7|Judg. 2:7]].  

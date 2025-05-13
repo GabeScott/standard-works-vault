@@ -5,4 +5,4 @@
 [Alma 32:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p40#p40)
 
 
-[^a]: [[Genesis 2.9|Gen. 2:9]]; [[1 Nephi 15.36|1 Ne. 15:36 (22, 28, 36).]]
+[^a]: [[Genesis 2.9|Gen. 2:9]]; [[1 Nephi 15.22|1 Ne. 15:36 (22, 28, 36)]][[1 Nephi 15.28|]][[1 Nephi 15.36|]].  

@@ -5,9 +5,9 @@
 [Revelation 7:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.14?lang=eng#p14)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: TG [[Tribulation]].
-[^c]: [[3 Nephi 27.19|3 Ne. 27:19]]. TG [[Purity, Pure]]; [[Wash, Washing]].
-[^d]: TG [[Remission of Sins]].
-[^e]: 1 Jn. 1:7.
-[^f]: TG [[Jesus Christ, Lamb of God]].
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: [[Tribulation|TG Tribulation]].  
+[^c]: [[3 Nephi 27.19|3 Ne. 27:19]]. [[Purity, Pure|TG Purity]]; [[Wash, Washing|Wash]].  
+[^d]: [[Remission of Sins|TG Remission of Sins]].  
+[^e]: [[1 John 1.7|1 Jn. 1:7]].  
+[^f]: [[Jesus Christ, Lamb of God|TG Jesus Christ, Lamb of God]].  

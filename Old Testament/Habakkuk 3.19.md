@@ -5,5 +5,5 @@
 [Habakkuk 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.19?lang=eng#p19)
 
 
-[^a]: TG [[Strength]].
-[^b]: [[Deuteronomy 32.13|Deut. 32:13]]; [[Deuteronomy 33.29|33:29.]]
+[^a]: [[Strength|TG Strength]].  
+[^b]: [[Deuteronomy 32.13|Deut. 32:13]]; [[Deuteronomy 33.29|33:29]].  

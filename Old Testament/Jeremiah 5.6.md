@@ -5,6 +5,6 @@
 [Jeremiah 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.6?lang=eng#p6)
 
 
-[^a]: Zeph. 3:3.
-[^b]: OR plains, wilderness.
-[^c]: TG [[Wickedness, Wicked]].
+[^a]: [[Zephaniah 3.3|Zeph. 3:3]].  
+[^b]: OR plains, wilderness.  
+[^c]: [[Wickedness, Wicked|TG Wickedness]].  

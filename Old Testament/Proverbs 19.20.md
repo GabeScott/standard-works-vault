@@ -5,4 +5,4 @@
 [Proverbs 19:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.20?lang=eng#p20)
 
 
-[^a]: TG [[Edification, Edify]].
+[^a]: [[Edification, Edify|TG Edification]].  

@@ -5,5 +5,5 @@
 [Ezekiel 36:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.31?lang=eng#p31)
 
 
-[^a]: [[Ezekiel 16.61|Ezek. 16:61.]]
-[^b]: [[Ezekiel 6.9|Ezek. 6:9.]]
+[^a]: [[Ezekiel 16.61|Ezek. 16:61]].  
+[^b]: [[Ezekiel 6.9|Ezek. 6:9]].  

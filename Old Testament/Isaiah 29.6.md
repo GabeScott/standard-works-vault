@@ -5,4 +5,4 @@
 [Isaiah 29:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.6?lang=eng#p6)
 
 
-[^a]: [[D&C 97.26|D&C 97:26.]]
+[^a]: [[D&C 97.26|D&C 97:26]].  

@@ -5,4 +5,4 @@
 [Alma 30:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p30#p30)
 
 
-[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^a]: [[Blaspheme, Blasphemous, Blasphemy|TG Blaspheme]].  

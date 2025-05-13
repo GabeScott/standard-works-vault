@@ -5,6 +5,6 @@
 [John 1:32](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.32?lang=eng#p32)
 
 
-[^a]: [[D&C 93.11|D&C 93:11.]]
-[^b]: TG [[Jesus Christ, Baptism of]].
-[^c]: TG [[Holy Ghost, Dove, Sign of]].
+[^a]: [[D&C 93.11|D&C 93:11]].  
+[^b]: [[Jesus Christ, Baptism of|TG Jesus Christ, Baptism of]].  
+[^c]: [[Holy Ghost, Dove, Sign of|TG Holy Ghost, Dove, Sign of]].  

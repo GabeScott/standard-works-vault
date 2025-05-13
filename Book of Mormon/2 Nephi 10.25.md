@@ -5,6 +5,6 @@
 [2 Nephi 10:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Death, Power over]]; [[Jesus Christ, Resurrection]].
-[^b]: TG [[Jesus Christ, Atonement through]].
-[^c]: TG [[Eternity]].
+[^a]: [[Death, Power over|TG Death, Power over]]; [[Resurrection|Resurrection]].  
+[^b]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  
+[^c]: [[Eternity|TG Eternity]].  

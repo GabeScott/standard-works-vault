@@ -5,6 +5,6 @@
 [Hebrews 5:7](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.7?lang=eng#p7)
 
 
-[^a]: [[Matthew 26.39|Matt. 26:39 (39, 42, 44).]]
-[^b]: GR mighty, powerful supplication.
-[^c]: GR because of his piety, reverence.
+[^a]: [[Matthew 26.39|Matt. 26:39 (39, 42, 44)]][[Matthew 26.42|]][[Matthew 26.44|]].  
+[^b]: GR mighty, powerful supplication.  
+[^c]: GR because of his piety, reverence.  

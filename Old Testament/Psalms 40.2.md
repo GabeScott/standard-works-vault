@@ -5,4 +5,4 @@
 [Psalms 40:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/40.2?lang=eng#p2)
 
 
-[^a]: [[Psalms 27.5|Ps. 27:5.]]
+[^a]: [[Psalms 27.5|Ps. 27:5]].  

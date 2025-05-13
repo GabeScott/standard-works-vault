@@ -5,4 +5,4 @@
 [Hosea 4:18](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.18?lang=eng#p18)
 
 
-[^a]: OR deeply love dishonor.
+[^a]: OR deeply love dishonor.  

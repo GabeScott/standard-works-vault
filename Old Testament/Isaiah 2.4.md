@@ -5,5 +5,5 @@
 [Isaiah 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.4?lang=eng#p4)
 
 
-[^a]: TG [[Jesus Christ, Judge]].
-[^b]: TG [[Millennium, Preparing a People for]]; [[Peace of God]]; [[War]].
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  
+[^b]: [[Millennium|TG Millennium]]; [[Peace|Peace]]; [[War|War]].  

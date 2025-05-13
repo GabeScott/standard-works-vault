@@ -5,4 +5,4 @@
 [Matthew 7:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.9?lang=eng#p9)
 
 
-[^a]: TG [[Bread]].
+[^a]: [[Bread|TG Bread]].  

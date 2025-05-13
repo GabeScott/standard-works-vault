@@ -5,4 +5,4 @@
 [Luke 14:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.21?lang=eng#p21)
 
 
-[^a]: GR lame.
+[^a]: GR lame.  

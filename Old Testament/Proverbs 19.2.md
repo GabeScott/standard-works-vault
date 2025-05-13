@@ -5,5 +5,5 @@
 [Proverbs 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.2?lang=eng#p2)
 
 
-[^a]: [[D&C 42.61|D&C 42:61]]; [[Abraham 1.2|Abr. 1:2.]]
-[^b]: TG [[Haste, Hasten, Hasty]].
+[^a]: [[D&C 42.61|D&C 42:61]]; [[Abraham 1.2|Abr. 1:2]].  
+[^b]: [[Haste, Hasten, Hasty|TG Haste]].  

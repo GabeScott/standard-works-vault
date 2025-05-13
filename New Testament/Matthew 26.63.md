@@ -5,7 +5,7 @@
 [Matthew 26:63](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.63?lang=eng#p63)
 
 
-[^a]: GR was silent, “kept silent.”
-[^b]: [[Isaiah 53.7|Isa. 53:7.]]
-[^c]: GR charge (you) under oath (“cause you to swear”).
-[^d]: TG [[Oath]]; [[Swearing, Swear, Sware, Sworn]].
+[^a]: GR was silent, “kept silent.”  
+[^b]: [[Isaiah 53.7|Isa. 53:7]].  
+[^c]: GR charge (you) under oath (“cause you to swear”).  
+[^d]: [[Oath|TG Oath]]; [[Swearing, Swear, Sware, Sworn|Swearing]].  

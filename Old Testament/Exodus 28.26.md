@@ -5,4 +5,4 @@
 [Exodus 28:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.26?lang=eng#p26)
 
 
-[^a]: OR next to.
+[^a]: OR next to.  

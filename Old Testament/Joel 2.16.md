@@ -5,4 +5,4 @@
 [Joel 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.16?lang=eng#p16)
 
 
-[^a]: HEB wedding canopy.
+[^a]: HEB wedding canopy.  

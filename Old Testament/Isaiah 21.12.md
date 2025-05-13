@@ -5,4 +5,4 @@
 [Isaiah 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/21.12?lang=eng#p12)
 
 
-[^a]: IE The end of Babylonian captivity approaches, but another oppressor follows; inquire again later.
+[^a]: IE The end of Babylonian captivity approaches, but another oppressor follows; inquire again later.  

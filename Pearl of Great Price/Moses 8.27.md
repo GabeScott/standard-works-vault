@@ -5,6 +5,6 @@
 [Moses 8:27](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.27?lang=eng#p27)
 
 
-[^a]: TG [[Grace]].
-[^b]: [[Genesis 6.9|Gen. 6:9]]; [[D&C 129.3|D&C 129:3 (3, 6).]]
-[^c]: TG [[Walking with God]].
+[^a]: [[Grace|TG Grace]].  
+[^b]: [[Genesis 6.9|Gen. 6:9]]; [[D&C 129.3|D&C 129:3 (3, 6)]][[D&C 129.6|]].  
+[^c]: [[Walking with God|TG Walking with God]].  

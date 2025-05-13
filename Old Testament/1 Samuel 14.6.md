@@ -5,5 +5,5 @@
 [1 Samuel 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.6?lang=eng#p6)
 
 
-[^a]: TG [[God, Power of]].
-[^b]: [[Judges 7.4|Judg. 7:4 (4-7).]]
+[^a]: [[God, Power of|TG God, Power of]].  
+[^b]: [[Judges 7.4|Judg. 7:4 (4–7)]][[Judges 7.5|]][[Judges 7.6|]][[Judges 7.7|]].  

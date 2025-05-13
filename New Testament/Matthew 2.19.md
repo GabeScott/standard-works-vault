@@ -5,4 +5,4 @@
 [Matthew 2:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.19?lang=eng#p19)
 
 
-[^a]: JST Matt. 3:19 … vision … TG [[Dream]].
+[^a]: JST Matt. 3:19 … vision … [[Dream|TG Dream]].  

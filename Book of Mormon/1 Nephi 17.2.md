@@ -5,6 +5,6 @@
 [1 Nephi 17:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Israel, Blessings of]].
-[^b]: [[1 Nephi 17.12|1 Ne. 17:12.]]
-[^c]: [[Exodus 16.13|Ex. 16:13 (12-13)]]; [[1 Nephi 18.6|1 Ne. 18:6]]. TG [[Meat]].
+[^a]: [[Blessing|TG Blessing]].  
+[^b]: [[1 Nephi 17.12|1 Ne. 17:12]].  
+[^c]: [[Exodus 16.12|Ex. 16:13 (12–13)]][[Exodus 16.13|]]; [[1 Nephi 18.6|1 Ne. 18:6]]. [[Meat|TG Meat]].  

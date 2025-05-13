@@ -5,4 +5,4 @@
 [2 Corinthians 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/2.14?lang=eng#p14)
 
 
-[^a]: [[Romans 8.37|Rom. 8:37.]]
+[^a]: [[Romans 8.37|Rom. 8:37]].  

@@ -5,6 +5,6 @@
 [Mosiah 1:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p13#p13)
 
 
-[^a]: [[Hebrews 6.6|Heb. 6:6 (4-6).]]
-[^b]: [[Jeremiah 46.15|Jer. 46:15 (15-17)]]; [[Helaman 4.24|Hel. 4:24 (24, 26).]]
-[^c]: [[D&C 103.8|D&C 103:8.]]
+[^a]: [[Hebrews 6.4|Heb. 6:6 (4–6)]][[Hebrews 6.5|]][[Hebrews 6.6|]].  
+[^b]: [[Jeremiah 46.15|Jer. 46:15 (15–17)]][[Jeremiah 46.16|]][[Jeremiah 46.17|]]; [[Helaman 4.24|Hel. 4:24 (24, 26)]][[Helaman 4.26|]].  
+[^c]: [[D&C 103.8|D&C 103:8]].  

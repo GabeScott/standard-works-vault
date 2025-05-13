@@ -5,4 +5,4 @@
 [Matthew 27:62](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.62?lang=eng#p62)
 
 
-[^a]: TG [[Passover]].
+[^a]: [[Passover|TG Passover]].  

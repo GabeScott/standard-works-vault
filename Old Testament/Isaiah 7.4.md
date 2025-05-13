@@ -5,4 +5,4 @@
 [Isaiah 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.4?lang=eng#p4)
 
 
-[^a]: IE Don’t be alarmed by the attack; those two kings have little fire left.
+[^a]: IE Don’t be alarmed by the attack; those two kings have little fire left.  

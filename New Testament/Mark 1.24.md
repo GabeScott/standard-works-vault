@@ -5,5 +5,5 @@
 [Mark 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.24?lang=eng#p24)
 
 
-[^a]: GR what business do you have with us …
-[^b]: TG [[Holiness]].
+[^a]: GR what business do you have with us …  
+[^b]: [[Holiness|TG Holiness]].  

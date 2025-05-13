@@ -5,4 +5,4 @@
 [Leviticus 15:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/15.25?lang=eng#p25)
 
 
-[^a]: [[Matthew 9.20|Matt. 9:20]]; [[Luke 8.43|Luke 8:43.]]
+[^a]: [[Matthew 9.20|Matt. 9:20]]; [[Luke 8.43|Luke 8:43]].  

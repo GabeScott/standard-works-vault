@@ -5,4 +5,4 @@
 [3 Nephi 28:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p24#p24)
 
 
-[^a]: [[3 Nephi 26.12|3 Ne. 26:12.]]
+[^a]: [[3 Nephi 26.12|3 Ne. 26:12]].  

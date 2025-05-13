@@ -5,4 +5,4 @@
 [Helaman 5:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p43#p43)
 
 
-[^a]: [[3 Nephi 17.24|3 Ne. 17:24]]; [[3 Nephi 19.14|19:14.]]
+[^a]: [[3 Nephi 17.24|3 Ne. 17:24]]; [[3 Nephi 19.14|19:14]].  

@@ -5,5 +5,5 @@
 [Joshua 24:20](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.20?lang=eng#p20)
 
 
-[^a]: TG [[Idolatry, Idol]].
-[^b]: [[Mosiah 7.29|Mosiah 7:29]]; [[Helaman 12.3|Hel. 12:3.]]
+[^a]: [[Idolatry, Idol|TG Idolatry]].  
+[^b]: [[Mosiah 7.29|Mosiah 7:29]]; [[Helaman 12.3|Hel. 12:3]].  

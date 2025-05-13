@@ -5,5 +5,5 @@
 [Galatians 5:4](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.4?lang=eng#p4)
 
 
-[^a]: TG [[Law of Moses]].
-[^b]: TG [[Grace]].
+[^a]: [[Law of Moses|TG Law of Moses]].  
+[^b]: [[Grace|TG Grace]].  

@@ -5,4 +5,4 @@
 [Ether 6:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/6?lang=eng&id=p10#p10)
 
 
-[^a]: [[Genesis 1.21|Gen. 1:21]]; [[Ether 2.24|Ether 2:24.]]
+[^a]: [[Genesis 1.21|Gen. 1:21]]; [[Ether 2.24|Ether 2:24]].  

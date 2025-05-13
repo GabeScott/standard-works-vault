@@ -5,8 +5,8 @@
 [Matthew 19:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.21?lang=eng#p21)
 
 
-[^a]: TG [[Commitment]]; [[Perfection, Perfect, Perfectly]].
-[^b]: TG [[Almsgiving]]; [[Self-Sacrifice]].
-[^c]: TG [[Poor]].
-[^d]: TG [[Treasure]].
-[^e]: [[Alma 22.15|Alma 22:15.]]
+[^a]: [[Commitment|TG Commitment]]; [[Perfection, Perfect, Perfectly|Perfection]].  
+[^b]: [[Almsgiving|TG Almsgiving]]; [[Sacrifice|Sacrifice]].  
+[^c]: [[Poor|TG Poor]].  
+[^d]: [[Treasure|TG Treasure]].  
+[^e]: [[Alma 22.15|Alma 22:15]].  

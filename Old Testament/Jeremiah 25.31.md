@@ -5,5 +5,5 @@
 [Jeremiah 25:31](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.31?lang=eng#p31)
 
 
-[^a]: [[Hosea 4.1|Hosea 4:1.]]
-[^b]: [[Isaiah 66.16|Isa. 66:16]]; [[Ezekiel 38.22|Ezek. 38:22]]; [[Joel 3.2|Joel 3:2.]]
+[^a]: [[Hosea 4.1|Hosea 4:1]].  
+[^b]: [[Isaiah 66.16|Isa. 66:16]]; [[Ezekiel 38.22|Ezek. 38:22]]; [[Joel 3.2|Joel 3:2]].  

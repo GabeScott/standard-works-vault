@@ -5,8 +5,8 @@
 [Genesis 12:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 28.19|Gen. 28:19 (16-19)]]; [[Joshua 16.2|Josh. 16:2 (1-2)]]; [[2 Kings 2.2|2 Kgs. 2:2.]]
-[^b]: [[Genesis 13.3|Gen. 13:3.]]
-[^c]: OR Ai.
-[^d]: [[Abraham 2.20|Abr. 2:20]]. TG [[Prayer, Pray]].
-[^e]: TG [[Name of the Lord]].
+[^a]: [[Genesis 28.16|Gen. 28:19 (16–19)]][[Genesis 28.17|]][[Genesis 28.18|]][[Genesis 28.19|]]; [[Joshua 16.1|Josh. 16:2 (1–2)]][[Joshua 16.2|]]; [[2 Kings 2.2|2 Kgs. 2:2]].  
+[^b]: [[Genesis 13.3|Gen. 13:3]].  
+[^c]: OR Ai.  
+[^d]: [[Abraham 2.20|Abr. 2:20]]. [[Prayer, Pray|TG Prayer]].  
+[^e]: [[Name|TG Name]].  

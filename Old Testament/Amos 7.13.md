@@ -5,4 +5,4 @@
 [Amos 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.13?lang=eng#p13)
 
 
-[^a]: OR sanctuary.
+[^a]: OR sanctuary.  

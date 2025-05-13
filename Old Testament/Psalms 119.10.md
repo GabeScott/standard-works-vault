@@ -5,4 +5,4 @@
 [Psalms 119:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.10?lang=eng#p10)
 
 
-[^a]: TG [[Commitment]].
+[^a]: [[Commitment|TG Commitment]].  

@@ -5,7 +5,7 @@
 [Psalms 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/16.10?lang=eng#p10)
 
 
-[^a]: [[2 Nephi 4.31|2 Ne. 4:31 (31-32).]]
-[^b]: [[Psalms 30.3|Ps. 30:3.]]
-[^c]: TG [[Damnation, Damned]]; [[Hell]]; [[Spirits in Prison]].
-[^d]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[2 Nephi 4.31|2 Ne. 4:31 (31–32)]][[2 Nephi 4.32|]].  
+[^b]: [[Psalms 30.3|Ps. 30:3]].  
+[^c]: [[Damnation, Damned|TG Damnation]]; [[Hell|Hell]]; [[Spirits in Prison|Spirits in Prison]].  
+[^d]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

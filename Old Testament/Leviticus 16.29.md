@@ -5,5 +5,5 @@
 [Leviticus 16:29](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.29?lang=eng#p29)
 
 
-[^a]: OR humble.
-[^b]: [[Exodus 12.48|Ex. 12:48 (19, 48-49)]]; [[Ezekiel 47.22|Ezek. 47:22.]]
+[^a]: OR humble.  
+[^b]: [[Exodus 12.19|Ex. 12:48 (19, 48–49)]][[Exodus 12.48|]][[Exodus 12.49|]]; [[Ezekiel 47.22|Ezek. 47:22]].  

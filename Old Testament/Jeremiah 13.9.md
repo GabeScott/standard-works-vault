@@ -5,4 +5,4 @@
 [Jeremiah 13:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.9?lang=eng#p9)
 
 
-[^a]: TG [[Pride]].
+[^a]: [[Pride|TG Pride]].  

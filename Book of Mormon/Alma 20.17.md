@@ -5,5 +5,5 @@
 [Alma 20:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/20?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 48.23|Alma 48:23.]]
-[^b]: [[Alma 22.6|Alma 22:6.]]
+[^a]: [[Alma 48.23|Alma 48:23]].  
+[^b]: [[Alma 22.6|Alma 22:6]].  

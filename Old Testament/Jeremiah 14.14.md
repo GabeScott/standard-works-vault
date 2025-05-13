@@ -5,7 +5,7 @@
 [Jeremiah 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.14?lang=eng#p14)
 
 
-[^a]: TG [[False Prophets]].
-[^b]: [[Jeremiah 27.10|Jer. 27:10]]. TG [[False Doctrine]].
-[^c]: TG [[Vision]].
-[^d]: TG [[Deceit, Deceive]].
+[^a]: [[False Prophets|TG False Prophets]].  
+[^b]: [[Jeremiah 27.10|Jer. 27:10]]. [[False Doctrine|TG False Doctrine]].  
+[^c]: [[Vision|TG Vision]].  
+[^d]: [[Deceit, Deceive|TG Deceit]].  

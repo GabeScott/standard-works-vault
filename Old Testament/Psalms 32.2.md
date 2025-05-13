@@ -5,4 +5,4 @@
 [Psalms 32:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/32.2?lang=eng#p2)
 
 
-[^a]: TG [[Guile]]; [[Sincere, Sincerity]].
+[^a]: [[Guile|TG Guile]]; [[Sincere, Sincerity|Sincere]].  

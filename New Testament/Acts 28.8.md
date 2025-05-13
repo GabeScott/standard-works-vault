@@ -5,6 +5,6 @@
 [Acts 28:8](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.8?lang=eng#p8)
 
 
-[^a]: TG [[Sickness, Sick]].
-[^b]: GR dysentery.
-[^c]: TG [[Administrations to the Sick]]; [[Hands, Laying on of]].
+[^a]: [[Sickness, Sick|TG Sickness]].  
+[^b]: GR dysentery.  
+[^c]: [[Administrations to the Sick|TG Administrations to the Sick]]; [[Hands, Laying on of|Hands, Laying on of]].  

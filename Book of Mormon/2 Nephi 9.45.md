@@ -5,5 +5,5 @@
 [2 Nephi 9:45](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p45#p45)
 
 
-[^a]: [[2 Nephi 28.22|2 Ne. 28:22]]; [[Alma 36.18|Alma 36:18.]]
-[^b]: TG [[Rock]].
+[^a]: [[2 Nephi 28.22|2 Ne. 28:22]]; [[Alma 36.18|Alma 36:18]].  
+[^b]: [[Rock|TG Rock]].  

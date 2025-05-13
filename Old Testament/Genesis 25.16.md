@@ -5,4 +5,4 @@
 [Genesis 25:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.16?lang=eng#p16)
 
 
-[^a]: [[Genesis 17.20|Gen. 17:20.]]
+[^a]: [[Genesis 17.20|Gen. 17:20]].  

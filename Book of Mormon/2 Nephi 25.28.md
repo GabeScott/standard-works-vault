@@ -5,7 +5,7 @@
 [2 Nephi 25:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p28#p28)
 
 
-[^a]: [[Mosiah 3.14|Mosiah 3:14]]; [[Alma 9.31|Alma 9:31]]. TG [[Stiffnecked, Stiffneckedness]].
-[^b]: TG [[Testimony]].
-[^c]: [[1 Kings 8.36|1 Kgs. 8:36]]; [[2 Nephi 33.10|2 Ne. 33:10]]. TG [[Teaching with the Spirit]].
-[^d]: [[1 Samuel 12.23|1 Sam. 12:23]]; [[Isaiah 45.19|Isa. 45:19]]; 2 Pet. 2:15.
+[^a]: [[Mosiah 3.14|Mosiah 3:14]]; [[Alma 9.31|Alma 9:31]]. [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  
+[^b]: [[Testimony|TG Testimony]].  
+[^c]: [[1 Kings 8.36|1 Kgs. 8:36]]; [[2 Nephi 33.10|2 Ne. 33:10]]. [[Teaching, Teach, Taught|TG Teaching]].  
+[^d]: [[1 Samuel 12.23|1 Sam. 12:23]]; [[Isaiah 45.19|Isa. 45:19]]; [[2 Peter 2.15|2 Pet. 2:15]].  

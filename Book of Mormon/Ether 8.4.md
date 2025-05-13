@@ -5,4 +5,4 @@
 [Ether 8:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p4#p4)
 
 
-[^a]: [[Ether 7.7|Ether 7:7 (5-7)]]; [[Ether 10.14|10:14.]]
+[^a]: [[Ether 7.5|Ether 7:7 (5–7)]][[Ether 7.6|]][[Ether 7.7|]]; [[Ether 10.14|10:14]].  

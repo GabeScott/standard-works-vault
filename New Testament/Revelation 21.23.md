@@ -5,6 +5,6 @@
 [Revelation 21:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.23?lang=eng#p23)
 
 
-[^a]: [[Isaiah 60.19|Isa. 60:19]]; [[Revelation 22.5|Rev. 22:5.]]
-[^b]: TG [[Jesus Christ, Lamb of God]].
-[^c]: TG [[Jesus Christ, Light of the World]].
+[^a]: [[Isaiah 60.19|Isa. 60:19]]; [[Revelation 22.5|Rev. 22:5]].  
+[^b]: [[Jesus Christ, Lamb of God|TG Jesus Christ, Lamb of God]].  
+[^c]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]].  

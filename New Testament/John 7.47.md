@@ -5,4 +5,4 @@
 [John 7:47](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.47?lang=eng#p47)
 
 
-[^a]: [[Jacob 4.14|Jacob 4:14 (13-14).]]
+[^a]: [[Jacob 4.13|Jacob 4:14 (13–14)]][[Jacob 4.14|]].  

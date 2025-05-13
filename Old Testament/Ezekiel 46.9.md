@@ -5,4 +5,4 @@
 [Ezekiel 46:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.9?lang=eng#p9)
 
 
-[^a]: [[Exodus 23.14|Ex. 23:14 (1-17)]]; [[Deuteronomy 16.16|Deut. 16:16.]]
+[^a]: [[Exodus 23.1|Ex. 23:14 (1–17)]][[Exodus 23.2|]][[Exodus 23.3|]][[Exodus 23.4|]][[Exodus 23.5|]][[Exodus 23.6|]][[Exodus 23.7|]][[Exodus 23.8|]][[Exodus 23.9|]][[Exodus 23.10|]][[Exodus 23.11|]][[Exodus 23.12|]][[Exodus 23.13|]][[Exodus 23.14|]][[Exodus 23.15|]][[Exodus 23.16|]][[Exodus 23.17|]]; [[Deuteronomy 16.16|Deut. 16:16]].  

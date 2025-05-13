@@ -5,5 +5,5 @@
 [3 Nephi 27:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p21#p21)
 
 
-[^a]: [[1 Nephi 13.36|1 Ne. 13:36]]. TG [[Gospel]]; [[Salvation, Plan of]].
-[^b]: TG [[Jesus Christ, Exemplar]].
+[^a]: [[1 Nephi 13.36|1 Ne. 13:36]]. [[Gospel|TG Gospel]]; [[Salvation, Plan of|Salvation, Plan of]].  
+[^b]: [[Jesus Christ, Exemplar|TG Jesus Christ, Exemplar]].  

@@ -5,5 +5,5 @@
 [Joshua 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.10?lang=eng#p10)
 
 
-[^a]: OR put them to flight.
-[^b]: [[Isaiah 28.21|Isa. 28:21.]]
+[^a]: OR put them to flight.  
+[^b]: [[Isaiah 28.21|Isa. 28:21]].  

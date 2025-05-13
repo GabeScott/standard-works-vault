@@ -5,10 +5,10 @@
 [Psalms 24:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/24.4?lang=eng#p4)
 
 
-[^a]: TG [[Chastity, Chaste]]; [[Cleanliness]].
-[^b]: [[1 Timothy 2.8|1 Tim. 2:8.]]
-[^c]: TG [[Purity, Pure]]; [[Virtue, Virtuous]].
-[^d]: TG [[Heart]].
-[^e]: TG [[Vanity]].
-[^f]: TG [[Swearing, Swear, Sware, Sworn]].
-[^g]: TG [[Deceit, Deceive]]; [[Honesty]].
+[^a]: [[Chastity, Chaste|TG Chastity]]; [[Cleanliness|Cleanliness]].  
+[^b]: [[1 Timothy 2.8|1 Tim. 2:8]].  
+[^c]: [[Purity, Pure|TG Purity]]; [[Virtue, Virtuous|Virtue]].  
+[^d]: [[Heart|TG Heart]].  
+[^e]: [[Vanity|TG Vanity]].  
+[^f]: [[Swearing, Swear, Sware, Sworn|TG Swearing]].  
+[^g]: [[Deceit, Deceive|TG Deceit]]; [[Honesty|Honesty]].  

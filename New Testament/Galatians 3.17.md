@@ -5,4 +5,4 @@
 [Galatians 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.17?lang=eng#p17)
 
 
-[^a]: TG [[Israel, Bondage of, in Egypt]].
+[^a]: [[Israel, Bondage of, in Egypt|TG Israel, Bondage of, in Egypt]].  

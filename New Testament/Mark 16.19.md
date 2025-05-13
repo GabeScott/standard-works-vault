@@ -5,4 +5,4 @@
 [Mark 16:19](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.19?lang=eng#p19)
 
 
-[^a]: TG [[Jesus Christ, Lord]].
+[^a]: [[Jesus Christ, Lord|TG Jesus Christ, Lord]].  

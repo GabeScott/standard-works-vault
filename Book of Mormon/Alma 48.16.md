@@ -5,5 +5,5 @@
 [Alma 48:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p16#p16)
 
 
-[^a]: [[Alma 16.6|Alma 16:6 (5-8)]]; [[Alma 43.23|43:23 (23-24)]]; [[3 Nephi 3.20|3 Ne. 3:20 (18-21)]]. TG [[Guidance, Divine]].
-[^b]: [[Alma 55.19|Alma 55:19.]]
+[^a]: [[Alma 16.5|Alma 16:6 (5–8)]][[Alma 16.6|]][[Alma 16.7|]][[Alma 16.8|]]; [[Alma 43.23|43:23 (23–24)]][[Alma 43.24|]]; [[3 Nephi 3.18|3 Ne. 3:20 (18–21)]][[3 Nephi 3.19|]][[3 Nephi 3.20|]][[3 Nephi 3.21|]]. [[Guidance, Divine|TG Guidance, Divine]].  
+[^b]: [[Alma 55.19|Alma 55:19]].  

@@ -5,4 +5,4 @@
 [1 Samuel 4:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/4.18?lang=eng#p18)
 
 
-[^a]: [[1 Samuel 1.9|1 Sam. 1:9.]]
+[^a]: [[1 Samuel 1.9|1 Sam. 1:9]].  

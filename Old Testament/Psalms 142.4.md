@@ -5,4 +5,4 @@
 [Psalms 142:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/142.4?lang=eng#p4)
 
 
-[^a]: TG [[Apathy]]; [[Compassion]].
+[^a]: [[Apathy|TG Apathy]]; [[Compassion|Compassion]].  

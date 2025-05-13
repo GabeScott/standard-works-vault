@@ -5,4 +5,4 @@
 [Proverbs 16:31](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.31?lang=eng#p31)
 
 
-[^a]: IE The gray hair of old age. Prov. 20:29.
+[^a]: IE The gray hair of old age. [[Proverbs 20.29|Prov. 20:29]].  

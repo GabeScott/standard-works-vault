@@ -5,7 +5,7 @@
 [Matthew 9:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.18?lang=eng#p18)
 
 
-[^a]: [[Luke 8.41|Luke 8:41.]]
-[^b]: JST Matt. 9:24 … My daughter is even now dying …
-[^c]: TG [[Administrations to the Sick]]; [[Hands, Laying on of]].
-[^d]: [[D&C 66.9|D&C 66:9.]]
+[^a]: [[Luke 8.41|Luke 8:41]].  
+[^b]: JST Matt. 9:24 … My daughter is even now dying …  
+[^c]: [[Administrations to the Sick|TG Administrations to the Sick]]; [[Hands, Laying on of|Hands, Laying on of]].  
+[^d]: [[D&C 66.9|D&C 66:9]].  

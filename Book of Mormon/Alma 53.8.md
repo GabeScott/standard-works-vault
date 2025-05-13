@@ -5,4 +5,4 @@
 [Alma 53:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/53?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 31.8|Alma 31:8]]; [[Helaman 1.15|Hel. 1:15.]]
+[^a]: [[Alma 31.8|Alma 31:8]]; [[Helaman 1.15|Hel. 1:15]].  

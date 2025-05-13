@@ -5,5 +5,5 @@
 [Genesis 19:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.15?lang=eng#p15)
 
 
-[^a]: TG [[Angels]].
-[^b]: 2 Pet. 2:7.
+[^a]: [[Angels|TG Angels]].  
+[^b]: [[2 Peter 2.7|2 Pet. 2:7]].  

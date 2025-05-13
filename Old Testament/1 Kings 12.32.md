@@ -5,5 +5,5 @@
 [1 Kings 12:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.32?lang=eng#p32)
 
 
-[^a]: [[Leviticus 23.34|Lev. 23:34 (33-34).]]
-[^b]: TG [[Apostasy of Israel]].
+[^a]: [[Leviticus 23.33|Lev. 23:34 (33–34)]][[Leviticus 23.34|]].  
+[^b]: [[Apostasy of Israel|TG Apostasy of Israel]].  

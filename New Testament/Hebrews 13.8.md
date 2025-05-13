@@ -5,4 +5,4 @@
 [Hebrews 13:8](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.8?lang=eng#p8)
 
 
-[^a]: TG [[God, Eternal Nature of]].
+[^a]: [[God, Eternal Nature of|TG God, Eternal Nature of]].  

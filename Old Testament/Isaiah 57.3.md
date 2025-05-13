@@ -5,5 +5,5 @@
 [Isaiah 57:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.3?lang=eng#p3)
 
 
-[^a]: IE people affiliated with evil; see vv. 4-5.
-[^b]: TG [[Sexual Immorality]].
+[^a]: IE people affiliated with evil; see [[Isaiah 57.4|vv. 4–5]][[Isaiah 57.5|]].  
+[^b]: [[Sexual Immorality|TG Sexual Immorality]].  

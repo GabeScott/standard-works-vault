@@ -5,4 +5,4 @@
 [Mosiah 5:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/5?lang=eng&id=p1#p1)
 
 
-[^a]: [[1 Nephi 11.4|1 Ne. 11:4 (1-5).]]
+[^a]: [[1 Nephi 11.1|1 Ne. 11:4 (1–5)]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]].  

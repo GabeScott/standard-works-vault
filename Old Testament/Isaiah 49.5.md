@@ -5,4 +5,4 @@
 [Isaiah 49:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 44.2|Isa. 44:2 (2, 24)]]; [[Jeremiah 1.5|Jer. 1:5.]]
+[^a]: [[Isaiah 44.2|Isa. 44:2 (2, 24)]][[Isaiah 44.24|]]; [[Jeremiah 1.5|Jer. 1:5]].  

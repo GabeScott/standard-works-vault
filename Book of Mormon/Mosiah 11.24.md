@@ -5,5 +5,5 @@
 [Mosiah 11:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p24#p24)
 
 
-[^a]: [[Micah 3.4|Micah 3:4.]]
-[^b]: [[Psalms 10.1|Ps. 10:1]]; [[Jeremiah 2.27|Jer. 2:27]]; [[Mosiah 21.15|Mosiah 21:15.]]
+[^a]: [[Micah 3.4|Micah 3:4]].  
+[^b]: [[Psalms 10.1|Ps. 10:1]]; [[Jeremiah 2.27|Jer. 2:27]]; [[Mosiah 21.15|Mosiah 21:15]].  

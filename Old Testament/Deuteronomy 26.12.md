@@ -5,5 +5,5 @@
 [Deuteronomy 26:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.12?lang=eng#p12)
 
 
-[^a]: TG [[Tithing]].
-[^b]: IE of the cities, towns.
+[^a]: [[Tithing|TG Tithing]].  
+[^b]: IE of the cities, towns.  

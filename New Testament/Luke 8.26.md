@@ -5,4 +5,4 @@
 [Luke 8:26](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.26?lang=eng#p26)
 
 
-[^a]: GR on the other side of.
+[^a]: GR on the other side of.  

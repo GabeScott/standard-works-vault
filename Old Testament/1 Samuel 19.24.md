@@ -5,4 +5,4 @@
 [1 Samuel 19:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/19.24?lang=eng#p24)
 
 
-[^a]: [[1 Samuel 10.12|1 Sam. 10:12 (11-13).]]
+[^a]: [[1 Samuel 10.11|1 Sam. 10:12 (11–13)]][[1 Samuel 10.12|]][[1 Samuel 10.13|]].  

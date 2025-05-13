@@ -5,5 +5,5 @@
 [Mosiah 20:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/20?lang=eng&id=p3#p3)
 
 
-[^a]: [[Mosiah 19.21|Mosiah 19:21.]]
-[^b]: [[Mosiah 25.12|Mosiah 25:12.]]
+[^a]: [[Mosiah 19.21|Mosiah 19:21]].  
+[^b]: [[Mosiah 25.12|Mosiah 25:12]].  

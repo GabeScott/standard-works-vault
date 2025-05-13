@@ -5,5 +5,5 @@
 [Proverbs 4:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/4.9?lang=eng#p9)
 
 
-[^a]: TG [[Beauty]].
-[^b]: TG [[Telestial Glory]].
+[^a]: [[Beauty|TG Beauty]].  
+[^b]: [[Glory|TG Glory]].  

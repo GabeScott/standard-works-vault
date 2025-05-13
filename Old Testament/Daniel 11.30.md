@@ -5,4 +5,4 @@
 [Daniel 11:30](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.30?lang=eng#p30)
 
 
-[^a]: [[Numbers 24.24|Num. 24:24.]]
+[^a]: [[Numbers 24.24|Num. 24:24]].  

@@ -5,4 +5,4 @@
 [Proverbs 5:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/5.19?lang=eng#p19)
 
 
-[^a]: [[D&C 42.22|D&C 42:22.]]
+[^a]: [[D&C 42.22|D&C 42:22]].  

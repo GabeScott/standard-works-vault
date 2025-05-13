@@ -5,4 +5,4 @@
 [Leviticus 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.9?lang=eng#p9)
 
 
-[^a]: HEB sound the trill of the ram’s horn.
+[^a]: HEB sound the trill of the ram’s horn.  

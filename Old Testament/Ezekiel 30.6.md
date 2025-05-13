@@ -5,4 +5,4 @@
 [Ezekiel 30:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/30.6?lang=eng#p6)
 
 
-[^a]: HEB from Migdol to Syene.
+[^a]: HEB from Migdol to Syene.  

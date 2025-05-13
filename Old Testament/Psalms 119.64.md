@@ -5,4 +5,4 @@
 [Psalms 119:64](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.64?lang=eng#p64)
 
 
-[^a]: [[Psalms 33.5|Ps. 33:5.]]
+[^a]: [[Psalms 33.5|Ps. 33:5]].  

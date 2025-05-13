@@ -5,5 +5,5 @@
 [Genesis 44:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/44.28?lang=eng#p28)
 
 
-[^a]: [[Genesis 37.33|Gen. 37:33.]]
-[^b]: [[Alma 46.24|Alma 46:24.]]
+[^a]: [[Genesis 37.33|Gen. 37:33]].  
+[^b]: [[Alma 46.24|Alma 46:24]].  

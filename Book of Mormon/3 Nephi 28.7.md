@@ -5,6 +5,6 @@
 [3 Nephi 28:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p7#p7)
 
 
-[^a]: 4 Ne. 1:37 (14, 37); [[Mormon 8.10|Morm. 8:10 (10-12)]]; [[Ether 12.17|Ether 12:17.]]
-[^b]: [[Luke 9.27|Luke 9:27]]. TG [[Translated Beings]].
-[^c]: [[3 Nephi 20.22|3 Ne. 20:22.]]
+[^a]: [[4 Nephi 1.14|4 Ne. 1:37 (14, 37)]][[4 Nephi 1.37|]]; [[Mormon 8.10|Morm. 8:10 (10–12)]][[Mormon 8.11|]][[Mormon 8.12|]]; [[Ether 12.17|Ether 12:17]].  
+[^b]: [[Luke 9.27|Luke 9:27]]. [[Translated Beings|TG Translated Beings]].  
+[^c]: [[3 Nephi 20.22|3 Ne. 20:22]].  

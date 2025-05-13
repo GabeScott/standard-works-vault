@@ -5,5 +5,5 @@
 [Jeremiah 46:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 44.1|Jer. 44:1.]]
-[^b]: [[Jeremiah 43.7|Jer. 43:7.]]
+[^a]: [[Jeremiah 44.1|Jer. 44:1]].  
+[^b]: [[Jeremiah 43.7|Jer. 43:7]].  

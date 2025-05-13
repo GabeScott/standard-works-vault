@@ -5,5 +5,5 @@
 [Isaiah 28:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.5?lang=eng#p5)
 
 
-[^a]: IE a future day, after the scattering of Israel, in the time of preparation for final things.
-[^b]: [[Isaiah 2.11|Isa. 2:11 (10-12).]]
+[^a]: IE a future day, after the scattering of Israel, in the time of preparation for final things.  
+[^b]: [[Isaiah 2.10|Isa. 2:11 (10–12)]][[Isaiah 2.11|]][[Isaiah 2.12|]].  

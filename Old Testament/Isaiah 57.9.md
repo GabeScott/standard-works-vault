@@ -5,4 +5,4 @@
 [Isaiah 57:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.9?lang=eng#p9)
 
 
-[^a]: HEB melech or molech (a horrible idol).
+[^a]: HEB melech or molech (a horrible idol).  

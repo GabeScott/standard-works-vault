@@ -5,4 +5,4 @@
 [Acts 4:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.26?lang=eng#p26)
 
 
-[^a]: [[Psalms 2.2|Ps. 2:2 (1-2).]]
+[^a]: [[Psalms 2.1|Ps. 2:2 (1–2)]][[Psalms 2.2|]].  

@@ -5,4 +5,4 @@
 [Proverbs 19:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.19?lang=eng#p19)
 
 
-[^a]: [[Mormon 8.21|Morm. 8:21.]]
+[^a]: [[Mormon 8.21|Morm. 8:21]].  

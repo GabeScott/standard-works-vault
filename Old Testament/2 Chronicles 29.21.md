@@ -5,4 +5,4 @@
 [2 Chronicles 29:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.21?lang=eng#p21)
 
 
-[^a]: [[Leviticus 4.14|Lev. 4:14 (13-21).]]
+[^a]: [[Leviticus 4.13|Lev. 4:14 (13–21)]][[Leviticus 4.14|]][[Leviticus 4.15|]][[Leviticus 4.16|]][[Leviticus 4.17|]][[Leviticus 4.18|]][[Leviticus 4.19|]][[Leviticus 4.20|]][[Leviticus 4.21|]].  

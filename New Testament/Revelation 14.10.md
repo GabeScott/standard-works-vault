@@ -5,5 +5,5 @@
 [Revelation 14:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.10?lang=eng#p10)
 
 
-[^a]: [[D&C 115.6|D&C 115:6.]]
-[^b]: TG [[God, Indignation of]].
+[^a]: [[D&C 115.6|D&C 115:6]].  
+[^b]: [[God, Indignation of|TG God, Indignation of]].  

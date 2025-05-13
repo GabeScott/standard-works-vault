@@ -5,5 +5,5 @@
 [Mormon 3:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p3#p3)
 
 
-[^a]: [[Mormon 4.18|Morm. 4:18.]]
-[^b]: TG [[Hardheartedness, Harden, Hardness]]; [[Ingratitude]].
+[^a]: [[Mormon 4.18|Morm. 4:18]].  
+[^b]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]]; [[Ingratitude|Ingratitude]].  

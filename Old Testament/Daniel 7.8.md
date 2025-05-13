@@ -5,5 +5,5 @@
 [Daniel 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.8?lang=eng#p8)
 
 
-[^a]: Dan. 8:9.
-[^b]: [[Revelation 13.5|Rev. 13:5.]]
+[^a]: [[Daniel 8.9|Dan. 8:9]].  
+[^b]: [[Revelation 13.5|Rev. 13:5]].  

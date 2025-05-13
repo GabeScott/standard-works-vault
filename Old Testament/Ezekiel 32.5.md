@@ -5,4 +5,4 @@
 [Ezekiel 32:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/32.5?lang=eng#p5)
 
 
-[^a]: IE heaps of corpses.
+[^a]: IE heaps of corpses.  

@@ -5,4 +5,4 @@
 [1 John 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.11?lang=eng#p11)
 
 
-[^a]: TG [[Walking in Darkness]].
+[^a]: [[Walking in Darkness|TG Walking in Darkness]].  

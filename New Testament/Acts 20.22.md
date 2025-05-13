@@ -5,4 +5,4 @@
 [Acts 20:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.22?lang=eng#p22)
 
 
-[^a]: [[Acts 19.21|Acts 19:21]]; [[1 Nephi 4.6|1 Ne. 4:6.]]
+[^a]: [[Acts 19.21|Acts 19:21]]; [[1 Nephi 4.6|1 Ne. 4:6]].  

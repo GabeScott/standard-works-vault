@@ -5,4 +5,4 @@
 [Psalms 124:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/124.3?lang=eng#p3)
 
 
-[^a]: [[Psalms 56.1|Ps. 56:1 (1-2)]]; [[Proverbs 1.12|Prov. 1:12.]]
+[^a]: [[Psalms 56.1|Ps. 56:1 (1–2)]][[Psalms 56.2|]]; [[Proverbs 1.12|Prov. 1:12]].  

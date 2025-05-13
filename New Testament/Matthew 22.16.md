@@ -5,5 +5,5 @@
 [Matthew 22:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.16?lang=eng#p16)
 
 
-[^a]: IE you court no man’s favor.
-[^b]: [[Proverbs 24.23|Prov. 24:23.]]
+[^a]: IE you court no man’s favor.  
+[^b]: [[Proverbs 24.23|Prov. 24:23]].  

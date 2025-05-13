@@ -5,4 +5,4 @@
 [Numbers 16:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.1?lang=eng#p1)
 
 
-[^a]: [[Deuteronomy 11.6|Deut. 11:6.]]
+[^a]: [[Deuteronomy 11.6|Deut. 11:6]].  

@@ -5,4 +5,4 @@
 [Proverbs 21:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.1?lang=eng#p1)
 
 
-[^a]: [[Proverbs 8.15|Prov. 8:15.]]
+[^a]: [[Proverbs 8.15|Prov. 8:15]].  

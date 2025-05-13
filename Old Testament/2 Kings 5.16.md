@@ -5,5 +5,5 @@
 [2 Kings 5:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/5.16?lang=eng#p16)
 
 
-[^a]: [[Mosiah 2.12|Mosiah 2:12 (11-12).]]
-[^b]: Dan. 5:17.
+[^a]: [[Mosiah 2.11|Mosiah 2:12 (11–12)]][[Mosiah 2.12|]].  
+[^b]: [[Daniel 5.17|Dan. 5:17]].  

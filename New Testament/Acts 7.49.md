@@ -5,4 +5,4 @@
 [Acts 7:49](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.49?lang=eng#p49)
 
 
-[^a]: TG [[Kingdom of God, in Heaven]].
+[^a]: [[Kingdom of God, in Heaven|TG Kingdom of God, in Heaven]].  

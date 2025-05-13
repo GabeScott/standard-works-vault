@@ -5,5 +5,5 @@
 [Alma 29:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 5.3|Alma 5:3.]]
-[^b]: TG [[Preaching, Preach]].
+[^a]: [[Alma 5.3|Alma 5:3]].  
+[^b]: [[Preaching, Preach|TG Preaching]].  

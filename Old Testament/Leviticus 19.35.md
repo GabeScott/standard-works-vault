@@ -5,4 +5,4 @@
 [Leviticus 19:35](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.35?lang=eng#p35)
 
 
-[^a]: HEB injustice.
+[^a]: HEB injustice.  

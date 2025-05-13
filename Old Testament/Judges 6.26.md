@@ -5,4 +5,4 @@
 [Judges 6:26](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.26?lang=eng#p26)
 
 
-[^a]: HEB stronghold.
+[^a]: HEB stronghold.  

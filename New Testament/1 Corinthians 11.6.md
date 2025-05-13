@@ -5,4 +5,4 @@
 [1 Corinthians 11:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.6?lang=eng#p6)
 
 
-[^a]: TG [[Shame]].
+[^a]: [[Shame|TG Shame]].  

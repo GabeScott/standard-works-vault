@@ -5,4 +5,4 @@
 [Genesis 30:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.3?lang=eng#p3)
 
 
-[^a]: HEB be built up by her (Gen. 16:2).
+[^a]: HEB be built up by her ([[Genesis 16.2|Gen. 16:2]]).  

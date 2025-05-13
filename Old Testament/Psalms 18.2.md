@@ -5,7 +5,7 @@
 [Psalms 18:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.2?lang=eng#p2)
 
 
-[^a]: TG [[Holy Ghost, Comforter]]; [[Rock]].
-[^b]: TG [[Protection, Divine]].
-[^c]: TG [[Strength]].
-[^d]: [[Hebrews 2.13|Heb. 2:13.]]
+[^a]: [[Comfort|TG Comfort]]; [[Rock|Rock]].  
+[^b]: [[Protection, Divine|TG Protection, Divine]].  
+[^c]: [[Strength|TG Strength]].  
+[^d]: [[Hebrews 2.13|Heb. 2:13]].  

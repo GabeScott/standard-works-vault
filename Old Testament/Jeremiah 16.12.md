@@ -5,6 +5,6 @@
 [Jeremiah 16:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.12?lang=eng#p12)
 
 
-[^a]: [[Jeremiah 7.26|Jer. 7:26.]]
-[^b]: TG [[Traditions of Men]].
-[^c]: OR stubbornness.
+[^a]: [[Jeremiah 7.26|Jer. 7:26]].  
+[^b]: [[Traditions of Men|TG Traditions of Men]].  
+[^c]: OR stubbornness.  

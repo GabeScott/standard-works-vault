@@ -5,6 +5,6 @@
 [Psalms 31:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.1?lang=eng#p1)
 
 
-[^a]: TG [[Trust in God]].
-[^b]: TG [[Shame]].
-[^c]: Dan. 9:16.
+[^a]: [[Trust in God|TG Trust in God]].  
+[^b]: [[Shame|TG Shame]].  
+[^c]: [[Daniel 9.16|Dan. 9:16]].  

@@ -5,5 +5,5 @@
 [Psalms 148:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/148.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 33.9|Ps. 33:9.]]
-[^b]: TG [[Creation, Create]].
+[^a]: [[Psalms 33.9|Ps. 33:9]].  
+[^b]: [[Creation, Create|TG Creation]].  

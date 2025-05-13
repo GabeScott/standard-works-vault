@@ -5,6 +5,6 @@
 [3 Nephi 6:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p12#p12)
 
 
-[^a]: [[1 Timothy 6.17|1 Tim. 6:17]]; [[Helaman 4.12|Hel. 4:12 (11-13).]]
-[^b]: TG [[Ignorance, Ignorant]].
-[^c]: TG [[Learn, Learning]].
+[^a]: [[1 Timothy 6.17|1 Tim. 6:17]]; [[Helaman 4.11|Hel. 4:12 (11–13)]][[Helaman 4.12|]][[Helaman 4.13|]].  
+[^b]: [[Ignorance, Ignorant|TG Ignorance]].  
+[^c]: [[Learn, Learning|TG Learn]].  

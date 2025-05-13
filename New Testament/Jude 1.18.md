@@ -5,6 +5,6 @@
 [Jude 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.18?lang=eng#p18)
 
 
-[^a]: TG [[Apostasy of Individuals]]; [[Mocking, Mock, Mocker, Mockery]].
-[^b]: TG [[Last Days]].
-[^c]: TG [[Walking in Darkness]].
+[^a]: [[Apostasy of Individuals|TG Apostasy of Individuals]]; [[Mocking, Mock, Mocker, Mockery|Mocking]].  
+[^b]: [[Last Days|TG Last Days]].  
+[^c]: [[Walking in Darkness|TG Walking in Darkness]].  

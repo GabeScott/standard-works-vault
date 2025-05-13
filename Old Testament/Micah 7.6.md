@@ -5,5 +5,5 @@
 [Micah 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.6?lang=eng#p6)
 
 
-[^a]: [[Luke 12.53|Luke 12:53]]. TG [[Enemies, Enemy]].
-[^b]: [[Matthew 10.36|Matt. 10:36 (35-36).]]
+[^a]: [[Luke 12.53|Luke 12:53]]. [[Enemies, Enemy|TG Enemies]].  
+[^b]: [[Matthew 10.35|Matt. 10:36 (35–36)]][[Matthew 10.36|]].  

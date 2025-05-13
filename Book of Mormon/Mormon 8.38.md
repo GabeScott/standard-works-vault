@@ -5,6 +5,6 @@
 [Mormon 8:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p38#p38)
 
 
-[^a]: [[Romans 1.16|Rom. 1:16]]; 2 Tim. 1:8; [[1 Nephi 8.25|1 Ne. 8:25]]; [[Alma 46.21|Alma 46:21.]]
-[^b]: [[Romans 3.16|Rom. 3:16]]; [[Mosiah 3.25|Mosiah 3:25.]]
-[^c]: [[1 Nephi 13.9|1 Ne. 13:9.]]
+[^a]: [[Romans 1.16|Rom. 1:16]]; [[2 Timothy 1.8|2 Tim. 1:8]]; [[1 Nephi 8.25|1 Ne. 8:25]]; [[Alma 46.21|Alma 46:21]].  
+[^b]: [[Romans 3.16|Rom. 3:16]]; [[Mosiah 3.25|Mosiah 3:25]].  
+[^c]: [[1 Nephi 13.9|1 Ne. 13:9]].  

@@ -5,4 +5,4 @@
 [Nehemiah 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/6.15?lang=eng#p15)
 
 
-[^a]: IE the sixth Hebrew month, from the new moon of September to that of October.
+[^a]: IE the sixth Hebrew month, from the new moon of September to that of October.  

@@ -5,4 +5,4 @@
 [Mark 9:20](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.20?lang=eng#p20)
 
 
-[^a]: [[Mark 1.26|Mark 1:26.]]
+[^a]: [[Mark 1.26|Mark 1:26]].  

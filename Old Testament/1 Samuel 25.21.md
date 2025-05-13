@@ -5,4 +5,4 @@
 [1 Samuel 25:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.21?lang=eng#p21)
 
 
-[^a]: OR returned.
+[^a]: OR returned.  

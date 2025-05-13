@@ -5,6 +5,6 @@
 [Deuteronomy 10:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.15?lang=eng#p15)
 
 
-[^a]: HEB Yet (see context of previous verse).
-[^b]: TG [[God, Love of]].
-[^c]: TG [[Peculiar People]].
+[^a]: HEB Yet (see context of [[Deuteronomy 10.14|previous verse]]).  
+[^b]: [[God, Love of|TG God, Love of]].  
+[^c]: [[Peculiar People|TG Peculiar People]].  

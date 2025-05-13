@@ -5,4 +5,4 @@
 [Leviticus 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.4?lang=eng#p4)
 
 
-[^a]: OR shall quarantine.
+[^a]: OR shall quarantine.  

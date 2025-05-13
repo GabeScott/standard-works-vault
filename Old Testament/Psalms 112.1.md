@@ -5,6 +5,6 @@
 [Psalms 112:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/112.1?lang=eng#p1)
 
 
-[^a]: TG [[Reverence]].
-[^b]: [[Psalms 119.35|Ps. 119:35.]]
-[^c]: TG [[Children of Light]].
+[^a]: [[Reverence|TG Reverence]].  
+[^b]: [[Psalms 119.35|Ps. 119:35]].  
+[^c]: [[Children of Light|TG Children of Light]].  

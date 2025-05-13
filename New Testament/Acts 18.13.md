@@ -5,4 +5,4 @@
 [Acts 18:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.13?lang=eng#p13)
 
 
-[^a]: [[Alma 30.7|Alma 30:7 (7-11).]]
+[^a]: [[Alma 30.7|Alma 30:7 (7–11)]][[Alma 30.8|]][[Alma 30.9|]][[Alma 30.10|]][[Alma 30.11|]].  

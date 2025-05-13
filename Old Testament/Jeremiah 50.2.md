@@ -5,4 +5,4 @@
 [Jeremiah 50:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 46.1|Isa. 46:1.]]
+[^a]: [[Isaiah 46.1|Isa. 46:1]].  

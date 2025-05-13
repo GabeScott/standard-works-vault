@@ -5,4 +5,4 @@
 [Numbers 16:33](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.33?lang=eng#p33)
 
 
-[^a]: [[Psalms 69.15|Ps. 69:15.]]
+[^a]: [[Psalms 69.15|Ps. 69:15]].  

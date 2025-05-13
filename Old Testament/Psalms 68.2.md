@@ -5,5 +5,5 @@
 [Psalms 68:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.2?lang=eng#p2)
 
 
-[^a]: [[Psalms 97.5|Ps. 97:5]]; [[Micah 1.4|Micah 1:4.]]
-[^b]: TG [[God, Presence of]].
+[^a]: [[Psalms 97.5|Ps. 97:5]]; [[Micah 1.4|Micah 1:4]].  
+[^b]: [[God, Presence of|TG God, Presence of]].  

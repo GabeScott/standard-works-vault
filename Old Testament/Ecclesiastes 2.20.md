@@ -5,4 +5,4 @@
 [Ecclesiastes 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.20?lang=eng#p20)
 
 
-[^a]: TG [[Despair]].
+[^a]: [[Despair|TG Despair]].  

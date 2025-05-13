@@ -5,4 +5,4 @@
 [Moses 3:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.6?lang=eng#p6)
 
 
-[^a]: [[Genesis 2.6|Gen. 2:6.]]
+[^a]: [[Genesis 2.6|Gen. 2:6]].  

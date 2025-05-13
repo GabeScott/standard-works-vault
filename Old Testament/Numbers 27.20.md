@@ -5,5 +5,5 @@
 [Numbers 27:20](https://www.churchofjesuschrist.org/study/scriptures/ot/num/27.20?lang=eng#p20)
 
 
-[^a]: OR invest him with some of your authority.
-[^b]: TG [[Delegation of Responsibility]].
+[^a]: OR invest him with some of your authority.  
+[^b]: [[Delegation of Responsibility|TG Delegation of Responsibility]].  

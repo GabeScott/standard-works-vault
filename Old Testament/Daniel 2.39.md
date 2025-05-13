@@ -5,5 +5,5 @@
 [Daniel 2:39](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.39?lang=eng#p39)
 
 
-[^a]: Dan. 5:28; 7:5.
-[^b]: TG [[Authority]].
+[^a]: [[Daniel 5.28|Dan. 5:28]]; [[Daniel 7.5|7:5]].  
+[^b]: [[Authority|TG Authority]].  

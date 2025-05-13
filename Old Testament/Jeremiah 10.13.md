@@ -5,4 +5,4 @@
 [Jeremiah 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.13?lang=eng#p13)
 
 
-[^a]: HEB storehouses.
+[^a]: HEB storehouses.  

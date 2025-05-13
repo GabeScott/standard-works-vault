@@ -5,4 +5,4 @@
 [Ezekiel 35:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/35.6?lang=eng#p6)
 
 
-[^a]: OR since.
+[^a]: OR since.  

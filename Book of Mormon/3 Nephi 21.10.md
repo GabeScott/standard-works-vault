@@ -5,5 +5,5 @@
 [3 Nephi 21:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p10#p10)
 
 
-[^a]: [[D&C 135.1|D&C 135:1 (1-3).]]
-[^b]: [[D&C 10.43|D&C 10:43.]]
+[^a]: [[D&C 135.1|D&C 135:1 (1–3)]][[D&C 135.2|]][[D&C 135.3|]].  
+[^b]: [[D&C 10.43|D&C 10:43]].  

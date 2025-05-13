@@ -5,5 +5,5 @@
 [Deuteronomy 26:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.8?lang=eng#p8)
 
 
-[^a]: Ex. 12:37, 51; [[Alma 36.2|Alma 36:2.]]
-[^b]: [[Mosiah 3.15|Mosiah 3:15 (14-15).]]
+[^a]: [[Exodus 12.37|Ex. 12:37, 51]][[Exodus 12.51|]]; [[Alma 36.2|Alma 36:2]].  
+[^b]: [[Mosiah 3.14|Mosiah 3:15 (14–15)]][[Mosiah 3.15|]].  

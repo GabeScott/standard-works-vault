@@ -5,5 +5,5 @@
 [2 Corinthians 7:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/7.2?lang=eng#p2)
 
 
-[^a]: 1 Thes. 2:3 (3-10).
-[^b]: TG [[Fraud]].
+[^a]: [[1 Thessalonians 2.3|1 Thes. 2:3 (3–10)]][[1 Thessalonians 2.4|]][[1 Thessalonians 2.5|]][[1 Thessalonians 2.6|]][[1 Thessalonians 2.7|]][[1 Thessalonians 2.8|]][[1 Thessalonians 2.9|]][[1 Thessalonians 2.10|]].  
+[^b]: [[Fraud|TG Fraud]].  

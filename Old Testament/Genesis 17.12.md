@@ -5,5 +5,5 @@
 [Genesis 17:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.12?lang=eng#p12)
 
 
-[^a]: [[D&C 84.28|D&C 84:28 (27-28).]]
-[^b]: [[Exodus 12.44|Ex. 12:44 (43-45).]]
+[^a]: [[D&C 84.27|D&C 84:28 (27–28)]][[D&C 84.28|]].  
+[^b]: [[Exodus 12.43|Ex. 12:44 (43–45)]][[Exodus 12.44|]][[Exodus 12.45|]].  

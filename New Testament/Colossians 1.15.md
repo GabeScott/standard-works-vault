@@ -5,7 +5,7 @@
 [Colossians 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.15?lang=eng#p15)
 
 
-[^a]: TG [[God, Body of, Corporeal Nature]].
-[^b]: TG [[Godhead]].
-[^c]: TG [[Firstborn]]; Jesus Christ, [[Firstborn]].
-[^d]: GR all creation.
+[^a]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  
+[^b]: [[Godhead|TG Godhead]].  
+[^c]: [[Firstborn|TG Firstborn]]; [[Jesus Christ, Firstborn|Jesus Christ, Firstborn]].  
+[^d]: GR all creation.  

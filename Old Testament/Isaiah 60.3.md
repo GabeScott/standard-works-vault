@@ -5,5 +5,5 @@
 [Isaiah 60:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.3?lang=eng#p3)
 
 
-[^a]: TG [[Conversion, Convert]]; [[Gentiles]].
-[^b]: TG [[Israel, Mission of]]; [[Light]].
+[^a]: [[Conversion, Convert|TG Conversion]]; [[Gentiles|Gentiles]].  
+[^b]: [[Israel, Mission of|TG Israel, Mission of]]; [[Light [noun]|Light [noun]]].  

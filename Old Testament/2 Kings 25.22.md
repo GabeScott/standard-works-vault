@@ -5,4 +5,4 @@
 [2 Kings 25:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.22?lang=eng#p22)
 
 
-[^a]: [[Jeremiah 40.5|Jer. 40:5 (1-6)]]; [[Jeremiah 43.6|43:6.]]
+[^a]: [[Jeremiah 40.1|Jer. 40:5 (1–6)]][[Jeremiah 40.2|]][[Jeremiah 40.3|]][[Jeremiah 40.4|]][[Jeremiah 40.5|]][[Jeremiah 40.6|]]; [[Jeremiah 43.6|43:6]].  

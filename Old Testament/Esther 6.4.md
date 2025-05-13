@@ -5,5 +5,5 @@
 [Esther 6:4](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/6.4?lang=eng#p4)
 
 
-[^a]: [[Esther 4.11|Esth. 4:11.]]
-[^b]: [[Esther 5.14|Esth. 5:14.]]
+[^a]: [[Esther 4.11|Esth. 4:11]].  
+[^b]: [[Esther 5.14|Esth. 5:14]].  

@@ -5,4 +5,4 @@
 [Ether 10:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p27#p27)
 
 
-[^a]: [[Ether 15.15|Ether 15:15.]]
+[^a]: [[Ether 15.15|Ether 15:15]].  

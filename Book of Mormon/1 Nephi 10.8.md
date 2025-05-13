@@ -5,4 +5,4 @@
 [1 Nephi 10:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p8#p8)
 
 
-[^a]: [[Isaiah 40.3|Isa. 40:3]]; [[Matthew 3.3|Matt. 3:3 (1-3)]]; [[D&C 84.26|D&C 84:26.]]
+[^a]: [[Isaiah 40.3|Isa. 40:3]]; [[Matthew 3.1|Matt. 3:3 (1–3)]][[Matthew 3.2|]][[Matthew 3.3|]]; [[D&C 84.26|D&C 84:26]].  

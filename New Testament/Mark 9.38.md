@@ -5,4 +5,4 @@
 [Mark 9:38](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.38?lang=eng#p38)
 
 
-[^a]: [[Luke 11.19|Luke 11:19]]; [[Acts 19.13|Acts 19:13.]]
+[^a]: [[Luke 11.19|Luke 11:19]]; [[Acts 19.13|Acts 19:13]].  

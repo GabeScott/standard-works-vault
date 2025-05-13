@@ -5,4 +5,4 @@
 [Romans 11:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.15?lang=eng#p15)
 
 
-[^a]: TG [[Reconciliation, Reconcile]].
+[^a]: [[Reconciliation, Reconcile|TG Reconciliation]].  

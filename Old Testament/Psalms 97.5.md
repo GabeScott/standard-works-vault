@@ -5,5 +5,5 @@
 [Psalms 97:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/97.5?lang=eng#p5)
 
 
-[^a]: [[Judges 5.5|Judg. 5:5]]; [[Nahum 1.5|Nahum 1:5.]]
-[^b]: [[Psalms 68.2|Ps. 68:2]]; [[Micah 1.4|Micah 1:4.]]
+[^a]: [[Judges 5.5|Judg. 5:5]]; [[Nahum 1.5|Nahum 1:5]].  
+[^b]: [[Psalms 68.2|Ps. 68:2]]; [[Micah 1.4|Micah 1:4]].  

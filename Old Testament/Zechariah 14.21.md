@@ -5,6 +5,6 @@
 [Zechariah 14:21](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.21?lang=eng#p21)
 
 
-[^a]: OR sacred.
-[^b]: OR cook in them.
-[^c]: [[Joel 3.17|Joel 3:17.]]
+[^a]: OR sacred.  
+[^b]: OR cook in them.  
+[^c]: [[Joel 3.17|Joel 3:17]].  

@@ -5,5 +5,5 @@
 [1 Corinthians 9:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.13?lang=eng#p13)
 
 
-[^a]: [[Deuteronomy 18.1|Deut. 18:1 (1-2).]]
-[^b]: GR eat.
+[^a]: [[Deuteronomy 18.1|Deut. 18:1 (1–2)]][[Deuteronomy 18.2|]].  
+[^b]: GR eat.  

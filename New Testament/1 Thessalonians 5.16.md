@@ -5,4 +5,4 @@
 [1 Thessalonians 5:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.16?lang=eng#p16)
 
 
-[^a]: TG [[Joy]].
+[^a]: [[Joy|TG Joy]].  

@@ -5,4 +5,4 @@
 [Psalms 49:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/49.14?lang=eng#p14)
 
 
-[^a]: Mal. 4:3 (2-3); [[Revelation 2.26|Rev. 2:26.]]
+[^a]: [[Malachi 4.2|Mal. 4:3 (2–3)]][[Malachi 4.3|]]; [[Revelation 2.26|Rev. 2:26]].  

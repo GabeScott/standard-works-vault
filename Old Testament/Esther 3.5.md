@@ -5,5 +5,5 @@
 [Esther 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/3.5?lang=eng#p5)
 
 
-[^a]: [[Esther 5.9|Esth. 5:9.]]
-[^b]: [[Proverbs 27.3|Prov. 27:3.]]
+[^a]: [[Esther 5.9|Esth. 5:9]].  
+[^b]: [[Proverbs 27.3|Prov. 27:3]].  

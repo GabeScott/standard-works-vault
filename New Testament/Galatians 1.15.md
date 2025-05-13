@@ -5,4 +5,4 @@
 [Galatians 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.15?lang=eng#p15)
 
 
-[^a]: TG [[Grace]].
+[^a]: [[Grace|TG Grace]].  

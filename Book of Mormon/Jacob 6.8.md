@@ -5,7 +5,7 @@
 [Jacob 6:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/6?lang=eng&id=p8#p8)
 
 
-[^a]: [[Jeremiah 26.5|Jer. 26:5.]]
-[^b]: TG [[Holy Ghost, Loss of]].
-[^c]: TG [[Holy Ghost, Gift of]].
-[^d]: TG [[Sacrilege]].
+[^a]: [[Jeremiah 26.5|Jer. 26:5]].  
+[^b]: [[Holy Ghost, Loss of|TG Holy Ghost, Loss of]].  
+[^c]: [[Holy Ghost, Gift of|TG Holy Ghost, Gift of]].  
+[^d]: [[Sacrilege|TG Sacrilege]].  

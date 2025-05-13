@@ -5,5 +5,5 @@
 [Jeremiah 44:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.5?lang=eng#p5)
 
 
-[^a]: TG [[Prophets, Rejection of]].
-[^b]: [[Alma 45.16|Alma 45:16.]]
+[^a]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  
+[^b]: [[Alma 45.16|Alma 45:16]].  

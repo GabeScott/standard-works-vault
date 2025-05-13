@@ -5,7 +5,7 @@
 [2 Chronicles 36:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.13?lang=eng#p13)
 
 
-[^a]: [[2 Kings 24.20|2 Kgs. 24:20]]; [[Jeremiah 52.3|Jer. 52:3]]; [[Ezekiel 17.15|Ezek. 17:15.]]
-[^b]: [[Ezekiel 17.13|Ezek. 17:13.]]
-[^c]: TG [[Stiffnecked, Stiffneckedness]].
-[^d]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: [[2 Kings 24.20|2 Kgs. 24:20]]; [[Jeremiah 52.3|Jer. 52:3]]; [[Ezekiel 17.15|Ezek. 17:15]].  
+[^b]: [[Ezekiel 17.13|Ezek. 17:13]].  
+[^c]: [[Stiffnecked, Stiffneckedness|TG Stiffnecked]].  
+[^d]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

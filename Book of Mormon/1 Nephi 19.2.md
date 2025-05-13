@@ -5,5 +5,5 @@
 [1 Nephi 19:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p2#p2)
 
 
-[^a]: [[2 Nephi 5.30|2 Ne. 5:30]]; [[Jacob 3.14|Jacob 3:14.]]
-[^b]: [[1 Nephi 9.2|1 Ne. 9:2 (1-5)]]; [[Omni 1.1|Omni 1:1.]]
+[^a]: [[2 Nephi 5.30|2 Ne. 5:30]]; [[Jacob 3.14|Jacob 3:14]].  
+[^b]: [[1 Nephi 9.1|1 Ne. 9:2 (1–5)]][[1 Nephi 9.2|]][[1 Nephi 9.3|]][[1 Nephi 9.4|]][[1 Nephi 9.5|]]; [[Omni 1.1|Omni 1:1]].  

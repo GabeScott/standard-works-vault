@@ -5,4 +5,4 @@
 [Numbers 24:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.18?lang=eng#p18)
 
 
-[^a]: [[2 Samuel 8.14|2 Sam. 8:14.]]
+[^a]: [[2 Samuel 8.14|2 Sam. 8:14]].  

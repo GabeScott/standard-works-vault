@@ -5,4 +5,4 @@
 [1 Nephi 22:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p10#p10)
 
 
-[^a]: [[Isaiah 52.10|Isa. 52:10.]]
+[^a]: [[Isaiah 52.10|Isa. 52:10]].  

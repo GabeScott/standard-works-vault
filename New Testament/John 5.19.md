@@ -5,5 +5,5 @@
 [John 5:19](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.19?lang=eng#p19)
 
 
-[^a]: [[John 8.28|John 8:28.]]
-[^b]: TG [[Godhead]].
+[^a]: [[John 8.28|John 8:28]].  
+[^b]: [[Godhead|TG Godhead]].  

@@ -5,4 +5,4 @@
 [Psalms 58:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/58.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 68.23|Ps. 68:23.]]
+[^a]: [[Psalms 68.23|Ps. 68:23]].  

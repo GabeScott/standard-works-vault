@@ -5,5 +5,5 @@
 [Jeremiah 38:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/38.4?lang=eng#p4)
 
 
-[^a]: OR officers or rulers.
-[^b]: [[Jeremiah 26.11|Jer. 26:11.]]
+[^a]: OR officers or rulers.  
+[^b]: [[Jeremiah 26.11|Jer. 26:11]].  

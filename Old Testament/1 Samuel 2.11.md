@@ -5,4 +5,4 @@
 [1 Samuel 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.11?lang=eng#p11)
 
 
-[^a]: HEB And the youth served the Lord in the presence of Eli, the priest.
+[^a]: HEB And the youth served the Lord in the presence of Eli, the priest.  

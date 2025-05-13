@@ -5,4 +5,4 @@
 [Jeremiah 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.13?lang=eng#p13)
 
 
-[^a]: [[Alma 46.21|Alma 46:21.]]
+[^a]: [[Alma 46.21|Alma 46:21]].  

@@ -5,5 +5,5 @@
 [Hebrews 6:7](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.7?lang=eng#p7)
 
 
-[^a]: GR suitable, fit, proper.
-[^b]: GR cultivated, tilled.
+[^a]: GR suitable, fit, proper.  
+[^b]: GR cultivated, tilled.  

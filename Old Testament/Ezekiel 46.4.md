@@ -5,4 +5,4 @@
 [Ezekiel 46:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.4?lang=eng#p4)
 
 
-[^a]: [[Numbers 28.10|Num. 28:10 (9-10).]]
+[^a]: [[Numbers 28.9|Num. 28:10 (9–10)]][[Numbers 28.10|]].  

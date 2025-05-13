@@ -5,4 +5,4 @@
 [Alma 13:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p13#p13)
 
 
-[^a]: [[Luke 3.8|Luke 3:8.]]
+[^a]: [[Luke 3.8|Luke 3:8]].  

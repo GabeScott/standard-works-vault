@@ -5,4 +5,4 @@
 [Luke 15:12](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.12?lang=eng#p12)
 
 
-[^a]: GR property.
+[^a]: GR property.  

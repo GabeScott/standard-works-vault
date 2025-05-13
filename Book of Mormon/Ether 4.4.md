@@ -5,5 +5,5 @@
 [Ether 4:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/4?lang=eng&id=p4#p4)
 
 
-[^a]: [[Ether 5.1|Ether 5:1.]]
-[^b]: [[2 Nephi 27.7|2 Ne. 27:7 (7-8, 10-11)]]; [[Mosiah 8.19|Mosiah 8:19]]; [[Ether 3.26|Ether 3:26 (21-28).]]
+[^a]: [[Ether 5.1|Ether 5:1]].  
+[^b]: [[2 Nephi 27.7|2 Ne. 27:7 (7–8, 10–11)]][[2 Nephi 27.8|]][[2 Nephi 27.10|]][[2 Nephi 27.11|]]; [[Mosiah 8.19|Mosiah 8:19]]; [[Ether 3.21|Ether 3:26 (21–28)]][[Ether 3.22|]][[Ether 3.23|]][[Ether 3.24|]][[Ether 3.25|]][[Ether 3.26|]][[Ether 3.27|]][[Ether 3.28|]].  

@@ -5,5 +5,5 @@
 [Ecclesiastes 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.18?lang=eng#p18)
 
 
-[^a]: OR affairs.
-[^b]: [[Psalms 73.22|Ps. 73:22.]]
+[^a]: OR affairs.  
+[^b]: [[Psalms 73.22|Ps. 73:22]].  

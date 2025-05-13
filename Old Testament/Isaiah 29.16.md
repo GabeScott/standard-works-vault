@@ -5,4 +5,4 @@
 [Isaiah 29:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.16?lang=eng#p16)
 
 
-[^a]: [[Isaiah 45.9|Isa. 45:9]]; [[Isaiah 64.8|64:8.]]
+[^a]: [[Isaiah 45.9|Isa. 45:9]]; [[Isaiah 64.8|64:8]].  

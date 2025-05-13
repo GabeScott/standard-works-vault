@@ -5,5 +5,5 @@
 [Matthew 19:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.8?lang=eng#p8)
 
 
-[^a]: TG [[Hardheartedness, Harden, Hardness]].
-[^b]: TG [[Family, Eternal]].
+[^a]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  
+[^b]: [[Family, Eternal|TG Family, Eternal]].  

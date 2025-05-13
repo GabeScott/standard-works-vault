@@ -5,4 +5,4 @@
 [Mosiah 8:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/8?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Corinthians 12.10|1 Cor. 12:10]]; [[Mosiah 21.28|Mosiah 21:28.]]
+[^a]: [[1 Corinthians 12.10|1 Cor. 12:10]]; [[Mosiah 21.28|Mosiah 21:28]].  

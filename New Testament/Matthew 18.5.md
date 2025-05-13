@@ -5,4 +5,4 @@
 [Matthew 18:5](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.5?lang=eng#p5)
 
 
-[^a]: TG [[Name of the Lord]].
+[^a]: [[Name|TG Name]].  

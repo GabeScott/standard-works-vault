@@ -5,5 +5,5 @@
 [Ezekiel 20:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.20?lang=eng#p20)
 
 
-[^a]: OR keep holy or sanctify.
-[^b]: TG [[Signs]].
+[^a]: OR keep holy or sanctify.  
+[^b]: [[Signs|TG Signs]].  

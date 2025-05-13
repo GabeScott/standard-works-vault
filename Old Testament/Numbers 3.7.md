@@ -5,5 +5,5 @@
 [Numbers 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.7?lang=eng#p7)
 
 
-[^a]: [[Leviticus 8.35|Lev. 8:35.]]
-[^b]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Leviticus 8.35|Lev. 8:35]].  
+[^b]: [[Church|TG Church]].  

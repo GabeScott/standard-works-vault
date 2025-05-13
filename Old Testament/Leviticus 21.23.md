@@ -5,4 +5,4 @@
 [Leviticus 21:23](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/21.23?lang=eng#p23)
 
 
-[^a]: TG [[Veil]].
+[^a]: [[Veil|TG Veil]].  

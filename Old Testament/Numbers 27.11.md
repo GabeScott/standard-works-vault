@@ -5,4 +5,4 @@
 [Numbers 27:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/27.11?lang=eng#p11)
 
 
-[^a]: HEB statutory law.
+[^a]: HEB statutory law.  

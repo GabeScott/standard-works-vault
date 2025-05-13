@@ -5,5 +5,5 @@
 [1 Nephi 11:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p35#p35)
 
 
-[^a]: [[1 Nephi 8.26|1 Ne. 8:26]]; [[1 Nephi 12.18|12:18.]]
-[^b]: [[Micah 3.5|Micah 3:5]]; [[D&C 121.38|D&C 121:38.]]
+[^a]: [[1 Nephi 8.26|1 Ne. 8:26]]; [[1 Nephi 12.18|12:18]].  
+[^b]: [[Micah 3.5|Micah 3:5]]; [[D&C 121.38|D&C 121:38]].  

@@ -5,4 +5,4 @@
 [3 Nephi 17:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p10#p10)
 
 
-[^a]: [[Luke 7.38|Luke 7:38 (38, 45)]]; [[3 Nephi 11.19|3 Ne. 11:19.]]
+[^a]: [[Luke 7.38|Luke 7:38 (38, 45)]][[Luke 7.45|]]; [[3 Nephi 11.19|3 Ne. 11:19]].  

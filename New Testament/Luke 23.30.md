@@ -5,4 +5,4 @@
 [Luke 23:30](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.30?lang=eng#p30)
 
 
-[^a]: [[Hosea 10.8|Hosea 10:8]]; [[Revelation 6.16|Rev. 6:16 (14-17).]]
+[^a]: [[Hosea 10.8|Hosea 10:8]]; [[Revelation 6.14|Rev. 6:16 (14–17)]][[Revelation 6.15|]][[Revelation 6.16|]][[Revelation 6.17|]].  

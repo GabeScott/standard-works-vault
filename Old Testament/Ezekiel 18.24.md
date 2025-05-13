@@ -5,7 +5,7 @@
 [Ezekiel 18:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.24?lang=eng#p24)
 
 
-[^a]: [[Ezekiel 3.20|Ezek. 3:20.]]
-[^b]: [[Ezekiel 33.12|Ezek. 33:12 (12-13, 18).]]
-[^c]: TG [[God, the Standard of Righteousness]].
-[^d]: [[2 Nephi 9.38|2 Ne. 9:38.]]
+[^a]: [[Ezekiel 3.20|Ezek. 3:20]].  
+[^b]: [[Ezekiel 33.12|Ezek. 33:12 (12–13, 18)]][[Ezekiel 33.13|]][[Ezekiel 33.18|]].  
+[^c]: [[Righteousness|TG Righteousness]].  
+[^d]: [[2 Nephi 9.38|2 Ne. 9:38]].  

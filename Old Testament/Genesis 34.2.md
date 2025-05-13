@@ -5,4 +5,4 @@
 [Genesis 34:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/34.2?lang=eng#p2)
 
 
-[^a]: [[Judges 9.28|Judg. 9:28.]]
+[^a]: [[Judges 9.28|Judg. 9:28]].  

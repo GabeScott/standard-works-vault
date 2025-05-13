@@ -5,6 +5,6 @@
 [Alma 17:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 25.17|Alma 25:17]]. TG [[Guidance, Divine]].
-[^b]: [[Mosiah 23.10|Mosiah 23:10]]; [[Alma 26.3|Alma 26:3.]]
-[^c]: [[Alma 3.11|Alma 3:11.]]
+[^a]: [[Alma 25.17|Alma 25:17]]. [[Guidance, Divine|TG Guidance, Divine]].  
+[^b]: [[Mosiah 23.10|Mosiah 23:10]]; [[Alma 26.3|Alma 26:3]].  
+[^c]: [[Alma 3.11|Alma 3:11]].  

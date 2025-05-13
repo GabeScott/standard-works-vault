@@ -5,6 +5,6 @@
 [Isaiah 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.4?lang=eng#p4)
 
 
-[^a]: IE a satirical song.
-[^b]: TG [[Babylon]].
-[^c]: HEB (perhaps) insolent, or proud.
+[^a]: IE a satirical song.  
+[^b]: [[Babylon|TG Babylon]].  
+[^c]: HEB (perhaps) insolent, or proud.  

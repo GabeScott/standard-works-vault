@@ -5,4 +5,4 @@
 [1 Nephi 16:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 17.7|Alma 17:7.]]
+[^a]: [[Alma 17.7|Alma 17:7]].  

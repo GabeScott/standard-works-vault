@@ -5,7 +5,7 @@
 [Matthew 11:27](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.27?lang=eng#p27)
 
 
-[^a]: TG [[Jesus Christ, Messiah]].
-[^b]: TG [[Knowledge]].
-[^c]: JST Matt. 11:28 … and they to whom the Son will reveal himself; they shall see the Father also.
-[^d]: [[Luke 10.22|Luke 10:22]]; [[John 14.6|John 14:6 (6-14)]]. TG [[God, Privilege of Seeing]].
+[^a]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  
+[^b]: [[Knowledge|TG Knowledge]].  
+[^c]: JST Matt. 11:28 … and they to whom the Son will reveal himself; they shall see the Father also.  
+[^d]: [[Luke 10.22|Luke 10:22]]; [[John 14.6|John 14:6 (6–14)]][[John 14.7|]][[John 14.8|]][[John 14.9|]][[John 14.10|]][[John 14.11|]][[John 14.12|]][[John 14.13|]][[John 14.14|]]. [[God, Privilege of Seeing|TG God, Privilege of Seeing]].  

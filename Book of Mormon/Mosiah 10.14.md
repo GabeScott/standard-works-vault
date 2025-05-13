@@ -5,5 +5,5 @@
 [Mosiah 10:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p14#p14)
 
 
-[^a]: [[1 Nephi 18.10|1 Ne. 18:10 (10-11).]]
-[^b]: [[1 Nephi 15.8|1 Ne. 15:8 (8-11)]]; [[2 Nephi 1.25|2 Ne. 1:25 (24-27).]]
+[^a]: [[1 Nephi 18.10|1 Ne. 18:10 (10–11)]][[1 Nephi 18.11|]].  
+[^b]: [[1 Nephi 15.8|1 Ne. 15:8 (8–11)]][[1 Nephi 15.9|]][[1 Nephi 15.10|]][[1 Nephi 15.11|]]; [[2 Nephi 1.24|2 Ne. 1:25 (24–27)]][[2 Nephi 1.25|]][[2 Nephi 1.26|]][[2 Nephi 1.27|]].  

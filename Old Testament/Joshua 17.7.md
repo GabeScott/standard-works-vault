@@ -5,4 +5,4 @@
 [Joshua 17:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/17.7?lang=eng#p7)
 
 
-[^a]: OR border (also v. 9).
+[^a]: OR border (also [[Joshua 17.9|v. 9]]).  

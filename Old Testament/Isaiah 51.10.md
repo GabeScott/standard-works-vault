@@ -5,6 +5,6 @@
 [Isaiah 51:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 14.21|Ex. 14:21.]]
-[^b]: [[Isaiah 35.8|Isa. 35:8 (8-10).]]
-[^c]: [[Isaiah 35.9|Isa. 35:9 (9-10).]]
+[^a]: [[Exodus 14.21|Ex. 14:21]].  
+[^b]: [[Isaiah 35.8|Isa. 35:8 (8–10)]][[Isaiah 35.9|]][[Isaiah 35.10|]].  
+[^c]: [[Isaiah 35.9|Isa. 35:9 (9–10)]][[Isaiah 35.10|]].  

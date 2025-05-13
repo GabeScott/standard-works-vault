@@ -5,4 +5,4 @@
 [Helaman 8:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 40.11|Alma 40:11 (11-12).]]
+[^a]: [[Alma 40.11|Alma 40:11 (11–12)]][[Alma 40.12|]].  

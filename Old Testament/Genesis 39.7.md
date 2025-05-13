@@ -5,4 +5,4 @@
 [Genesis 39:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.7?lang=eng#p7)
 
 
-[^a]: TG [[Sensuality]].
+[^a]: [[Sensuality|TG Sensuality]].  

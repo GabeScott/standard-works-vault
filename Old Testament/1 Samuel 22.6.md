@@ -5,4 +5,4 @@
 [1 Samuel 22:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/22.6?lang=eng#p6)
 
 
-[^a]: OR was sitting.
+[^a]: OR was sitting.  

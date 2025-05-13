@@ -5,4 +5,4 @@
 [Ezra 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/8.18?lang=eng#p18)
 
 
-[^a]: [[Ezra 7.6|Ezra 7:6.]]
+[^a]: [[Ezra 7.6|Ezra 7:6]].  

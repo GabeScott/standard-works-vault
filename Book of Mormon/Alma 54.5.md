@@ -5,4 +5,4 @@
 [Alma 54:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/54?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 48.1|Alma 48:1 (1-6)]]; [[Alma 52.3|52:3 (1-3).]]
+[^a]: [[Alma 48.1|Alma 48:1 (1–6)]][[Alma 48.2|]][[Alma 48.3|]][[Alma 48.4|]][[Alma 48.5|]][[Alma 48.6|]]; [[Alma 52.1|52:3 (1–3)]][[Alma 52.2|]][[Alma 52.3|]].  

@@ -5,5 +5,5 @@
 [1 Corinthians 7:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.22?lang=eng#p22)
 
 
-[^a]: [[Mosiah 5.8|Mosiah 5:8]]; [[D&C 88.86|D&C 88:86.]]
-[^b]: [[Ephesians 6.6|Eph. 6:6]]; Col. 3:24.
+[^a]: [[Mosiah 5.8|Mosiah 5:8]]; [[D&C 88.86|D&C 88:86]].  
+[^b]: [[Ephesians 6.6|Eph. 6:6]]; [[Colossians 3.24|Col. 3:24]].  

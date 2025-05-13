@@ -5,6 +5,6 @@
 [Deuteronomy 17:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/17.20?lang=eng#p20)
 
 
-[^a]: [[D&C 38.24|D&C 38:24.]]
-[^b]: [[Deuteronomy 5.32|Deut. 5:32]]; [[1 Kings 15.5|1 Kgs. 15:5.]]
-[^c]: TG [[Family]].
+[^a]: [[D&C 38.24|D&C 38:24]].  
+[^b]: [[Deuteronomy 5.32|Deut. 5:32]]; [[1 Kings 15.5|1 Kgs. 15:5]].  
+[^c]: [[Family|TG Family]].  

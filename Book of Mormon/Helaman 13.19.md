@@ -5,4 +5,4 @@
 [Helaman 13:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p19#p19)
 
 
-[^a]: [[Proverbs 13.11|Prov. 13:11.]]
+[^a]: [[Proverbs 13.11|Prov. 13:11]].  

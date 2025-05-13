@@ -5,5 +5,5 @@
 [2 Nephi 1:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p26#p26)
 
 
-[^a]: [[Proverbs 15.10|Prov. 15:10]]; [[1 Nephi 16.2|1 Ne. 16:2.]]
-[^b]: W of M 1:17; [[Moroni 9.4|Moro. 9:4]]; [[D&C 121.43|D&C 121:43 (41-43).]]
+[^a]: [[Proverbs 15.10|Prov. 15:10]]; [[1 Nephi 16.2|1 Ne. 16:2]].  
+[^b]: [[Words of Mormon 1.17|W of M 1:17]]; [[Moroni 9.4|Moro. 9:4]]; [[D&C 121.41|D&C 121:43 (41–43)]][[D&C 121.42|]][[D&C 121.43|]].  

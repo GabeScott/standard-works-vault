@@ -5,4 +5,4 @@
 [Acts 25:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/25.25?lang=eng#p25)
 
 
-[^a]: [[Acts 23.29|Acts 23:29.]]
+[^a]: [[Acts 23.29|Acts 23:29]].  

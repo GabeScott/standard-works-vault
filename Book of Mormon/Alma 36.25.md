@@ -5,5 +5,5 @@
 [Alma 36:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Reward]].
-[^b]: TG [[Work, Value of]].
+[^a]: [[Reward|TG Reward]].  
+[^b]: [[Work, Value of|TG Work, Value of]].  

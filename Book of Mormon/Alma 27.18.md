@@ -5,5 +5,5 @@
 [Alma 27:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 28.8|Alma 28:8.]]
-[^b]: TG [[Happiness, Happy]]; [[Objectives]].
+[^a]: [[Alma 28.8|Alma 28:8]].  
+[^b]: [[Happiness, Happy|TG Happiness]]; [[Objectives|Objectives]].  

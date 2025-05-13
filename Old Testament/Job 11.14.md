@@ -5,5 +5,5 @@
 [Job 11:14](https://www.churchofjesuschrist.org/study/scriptures/ot/job/11.14?lang=eng#p14)
 
 
-[^a]: [[Alma 38.8|Alma 38:8.]]
-[^b]: HEB tents.
+[^a]: [[Alma 38.8|Alma 38:8]].  
+[^b]: HEB tents.  

@@ -5,5 +5,5 @@
 [Moses 1:18](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.18?lang=eng#p18)
 
 
-[^a]: TG [[Telestial Glory]]; Jesus Christ, [[Telestial Glory]] of.
-[^b]: [[Matthew 4.10|Matt. 4:10.]]
+[^a]: [[Glory|TG Glory]]; [[Jesus Christ, Glory of|Jesus Christ, Glory of]].  
+[^b]: [[Matthew 4.10|Matt. 4:10]].  

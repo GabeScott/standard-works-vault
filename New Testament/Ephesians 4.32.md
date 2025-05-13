@@ -5,5 +5,5 @@
 [Ephesians 4:32](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.32?lang=eng#p32)
 
 
-[^a]: TG [[Benevolence]]; [[Courtesy]]; [[Family, Love within]]; [[Kindness]].
-[^b]: TG [[Forgive, Forgiveness]].
+[^a]: [[Benevolence|TG Benevolence]]; [[Courtesy|Courtesy]]; [[Family, Love within|Family, Love within]]; [[Kindness|Kindness]].  
+[^b]: [[Forgive, Forgiveness|TG Forgive]].  

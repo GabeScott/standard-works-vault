@@ -5,6 +5,6 @@
 [Romans 14:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.15?lang=eng#p15)
 
 
-[^a]: JST Rom. 14:15 … thou walkest not charitably if thou eatest. Therefore destroy not him with thy meat …
-[^b]: GR according to love.
-[^c]: GR on account of food.
+[^a]: JST Rom. 14:15 … thou walkest not charitably if thou eatest. Therefore destroy not him with thy meat …  
+[^b]: GR according to love.  
+[^c]: GR on account of food.  

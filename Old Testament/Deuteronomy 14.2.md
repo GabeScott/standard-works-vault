@@ -5,5 +5,5 @@
 [Deuteronomy 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.2?lang=eng#p2)
 
 
-[^a]: TG [[Holiness]].
-[^b]: TG [[Abrahamic Covenant]]; [[Peculiar People]].
+[^a]: [[Holiness|TG Holiness]].  
+[^b]: [[Abrahamic Covenant|TG Abrahamic Covenant]]; [[Peculiar People|Peculiar People]].  

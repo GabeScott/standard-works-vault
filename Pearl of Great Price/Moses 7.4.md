@@ -5,7 +5,7 @@
 [Moses 7:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.4?lang=eng#p4)
 
 
-[^a]: TG [[God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Antemortal]].
-[^b]: [[Genesis 32.30|Gen. 32:30]]; [[Deuteronomy 5.4|Deut. 5:4]]; [[Moses 1.11|Moses 1:11 (2, 11, 31).]]
-[^c]: [[Moses 1.4|Moses 1:4.]]
-[^d]: TG [[God, Omniscience of]]; [[Revelation]].
+[^a]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Antemortal|Jesus Christ, Appearances, Antemortal]].  
+[^b]: [[Genesis 32.30|Gen. 32:30]]; [[Deuteronomy 5.4|Deut. 5:4]]; [[Moses 1.11|Moses 1:11 (2, 11, 31)]].  
+[^c]: [[Moses 1.4|Moses 1:4]].  
+[^d]: [[God, Omniscience of|TG God, Omniscience of]]; [[Revelation|Revelation]].  

@@ -5,6 +5,6 @@
 [Acts 7:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.14?lang=eng#p14)
 
 
-[^a]: TG [[Israel, Joseph, People of]].
-[^b]: [[Genesis 45.13|Gen. 45:13.]]
-[^c]: TG [[Israel, Origins of]].
+[^a]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  
+[^b]: [[Genesis 45.13|Gen. 45:13]].  
+[^c]: [[Israel, Origins of|TG Israel, Origins of]].  

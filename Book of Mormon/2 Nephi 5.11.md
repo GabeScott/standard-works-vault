@@ -5,4 +5,4 @@
 [2 Nephi 5:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p11#p11)
 
 
-[^a]: [[Matthew 6.33|Matt. 6:33.]]
+[^a]: [[Matthew 6.33|Matt. 6:33]].  

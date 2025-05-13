@@ -5,4 +5,4 @@
 [Jacob 5:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p31#p31)
 
 
-[^a]: TG [[Jesus Christ, Judge]]; [[Judgment]].
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]]; [[Judgment|Judgment]].  

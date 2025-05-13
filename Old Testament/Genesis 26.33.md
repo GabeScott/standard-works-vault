@@ -5,4 +5,4 @@
 [Genesis 26:33](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.33?lang=eng#p33)
 
 
-[^a]: IE Well of an oath. Gen. 21:31.
+[^a]: IE Well of an oath. [[Genesis 21.31|Gen. 21:31]].  

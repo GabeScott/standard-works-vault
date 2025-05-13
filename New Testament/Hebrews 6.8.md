@@ -5,4 +5,4 @@
 [Hebrews 6:8](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.8?lang=eng#p8)
 
 
-[^a]: [[D&C 104.3|D&C 104:3.]]
+[^a]: [[D&C 104.3|D&C 104:3]].  

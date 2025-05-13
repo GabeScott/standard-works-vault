@@ -5,6 +5,6 @@
 [Jeremiah 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.1?lang=eng#p1)
 
 
-[^a]: [[Jeremiah 21.1|Jer. 21:1]]; [[Jeremiah 38.1|38:1.]]
-[^b]: [[1 Chronicles 24.14|1 Chr. 24:14.]]
-[^c]: OR senior officer.
+[^a]: [[Jeremiah 21.1|Jer. 21:1]]; [[Jeremiah 38.1|38:1]].  
+[^b]: [[1 Chronicles 24.14|1 Chr. 24:14]].  
+[^c]: OR senior officer.  

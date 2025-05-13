@@ -5,4 +5,4 @@
 [2 Kings 6:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/6.22?lang=eng#p22)
 
 
-[^a]: [[Romans 12.20|Rom. 12:20.]]
+[^a]: [[Romans 12.20|Rom. 12:20]].  

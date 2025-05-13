@@ -5,5 +5,5 @@
 [Psalms 116:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.8?lang=eng#p8)
 
 
-[^a]: TG [[Deliver, Deliverance]].
-[^b]: [[Psalms 56.13|Ps. 56:13.]]
+[^a]: [[Deliver, Deliverance|TG Deliver]].  
+[^b]: [[Psalms 56.13|Ps. 56:13]].  

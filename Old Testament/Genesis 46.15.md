@@ -5,4 +5,4 @@
 [Genesis 46:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.15?lang=eng#p15)
 
 
-[^a]: [[Genesis 29.32|Gen. 29:32.]]
+[^a]: [[Genesis 29.32|Gen. 29:32]].  

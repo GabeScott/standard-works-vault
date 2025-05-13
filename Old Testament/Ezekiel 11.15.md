@@ -5,4 +5,4 @@
 [Ezekiel 11:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.15?lang=eng#p15)
 
 
-[^a]: Septuagint and Syriac: thy fellow exiles.
+[^a]: Septuagint and Syriac: thy fellow exiles.  

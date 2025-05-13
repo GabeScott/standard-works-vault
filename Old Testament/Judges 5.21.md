@@ -5,4 +5,4 @@
 [Judges 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.21?lang=eng#p21)
 
 
-[^a]: HEB (perhaps) tread (them) down with might.
+[^a]: HEB (perhaps) tread (them) down with might.  

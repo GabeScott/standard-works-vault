@@ -5,4 +5,4 @@
 [1 Timothy 5:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.19?lang=eng#p19)
 
 
-[^a]: [[Deuteronomy 19.15|Deut. 19:15.]]
+[^a]: [[Deuteronomy 19.15|Deut. 19:15]].  

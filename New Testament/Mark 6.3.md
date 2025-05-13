@@ -5,5 +5,5 @@
 [Mark 6:3](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.3?lang=eng#p3)
 
 
-[^a]: [[Matthew 13.55|Matt. 13:55.]]
-[^b]: TG [[Jesus Christ, Family of]].
+[^a]: [[Matthew 13.55|Matt. 13:55]].  
+[^b]: [[Jesus Christ, Family of|TG Jesus Christ, Family of]].  

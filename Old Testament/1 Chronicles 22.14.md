@@ -5,4 +5,4 @@
 [1 Chronicles 22:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/22.14?lang=eng#p14)
 
 
-[^a]: [[1 Chronicles 29.4|1 Chr. 29:4.]]
+[^a]: [[1 Chronicles 29.4|1 Chr. 29:4]].  

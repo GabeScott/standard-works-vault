@@ -5,4 +5,4 @@
 [Psalms 77:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/77.13?lang=eng#p13)
 
 
-[^a]: HEB holy, sanctified.
+[^a]: HEB holy, sanctified.  

@@ -5,4 +5,4 @@
 [Ether 13:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p22#p22)
 
 
-[^a]: [[Proverbs 29.10|Prov. 29:10.]]
+[^a]: [[Proverbs 29.10|Prov. 29:10]].  

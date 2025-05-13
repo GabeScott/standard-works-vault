@@ -5,4 +5,4 @@
 [Abraham 5:9](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.9?lang=eng#p9)
 
 
-[^a]: [[1 Nephi 11.25|1 Ne. 11:25]]; Moses 4:28, 31.
+[^a]: [[1 Nephi 11.25|1 Ne. 11:25]]; [[Moses 4.28|Moses 4:28, 31]][[Moses 4.31|]].  

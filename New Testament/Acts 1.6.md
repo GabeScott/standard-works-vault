@@ -5,4 +5,4 @@
 [Acts 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.6?lang=eng#p6)
 
 
-[^a]: TG [[Dispensations]].
+[^a]: [[Dispensations|TG Dispensations]].  

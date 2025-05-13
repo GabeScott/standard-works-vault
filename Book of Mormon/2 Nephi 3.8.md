@@ -5,4 +5,4 @@
 [2 Nephi 3:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p8#p8)
 
 
-[^a]: [[D&C 24.9|D&C 24:9 (8-9).]]
+[^a]: [[D&C 24.8|D&C 24:9 (8–9)]][[D&C 24.9|]].  

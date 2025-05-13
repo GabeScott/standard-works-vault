@@ -5,5 +5,5 @@
 [Matthew 23:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.31?lang=eng#p31)
 
 
-[^a]: TG [[Martyrdom]].
-[^b]: TG [[Prophets, Rejection of]].
+[^a]: [[Martyrdom|TG Martyrdom]].  
+[^b]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

@@ -5,4 +5,4 @@
 [Psalms 90:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/90.3?lang=eng#p3)
 
 
-[^a]: HEB returnest man to dust.
+[^a]: HEB returnest man to dust.  

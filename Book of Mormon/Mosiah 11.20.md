@@ -5,5 +5,5 @@
 [Mosiah 11:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p20#p20)
 
 
-[^a]: See accounts of Abinadi in Mosiah 11-17.
-[^b]: TG [[Punish, Punishment]]; [[Reproof, Reprove]].
+[^a]: See accounts of Abinadi in [[Mosiah 11.1|Mosiah 11–17]][[Mosiah 11.2|]][[Mosiah 11.3|]][[Mosiah 11.4|]][[Mosiah 11.5|]][[Mosiah 11.6|]][[Mosiah 11.7|]][[Mosiah 11.8|]][[Mosiah 11.9|]][[Mosiah 11.10|]][[Mosiah 11.11|]][[Mosiah 11.12|]][[Mosiah 11.13|]][[Mosiah 11.14|]][[Mosiah 11.15|]][[Mosiah 11.16|]][[Mosiah 11.17|]][[Mosiah 11.18|]][[Mosiah 11.19|]][[Mosiah 11.20|]][[Mosiah 11.21|]][[Mosiah 11.22|]][[Mosiah 11.23|]][[Mosiah 11.24|]][[Mosiah 11.25|]][[Mosiah 11.26|]][[Mosiah 11.27|]][[Mosiah 11.28|]][[Mosiah 11.29|]].  
+[^b]: [[Punish, Punishment|TG Punish]]; [[Reproof, Reprove|Reproof]].  

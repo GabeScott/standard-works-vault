@@ -5,6 +5,6 @@
 [Job 28:28](https://www.churchofjesuschrist.org/study/scriptures/ot/job/28.28?lang=eng#p28)
 
 
-[^a]: TG [[Reverence]].
-[^b]: TG [[God, the Standard of Righteousness]]; [[Wisdom]].
-[^c]: TG [[Understanding]].
+[^a]: [[Reverence|TG Reverence]].  
+[^b]: [[God, the Standard of Righteousness|TG God, the Standard of Righteousness]]; [[Wisdom|Wisdom]].  
+[^c]: [[Understanding|TG Understanding]].  

@@ -5,4 +5,4 @@
 [Jeremiah 21:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/21.4?lang=eng#p4)
 
 
-[^a]: OR outside.
+[^a]: OR outside.  

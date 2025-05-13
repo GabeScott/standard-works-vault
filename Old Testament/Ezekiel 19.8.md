@@ -5,6 +5,6 @@
 [Ezekiel 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/19.8?lang=eng#p8)
 
 
-[^a]: [[2 Kings 24.2|2 Kgs. 24:2.]]
-[^b]: [[Helaman 4.26|Hel. 4:26.]]
-[^c]: Lam. 4:20.
+[^a]: [[2 Kings 24.2|2 Kgs. 24:2]].  
+[^b]: [[Helaman 4.26|Hel. 4:26]].  
+[^c]: [[Lamentations 4.20|Lam. 4:20]].  

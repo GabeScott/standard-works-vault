@@ -5,4 +5,4 @@
 [2 Peter 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.18?lang=eng#p18)
 
 
-[^a]: TG [[Grace]].
+[^a]: [[Grace|TG Grace]].  

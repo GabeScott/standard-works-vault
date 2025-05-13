@@ -5,4 +5,4 @@
 [2 Corinthians 12:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.14?lang=eng#p14)
 
 
-[^a]: [[1 Corinthians 10.33|1 Cor. 10:33.]]
+[^a]: [[1 Corinthians 10.33|1 Cor. 10:33]].  

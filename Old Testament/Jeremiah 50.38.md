@@ -5,5 +5,5 @@
 [Jeremiah 50:38](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.38?lang=eng#p38)
 
 
-[^a]: TG [[Drought]].
-[^b]: [[Isaiah 44.27|Isa. 44:27]]; [[Jeremiah 51.36|Jer. 51:36.]]
+[^a]: [[Drought|TG Drought]].  
+[^b]: [[Isaiah 44.27|Isa. 44:27]]; [[Jeremiah 51.36|Jer. 51:36]].  

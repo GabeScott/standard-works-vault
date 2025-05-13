@@ -5,4 +5,4 @@
 [Ezekiel 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.13?lang=eng#p13)
 
 
-[^a]: [[Leviticus 26.26|Lev. 26:26.]]
+[^a]: [[Leviticus 26.26|Lev. 26:26]].  

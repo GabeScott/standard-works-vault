@@ -5,5 +5,5 @@
 [Alma 8:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p13#p13)
 
 
-[^a]: [[1 Corinthians 4.12|1 Cor. 4:12.]]
-[^b]: [[Alma 8.24|Alma 8:24.]]
+[^a]: [[1 Corinthians 4.12|1 Cor. 4:12]].  
+[^b]: [[Alma 8.24|Alma 8:24]].  

@@ -5,5 +5,5 @@
 [Luke 21:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.14?lang=eng#p14)
 
 
-[^a]: GR practice, prepare. TG [[Meditation, Meditate]].
-[^b]: [[D&C 84.85|D&C 84:85.]]
+[^a]: GR practice, prepare. [[Meditation, Meditate|TG Meditation]].  
+[^b]: [[D&C 84.85|D&C 84:85]].  

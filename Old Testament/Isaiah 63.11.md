@@ -5,8 +5,8 @@
 [Isaiah 63:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.11?lang=eng#p11)
 
 
-[^a]: IE His people remembered.
-[^b]: TG [[Israel, Deliverance of]].
-[^c]: OR shepherds.
-[^d]: TG [[Apostasy of the Early Christian Church]].
-[^e]: OR them.
+[^a]: IE His people remembered.  
+[^b]: [[Israel, Deliverance of|TG Israel, Deliverance of]].  
+[^c]: OR shepherds.  
+[^d]: [[Church|TG Church]].  
+[^e]: OR them.  

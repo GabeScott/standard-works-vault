@@ -5,5 +5,5 @@
 [Habakkuk 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.13?lang=eng#p13)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]]; [[Jesus Christ, Redeemer]]; [[Jesus Christ, Savior]]; [[Remission of Sins]]; [[Salvation for the Dead]].
-[^b]: [[Psalms 68.21|Ps. 68:21.]]
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]]; [[Jesus Christ, Redeemer|Jesus Christ, Redeemer]]; [[Jesus Christ, Savior|Jesus Christ, Savior]]; [[Remission of Sins|Remission of Sins]]; [[Salvation|Salvation]].  
+[^b]: [[Psalms 68.21|Ps. 68:21]].  

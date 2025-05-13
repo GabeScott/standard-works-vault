@@ -5,7 +5,7 @@
 [Acts 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.11?lang=eng#p11)
 
 
-[^a]: 1 Thes. 1:10.
-[^b]: TG [[Jesus Christ, Ascension of]].
-[^c]: [[John 14.3|John 14:3 (1-4).]]
-[^d]: TG [[Jesus Christ, Second Coming]].
+[^a]: [[1 Thessalonians 1.10|1 Thes. 1:10]].  
+[^b]: [[Jesus Christ, Ascension of|TG Jesus Christ, Ascension of]].  
+[^c]: [[John 14.1|John 14:3 (1–4)]][[John 14.2|]][[John 14.3|]][[John 14.4|]].  
+[^d]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  

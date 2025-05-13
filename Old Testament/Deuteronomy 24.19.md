@@ -5,4 +5,4 @@
 [Deuteronomy 24:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.19?lang=eng#p19)
 
 
-[^a]: [[Ruth 2.2|Ruth 2:2]]. TG [[Poor]]; [[Welfare]].
+[^a]: [[Ruth 2.2|Ruth 2:2]]. [[Poor|TG Poor]]; [[Welfare|Welfare]].  

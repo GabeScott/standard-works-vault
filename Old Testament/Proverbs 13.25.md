@@ -5,4 +5,4 @@
 [Proverbs 13:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.25?lang=eng#p25)
 
 
-[^a]: [[Psalms 34.10|Ps. 34:10]]; [[2 Nephi 9.51|2 Ne. 9:51 (50-51).]]
+[^a]: [[Psalms 34.10|Ps. 34:10]]; [[2 Nephi 9.50|2 Ne. 9:51 (50–51)]][[2 Nephi 9.51|]].  

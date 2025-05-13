@@ -5,4 +5,4 @@
 [2 Chronicles 28:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.27?lang=eng#p27)
 
 
-[^a]: [[2 Chronicles 21.20|2 Chr. 21:20]]; [[2 Chronicles 24.25|24:25.]]
+[^a]: [[2 Chronicles 21.20|2 Chr. 21:20]]; [[2 Chronicles 24.25|24:25]].  

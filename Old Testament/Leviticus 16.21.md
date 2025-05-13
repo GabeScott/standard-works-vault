@@ -5,6 +5,6 @@
 [Leviticus 16:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.21?lang=eng#p21)
 
 
-[^a]: TG [[Hands, Laying on of]].
-[^b]: [[Hebrews 10.3|Heb. 10:3]]. TG [[Confession]].
-[^c]: HEB appointed.
+[^a]: [[Hands, Laying on of|TG Hands, Laying on of]].  
+[^b]: [[Hebrews 10.3|Heb. 10:3]]. [[Confession|TG Confession]].  
+[^c]: HEB appointed.  

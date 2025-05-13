@@ -5,5 +5,5 @@
 [Isaiah 28:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 30.30|Isa. 30:30 (29-31).]]
-[^b]: [[Ezekiel 38.9|Ezek. 38:9.]]
+[^a]: [[Isaiah 30.29|Isa. 30:30 (29–31)]][[Isaiah 30.30|]][[Isaiah 30.31|]].  
+[^b]: [[Ezekiel 38.9|Ezek. 38:9]].  

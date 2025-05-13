@@ -5,4 +5,4 @@
 [Isaiah 34:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/34.13?lang=eng#p13)
 
 
-[^a]: HEB the resort of jackals.
+[^a]: HEB the resort of jackals.  

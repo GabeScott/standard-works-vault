@@ -5,4 +5,4 @@
 [1 Kings 8:39](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.39?lang=eng#p39)
 
 
-[^a]: [[D&C 6.16|D&C 6:16.]]
+[^a]: [[D&C 6.16|D&C 6:16]].  

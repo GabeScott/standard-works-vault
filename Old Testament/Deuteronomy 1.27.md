@@ -5,4 +5,4 @@
 [Deuteronomy 1:27](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.27?lang=eng#p27)
 
 
-[^a]: TG [[Murmuring, Murmur]].
+[^a]: [[Murmuring, Murmur|TG Murmuring]].  

@@ -5,5 +5,5 @@
 [Romans 11:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.11?lang=eng#p11)
 
 
-[^a]: GR May it not be!
-[^b]: TG [[Jealous, Jealousy]].
+[^a]: GR May it not be!  
+[^b]: [[Jealous, Jealousy|TG Jealous]].  

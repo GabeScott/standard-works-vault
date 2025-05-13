@@ -5,4 +5,4 @@
 [Jeremiah 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.11?lang=eng#p11)
 
 
-[^a]: TG [[Vision]].
+[^a]: [[Vision|TG Vision]].  

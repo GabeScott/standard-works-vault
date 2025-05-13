@@ -5,5 +5,5 @@
 [Helaman 15:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p2#p2)
 
 
-[^a]: TG [[Refuge]].
-[^b]: [[Matthew 24.19|Matt. 24:19.]]
+[^a]: [[Refuge|TG Refuge]].  
+[^b]: [[Matthew 24.19|Matt. 24:19]].  

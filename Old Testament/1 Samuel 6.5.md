@@ -5,4 +5,4 @@
 [1 Samuel 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.5?lang=eng#p5)
 
 
-[^a]: [[Joshua 7.19|Josh. 7:19.]]
+[^a]: [[Joshua 7.19|Josh. 7:19]].  

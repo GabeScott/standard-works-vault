@@ -5,4 +5,4 @@
 [Numbers 31:27](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.27?lang=eng#p27)
 
 
-[^a]: OR took part in the war.
+[^a]: OR took part in the war.  

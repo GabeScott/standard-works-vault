@@ -5,4 +5,4 @@
 [Ezra 10:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/10.15?lang=eng#p15)
 
 
-[^a]: HEB (probably) stood up against this.
+[^a]: HEB (probably) stood up against this.  

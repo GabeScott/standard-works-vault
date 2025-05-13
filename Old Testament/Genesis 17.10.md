@@ -5,5 +5,5 @@
 [Genesis 17:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.10?lang=eng#p10)
 
 
-[^a]: TG [[Covenants]].
-[^b]: TG [[Circumcision]].
+[^a]: [[Covenants|TG Covenants]].  
+[^b]: [[Circumcision|TG Circumcision]].  

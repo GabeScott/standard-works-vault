@@ -5,4 +5,4 @@
 [Galatians 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.13?lang=eng#p13)
 
 
-[^a]: GR hypocrisy.
+[^a]: GR hypocrisy.  

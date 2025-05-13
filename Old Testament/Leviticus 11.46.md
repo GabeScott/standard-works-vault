@@ -5,4 +5,4 @@
 [Leviticus 11:46](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.46?lang=eng#p46)
 
 
-[^a]: HEB the teaching concerning the beast and the fowl.
+[^a]: HEB the teaching concerning the beast and the fowl.  

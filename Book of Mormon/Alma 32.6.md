@@ -5,6 +5,6 @@
 [Alma 32:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Adversity]].
-[^b]: TG [[Humility, Humble]]; [[Teachable]].
-[^c]: [[Proverbs 16.1|Prov. 16:1]]; [[Alma 16.16|Alma 16:16 (16-17)]]; [[D&C 101.8|D&C 101:8.]]
+[^a]: [[Adversity|TG Adversity]].  
+[^b]: [[Humility, Humble|TG Humility]]; [[Teachable|Teachable]].  
+[^c]: [[Proverbs 16.1|Prov. 16:1]]; [[Alma 16.16|Alma 16:16 (16–17)]][[Alma 16.17|]]; [[D&C 101.8|D&C 101:8]].  

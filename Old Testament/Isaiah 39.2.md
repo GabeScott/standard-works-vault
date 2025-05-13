@@ -5,4 +5,4 @@
 [Isaiah 39:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/39.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 18.15|2 Kgs. 18:15 (15-16).]]
+[^a]: [[2 Kings 18.15|2 Kgs. 18:15 (15–16)]][[2 Kings 18.16|]].  

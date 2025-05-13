@@ -5,4 +5,4 @@
 [2 Samuel 6:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.19?lang=eng#p19)
 
 
-[^a]: HEB (perhaps) a raisin-cake.
+[^a]: HEB (perhaps) a raisin-cake.  

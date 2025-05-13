@@ -5,4 +5,4 @@
 [1 Timothy 6:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.11?lang=eng#p11)
 
 
-[^a]: TG [[Priesthood, Magnifying Callings within]]; [[God, the Standard of Righteousness]].
+[^a]: [[Priesthood, Magnifying Callings within|TG Priesthood, Magnifying Callings within]]; [[Righteousness|Righteousness]].  

@@ -5,5 +5,5 @@
 [2 Nephi 19:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Israel, Joseph, People of]].
-[^b]: TG [[Israel, Judah, People of]].
+[^a]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  
+[^b]: [[Israel, Judah, People of|TG Israel, Judah, People of]].  

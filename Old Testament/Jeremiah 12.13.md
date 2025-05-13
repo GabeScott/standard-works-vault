@@ -5,4 +5,4 @@
 [Jeremiah 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/12.13?lang=eng#p13)
 
 
-[^a]: OR taken pains.
+[^a]: OR taken pains.  

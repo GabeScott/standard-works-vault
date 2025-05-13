@@ -5,4 +5,4 @@
 [Numbers 35:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.7?lang=eng#p7)
 
 
-[^a]: [[Joshua 21.41|Josh. 21:41.]]
+[^a]: [[Joshua 21.41|Josh. 21:41]].  

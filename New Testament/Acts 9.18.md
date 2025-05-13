@@ -5,5 +5,5 @@
 [Acts 9:18](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.18?lang=eng#p18)
 
 
-[^a]: TG [[Sight]].
-[^b]: TG [[Baptism, Essential]].
+[^a]: [[Sight|TG Sight]].  
+[^b]: [[Baptism, Essential|TG Baptism, Essential]].  

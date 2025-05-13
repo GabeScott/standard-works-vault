@@ -5,6 +5,6 @@
 [Numbers 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.10?lang=eng#p10)
 
 
-[^a]: TG [[Bishop]].
-[^b]: TG [[Birthright]].
-[^c]: IE the unauthorized person who presumes to officiate.
+[^a]: [[Bishop|TG Bishop]].  
+[^b]: [[Birthright|TG Birthright]].  
+[^c]: IE the unauthorized person who presumes to officiate.  

@@ -5,4 +5,4 @@
 [Acts 21:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.13?lang=eng#p13)
 
 
-[^a]: [[Acts 20.24|Acts 20:24]]; [[D&C 103.28|D&C 103:28 (27-28).]]
+[^a]: [[Acts 20.24|Acts 20:24]]; [[D&C 103.27|D&C 103:28 (27–28)]][[D&C 103.28|]].  

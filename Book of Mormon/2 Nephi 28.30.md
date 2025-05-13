@@ -5,7 +5,7 @@
 [2 Nephi 28:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p30#p30)
 
 
-[^a]: [[Proverbs 2.9|Prov. 2:9 (9-11)]]; [[Isaiah 28.13|Isa. 28:13 (9-13)]]; [[D&C 98.12|D&C 98:12.]]
-[^b]: [[Proverbs 14.8|Prov. 14:8]]. TG [[Wisdom]].
-[^c]: [[Luke 8.18|Luke 8:18.]]
-[^d]: [[Alma 12.10|Alma 12:10]]; [[D&C 50.24|D&C 50:24.]]
+[^a]: [[Proverbs 2.9|Prov. 2:9 (9–11)]][[Proverbs 2.10|]][[Proverbs 2.11|]]; [[Isaiah 28.9|Isa. 28:13 (9–13)]][[Isaiah 28.10|]][[Isaiah 28.11|]][[Isaiah 28.12|]][[Isaiah 28.13|]]; [[D&C 98.12|D&C 98:12]].  
+[^b]: [[Proverbs 14.8|Prov. 14:8]]. [[Wisdom|TG Wisdom]].  
+[^c]: [[Luke 8.18|Luke 8:18]].  
+[^d]: [[Alma 12.10|Alma 12:10]]; [[D&C 50.24|D&C 50:24]].  

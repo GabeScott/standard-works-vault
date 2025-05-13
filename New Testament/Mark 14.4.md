@@ -5,4 +5,4 @@
 [Mark 14:4](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.4?lang=eng#p4)
 
 
-[^a]: [[D&C 117.4|D&C 117:4 (4-7).]]
+[^a]: [[D&C 117.4|D&C 117:4 (4–7)]][[D&C 117.5|]][[D&C 117.6|]][[D&C 117.7|]].  

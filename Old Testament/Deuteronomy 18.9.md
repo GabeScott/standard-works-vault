@@ -5,5 +5,5 @@
 [Deuteronomy 18:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.9?lang=eng#p9)
 
 
-[^a]: [[Leviticus 18.28|Lev. 18:28 (26-30)]]; [[Isaiah 65.9|Isa. 65:9]]; [[Ezekiel 34.13|Ezek. 34:13.]]
-[^b]: [[2 Kings 23.24|2 Kgs. 23:24.]]
+[^a]: [[Leviticus 18.26|Lev. 18:28 (26–30)]][[Leviticus 18.27|]][[Leviticus 18.28|]][[Leviticus 18.29|]][[Leviticus 18.30|]]; [[Isaiah 65.9|Isa. 65:9]]; [[Ezekiel 34.13|Ezek. 34:13]].  
+[^b]: [[2 Kings 23.24|2 Kgs. 23:24]].  

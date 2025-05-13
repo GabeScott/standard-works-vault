@@ -5,4 +5,4 @@
 [Hebrews 10:12](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.12?lang=eng#p12)
 
 
-[^a]: TG [[Self-Sacrifice]]; Self-[[Self-Sacrifice]].
+[^a]: [[Sacrifice|TG Sacrifice]]; [[Self-Sacrifice|Self-Sacrifice]].  

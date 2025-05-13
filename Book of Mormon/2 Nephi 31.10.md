@@ -5,5 +5,5 @@
 [2 Nephi 31:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p10#p10)
 
 
-[^a]: [[Matthew 4.19|Matt. 4:19]]; [[Matthew 8.22|8:22]]; [[Matthew 9.9|9:9.]]
-[^b]: [[Matthew 8.19|Matt. 8:19]]; [[Moroni 7.11|Moro. 7:11]]; [[D&C 56.2|D&C 56:2.]]
+[^a]: [[Matthew 4.19|Matt. 4:19]]; [[Matthew 8.22|8:22]]; [[Matthew 9.9|9:9]].  
+[^b]: [[Matthew 8.19|Matt. 8:19]]; [[Moroni 7.11|Moro. 7:11]]; [[D&C 56.2|D&C 56:2]].  

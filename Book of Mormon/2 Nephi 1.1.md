@@ -5,4 +5,4 @@
 [2 Nephi 1:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p1#p1)
 
 
-[^a]: TG [[Family, Patriarchal]].
+[^a]: [[Patriarch|TG Patriarch]].  

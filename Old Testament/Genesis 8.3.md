@@ -5,6 +5,6 @@
 [Genesis 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.3?lang=eng#p3)
 
 
-[^a]: [[Ether 13.2|Ether 13:2.]]
-[^b]: TG [[Flood, Noah’s]].
-[^c]: OR had decreased.
+[^a]: [[Ether 13.2|Ether 13:2]].  
+[^b]: [[Flood|TG Flood]].  
+[^c]: OR had decreased.  

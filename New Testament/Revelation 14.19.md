@@ -5,4 +5,4 @@
 [Revelation 14:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.19?lang=eng#p19)
 
 
-[^a]: [[Isaiah 63.3|Isa. 63:3 (3-4)]]; [[Joel 3.13|Joel 3:13]]; [[Revelation 19.15|Rev. 19:15]]; [[D&C 88.106|D&C 88:106.]]
+[^a]: [[Isaiah 63.3|Isa. 63:3 (3–4)]][[Isaiah 63.4|]]; [[Joel 3.13|Joel 3:13]]; [[Revelation 19.15|Rev. 19:15]]; [[D&C 88.106|D&C 88:106]].  

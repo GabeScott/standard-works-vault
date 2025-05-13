@@ -5,4 +5,4 @@
 [Exodus 15:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.27?lang=eng#p27)
 
 
-[^a]: IE seventy palm trees.
+[^a]: IE seventy palm trees.  

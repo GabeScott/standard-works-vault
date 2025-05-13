@@ -5,4 +5,4 @@
 [1 Chronicles 29:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.25?lang=eng#p25)
 
 
-[^a]: [[Joshua 3.7|Josh. 3:7.]]
+[^a]: [[Joshua 3.7|Josh. 3:7]].  

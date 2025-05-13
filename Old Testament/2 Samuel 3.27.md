@@ -5,5 +5,5 @@
 [2 Samuel 3:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/3.27?lang=eng#p27)
 
 
-[^a]: 1 Kgs. 2:5, 32.
-[^b]: [[2 Samuel 2.23|2 Sam. 2:23.]]
+[^a]: [[1 Kings 2.5|1 Kgs. 2:5, 32]][[1 Kings 2.32|]].  
+[^b]: [[2 Samuel 2.23|2 Sam. 2:23]].  

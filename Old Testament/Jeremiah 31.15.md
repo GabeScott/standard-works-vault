@@ -5,4 +5,4 @@
 [Jeremiah 31:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.15?lang=eng#p15)
 
 
-[^a]: [[Matthew 2.18|Matt. 2:18.]]
+[^a]: [[Matthew 2.18|Matt. 2:18]].  

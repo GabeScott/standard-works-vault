@@ -5,5 +5,5 @@
 [Romans 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.8?lang=eng#p8)
 
 
-[^a]: [[Romans 16.19|Rom. 16:19.]]
-[^b]: GR proclaimed.
+[^a]: [[Romans 16.19|Rom. 16:19]].  
+[^b]: GR proclaimed.  

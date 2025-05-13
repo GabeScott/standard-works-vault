@@ -5,4 +5,4 @@
 [2 Kings 19:34](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.34?lang=eng#p34)
 
 
-[^a]: [[Hosea 1.7|Hosea 1:7.]]
+[^a]: [[Hosea 1.7|Hosea 1:7]].  

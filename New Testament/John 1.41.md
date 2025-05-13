@@ -5,4 +5,4 @@
 [John 1:41](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.41?lang=eng#p41)
 
 
-[^a]: TG [[Jesus Christ, Messiah]].
+[^a]: [[Jesus Christ, Messiah|TG Jesus Christ, Messiah]].  

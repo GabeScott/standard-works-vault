@@ -5,4 +5,4 @@
 [Numbers 5:17](https://www.churchofjesuschrist.org/study/scriptures/ot/num/5.17?lang=eng#p17)
 
 
-[^a]: OR consecrated water; i.e., for use in purifications.
+[^a]: OR consecrated water; i.e., for use in purifications.  

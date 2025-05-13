@@ -5,5 +5,5 @@
 [1 Kings 8:37](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.37?lang=eng#p37)
 
 
-[^a]: Septuagint: any of their cities.
-[^b]: TG [[Sickness, Sick]].
+[^a]: Septuagint: any of their cities.  
+[^b]: [[Sickness, Sick|TG Sickness]].  

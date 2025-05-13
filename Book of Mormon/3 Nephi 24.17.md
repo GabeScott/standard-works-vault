@@ -5,5 +5,5 @@
 [3 Nephi 24:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/24?lang=eng&id=p17#p17)
 
 
-[^a]: [[Leviticus 20.26|Lev. 20:26.]]
-[^b]: [[D&C 101.3|D&C 101:3.]]
+[^a]: [[Leviticus 20.26|Lev. 20:26]].  
+[^b]: [[D&C 101.3|D&C 101:3]].  

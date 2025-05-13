@@ -5,5 +5,5 @@
 [1 Nephi 13:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p7#p7)
 
 
-[^a]: [[Mormon 8.37|Morm. 8:37 (36-38).]]
-[^b]: [[Ether 10.24|Ether 10:24.]]
+[^a]: [[Mormon 8.36|Morm. 8:37 (36–38)]][[Mormon 8.37|]][[Mormon 8.38|]].  
+[^b]: [[Ether 10.24|Ether 10:24]].  

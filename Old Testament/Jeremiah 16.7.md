@@ -5,4 +5,4 @@
 [Jeremiah 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.7?lang=eng#p7)
 
 
-[^a]: HEB break bread.
+[^a]: HEB break bread.  

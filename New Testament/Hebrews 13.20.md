@@ -5,6 +5,6 @@
 [Hebrews 13:20](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.20?lang=eng#p20)
 
 
-[^a]: TG [[Jesus Christ, Good Shepherd]]; [[Shepherd]].
-[^b]: TG [[New and Everlasting Covenant]].
-[^c]: TG [[Covenants]].
+[^a]: [[Jesus Christ, Good Shepherd|TG Jesus Christ, Good Shepherd]]; [[Shepherd|Shepherd]].  
+[^b]: [[New and Everlasting Covenant|TG New and Everlasting Covenant]].  
+[^c]: [[Covenants|TG Covenants]].  

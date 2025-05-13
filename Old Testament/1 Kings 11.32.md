@@ -5,4 +5,4 @@
 [1 Kings 11:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.32?lang=eng#p32)
 
 
-[^a]: Septuagint: two tribes.
+[^a]: Septuagint: two tribes.  

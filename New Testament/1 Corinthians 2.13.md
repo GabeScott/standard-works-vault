@@ -5,5 +5,5 @@
 [1 Corinthians 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.13?lang=eng#p13)
 
 
-[^a]: [[2 Corinthians 1.12|2 Cor. 1:12.]]
-[^b]: TG [[Holy Ghost, Mission of]].
+[^a]: [[2 Corinthians 1.12|2 Cor. 1:12]].  
+[^b]: [[Holy Ghost, Mission of|TG Holy Ghost, Mission of]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 8:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.5?lang=eng#p5)
 
 
-[^a]: TG [[Chastening]].
+[^a]: [[Chastening|TG Chastening]].  

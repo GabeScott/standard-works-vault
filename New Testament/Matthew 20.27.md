@@ -5,5 +5,5 @@
 [Matthew 20:27](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.27?lang=eng#p27)
 
 
-[^a]: GR desires to be.
-[^b]: TG [[Humility, Humble]]; [[Self-Sacrifice]]; [[Servant]]; [[Service]].
+[^a]: GR desires to be.  
+[^b]: [[Humility, Humble|TG Humility]]; [[Self-Sacrifice|Self-Sacrifice]]; [[Servant|Servant]]; [[Service|Service]].  

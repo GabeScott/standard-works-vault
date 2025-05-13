@@ -5,5 +5,5 @@
 [Hebrews 13:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.3?lang=eng#p3)
 
 
-[^a]: [[Matthew 25.36|Matt. 25:36]]; Col. 4:18.
-[^b]: TG [[Compassion]].
+[^a]: [[Matthew 25.36|Matt. 25:36]]; [[Colossians 4.18|Col. 4:18]].  
+[^b]: [[Compassion|TG Compassion]].  

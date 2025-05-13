@@ -5,4 +5,4 @@
 [Judges 18:30](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.30?lang=eng#p30)
 
 
-[^a]: HEB Moses, altered to Manasseh. See Ex. 2:22; 18:3.
+[^a]: HEB Moses, altered to Manasseh. See [[Exodus 2.22|Ex. 2:22]]; [[Exodus 18.3|18:3]].  

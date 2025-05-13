@@ -5,4 +5,4 @@
 [Genesis 7:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/7.17?lang=eng#p17)
 
 
-[^a]: OR it rose high above the ground.
+[^a]: OR it rose high above the ground.  

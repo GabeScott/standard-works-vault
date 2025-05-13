@@ -5,6 +5,6 @@
 [1 Nephi 13:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p14#p14)
 
 
-[^a]: [[2 Nephi 1.11|2 Ne. 1:11]]; [[Mormon 5.19|Morm. 5:19 (19-20).]]
-[^b]: TG [[Promised Lands]].
-[^c]: [[1 Nephi 22.7|1 Ne. 22:7]]. TG [[Israel, Scattering of]].
+[^a]: [[2 Nephi 1.11|2 Ne. 1:11]]; [[Mormon 5.19|Morm. 5:19 (19–20)]][[Mormon 5.20|]].  
+[^b]: [[Promised Lands|TG Promised Lands]].  
+[^c]: [[1 Nephi 22.7|1 Ne. 22:7]]. [[Israel, Scattering of|TG Israel, Scattering of]].  

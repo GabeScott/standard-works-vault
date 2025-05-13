@@ -5,4 +5,4 @@
 [1 Nephi 17:50](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p50#p50)
 
 
-[^a]: Philip. 4:13; [[1 Nephi 3.7|1 Ne. 3:7]]; [[D&C 24.13|D&C 24:13.]]
+[^a]: [[Philippians 4.13|Philip. 4:13]]; [[1 Nephi 3.7|1 Ne. 3:7]]; [[D&C 24.13|D&C 24:13]].  

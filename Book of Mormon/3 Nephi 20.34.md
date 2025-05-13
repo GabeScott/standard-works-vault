@@ -5,4 +5,4 @@
 [3 Nephi 20:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p34#p34)
 
 
-[^a]: [[Isaiah 54.1|Isa. 54:1.]]
+[^a]: [[Isaiah 54.1|Isa. 54:1]].  

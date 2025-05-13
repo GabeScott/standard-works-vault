@@ -5,4 +5,4 @@
 [Revelation 7:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.11?lang=eng#p11)
 
 
-[^a]: TG [[Cherubim]].
+[^a]: [[Cherubim|TG Cherubim]].  

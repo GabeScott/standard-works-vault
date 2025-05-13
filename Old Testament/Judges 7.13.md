@@ -5,6 +5,6 @@
 [Judges 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7.13?lang=eng#p13)
 
 
-[^a]: TG [[Dream]].
-[^b]: HEB camp.
-[^c]: IE the tent lay flat.
+[^a]: [[Dream|TG Dream]].  
+[^b]: HEB camp.  
+[^c]: IE the tent lay flat.  

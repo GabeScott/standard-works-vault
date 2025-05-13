@@ -5,4 +5,4 @@
 [Hebrews 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.13?lang=eng#p13)
 
 
-[^a]: [[Psalms 110.1|Ps. 110:1.]]
+[^a]: [[Psalms 110.1|Ps. 110:1]].  

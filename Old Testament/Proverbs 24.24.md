@@ -5,4 +5,4 @@
 [Proverbs 24:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.24?lang=eng#p24)
 
 
-[^a]: [[Proverbs 17.15|Prov. 17:15]]; [[D&C 121.20|D&C 121:20.]]
+[^a]: [[Proverbs 17.15|Prov. 17:15]]; [[D&C 121.20|D&C 121:20]].  

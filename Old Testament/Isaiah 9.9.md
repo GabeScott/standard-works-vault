@@ -5,4 +5,4 @@
 [Isaiah 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.9?lang=eng#p9)
 
 
-[^a]: [[2 Nephi 9.28|2 Ne. 9:28 (28-29).]]
+[^a]: [[2 Nephi 9.28|2 Ne. 9:28 (28–29)]][[2 Nephi 9.29|]].  

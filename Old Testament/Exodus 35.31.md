@@ -5,5 +5,5 @@
 [Exodus 35:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.31?lang=eng#p31)
 
 
-[^a]: TG [[Wisdom]].
-[^b]: TG [[Industry, Industrious]].
+[^a]: [[Wisdom|TG Wisdom]].  
+[^b]: [[Industry, Industrious|TG Industry]].  

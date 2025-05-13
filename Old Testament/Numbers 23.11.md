@@ -5,5 +5,5 @@
 [Numbers 23:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/23.11?lang=eng#p11)
 
 
-[^a]: [[Nehemiah 13.2|Neh. 13:2.]]
-[^b]: [[Deuteronomy 23.5|Deut. 23:5.]]
+[^a]: [[Nehemiah 13.2|Neh. 13:2]].  
+[^b]: [[Deuteronomy 23.5|Deut. 23:5]].  

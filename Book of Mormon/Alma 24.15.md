@@ -5,5 +5,5 @@
 [Alma 24:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 25.14|Alma 25:14]]; [[Alma 26.32|26:32.]]
-[^b]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Alma 25.14|Alma 25:14]]; [[Alma 26.32|26:32]].  
+[^b]: [[Purification, Purify, Purifying|TG Purification]].  

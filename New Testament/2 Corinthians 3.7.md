@@ -5,5 +5,5 @@
 [2 Corinthians 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/3.7?lang=eng#p7)
 
 
-[^a]: [[Romans 7.10|Rom. 7:10.]]
-[^b]: TG [[Transfiguration, Transfigured]].
+[^a]: [[Romans 7.10|Rom. 7:10]].  
+[^b]: [[Transfiguration, Transfigured|TG Transfiguration]].  

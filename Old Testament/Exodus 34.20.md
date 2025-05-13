@@ -5,4 +5,4 @@
 [Exodus 34:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.20?lang=eng#p20)
 
 
-[^a]: TG [[Firstborn]].
+[^a]: [[Firstborn|TG Firstborn]].  

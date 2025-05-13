@@ -5,7 +5,7 @@
 [Isaiah 60:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.2?lang=eng#p2)
 
 
-[^a]: IE ignorance and wickedness. D&C 112:23. TG [[Apostasy of the Early Christian Church]].
-[^b]: TG [[Darkness, Spiritual]].
-[^c]: OR shine upon, illuminate thee. TG [[Jesus Christ, Second Coming]].
-[^d]: TG [[Jesus Christ, Glory of]].
+[^a]: IE ignorance and wickedness. [[D&C 112.23|D&C 112:23]]. [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  
+[^b]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  
+[^c]: OR shine upon, illuminate thee. [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  
+[^d]: [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  

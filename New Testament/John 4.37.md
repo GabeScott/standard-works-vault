@@ -5,4 +5,4 @@
 [John 4:37](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.37?lang=eng#p37)
 
 
-[^a]: [[1 Corinthians 3.6|1 Cor. 3:6 (5-8).]]
+[^a]: [[1 Corinthians 3.5|1 Cor. 3:6 (5–8)]][[1 Corinthians 3.6|]][[1 Corinthians 3.7|]][[1 Corinthians 3.8|]].  

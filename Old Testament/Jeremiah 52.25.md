@@ -5,5 +5,5 @@
 [Jeremiah 52:25](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.25?lang=eng#p25)
 
 
-[^a]: OR officer.
-[^b]: [[2 Kings 25.19|2 Kgs. 25:19.]]
+[^a]: OR officer.  
+[^b]: [[2 Kings 25.19|2 Kgs. 25:19]].  

@@ -5,4 +5,4 @@
 [Ether 10:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p1#p1)
 
 
-[^a]: [[Ether 9.26|Ether 9:26 (25-29).]]
+[^a]: [[Ether 9.25|Ether 9:26 (25–29)]][[Ether 9.26|]][[Ether 9.27|]][[Ether 9.28|]][[Ether 9.29|]].  

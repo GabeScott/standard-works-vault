@@ -5,5 +5,5 @@
 [2 Nephi 24:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p22#p22)
 
 
-[^a]: [[Proverbs 10.7|Prov. 10:7]]; [[Jeremiah 51.62|Jer. 51:62.]]
-[^b]: [[Job 18.19|Job 18:19.]]
+[^a]: [[Proverbs 10.7|Prov. 10:7]]; [[Jeremiah 51.62|Jer. 51:62]].  
+[^b]: [[Job 18.19|Job 18:19]].  

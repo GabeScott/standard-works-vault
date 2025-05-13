@@ -5,4 +5,4 @@
 [Revelation 12:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.13?lang=eng#p13)
 
 
-[^a]: Dan. 7:25; 12:7; [[D&C 10.32|D&C 10:32]]; [[D&C 132.57|132:57.]]
+[^a]: [[Daniel 7.25|Dan. 7:25]]; [[Daniel 12.7|12:7]]; [[D&C 10.32|D&C 10:32]]; [[D&C 132.57|132:57]].  

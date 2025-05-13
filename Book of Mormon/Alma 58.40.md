@@ -5,5 +5,5 @@
 [Alma 58:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/58?lang=eng&id=p40#p40)
 
 
-[^a]: [[Alma 61.21|Alma 61:21]]. TG [[Trustworthiness]].
-[^b]: TG [[Liberty]].
+[^a]: [[Alma 61.21|Alma 61:21]]. [[Trustworthiness|TG Trustworthiness]].  
+[^b]: [[Liberty|TG Liberty]].  

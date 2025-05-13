@@ -5,4 +5,4 @@
 [Matthew 13:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.31?lang=eng#p31)
 
 
-[^a]: [[Isaiah 60.22|Isa. 60:22.]]
+[^a]: [[Isaiah 60.22|Isa. 60:22]].  

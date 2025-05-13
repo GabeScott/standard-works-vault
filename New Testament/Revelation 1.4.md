@@ -5,6 +5,6 @@
 [Revelation 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.4?lang=eng#p4)
 
 
-[^a]: [[D&C 77.5|D&C 77:5.]]
-[^b]: TG [[Jesus Christ, Jehovah]].
-[^c]: [[Revelation 3.1|Rev. 3:1]]; [[Revelation 4.5|4:5.]]
+[^a]: [[D&C 77.5|D&C 77:5]].  
+[^b]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^c]: [[Revelation 3.1|Rev. 3:1]]; [[Revelation 4.5|4:5]].  

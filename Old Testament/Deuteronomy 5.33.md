@@ -5,4 +5,4 @@
 [Deuteronomy 5:33](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.33?lang=eng#p33)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

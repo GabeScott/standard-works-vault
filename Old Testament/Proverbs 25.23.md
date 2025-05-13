@@ -5,4 +5,4 @@
 [Proverbs 25:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.23?lang=eng#p23)
 
 
-[^a]: TG [[Backbiting]].
+[^a]: [[Backbiting|TG Backbiting]].  

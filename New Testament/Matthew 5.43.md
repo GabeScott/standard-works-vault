@@ -5,5 +5,5 @@
 [Matthew 5:43](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.43?lang=eng#p43)
 
 
-[^a]: [[D&C 112.11|D&C 112:11.]]
-[^b]: TG [[Neighbor]].
+[^a]: [[D&C 112.11|D&C 112:11]].  
+[^b]: [[Neighbor|TG Neighbor]].  

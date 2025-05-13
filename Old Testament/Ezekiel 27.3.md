@@ -5,4 +5,4 @@
 [Ezekiel 27:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.3?lang=eng#p3)
 
 
-[^a]: Lam. 2:15; [[Ezekiel 28.12|Ezek. 28:12.]]
+[^a]: [[Lamentations 2.15|Lam. 2:15]]; [[Ezekiel 28.12|Ezek. 28:12]].  

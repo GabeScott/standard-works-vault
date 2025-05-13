@@ -5,5 +5,5 @@
 [Deuteronomy 3:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.26?lang=eng#p26)
 
 
-[^a]: TG [[God, Indignation of]].
-[^b]: [[Deuteronomy 1.37|Deut. 1:37]]; [[Psalms 106.32|Ps. 106:32.]]
+[^a]: [[God, Indignation of|TG God, Indignation of]].  
+[^b]: [[Deuteronomy 1.37|Deut. 1:37]]; [[Psalms 106.32|Ps. 106:32]].  

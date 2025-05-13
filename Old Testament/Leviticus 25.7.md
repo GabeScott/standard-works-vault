@@ -5,4 +5,4 @@
 [Leviticus 25:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.7?lang=eng#p7)
 
 
-[^a]: HEB to eat.
+[^a]: HEB to eat.  

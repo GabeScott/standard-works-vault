@@ -5,5 +5,5 @@
 [Alma 60:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p36#p36)
 
 
-[^a]: [[Alma 61.9|Alma 61:9]]; [[D&C 121.39|D&C 121:39.]]
-[^b]: TG [[Motivations]].
+[^a]: [[Alma 61.9|Alma 61:9]]; [[D&C 121.39|D&C 121:39]].  
+[^b]: [[Motivations|TG Motivations]].  

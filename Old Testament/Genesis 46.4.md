@@ -5,6 +5,6 @@
 [Genesis 46:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.4?lang=eng#p4)
 
 
-[^a]: [[Genesis 28.15|Gen. 28:15]]; [[Genesis 48.21|48:21.]]
-[^b]: [[Exodus 2.24|Ex. 2:24.]]
-[^c]: [[Genesis 50.1|Gen. 50:1.]]
+[^a]: [[Genesis 28.15|Gen. 28:15]]; [[Genesis 48.21|48:21]].  
+[^b]: [[Exodus 2.24|Ex. 2:24]].  
+[^c]: [[Genesis 50.1|Gen. 50:1]].  

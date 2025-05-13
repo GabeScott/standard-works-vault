@@ -5,4 +5,4 @@
 [Jude 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.20?lang=eng#p20)
 
 
-[^a]: [[D&C 21.2|D&C 21:2.]]
+[^a]: [[D&C 21.2|D&C 21:2]].  

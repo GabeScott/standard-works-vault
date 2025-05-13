@@ -5,5 +5,5 @@
 [Matthew 27:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.29?lang=eng#p29)
 
 
-[^a]: GR woven.
-[^b]: GR stalk, staff.
+[^a]: GR woven.  
+[^b]: GR stalk, staff.  

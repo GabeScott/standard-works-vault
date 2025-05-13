@@ -5,5 +5,5 @@
 [John 10:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.15?lang=eng#p15)
 
 
-[^a]: TG [[Jesus Christ, Relationships with the Father]].
-[^b]: 1 Jn. 3:16 (10-18). TG [[Jesus Christ, Atonement through]]; [[Martyrdom]].
+[^a]: [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  
+[^b]: [[1 John 3.10|1 Jn. 3:16 (10–18)]][[1 John 3.11|]][[1 John 3.12|]][[1 John 3.13|]][[1 John 3.14|]][[1 John 3.15|]][[1 John 3.16|]][[1 John 3.17|]][[1 John 3.18|]]. [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]]; [[Martyrdom|Martyrdom]].  

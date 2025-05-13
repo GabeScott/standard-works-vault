@@ -5,4 +5,4 @@
 [Romans 9:31](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.31?lang=eng#p31)
 
 
-[^a]: TG [[Apostasy of Israel]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  

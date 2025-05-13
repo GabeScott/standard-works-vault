@@ -5,5 +5,5 @@
 [1 Corinthians 11:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.22?lang=eng#p22)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
-[^b]: TG [[Shame]].
+[^a]: [[Church|TG Church]].  
+[^b]: [[Shame|TG Shame]].  

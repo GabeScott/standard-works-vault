@@ -5,5 +5,5 @@
 [Joshua 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/14.4?lang=eng#p4)
 
 
-[^a]: [[1 Chronicles 5.1|1 Chr. 5:1 (1-2)]]; [[Ezekiel 47.13|Ezek. 47:13.]]
-[^b]: [[Numbers 35.2|Num. 35:2 (2-5).]]
+[^a]: [[1 Chronicles 5.1|1 Chr. 5:1 (1–2)]][[1 Chronicles 5.2|]]; [[Ezekiel 47.13|Ezek. 47:13]].  
+[^b]: [[Numbers 35.2|Num. 35:2 (2–5)]][[Numbers 35.3|]][[Numbers 35.4|]][[Numbers 35.5|]].  

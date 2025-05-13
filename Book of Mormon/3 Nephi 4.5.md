@@ -5,4 +5,4 @@
 [3 Nephi 4:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/4?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 47.36|Alma 47:36.]]
+[^a]: [[Alma 47.36|Alma 47:36]].  

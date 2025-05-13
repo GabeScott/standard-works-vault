@@ -5,5 +5,5 @@
 [2 Peter 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.12?lang=eng#p12)
 
 
-[^a]: [[Mosiah 3.19|Mosiah 3:19.]]
-[^b]: [[Mormon 4.5|Morm. 4:5.]]
+[^a]: [[Mosiah 3.19|Mosiah 3:19]].  
+[^b]: [[Mormon 4.5|Morm. 4:5]].  

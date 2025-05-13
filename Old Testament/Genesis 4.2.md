@@ -5,4 +5,4 @@
 [Genesis 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.2?lang=eng#p2)
 
 
-[^a]: [[Moses 5.17|Moses 5:17.]]
+[^a]: [[Moses 5.17|Moses 5:17]].  

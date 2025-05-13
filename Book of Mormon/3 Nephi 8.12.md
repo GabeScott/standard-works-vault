@@ -5,4 +5,4 @@
 [3 Nephi 8:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/8?lang=eng&id=p12#p12)
 
 
-[^a]: [[3 Nephi 11.1|3 Ne. 11:1.]]
+[^a]: [[3 Nephi 11.1|3 Ne. 11:1]].  

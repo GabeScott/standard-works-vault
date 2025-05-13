@@ -5,4 +5,4 @@
 [2 Nephi 18:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p8#p8)
 
 
-[^a]: [[Isaiah 30.28|Isa. 30:28.]]
+[^a]: [[Isaiah 30.28|Isa. 30:28]].  

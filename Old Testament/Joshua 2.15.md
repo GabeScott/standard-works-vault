@@ -5,4 +5,4 @@
 [Joshua 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/2.15?lang=eng#p15)
 
 
-[^a]: [[Acts 9.25|Acts 9:25.]]
+[^a]: [[Acts 9.25|Acts 9:25]].  

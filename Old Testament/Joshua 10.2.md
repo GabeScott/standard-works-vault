@@ -5,4 +5,4 @@
 [Joshua 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.2?lang=eng#p2)
 
 
-[^a]: [[Joshua 9.3|Josh. 9:3.]]
+[^a]: [[Joshua 9.3|Josh. 9:3]].  

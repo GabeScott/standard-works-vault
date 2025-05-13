@@ -5,4 +5,4 @@
 [Psalms 87:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/87.7?lang=eng#p7)
 
 
-[^a]: OR sources; i.e., of joy, happiness, etc.
+[^a]: OR sources; i.e., of joy, happiness, etc.  

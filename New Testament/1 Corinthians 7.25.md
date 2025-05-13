@@ -5,4 +5,4 @@
 [1 Corinthians 7:25](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.25?lang=eng#p25)
 
 
-[^a]: [[1 Timothy 1.13|1 Tim. 1:13.]]
+[^a]: [[1 Timothy 1.13|1 Tim. 1:13]].  

@@ -5,6 +5,6 @@
 [John 17:21](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.21?lang=eng#p21)
 
 
-[^a]: 4 Ne. 1:17 (15-17); [[D&C 38.27|D&C 38:27.]]
-[^b]: TG [[Godhead]]; [[God the Father, Elohim]].
-[^c]: [[D&C 35.2|D&C 35:2]]; [[Moses 6.68|Moses 6:68.]]
+[^a]: [[4 Nephi 1.15|4 Ne. 1:17 (15–17)]][[4 Nephi 1.16|]][[4 Nephi 1.17|]]; [[D&C 38.27|D&C 38:27]].  
+[^b]: [[Godhead|TG Godhead]]; [[God the Father, Elohim|God the Father, Elohim]].  
+[^c]: [[D&C 35.2|D&C 35:2]]; [[Moses 6.68|Moses 6:68]].  

@@ -5,5 +5,5 @@
 [Alma 31:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p36#p36)
 
 
-[^a]: [[3 Nephi 18.37|3 Ne. 18:37.]]
-[^b]: TG [[Hands, Laying on of]].
+[^a]: [[3 Nephi 18.37|3 Ne. 18:37]].  
+[^b]: [[Hands, Laying on of|TG Hands, Laying on of]].  

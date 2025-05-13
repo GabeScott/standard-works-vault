@@ -5,5 +5,5 @@
 [John 16:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.15?lang=eng#p15)
 
 
-[^a]: [[3 Nephi 28.10|3 Ne. 28:10]]; [[D&C 76.59|D&C 76:59]]; [[D&C 84.38|84:38 (37-38).]]
-[^b]: TG [[Jesus Christ, Divine Sonship]].
+[^a]: [[3 Nephi 28.10|3 Ne. 28:10]]; [[D&C 76.59|D&C 76:59]]; [[D&C 84.37|84:38 (37–38)]][[D&C 84.38|]].  
+[^b]: [[Jesus Christ, Divine Sonship|TG Jesus Christ, Divine Sonship]].  

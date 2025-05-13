@@ -5,4 +5,4 @@
 [Isaiah 51:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.4?lang=eng#p4)
 
 
-[^a]: OR teaching, doctrine. TG [[God, Law of]].
+[^a]: OR teaching, doctrine. [[God, Law of|TG God, Law of]].  

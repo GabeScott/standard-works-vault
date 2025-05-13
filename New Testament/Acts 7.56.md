@@ -5,8 +5,8 @@
 [Acts 7:56](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.56?lang=eng#p56)
 
 
-[^a]: TG [[God, Presence of]]; [[God, Privilege of Seeing]].
-[^b]: [[Ezekiel 1.1|Ezek. 1:1]]; [[D&C 50.45|D&C 50:45.]]
-[^c]: TG [[Jesus Christ, Son of Man]].
-[^d]: TG [[God, Body of, Corporeal Nature]].
-[^e]: TG [[God, Manifestations of]]; [[God the Father, Elohim]].
+[^a]: [[God, Presence of|TG God, Presence of]]; [[God, Privilege of Seeing|God, Privilege of Seeing]].  
+[^b]: [[Ezekiel 1.1|Ezek. 1:1]]; [[D&C 50.45|D&C 50:45]].  
+[^c]: [[Jesus Christ, Son of Man|TG Jesus Christ, Son of Man]].  
+[^d]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  
+[^e]: [[God, Manifestations of|TG God, Manifestations of]]; [[God the Father, Elohim|God the Father, Elohim]].  

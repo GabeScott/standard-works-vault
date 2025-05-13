@@ -5,4 +5,4 @@
 [1 Samuel 26:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/26.12?lang=eng#p12)
 
 
-[^a]: [[Mosiah 24.19|Mosiah 24:19]]; [[Alma 55.15|Alma 55:15 (15-16).]]
+[^a]: [[Mosiah 24.19|Mosiah 24:19]]; [[Alma 55.15|Alma 55:15 (15–16)]][[Alma 55.16|]].  

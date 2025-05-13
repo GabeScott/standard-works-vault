@@ -5,5 +5,5 @@
 [1 Peter 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.2?lang=eng#p2)
 
 
-[^a]: TG [[Chastity, Chaste]].
-[^b]: JST 1 Pet. 3:2 … conduct …
+[^a]: [[Chastity, Chaste|TG Chastity]].  
+[^b]: JST 1 Pet. 3:2 … conduct …  

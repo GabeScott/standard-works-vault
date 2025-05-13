@@ -5,8 +5,8 @@
 [Matthew 7:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.12?lang=eng#p12)
 
 
-[^a]: TG [[Good Works]].
-[^b]: TG [[Marriage, Continuing Courtship in]].
-[^c]: [[Deuteronomy 15.15|Deut. 15:15 (12-15)]]; [[Proverbs 24.29|Prov. 24:29]]. TG [[Citizenship]]; [[Courtesy]]; [[Kindness]].
-[^d]: TG [[Benevolence]].
-[^e]: TG [[Law of Moses]].
+[^a]: [[Good Works|TG Good Works]].  
+[^b]: [[Marriage, Continuing Courtship in|TG Marriage, Continuing Courtship in]].  
+[^c]: [[Deuteronomy 15.12|Deut. 15:15 (12–15)]][[Deuteronomy 15.13|]][[Deuteronomy 15.14|]][[Deuteronomy 15.15|]]; [[Proverbs 24.29|Prov. 24:29]]. [[Citizenship|TG Citizenship]]; [[Courtesy|Courtesy]]; [[Kindness|Kindness]].  
+[^d]: [[Benevolence|TG Benevolence]].  
+[^e]: [[Law of Moses|TG Law of Moses]].  

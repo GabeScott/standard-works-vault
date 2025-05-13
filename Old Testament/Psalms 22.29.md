@@ -5,4 +5,4 @@
 [Psalms 22:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.29?lang=eng#p29)
 
 
-[^a]: TG [[Soul]].
+[^a]: [[Soul|TG Soul]].  

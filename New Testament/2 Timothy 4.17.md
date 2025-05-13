@@ -5,4 +5,4 @@
 [2 Timothy 4:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.17?lang=eng#p17)
 
 
-[^a]: [[John 14.18|John 14:18.]]
+[^a]: [[John 14.18|John 14:18]].  

@@ -5,7 +5,7 @@
 [Jeremiah 19:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/19.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 1.16|Jer. 1:16.]]
-[^b]: OR alienated.
-[^c]: TG [[Idolatry, Idol]].
-[^d]: [[Jeremiah 2.34|Jer. 2:34 (31-37).]]
+[^a]: [[Jeremiah 1.16|Jer. 1:16]].  
+[^b]: OR alienated.  
+[^c]: [[Idolatry, Idol|TG Idolatry]].  
+[^d]: [[Jeremiah 2.31|Jer. 2:34 (31–37)]][[Jeremiah 2.32|]][[Jeremiah 2.33|]][[Jeremiah 2.34|]][[Jeremiah 2.35|]][[Jeremiah 2.36|]][[Jeremiah 2.37|]].  

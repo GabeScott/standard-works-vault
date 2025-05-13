@@ -5,4 +5,4 @@
 [Numbers 14:39](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.39?lang=eng#p39)
 
 
-[^a]: [[Exodus 33.4|Ex. 33:4.]]
+[^a]: [[Exodus 33.4|Ex. 33:4]].  

@@ -5,4 +5,4 @@
 [Psalms 86:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/86.11?lang=eng#p11)
 
 
-[^a]: [[1 Kings 8.36|1 Kgs. 8:36.]]
+[^a]: [[1 Kings 8.36|1 Kgs. 8:36]].  

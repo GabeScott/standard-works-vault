@@ -5,4 +5,4 @@
 [Matthew 10:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.20?lang=eng#p20)
 
 
-[^a]: TG [[God, Spirit of]]; [[Teaching with the Spirit]].
+[^a]: [[God, Spirit of|TG God, Spirit of]]; [[Teaching with the Spirit|Teaching with the Spirit]].  

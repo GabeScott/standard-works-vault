@@ -5,5 +5,5 @@
 [Genesis 25:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.18?lang=eng#p18)
 
 
-[^a]: [[Genesis 2.11|Gen. 2:11.]]
-[^b]: [[Genesis 16.7|Gen. 16:7]]; [[1 Samuel 15.7|1 Sam. 15:7.]]
+[^a]: [[Genesis 2.11|Gen. 2:11]].  
+[^b]: [[Genesis 16.7|Gen. 16:7]]; [[1 Samuel 15.7|1 Sam. 15:7]].  

@@ -5,6 +5,6 @@
 [Matthew 25:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.35?lang=eng#p35)
 
 
-[^a]: TG [[Poor]].
-[^b]: TG [[Almsgiving]]; [[Generosity]].
-[^c]: TG [[Hospitality]]; [[Stranger]].
+[^a]: [[Poor|TG Poor]].  
+[^b]: [[Almsgiving|TG Almsgiving]]; [[Generosity|Generosity]].  
+[^c]: [[Hospitality|TG Hospitality]]; [[Stranger|Stranger]].  

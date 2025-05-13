@@ -5,4 +5,4 @@
 [Jeremiah 23:25](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.25?lang=eng#p25)
 
 
-[^a]: [[Matthew 7.22|Matt. 7:22 (21-23).]]
+[^a]: [[Matthew 7.21|Matt. 7:22 (21–23)]][[Matthew 7.22|]][[Matthew 7.23|]].  

@@ -5,4 +5,4 @@
 [Leviticus 25:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.20?lang=eng#p20)
 
 
-[^a]: TG [[Sabbatical Year]].
+[^a]: [[Sabbatical Year|TG Sabbatical Year]].  

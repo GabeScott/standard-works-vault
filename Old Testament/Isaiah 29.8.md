@@ -5,5 +5,5 @@
 [Isaiah 29:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.8?lang=eng#p8)
 
 
-[^a]: TG [[Protection, Divine]].
-[^b]: TG [[Zion, Sion]].
+[^a]: [[Protection, Divine|TG Protection, Divine]].  
+[^b]: [[Zion, Sion|TG Zion]].  

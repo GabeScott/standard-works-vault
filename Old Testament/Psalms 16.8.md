@@ -5,4 +5,4 @@
 [Psalms 16:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/16.8?lang=eng#p8)
 
 
-[^b]: [[Psalms 109.31|Ps. 109:31.]]
+[^b]: [[Psalms 109.31|Ps. 109:31]].  

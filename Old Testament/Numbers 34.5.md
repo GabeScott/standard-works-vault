@@ -5,5 +5,5 @@
 [Numbers 34:5](https://www.churchofjesuschrist.org/study/scriptures/ot/num/34.5?lang=eng#p5)
 
 
-[^a]: OR turn from.
-[^b]: OR it shall terminate at.
+[^a]: OR turn from.  
+[^b]: OR it shall terminate at.  

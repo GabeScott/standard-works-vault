@@ -5,4 +5,4 @@
 [Amos 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/4.7?lang=eng#p7)
 
 
-[^a]: [[Jeremiah 3.3|Jer. 3:3.]]
+[^a]: [[Jeremiah 3.3|Jer. 3:3]].  

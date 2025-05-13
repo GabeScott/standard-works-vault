@@ -5,4 +5,4 @@
 [Luke 6:27](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.27?lang=eng#p27)
 
 
-[^a]: TG [[Reconciliation, Reconcile]].
+[^a]: [[Reconciliation, Reconcile|TG Reconciliation]].  

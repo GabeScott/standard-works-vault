@@ -5,4 +5,4 @@
 [Alma 18:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p13#p13)
 
 
-[^a]: [[John 20.16|John 20:16.]]
+[^a]: [[John 20.16|John 20:16]].  

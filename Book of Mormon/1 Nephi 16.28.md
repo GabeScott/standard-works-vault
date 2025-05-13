@@ -5,4 +5,4 @@
 [1 Nephi 16:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p28#p28)
 
 
-[^a]: [[Alma 37.40|Alma 37:40]]. TG [[Faith]].
+[^a]: [[Alma 37.40|Alma 37:40]]. [[Faith|TG Faith]].  

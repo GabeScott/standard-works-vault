@@ -5,4 +5,4 @@
 [Esther 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/9.1?lang=eng#p1)
 
 
-[^a]: [[Esther 3.13|Esth. 3:13 (12-13).]]
+[^a]: [[Esther 3.12|Esth. 3:13 (12–13)]][[Esther 3.13|]].  

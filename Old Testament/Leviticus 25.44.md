@@ -5,4 +5,4 @@
 [Leviticus 25:44](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.44?lang=eng#p44)
 
 
-[^a]: HEB nations, or Gentiles.
+[^a]: HEB nations, or Gentiles.  

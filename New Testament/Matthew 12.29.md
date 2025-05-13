@@ -5,4 +5,4 @@
 [Matthew 12:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.29?lang=eng#p29)
 
 
-[^a]: GR plunder.
+[^a]: GR plunder.  

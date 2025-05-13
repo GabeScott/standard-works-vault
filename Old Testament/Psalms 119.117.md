@@ -5,4 +5,4 @@
 [Psalms 119:117](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.117?lang=eng#p117)
 
 
-[^a]: [[Ezekiel 34.27|Ezek. 34:27.]]
+[^a]: [[Ezekiel 34.27|Ezek. 34:27]].  

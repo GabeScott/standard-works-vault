@@ -5,4 +5,4 @@
 [2 Chronicles 32:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.12?lang=eng#p12)
 
 
-[^a]: [[2 Chronicles 31.1|2 Chr. 31:1.]]
+[^a]: [[2 Chronicles 31.1|2 Chr. 31:1]].  

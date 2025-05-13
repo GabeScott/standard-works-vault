@@ -5,4 +5,4 @@
 [2 Kings 14:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/14.7?lang=eng#p7)
 
 
-[^a]: [[2 Samuel 8.13|2 Sam. 8:13.]]
+[^a]: [[2 Samuel 8.13|2 Sam. 8:13]].  

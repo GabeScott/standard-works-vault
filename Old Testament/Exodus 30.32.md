@@ -5,4 +5,4 @@
 [Exodus 30:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.32?lang=eng#p32)
 
 
-[^a]: IE the common man who is not a priest.
+[^a]: IE the common man who is not a priest.  

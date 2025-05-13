@@ -5,4 +5,4 @@
 [Deuteronomy 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/13.4?lang=eng#p4)
 
 
-[^a]: TG [[Walking with God]].
+[^a]: [[Walking with God|TG Walking with God]].  

@@ -5,6 +5,6 @@
 [Daniel 2:28](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.28?lang=eng#p28)
 
 
-[^a]: TG [[God, Omniscience of]]; [[Holy Ghost, Gifts of]].
-[^b]: [[Genesis 40.8|Gen. 40:8]]; [[D&C 76.10|D&C 76:10]]. TG [[Mysteries of Godliness]].
-[^c]: TG [[Dream]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]]; [[Holy Ghost, Gifts of|Holy Ghost, Gifts of]].  
+[^b]: [[Genesis 40.8|Gen. 40:8]]; [[D&C 76.10|D&C 76:10]]. [[Mysteries of Godliness|TG Mysteries of Godliness]].  
+[^c]: [[Dream|TG Dream]].  

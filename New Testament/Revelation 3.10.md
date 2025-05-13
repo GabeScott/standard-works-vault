@@ -5,5 +5,5 @@
 [Revelation 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.10?lang=eng#p10)
 
 
-[^a]: TG [[Refuge]].
-[^b]: TG [[Temptation]]; [[Testament]].
+[^a]: [[Refuge|TG Refuge]].  
+[^b]: [[Temptation|TG Temptation]]; [[Test, Try, Prove|Test]].  

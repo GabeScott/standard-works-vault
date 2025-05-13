@@ -5,5 +5,5 @@
 [D&C 5:6](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.6?lang=eng#p6)
 
 
-[^a]: [[D&C 20.2|D&C 20:2 (2-3).]]
-[^b]: [[2 Nephi 29.7|2 Ne. 29:7.]]
+[^a]: [[D&C 20.2|D&C 20:2 (2–3)]][[D&C 20.3|]].  
+[^b]: [[2 Nephi 29.7|2 Ne. 29:7]].  

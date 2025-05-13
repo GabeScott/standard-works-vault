@@ -5,4 +5,4 @@
 [Daniel 2:38](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.38?lang=eng#p38)
 
 
-[^a]: Dan. 7:4.
+[^a]: [[Daniel 7.4|Dan. 7:4]].  

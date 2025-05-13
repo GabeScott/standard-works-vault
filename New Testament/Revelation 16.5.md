@@ -5,4 +5,4 @@
 [Revelation 16:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.5?lang=eng#p5)
 
 
-[^a]: TG [[Jesus Christ, Judge]].
+[^a]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

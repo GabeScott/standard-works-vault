@@ -5,4 +5,4 @@
 [2 Chronicles 25:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/25.16?lang=eng#p16)
 
 
-[^a]: HEB Have we made you a royal counselor?
+[^a]: HEB Have we made you a royal counselor?  

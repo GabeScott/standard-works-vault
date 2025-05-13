@@ -5,4 +5,4 @@
 [1 Nephi 4:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/4?lang=eng&id=p16#p16)
 
 
-[^a]: [[Joshua 1.8|Josh. 1:8]]. TG [[Law of Moses]].
+[^a]: [[Joshua 1.8|Josh. 1:8]]. [[Law of Moses|TG Law of Moses]].  

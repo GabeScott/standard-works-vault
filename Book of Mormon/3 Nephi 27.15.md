@@ -5,5 +5,5 @@
 [3 Nephi 27:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Jesus Christ, Atonement through]].
-[^b]: [[1 Samuel 2.3|1 Sam. 2:3.]]
+[^a]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  
+[^b]: [[1 Samuel 2.3|1 Sam. 2:3]].  

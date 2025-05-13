@@ -5,6 +5,6 @@
 [2 Nephi 28:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p18#p18)
 
 
-[^a]: TG [[Devil, Church of]].
-[^b]: [[Revelation 19.2|Rev. 19:2.]]
-[^c]: [[1 Nephi 14.3|1 Ne. 14:3 (3, 17).]]
+[^a]: [[Devil, Church of|TG Devil, Church of]].  
+[^b]: [[Revelation 19.2|Rev. 19:2]].  
+[^c]: [[1 Nephi 14.3|1 Ne. 14:3 (3, 17)]][[1 Nephi 14.17|]].  

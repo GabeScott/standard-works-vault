@@ -5,5 +5,5 @@
 [Mark 9:39](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.39?lang=eng#p39)
 
 
-[^a]: TG [[Miracle]].
-[^b]: TG [[Name of the Lord]].
+[^a]: [[Miracle|TG Miracle]].  
+[^b]: [[Name|TG Name]].  

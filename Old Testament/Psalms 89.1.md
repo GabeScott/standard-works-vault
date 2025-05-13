@@ -5,4 +5,4 @@
 [Psalms 89:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.1?lang=eng#p1)
 
 
-[^a]: [[Psalms 119.90|Ps. 119:90.]]
+[^a]: [[Psalms 119.90|Ps. 119:90]].  

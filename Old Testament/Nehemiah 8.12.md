@@ -5,5 +5,5 @@
 [Nehemiah 8:12](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.12?lang=eng#p12)
 
 
-[^a]: OR rejoicing. D&C 50:22 (17-22).
-[^b]: [[Mosiah 4.3|Mosiah 4:3.]]
+[^a]: OR rejoicing. [[D&C 50.17|D&C 50:22 (17–22)]][[D&C 50.18|]][[D&C 50.19|]][[D&C 50.20|]][[D&C 50.21|]][[D&C 50.22|]].  
+[^b]: [[Mosiah 4.3|Mosiah 4:3]].  

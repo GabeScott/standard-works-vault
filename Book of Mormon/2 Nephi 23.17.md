@@ -5,4 +5,4 @@
 [2 Nephi 23:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p17#p17)
 
 
-[^a]: [[Isaiah 21.2|Isa. 21:2.]]
+[^a]: [[Isaiah 21.2|Isa. 21:2]].  

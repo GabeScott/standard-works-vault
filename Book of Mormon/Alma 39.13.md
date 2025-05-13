@@ -5,4 +5,4 @@
 [Alma 39:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p13#p13)
 
 
-[^a]: [[Mosiah 27.35|Mosiah 27:35.]]
+[^a]: [[Mosiah 27.35|Mosiah 27:35]].  

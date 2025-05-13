@@ -5,5 +5,5 @@
 [Moses 7:55](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.55?lang=eng#p55)
 
 
-[^a]: TG [[Jesus Christ, Prophecies about]].
-[^b]: [[3 Nephi 27.14|3 Ne. 27:14]]. TG [[Jesus Christ, Crucifixion of]].
+[^a]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  
+[^b]: [[3 Nephi 27.14|3 Ne. 27:14]]. [[Jesus Christ, Crucifixion of|TG Jesus Christ, Crucifixion of]].  

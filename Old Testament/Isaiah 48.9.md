@@ -5,5 +5,5 @@
 [Isaiah 48:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.9?lang=eng#p9)
 
 
-[^a]: [[Joshua 7.9|Josh. 7:9.]]
-[^b]: TG [[Anger]].
+[^a]: [[Joshua 7.9|Josh. 7:9]].  
+[^b]: [[Anger|TG Anger]].  

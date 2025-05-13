@@ -5,4 +5,4 @@
 [3 Nephi 28:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p32#p32)
 
 
-[^a]: [[2 Nephi 25.17|2 Ne. 25:17.]]
+[^a]: [[2 Nephi 25.17|2 Ne. 25:17]].  

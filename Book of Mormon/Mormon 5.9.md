@@ -5,7 +5,7 @@
 [Mormon 5:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p9#p9)
 
 
-[^a]: 4 Ne. 1:49.
-[^b]: [[3 Nephi 16.8|3 Ne. 16:8 (8-9).]]
-[^c]: [[Alma 43.3|Alma 43:3.]]
-[^d]: [[Words of Mormon 1.1|Morm. 1:1.]]
+[^a]: [[4 Nephi 1.49|4 Ne. 1:49]].  
+[^b]: [[3 Nephi 16.8|3 Ne. 16:8 (8–9)]][[3 Nephi 16.9|]].  
+[^c]: [[Alma 43.3|Alma 43:3]].  
+[^d]: [[Mormon 1.1|Morm. 1:1]].  

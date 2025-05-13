@@ -5,4 +5,4 @@
 [Isaiah 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.14?lang=eng#p14)
 
 
-[^a]: [[D&C 29.36|D&C 29:36 (36-37)]]; [[D&C 76.28|76:28 (25-29).]]
+[^a]: [[D&C 29.36|D&C 29:36 (36–37)]][[D&C 29.37|]]; [[D&C 76.25|76:28 (25–29)]][[D&C 76.26|]][[D&C 76.27|]][[D&C 76.28|]][[D&C 76.29|]].  

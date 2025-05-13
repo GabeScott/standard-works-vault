@@ -5,4 +5,4 @@
 [Exodus 12:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.19?lang=eng#p19)
 
 
-[^a]: OR sojourner (also in vv. 43, 48-49).
+[^a]: OR sojourner (also in [[Exodus 12.43|vv. 43, 48–49]][[Exodus 12.48|]][[Exodus 12.49|]]).  

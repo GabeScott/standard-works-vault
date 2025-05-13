@@ -5,6 +5,6 @@
 [Ezekiel 20:40](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.40?lang=eng#p40)
 
 
-[^a]: [[Isaiah 56.7|Isa. 56:7.]]
-[^b]: TG [[Israel, Twelve Tribes of]].
-[^c]: [[Isaiah 60.7|Isa. 60:7]]; Mal. 3:4.
+[^a]: [[Isaiah 56.7|Isa. 56:7]].  
+[^b]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  
+[^c]: [[Isaiah 60.7|Isa. 60:7]]; [[Malachi 3.4|Mal. 3:4]].  

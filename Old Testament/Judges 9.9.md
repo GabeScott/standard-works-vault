@@ -5,4 +5,4 @@
 [Judges 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/9.9?lang=eng#p9)
 
 
-[^a]: HEB gods and men; i.e., in ritual services.
+[^a]: HEB gods and men; i.e., in ritual services.  

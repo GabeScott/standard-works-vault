@@ -5,5 +5,5 @@
 [Leviticus 20:24](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.24?lang=eng#p24)
 
 
-[^a]: [[D&C 38.18|D&C 38:18.]]
-[^b]: [[1 Kings 8.53|1 Kgs. 8:53.]]
+[^a]: [[D&C 38.18|D&C 38:18]].  
+[^b]: [[1 Kings 8.53|1 Kgs. 8:53]].  

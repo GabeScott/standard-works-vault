@@ -5,4 +5,4 @@
 [Helaman 10:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/10?lang=eng&id=p11#p11)
 
 
-[^a]: [[Helaman 5.2|Hel. 5:2]]; [[Helaman 11.8|11:8.]]
+[^a]: [[Helaman 5.2|Hel. 5:2]]; [[Helaman 11.8|11:8]].  

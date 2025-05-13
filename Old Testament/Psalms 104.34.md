@@ -5,4 +5,4 @@
 [Psalms 104:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.34?lang=eng#p34)
 
 
-[^a]: TG [[Meditation, Meditate]].
+[^a]: [[Meditation, Meditate|TG Meditation]].  

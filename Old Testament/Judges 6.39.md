@@ -5,5 +5,5 @@
 [Judges 6:39](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.39?lang=eng#p39)
 
 
-[^a]: [[Genesis 18.32|Gen. 18:32.]]
-[^b]: HEB try or test.
+[^a]: [[Genesis 18.32|Gen. 18:32]].  
+[^b]: HEB try or test.  

@@ -5,5 +5,5 @@
 [D&C 4:7](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/4.7?lang=eng#p7)
 
 
-[^a]: [[Matthew 7.7|Matt. 7:7 (7-8)]]. TG [[Prayer, Pray]].
-[^b]: TG [[Objectives]].
+[^a]: [[Matthew 7.7|Matt. 7:7 (7–8)]][[Matthew 7.8|]]. [[Prayer, Pray|TG Prayer]].  
+[^b]: [[Objectives|TG Objectives]].  

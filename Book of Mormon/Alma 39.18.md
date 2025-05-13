@@ -5,4 +5,4 @@
 [Alma 39:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p18#p18)
 
 
-[^a]: [[Jacob 4.4|Jacob 4:4 (4-6).]]
+[^a]: [[Jacob 4.4|Jacob 4:4 (4–6)]][[Jacob 4.5|]][[Jacob 4.6|]].  

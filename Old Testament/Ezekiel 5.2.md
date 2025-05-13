@@ -5,4 +5,4 @@
 [Ezekiel 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/5.2?lang=eng#p2)
 
 
-[^a]: [[Ezekiel 12.14|Ezek. 12:14.]]
+[^a]: [[Ezekiel 12.14|Ezek. 12:14]].  

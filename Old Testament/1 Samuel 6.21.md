@@ -5,4 +5,4 @@
 [1 Samuel 6:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.21?lang=eng#p21)
 
 
-[^a]: TG [[Ark of the Covenant]].
+[^a]: [[Ark of the Covenant|TG Ark of the Covenant]].  

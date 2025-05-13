@@ -5,5 +5,5 @@
 [Deuteronomy 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.9?lang=eng#p9)
 
 
-[^a]: [[1 Kings 8.23|1 Kgs. 8:23]]; [[Nehemiah 1.5|Neh. 1:5]]; [[Nehemiah 9.32|9:32]]; Dan. 9:4.
-[^b]: TG [[God, Mercy of]].
+[^a]: [[1 Kings 8.23|1 Kgs. 8:23]]; [[Nehemiah 1.5|Neh. 1:5]]; [[Nehemiah 9.32|9:32]]; [[Daniel 9.4|Dan. 9:4]].  
+[^b]: [[God, Mercy of|TG God, Mercy of]].  

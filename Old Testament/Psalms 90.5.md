@@ -5,4 +5,4 @@
 [Psalms 90:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/90.5?lang=eng#p5)
 
 
-[^a]: [[D&C 124.7|D&C 124:7.]]
+[^a]: [[D&C 124.7|D&C 124:7]].  

@@ -5,6 +5,6 @@
 [Matthew 24:5](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.5?lang=eng#p5)
 
 
-[^a]: TG [[Name of the Lord]].
-[^b]: TG [[False Christs]].
-[^c]: [[Mark 13.6|Mark 13:6]]. TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Name|TG Name]].  
+[^b]: [[False Christs|TG False Christs]].  
+[^c]: [[Mark 13.6|Mark 13:6]]. [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

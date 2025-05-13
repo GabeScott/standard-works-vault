@@ -5,4 +5,4 @@
 [Ezekiel 25:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/25.12?lang=eng#p12)
 
 
-[^a]: [[Psalms 137.7|Ps. 137:7.]]
+[^a]: [[Psalms 137.7|Ps. 137:7]].  

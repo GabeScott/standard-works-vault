@@ -5,4 +5,4 @@
 [Ezekiel 11:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.6?lang=eng#p6)
 
 
-[^a]: TG [[Blood, Shedding of]].
+[^a]: [[Blood, Shedding of|TG Blood, Shedding of]].  

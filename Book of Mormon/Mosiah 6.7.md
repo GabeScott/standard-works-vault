@@ -5,4 +5,4 @@
 [Mosiah 6:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/6?lang=eng&id=p7#p7)
 
 
-[^a]: [[2 Corinthians 11.9|2 Cor. 11:9.]]
+[^a]: [[2 Corinthians 11.9|2 Cor. 11:9]].  

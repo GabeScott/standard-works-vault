@@ -5,5 +5,5 @@
 [1 Nephi 14:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p15#p15)
 
 
-[^a]: [[D&C 115.6|D&C 115:6 (5-6).]]
-[^b]: [[Mark 13.8|Mark 13:8]]; [[D&C 87.6|D&C 87:6.]]
+[^a]: [[D&C 115.5|D&C 115:6 (5–6)]][[D&C 115.6|]].  
+[^b]: [[Mark 13.8|Mark 13:8]]; [[D&C 87.6|D&C 87:6]].  

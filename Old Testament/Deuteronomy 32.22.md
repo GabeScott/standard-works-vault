@@ -5,4 +5,4 @@
 [Deuteronomy 32:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.22?lang=eng#p22)
 
 
-[^a]: [[Numbers 11.1|Num. 11:1 (1, 10)]]; [[2 Nephi 26.6|2 Ne. 26:6.]]
+[^a]: [[Numbers 11.1|Num. 11:1 (1, 10)]][[Numbers 11.10|]]; [[2 Nephi 26.6|2 Ne. 26:6]].  

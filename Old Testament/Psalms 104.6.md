@@ -5,4 +5,4 @@
 [Psalms 104:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.6?lang=eng#p6)
 
 
-[^a]: [[Genesis 7.19|Gen. 7:19.]]
+[^a]: [[Genesis 7.19|Gen. 7:19]].  

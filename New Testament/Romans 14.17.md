@@ -5,7 +5,7 @@
 [Romans 14:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.17?lang=eng#p17)
 
 
-[^a]: GR food. TG [[Food]].
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: TG [[Contentment]]; [[Peace of God]].
-[^d]: TG [[Joy]].
+[^a]: GR food. [[Food|TG Food]].  
+[^b]: [[Righteousness|TG Righteousness]].  
+[^c]: [[Contentment|TG Contentment]]; [[Peace of God|Peace of God]].  
+[^d]: [[Joy|TG Joy]].  

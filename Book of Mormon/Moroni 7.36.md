@@ -5,4 +5,4 @@
 [Moroni 7:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p36#p36)
 
 
-[^a]: [[1 Nephi 10.17|1 Ne. 10:17 (17-19)]]; [[Moroni 10.7|Moro. 10:7 (4-5, 7, 19).]]
+[^a]: [[1 Nephi 10.17|1 Ne. 10:17 (17–19)]][[1 Nephi 10.18|]][[1 Nephi 10.19|]]; [[Moroni 10.4|Moro. 10:7 (4–5, 7, 19)]][[Moroni 10.5|]][[Moroni 10.7|]][[Moroni 10.19|]].  

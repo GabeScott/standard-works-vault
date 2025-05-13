@@ -5,4 +5,4 @@
 [Deuteronomy 31:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.12?lang=eng#p12)
 
 
-[^a]: OR sojourners, proselytes.
+[^a]: OR sojourners, proselytes.  

@@ -5,4 +5,4 @@
 [Ephesians 6:8](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.8?lang=eng#p8)
 
 
-[^a]: Col. 3:24.
+[^a]: [[Colossians 3.24|Col. 3:24]].  

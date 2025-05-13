@@ -5,9 +5,9 @@
 [Alma 30:53](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p53#p53)
 
 
-[^a]: [[Jacob 7.14|Jacob 7:14 (14, 18).]]
-[^b]: [[2 Nephi 9.9|2 Ne. 9:9.]]
-[^c]: [[2 Corinthians 11.14|2 Cor. 11:14.]]
-[^d]: [[Psalms 10.4|Ps. 10:4 (2-11)]]; [[Alma 30.28|Alma 30:28.]]
-[^e]: TG [[Carnal Mind]].
-[^f]: TG [[Curse]].
+[^a]: [[Jacob 7.14|Jacob 7:14 (14, 18)]][[Jacob 7.18|]].  
+[^b]: [[2 Nephi 9.9|2 Ne. 9:9]].  
+[^c]: [[2 Corinthians 11.14|2 Cor. 11:14]].  
+[^d]: [[Psalms 10.2|Ps. 10:4 (2–11)]][[Psalms 10.3|]][[Psalms 10.4|]][[Psalms 10.5|]][[Psalms 10.6|]][[Psalms 10.7|]][[Psalms 10.8|]][[Psalms 10.9|]][[Psalms 10.10|]][[Psalms 10.11|]]; [[Alma 30.28|Alma 30:28]].  
+[^e]: [[Carnal Mind|TG Carnal Mind]].  
+[^f]: [[Curse|TG Curse]].  

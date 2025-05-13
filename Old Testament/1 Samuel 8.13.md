@@ -5,4 +5,4 @@
 [1 Samuel 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/8.13?lang=eng#p13)
 
 
-[^a]: OR perfumers, ointment makers.
+[^a]: OR perfumers, ointment makers.  

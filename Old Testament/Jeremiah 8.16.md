@@ -5,4 +5,4 @@
 [Jeremiah 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.16?lang=eng#p16)
 
 
-[^a]: Lam. 1:15.
+[^a]: [[Lamentations 1.15|Lam. 1:15]].  

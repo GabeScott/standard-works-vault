@@ -5,4 +5,4 @@
 [Jeremiah 40:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/40.8?lang=eng#p8)
 
 
-[^a]: [[Jeremiah 43.2|Jer. 43:2.]]
+[^a]: [[Jeremiah 43.2|Jer. 43:2]].  

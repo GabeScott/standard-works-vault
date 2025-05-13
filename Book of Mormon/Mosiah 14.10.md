@@ -5,5 +5,5 @@
 [Mosiah 14:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/14?lang=eng&id=p10#p10)
 
 
-[^a]: [[Genesis 3.15|Gen. 3:15]]; [[Romans 16.20|Rom. 16:20.]]
-[^b]: [[Mosiah 15.10|Mosiah 15:10 (10-13).]]
+[^a]: [[Genesis 3.15|Gen. 3:15]]; [[Romans 16.20|Rom. 16:20]].  
+[^b]: [[Mosiah 15.10|Mosiah 15:10 (10–13)]][[Mosiah 15.11|]][[Mosiah 15.12|]][[Mosiah 15.13|]].  

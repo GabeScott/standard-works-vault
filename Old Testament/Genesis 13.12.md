@@ -5,4 +5,4 @@
 [Genesis 13:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/13.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 19.9|Gen. 19:9.]]
+[^a]: [[Genesis 19.9|Gen. 19:9]].  

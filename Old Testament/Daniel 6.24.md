@@ -5,4 +5,4 @@
 [Daniel 6:24](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.24?lang=eng#p24)
 
 
-[^a]: OR overpowered them.
+[^a]: OR overpowered them.  

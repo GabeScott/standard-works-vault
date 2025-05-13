@@ -5,5 +5,5 @@
 [2 Kings 23:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.20?lang=eng#p20)
 
 
-[^a]: [[1 Kings 13.2|1 Kgs. 13:2.]]
-[^b]: [[2 Chronicles 34.5|2 Chr. 34:5.]]
+[^a]: [[1 Kings 13.2|1 Kgs. 13:2]].  
+[^b]: [[2 Chronicles 34.5|2 Chr. 34:5]].  

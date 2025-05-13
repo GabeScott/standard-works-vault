@@ -5,4 +5,4 @@
 [Matthew 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.24?lang=eng#p24)
 
 
-[^a]: [[Luke 2.5|Luke 2:5.]]
+[^a]: [[Luke 2.5|Luke 2:5]].  

@@ -5,4 +5,4 @@
 [Nehemiah 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.16?lang=eng#p16)
 
 
-[^a]: [[Nehemiah 12.39|Neh. 12:39.]]
+[^a]: [[Nehemiah 12.39|Neh. 12:39]].  

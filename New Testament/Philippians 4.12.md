@@ -5,4 +5,4 @@
 [Philippians 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.12?lang=eng#p12)
 
 
-[^a]: GR humble. TG [[Self-Sacrifice]].
+[^a]: GR humble. [[Self-Sacrifice|TG Self-Sacrifice]].  

@@ -5,4 +5,4 @@
 [Exodus 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.4?lang=eng#p4)
 
 
-[^a]: [[Psalms 105.34|Ps. 105:34]]; [[Mosiah 12.6|Mosiah 12:6 (6-7)]]. TG [[Plague]].
+[^a]: [[Psalms 105.34|Ps. 105:34]]; [[Mosiah 12.6|Mosiah 12:6 (6–7)]][[Mosiah 12.7|]]. [[Plague|TG Plague]].  

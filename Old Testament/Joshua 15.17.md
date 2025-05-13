@@ -5,4 +5,4 @@
 [Joshua 15:17](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.17?lang=eng#p17)
 
 
-[^a]: [[Numbers 32.12|Num. 32:12.]]
+[^a]: [[Numbers 32.12|Num. 32:12]].  

@@ -5,5 +5,5 @@
 [Numbers 6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.20?lang=eng#p20)
 
 
-[^a]: OR breast that is waved.
-[^b]: OR shoulder that is lifted up.
+[^a]: OR breast that is waved.  
+[^b]: OR shoulder that is lifted up.  

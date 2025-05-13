@@ -5,6 +5,6 @@
 [Leviticus 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.9?lang=eng#p9)
 
 
-[^a]: [[Ezekiel 44.21|Ezek. 44:21.]]
-[^b]: HEB intoxicating drink.
-[^c]: TG [[Word of Wisdom]].
+[^a]: [[Ezekiel 44.21|Ezek. 44:21]].  
+[^b]: HEB intoxicating drink.  
+[^c]: [[Word of Wisdom|TG Word of Wisdom]].  

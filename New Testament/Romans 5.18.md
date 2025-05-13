@@ -5,5 +5,5 @@
 [Romans 5:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.18?lang=eng#p18)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Justification, Justify]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Justification, Justify|TG Justification]].  

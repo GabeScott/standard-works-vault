@@ -5,6 +5,6 @@
 [Jeremiah 29:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 24.15|2 Kgs. 24:15.]]
-[^b]: OR officers or courtiers.
-[^c]: OR ministers or officials. Jer. 24:1.
+[^a]: [[2 Kings 24.15|2 Kgs. 24:15]].  
+[^b]: OR officers or courtiers.  
+[^c]: OR ministers or officials. [[Jeremiah 24.1|Jer. 24:1]].  

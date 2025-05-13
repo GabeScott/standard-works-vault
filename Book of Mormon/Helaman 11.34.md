@@ -5,4 +5,4 @@
 [Helaman 11:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p34#p34)
 
 
-[^a]: [[Hosea 5.15|Hosea 5:15.]]
+[^a]: [[Hosea 5.15|Hosea 5:15]].  

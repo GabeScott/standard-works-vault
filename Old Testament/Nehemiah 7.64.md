@@ -5,6 +5,6 @@
 [Nehemiah 7:64](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/7.64?lang=eng#p64)
 
 
-[^a]: TG [[Genealogy and Temple Work]].
-[^b]: TG [[Worthiness, Worthy]].
-[^c]: TG [[Priesthood, Qualifying for]].
+[^a]: [[Genealogy and Temple Work|TG Genealogy and Temple Work]].  
+[^b]: [[Worthiness, Worthy|TG Worthiness]].  
+[^c]: [[Priesthood, Qualifying for|TG Priesthood, Qualifying for]].  

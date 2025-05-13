@@ -5,4 +5,4 @@
 [Daniel 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.9?lang=eng#p9)
 
 
-[^a]: Dan. 7:8.
+[^a]: [[Daniel 7.8|Dan. 7:8]].  

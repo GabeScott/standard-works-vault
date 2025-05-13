@@ -5,4 +5,4 @@
 [Alma 51:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 50.13|Alma 50:13]]; [[Alma 62.32|62:32 (32, 34)]]; [[3 Nephi 8.9|3 Ne. 8:9.]]
+[^a]: [[Alma 50.13|Alma 50:13]]; [[Alma 62.32|62:32 (32, 34)]][[Alma 62.34|]]; [[3 Nephi 8.9|3 Ne. 8:9]].  
