@@ -5,4 +5,4 @@
 [Leviticus 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.13?lang=eng#p13)
 
 
-[^a]: HEB look.
+[^a]: HEB look.  

@@ -5,6 +5,6 @@
 [2 Samuel 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/8.2?lang=eng#p2)
 
 
-[^a]: [[Numbers 24.17|Num. 24:17.]]
-[^b]: IE He apparently determined their size and put the taller, stronger to death.
-[^c]: [[2 Kings 1.1|2 Kgs. 1:1]]; [[2 Kings 3.5|3:5.]]
+[^a]: [[Numbers 24.17|Num. 24:17]].  
+[^b]: IE He apparently determined their size and put the taller, stronger to death.  
+[^c]: [[2 Kings 1.1|2 Kgs. 1:1]]; [[2 Kings 3.5|3:5]].  

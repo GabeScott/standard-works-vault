@@ -5,4 +5,4 @@
 [Genesis 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.21?lang=eng#p21)
 
 
-[^a]: [[2 Nephi 27.27|2 Ne. 27:27.]]
+[^a]: [[2 Nephi 27.27|2 Ne. 27:27]].  

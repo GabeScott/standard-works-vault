@@ -5,4 +5,4 @@
 [John 11:22](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.22?lang=eng#p22)
 
 
-[^a]: TG [[God, Gifts of]].
+[^a]: [[God, Gifts of|TG God, Gifts of]].  

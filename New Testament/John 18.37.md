@@ -5,7 +5,7 @@
 [John 18:37](https://www.churchofjesuschrist.org/study/scriptures/nt/john/18.37?lang=eng#p37)
 
 
-[^a]: [[1 Timothy 6.13|1 Tim. 6:13.]]
-[^b]: [[Isaiah 55.4|Isa. 55:4.]]
-[^c]: [[John 19.12|John 19:12 (11-13).]]
-[^d]: [[3 Nephi 11.31|3 Ne. 11:31 (31-41)]]. TG [[Truth]].
+[^a]: [[1 Timothy 6.13|1 Tim. 6:13]].  
+[^b]: [[Isaiah 55.4|Isa. 55:4]].  
+[^c]: [[John 19.11|John 19:12 (11–13)]][[John 19.12|]][[John 19.13|]].  
+[^d]: [[3 Nephi 11.31|3 Ne. 11:31 (31–41)]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]. [[Truth|TG Truth]].  

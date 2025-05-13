@@ -5,5 +5,5 @@
 [Alma 18:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 18.40|Alma 18:40.]]
-[^b]: [[Joshua 9.22|Josh. 9:22.]]
+[^a]: [[Alma 18.40|Alma 18:40]].  
+[^b]: [[Joshua 9.22|Josh. 9:22]].  

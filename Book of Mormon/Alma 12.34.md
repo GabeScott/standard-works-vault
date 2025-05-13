@@ -5,6 +5,6 @@
 [Alma 12:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p34#p34)
 
 
-[^a]: [[2 Corinthians 4.1|2 Cor. 4:1.]]
-[^b]: TG [[Remission of Sins]].
-[^c]: [[D&C 84.24|D&C 84:24]]. TG [[Restoration of the Gospel]].
+[^a]: [[2 Corinthians 4.1|2 Cor. 4:1]].  
+[^b]: [[Remission of Sins|TG Remission of Sins]].  
+[^c]: [[D&C 84.24|D&C 84:24]]. [[Rest|TG Rest]].  

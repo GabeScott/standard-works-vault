@@ -5,4 +5,4 @@
 [Ether 12:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p22#p22)
 
 
-[^a]: [[Enos 1.13|Enos 1:13.]]
+[^a]: [[Enos 1.13|Enos 1:13]].  

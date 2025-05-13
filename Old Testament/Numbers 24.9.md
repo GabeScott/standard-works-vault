@@ -5,4 +5,4 @@
 [Numbers 24:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.9?lang=eng#p9)
 
 
-[^a]: [[Genesis 49.9|Gen. 49:9.]]
+[^a]: [[Genesis 49.9|Gen. 49:9]].  

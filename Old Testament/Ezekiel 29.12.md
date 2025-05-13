@@ -5,4 +5,4 @@
 [Ezekiel 29:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.12?lang=eng#p12)
 
 
-[^a]: [[Jeremiah 46.19|Jer. 46:19]]; [[Ezekiel 30.23|Ezek. 30:23 (23, 26).]]
+[^a]: [[Jeremiah 46.19|Jer. 46:19]]; [[Ezekiel 30.23|Ezek. 30:23 (23, 26)]][[Ezekiel 30.26|]].  

@@ -5,4 +5,4 @@
 [Moses 3:11](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.11?lang=eng#p11)
 
 
-[^a]: [[Genesis 2.11|Gen. 2:11.]]
+[^a]: [[Genesis 2.11|Gen. 2:11]].  

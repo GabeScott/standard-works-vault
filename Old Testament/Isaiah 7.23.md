@@ -5,4 +5,4 @@
 [Isaiah 7:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.23?lang=eng#p23)
 
 
-[^a]: OR pieces of silver.
+[^a]: OR pieces of silver.  

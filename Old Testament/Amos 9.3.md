@@ -5,4 +5,4 @@
 [Amos 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.3?lang=eng#p3)
 
 
-[^a]: [[2 Nephi 12.10|2 Ne. 12:10]]; [[Alma 12.14|Alma 12:14.]]
+[^a]: [[2 Nephi 12.10|2 Ne. 12:10]]; [[Alma 12.14|Alma 12:14]].  

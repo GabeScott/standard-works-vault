@@ -5,4 +5,4 @@
 [3 Nephi 12:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p38#p38)
 
 
-[^a]: [[Leviticus 24.20|Lev. 24:20]]; [[Matthew 5.38|Matt. 5:38 (38-42)]]. TG [[Punish, Punishment]].
+[^a]: [[Leviticus 24.20|Lev. 24:20]]; [[Matthew 5.38|Matt. 5:38 (38–42)]][[Matthew 5.39|]][[Matthew 5.40|]][[Matthew 5.41|]][[Matthew 5.42|]]. [[Punish, Punishment|TG Punish]].  

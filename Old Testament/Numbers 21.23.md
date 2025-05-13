@@ -5,5 +5,5 @@
 [Numbers 21:23](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.23?lang=eng#p23)
 
 
-[^a]: [[Deuteronomy 1.4|Deut. 1:4.]]
-[^b]: OR territory (also v. 22).
+[^a]: [[Deuteronomy 1.4|Deut. 1:4]].  
+[^b]: OR territory (also [[Numbers 21.22|v. 22]]).  

@@ -5,4 +5,4 @@
 [Ezekiel 40:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.15?lang=eng#p15)
 
 
-[^a]: OR front.
+[^a]: OR front.  

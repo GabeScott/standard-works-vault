@@ -5,4 +5,4 @@
 [Psalms 29:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/29.2?lang=eng#p2)
 
 
-[^a]: TG [[Beauty]].
+[^a]: [[Beauty|TG Beauty]].  

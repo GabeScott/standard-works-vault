@@ -5,5 +5,5 @@
 [Daniel 8:4](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.4?lang=eng#p4)
 
 
-[^a]: Dan. 11:40.
-[^b]: Dan. 11:3.
+[^a]: [[Daniel 11.40|Dan. 11:40]].  
+[^b]: [[Daniel 11.3|Dan. 11:3]].  

@@ -5,5 +5,5 @@
 [Judges 20:43](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/20.43?lang=eng#p43)
 
 
-[^a]: HEB overtook.
-[^b]: IE the east.
+[^a]: HEB overtook.  
+[^b]: IE the east.  

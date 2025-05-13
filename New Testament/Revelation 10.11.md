@@ -5,4 +5,4 @@
 [Revelation 10:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/10.11?lang=eng#p11)
 
 
-[^a]: [[John 21.22|John 21:22 (20-25).]]
+[^a]: [[John 21.20|John 21:22 (20–25)]][[John 21.21|]][[John 21.22|]][[John 21.23|]][[John 21.24|]][[John 21.25|]].  

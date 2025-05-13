@@ -5,4 +5,4 @@
 [Leviticus 23:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.25?lang=eng#p25)
 
 
-[^a]: [[D&C 59.10|D&C 59:10.]]
+[^a]: [[D&C 59.10|D&C 59:10]].  

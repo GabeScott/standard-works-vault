@@ -5,5 +5,5 @@
 [Deuteronomy 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.20?lang=eng#p20)
 
 
-[^a]: [[Moses 8.18|Moses 8:18.]]
-[^b]: [[Genesis 14.5|Gen. 14:5.]]
+[^a]: [[Moses 8.18|Moses 8:18]].  
+[^b]: [[Genesis 14.5|Gen. 14:5]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 27:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/27.7?lang=eng#p7)
 
 
-[^a]: [[1 Chronicles 11.26|1 Chr. 11:26.]]
+[^a]: [[1 Chronicles 11.26|1 Chr. 11:26]].  

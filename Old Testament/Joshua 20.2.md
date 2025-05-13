@@ -5,4 +5,4 @@
 [Joshua 20:2](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/20.2?lang=eng#p2)
 
 
-[^a]: TG [[Refuge]].
+[^a]: [[Refuge|TG Refuge]].  

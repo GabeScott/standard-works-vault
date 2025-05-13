@@ -5,5 +5,5 @@
 [Daniel 2:45](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.45?lang=eng#p45)
 
 
-[^a]: [[D&C 65.2|D&C 65:2.]]
-[^b]: TG [[Revelation]].
+[^a]: [[D&C 65.2|D&C 65:2]].  
+[^b]: [[Revelation|TG Revelation]].  

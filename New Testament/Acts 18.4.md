@@ -5,5 +5,5 @@
 [Acts 18:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.4?lang=eng#p4)
 
 
-[^a]: [[Acts 17.17|Acts 17:17]]; [[Acts 19.8|19:8.]]
-[^b]: TG [[Sabbath]].
+[^a]: [[Acts 17.17|Acts 17:17]]; [[Acts 19.8|19:8]].  
+[^b]: [[Sabbath|TG Sabbath]].  

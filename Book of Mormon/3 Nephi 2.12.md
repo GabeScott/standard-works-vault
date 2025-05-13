@@ -5,5 +5,5 @@
 [3 Nephi 2:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/2?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 58.12|Alma 58:12]]; [[3 Nephi 3.2|3 Ne. 3:2.]]
-[^b]: TG [[Liberty]].
+[^a]: [[Alma 58.12|Alma 58:12]]; [[3 Nephi 3.2|3 Ne. 3:2]].  
+[^b]: [[Liberty|TG Liberty]].  

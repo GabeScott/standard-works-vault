@@ -5,4 +5,4 @@
 [1 Samuel 9:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.22?lang=eng#p22)
 
 
-[^a]: OR dining area.
+[^a]: OR dining area.  

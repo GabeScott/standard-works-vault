@@ -5,4 +5,4 @@
 [Judges 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.10?lang=eng#p10)
 
 
-[^a]: TG [[God, Knowledge about]].
+[^a]: [[God, Knowledge about|TG God, Knowledge about]].  

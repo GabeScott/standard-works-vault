@@ -5,4 +5,4 @@
 [Daniel 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/10.3?lang=eng#p3)
 
 
-[^a]: HEB desirable foods.
+[^a]: HEB desirable foods.  

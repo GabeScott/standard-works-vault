@@ -5,4 +5,4 @@
 [Titus 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/3.8?lang=eng#p8)
 
 
-[^a]: TG [[Good Works]].
+[^a]: [[Good Works|TG Good Works]].  

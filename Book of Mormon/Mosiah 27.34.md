@@ -5,4 +5,4 @@
 [Mosiah 27:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p34#p34)
 
 
-[^a]: [[Mosiah 28.1|Mosiah 28:1]]; [[Mosiah 29.3|29:3]]; [[Alma 17.1|Alma 17:1.]]
+[^a]: [[Mosiah 28.1|Mosiah 28:1]]; [[Mosiah 29.3|29:3]]; [[Alma 17.1|Alma 17:1]].  

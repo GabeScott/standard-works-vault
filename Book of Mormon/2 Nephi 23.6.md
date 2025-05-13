@@ -5,4 +5,4 @@
 [2 Nephi 23:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Day of the Lord]].
+[^a]: [[Day of the Lord|TG Day of the Lord]].  

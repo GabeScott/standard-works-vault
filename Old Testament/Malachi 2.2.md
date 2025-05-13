@@ -5,5 +5,5 @@
 [Malachi 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.2?lang=eng#p2)
 
 
-[^a]: [[Deuteronomy 28.15|Deut. 28:15.]]
-[^b]: TG [[Curse]].
+[^a]: [[Deuteronomy 28.15|Deut. 28:15]].  
+[^b]: [[Curse|TG Curse]].  

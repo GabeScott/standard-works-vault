@@ -5,4 +5,4 @@
 [Alma 22:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Creation, Create]].
+[^a]: [[Creation, Create|TG Creation]].  

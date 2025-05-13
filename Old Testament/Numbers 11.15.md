@@ -5,4 +5,4 @@
 [Numbers 11:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.15?lang=eng#p15)
 
 
-[^a]: OR immediately.
+[^a]: OR immediately.  

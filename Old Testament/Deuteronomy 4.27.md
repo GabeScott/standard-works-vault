@@ -5,5 +5,5 @@
 [Deuteronomy 4:27](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.27?lang=eng#p27)
 
 
-[^a]: TG [[Israel, Scattering of]].
-[^b]: HEB among the Gentiles (see v. 34).
+[^a]: [[Israel, Scattering of|TG Israel, Scattering of]].  
+[^b]: HEB among the Gentiles (see [[Deuteronomy 4.34|v. 34]]).  

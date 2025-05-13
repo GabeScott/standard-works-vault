@@ -5,4 +5,4 @@
 [Numbers 35:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.11?lang=eng#p11)
 
 
-[^a]: OR unintentionally.
+[^a]: OR unintentionally.  

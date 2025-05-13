@@ -5,5 +5,5 @@
 [Exodus 22:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.25?lang=eng#p25)
 
 
-[^a]: TG [[Debt]].
-[^b]: OR interest. TG [[Usury]].
+[^a]: [[Debt|TG Debt]].  
+[^b]: OR interest. [[Usury|TG Usury]].  

@@ -5,4 +5,4 @@
 [Numbers 21:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.15?lang=eng#p15)
 
 
-[^a]: HEB slopes of the valleys.
+[^a]: HEB slopes of the valleys.  

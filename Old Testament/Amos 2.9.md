@@ -5,4 +5,4 @@
 [Amos 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/2.9?lang=eng#p9)
 
 
-[^a]: [[Numbers 21.24|Num. 21:24 (21-25)]]; [[Joshua 24.8|Josh. 24:8.]]
+[^a]: [[Numbers 21.21|Num. 21:24 (21–25)]][[Numbers 21.22|]][[Numbers 21.23|]][[Numbers 21.24|]][[Numbers 21.25|]]; [[Joshua 24.8|Josh. 24:8]].  

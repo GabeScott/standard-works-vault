@@ -5,7 +5,7 @@
 [Revelation 22:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.15?lang=eng#p15)
 
 
-[^a]: TG [[Sorcery]]; [[Telestial Glory]].
-[^b]: TG [[Adulterer, Adultery]]; [[Whore, Whoredom]].
-[^c]: TG [[Murder, Murderer]].
-[^d]: TG [[Lying, Liar, Lie]].
+[^a]: [[Sorcery|TG Sorcery]]; [[Telestial Glory|Telestial Glory]].  
+[^b]: [[Adulterer, Adultery|TG Adulterer]]; [[Whore, Whoredom|Whore]].  
+[^c]: [[Murder, Murderer|TG Murder]].  
+[^d]: [[Lying, Liar, Lie|TG Lying]].  

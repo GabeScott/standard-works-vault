@@ -5,4 +5,4 @@
 [Alma 30:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p34#p34)
 
 
-[^a]: TG [[Joy]].
+[^a]: [[Joy|TG Joy]].  

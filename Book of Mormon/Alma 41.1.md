@@ -5,6 +5,6 @@
 [Alma 41:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/41?lang=eng&id=p1#p1)
 
 
-[^a]: 2 Pet. 1:20; 3:16; [[Alma 13.20|Alma 13:20.]]
-[^b]: TG [[Apostasy of Individuals]].
-[^c]: TG [[Problem-Solving]].
+[^a]: [[2 Peter 1.20|2 Pet. 1:20]]; [[2 Peter 3.16|3:16]]; [[Alma 13.20|Alma 13:20]].  
+[^b]: [[Apostasy of Individuals|TG Apostasy of Individuals]].  
+[^c]: [[Problem-Solving|TG Problem-Solving]].  

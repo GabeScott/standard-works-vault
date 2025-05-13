@@ -5,4 +5,4 @@
 [Genesis 31:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.1?lang=eng#p1)
 
 
-[^a]: OR wealth.
+[^a]: OR wealth.  

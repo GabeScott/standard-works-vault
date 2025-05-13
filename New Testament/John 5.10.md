@@ -5,4 +5,4 @@
 [John 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.10?lang=eng#p10)
 
 
-[^a]: [[Luke 6.2|Luke 6:2]]. TG [[Sabbath]].
+[^a]: [[Luke 6.2|Luke 6:2]]. [[Sabbath|TG Sabbath]].  

@@ -5,8 +5,8 @@
 [Alma 16:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/16?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 15.13|Alma 15:13]]; [[Alma 30.20|30:20 (20-23, 31).]]
-[^b]: [[3 Nephi 30.2|3 Ne. 30:2.]]
-[^c]: TG [[Deceit, Deceive]].
-[^d]: TG [[Envy, Envious]].
-[^e]: [[Alma 4.9|Alma 4:9 (8-9)]]. TG [[Strife]].
+[^a]: [[Alma 15.13|Alma 15:13]]; [[Alma 30.20|30:20 (20–23, 31)]][[Alma 30.21|]][[Alma 30.22|]][[Alma 30.23|]][[Alma 30.31|]].  
+[^b]: [[3 Nephi 30.2|3 Ne. 30:2]].  
+[^c]: [[Deceit, Deceive|TG Deceit]].  
+[^d]: [[Envy, Envious|TG Envy]].  
+[^e]: [[Alma 4.8|Alma 4:9 (8–9)]][[Alma 4.9|]]. [[Strife|TG Strife]].  

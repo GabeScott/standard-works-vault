@@ -5,6 +5,6 @@
 [Mosiah 18:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p25#p25)
 
 
-[^a]: [[Alma 32.11|Alma 32:11.]]
-[^b]: TG [[Meetings]].
-[^c]: TG [[Assembly for Worship]].
+[^a]: [[Alma 32.11|Alma 32:11]].  
+[^b]: [[Meetings|TG Meetings]].  
+[^c]: [[Assembly for Worship|TG Assembly for Worship]].  

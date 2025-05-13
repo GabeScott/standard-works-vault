@@ -5,4 +5,4 @@
 [Hosea 13:15](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.15?lang=eng#p15)
 
 
-[^a]: [[Genesis 41.23|Gen. 41:23.]]
+[^a]: [[Genesis 41.23|Gen. 41:23]].  

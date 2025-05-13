@@ -5,4 +5,4 @@
 [Jeremiah 44:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.16?lang=eng#p16)
 
 
-[^a]: [[Mosiah 16.2|Mosiah 16:2]]; [[Ether 11.13|Ether 11:13.]]
+[^a]: [[Mosiah 16.2|Mosiah 16:2]]; [[Ether 11.13|Ether 11:13]].  

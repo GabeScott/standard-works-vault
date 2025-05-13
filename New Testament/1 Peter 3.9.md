@@ -5,6 +5,6 @@
 [1 Peter 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.9?lang=eng#p9)
 
 
-[^a]: TG [[Retribution]].
-[^b]: TG [[Forbear, Forbearance]].
-[^c]: TG [[Israel, Blessings of]].
+[^a]: [[Retribution|TG Retribution]].  
+[^b]: [[Forbear, Forbearance|TG Forbear]].  
+[^c]: [[Blessing|TG Blessing]].  

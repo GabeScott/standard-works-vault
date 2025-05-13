@@ -5,4 +5,4 @@
 [Jeremiah 10:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 46.7|Isa. 46:7.]]
+[^a]: [[Isaiah 46.7|Isa. 46:7]].  

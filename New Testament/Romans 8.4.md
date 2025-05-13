@@ -5,4 +5,4 @@
 [Romans 8:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.4?lang=eng#p4)
 
 
-[^a]: [[Mosiah 3.19|Mosiah 3:19.]]
+[^a]: [[Mosiah 3.19|Mosiah 3:19]].  

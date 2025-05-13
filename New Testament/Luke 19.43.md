@@ -5,6 +5,6 @@
 [Luke 19:43](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.43?lang=eng#p43)
 
 
-[^a]: [[Luke 21.20|Luke 21:20.]]
-[^b]: GR fortification, rampart. Isa. 37:33.
-[^c]: [[Deuteronomy 28.52|Deut. 28:52.]]
+[^a]: [[Luke 21.20|Luke 21:20]].  
+[^b]: GR fortification, rampart. [[Isaiah 37.33|Isa. 37:33]].  
+[^c]: [[Deuteronomy 28.52|Deut. 28:52]].  

@@ -5,4 +5,4 @@
 [1 Chronicles 4:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/4.10?lang=eng#p10)
 
 
-[^a]: [[Deuteronomy 19.8|Deut. 19:8.]]
+[^a]: [[Deuteronomy 19.8|Deut. 19:8]].  

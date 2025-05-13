@@ -5,5 +5,5 @@
 [Moses 5:25](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.25?lang=eng#p25)
 
 
-[^a]: [[Helaman 6.27|Hel. 6:27 (26-28).]]
-[^b]: [[Moses 5.36|Moses 5:36]]. TG [[Curse]].
+[^a]: [[Helaman 6.26|Hel. 6:27 (26–28)]][[Helaman 6.27|]][[Helaman 6.28|]].  
+[^b]: [[Moses 5.36|Moses 5:36]]. [[Curse|TG Curse]].  

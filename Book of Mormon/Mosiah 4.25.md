@@ -5,4 +5,4 @@
 [Mosiah 4:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p25#p25)
 
 
-[^a]: [[D&C 56.17|D&C 56:17.]]
+[^a]: [[D&C 56.17|D&C 56:17]].  

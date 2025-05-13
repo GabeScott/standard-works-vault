@@ -5,6 +5,6 @@
 [Alma 37:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 1.5|Mosiah 1:5.]]
-[^b]: [[Alma 18.36|Alma 18:36]]; [[Alma 22.12|22:12.]]
-[^c]: TG [[Gospel]].
+[^a]: [[Mosiah 1.5|Mosiah 1:5]].  
+[^b]: [[Alma 18.36|Alma 18:36]]; [[Alma 22.12|22:12]].  
+[^c]: [[Gospel|TG Gospel]].  

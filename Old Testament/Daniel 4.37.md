@@ -5,6 +5,6 @@
 [Daniel 4:37](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.37?lang=eng#p37)
 
 
-[^a]: OR justice.
-[^b]: TG [[Walking in Darkness]].
-[^c]: OR humble.
+[^a]: OR justice.  
+[^b]: [[Walking in Darkness|TG Walking in Darkness]].  
+[^c]: OR humble.  

@@ -5,7 +5,7 @@
 [Matthew 25:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.21?lang=eng#p21)
 
 
-[^a]: TG [[Servant]].
-[^b]: [[Luke 16.10|Luke 16:10]]; [[D&C 132.53|D&C 132:53.]]
-[^c]: [[Revelation 3.21|Rev. 3:21]]; [[D&C 132.20|D&C 132:20]]. TG [[Leadership]]; [[Stewardship, Steward]].
-[^d]: TG [[Joy]].
+[^a]: [[Servant|TG Servant]].  
+[^b]: [[Luke 16.10|Luke 16:10]]; [[D&C 132.53|D&C 132:53]].  
+[^c]: [[Revelation 3.21|Rev. 3:21]]; [[D&C 132.20|D&C 132:20]]. [[Leadership|TG Leadership]]; [[Stewardship, Steward|Stewardship]].  
+[^d]: [[Joy|TG Joy]].  

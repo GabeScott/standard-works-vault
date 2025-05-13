@@ -5,5 +5,5 @@
 [Alma 62:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 61.8|Alma 61:8 (4-8).]]
-[^b]: [[Alma 51.6|Alma 51:6 (6-7).]]
+[^a]: [[Alma 61.4|Alma 61:8 (4–8)]][[Alma 61.5|]][[Alma 61.6|]][[Alma 61.7|]][[Alma 61.8|]].  
+[^b]: [[Alma 51.6|Alma 51:6 (6–7)]][[Alma 51.7|]].  

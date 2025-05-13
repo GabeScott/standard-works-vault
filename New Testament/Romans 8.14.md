@@ -5,6 +5,6 @@
 [Romans 8:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.14?lang=eng#p14)
 
 
-[^a]: TG [[Leadership]].
-[^b]: TG [[God, Spirit of]].
-[^c]: TG [[Sons and Daughters of God]].
+[^a]: [[Leadership|TG Leadership]].  
+[^b]: [[God, Spirit of|TG God, Spirit of]].  
+[^c]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  

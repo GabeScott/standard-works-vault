@@ -5,4 +5,4 @@
 [Alma 60:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p9#p9)
 
 
-[^a]: [[Alma 58.7|Alma 58:7 (7-9).]]
+[^a]: [[Alma 58.7|Alma 58:7 (7–9)]][[Alma 58.8|]][[Alma 58.9|]].  

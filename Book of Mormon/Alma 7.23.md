@@ -5,5 +5,5 @@
 [Alma 7:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p23#p23)
 
 
-[^a]: [[Proverbs 18.12|Prov. 18:12.]]
-[^b]: TG [[Submissiveness, Submit]].
+[^a]: [[Proverbs 18.12|Prov. 18:12]].  
+[^b]: [[Submissiveness, Submit|TG Submissiveness]].  

@@ -5,5 +5,5 @@
 [2 Timothy 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.15?lang=eng#p15)
 
 
-[^a]: TG [[Scriptures, Study of]].
-[^b]: GR setting forth without perversion, distortion.
+[^a]: [[Scriptures, Study of|TG Scriptures, Study of]].  
+[^b]: GR setting forth without perversion, distortion.  

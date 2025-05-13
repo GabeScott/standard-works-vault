@@ -5,4 +5,4 @@
 [1 Nephi 8:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Nephi 8.14|1 Ne. 8:14 (14-18).]]
+[^a]: [[1 Nephi 8.14|1 Ne. 8:14 (14–18)]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]].  

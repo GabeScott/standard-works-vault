@@ -5,4 +5,4 @@
 [Alma 49:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 49.13|Alma 49:13.]]
+[^a]: [[Alma 49.13|Alma 49:13]].  

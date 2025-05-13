@@ -5,6 +5,6 @@
 [Isaiah 29:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.21?lang=eng#p21)
 
 
-[^a]: TG [[Offense, Offend, Offender]].
-[^b]: IE the place of public transactions.
-[^c]: [[Amos 5.12|Amos 5:12.]]
+[^a]: [[Offense, Offend, Offender|TG Offense]].  
+[^b]: IE the place of public transactions.  
+[^c]: [[Amos 5.12|Amos 5:12]].  

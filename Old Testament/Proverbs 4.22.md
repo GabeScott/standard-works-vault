@@ -5,4 +5,4 @@
 [Proverbs 4:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/4.22?lang=eng#p22)
 
 
-[^a]: [[Matthew 19.17|Matt. 19:17.]]
+[^a]: [[Matthew 19.17|Matt. 19:17]].  

@@ -5,4 +5,4 @@
 [2 Samuel 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.6?lang=eng#p6)
 
 
-[^a]: [[Joshua 15.63|Josh. 15:63]]; [[Judges 1.21|Judg. 1:21.]]
+[^a]: [[Joshua 15.63|Josh. 15:63]]; [[Judges 1.21|Judg. 1:21]].  

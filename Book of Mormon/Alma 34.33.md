@@ -5,8 +5,8 @@
 [Alma 34:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p33#p33)
 
 
-[^a]: TG [[Witness, Witnesses]].
-[^b]: [[Job 27.8|Job 27:8]]; [[Helaman 13.38|Hel. 13:38]]; [[D&C 45.2|D&C 45:2]]. TG [[Apathy]]; [[Idleness, Idle, Idler]]; [[Procrastination, Procrastinate]].
-[^c]: TG [[Repent, Repentance]].
-[^d]: [[Ecclesiastes 9.10|Eccl. 9:10]]; [[John 9.4|John 9:4.]]
-[^e]: TG [[Darkness, Spiritual]].
+[^a]: [[Witness, Witnesses|TG Witness]].  
+[^b]: [[Job 27.8|Job 27:8]]; [[Helaman 13.38|Hel. 13:38]]; [[D&C 45.2|D&C 45:2]]. [[Apathy|TG Apathy]]; [[Idleness, Idle, Idler|Idleness]]; [[Procrastination, Procrastinate|Procrastination]].  
+[^c]: [[Repent, Repentance|TG Repent]].  
+[^d]: [[Ecclesiastes 9.10|Eccl. 9:10]]; [[John 9.4|John 9:4]].  
+[^e]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  

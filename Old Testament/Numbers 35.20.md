@@ -5,4 +5,4 @@
 [Numbers 35:20](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.20?lang=eng#p20)
 
 
-[^a]: OR stabs.
+[^a]: OR stabs.  

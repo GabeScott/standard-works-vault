@@ -5,6 +5,6 @@
 [2 Kings 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.6?lang=eng#p6)
 
 
-[^a]: [[Leviticus 18.21|Lev. 18:21]]; [[2 Chronicles 28.3|2 Chr. 28:3]]; [[2 Chronicles 33.6|33:6]]; [[Ezekiel 20.26|Ezek. 20:26]]. TG [[Superstitions]].
-[^b]: [[Leviticus 19.26|Lev. 19:26.]]
-[^c]: TG [[Spirits, Evil or Unclean]].
+[^a]: [[Leviticus 18.21|Lev. 18:21]]; [[2 Chronicles 28.3|2 Chr. 28:3]]; [[2 Chronicles 33.6|33:6]]; [[Ezekiel 20.26|Ezek. 20:26]]. [[Superstitions|TG Superstitions]].  
+[^b]: [[Leviticus 19.26|Lev. 19:26]].  
+[^c]: [[Spirits, Evil or Unclean|TG Spirits, Evil or Unclean]].  

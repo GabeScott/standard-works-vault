@@ -5,4 +5,4 @@
 [Deuteronomy 27:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.14?lang=eng#p14)
 
 
-[^a]: [[Deuteronomy 33.10|Deut. 33:10.]]
+[^a]: [[Deuteronomy 33.10|Deut. 33:10]].  

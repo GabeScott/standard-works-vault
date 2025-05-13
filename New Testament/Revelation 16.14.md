@@ -5,7 +5,7 @@
 [Revelation 16:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.14?lang=eng#p14)
 
 
-[^a]: [[D&C 50.1|D&C 50:1.]]
-[^b]: [[Matthew 24.24|Matt. 24:24]]; [[2 Nephi 9.9|2 Ne. 9:9 (8-12).]]
-[^c]: TG [[Miracle]].
-[^d]: [[Revelation 17.14|Rev. 17:14.]]
+[^a]: [[D&C 50.1|D&C 50:1]].  
+[^b]: [[Matthew 24.24|Matt. 24:24]]; [[2 Nephi 9.8|2 Ne. 9:9 (8–12)]][[2 Nephi 9.9|]][[2 Nephi 9.10|]][[2 Nephi 9.11|]][[2 Nephi 9.12|]].  
+[^c]: [[Miracle|TG Miracle]].  
+[^d]: [[Revelation 17.14|Rev. 17:14]].  

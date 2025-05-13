@@ -5,5 +5,5 @@
 [Leviticus 10:19](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.19?lang=eng#p19)
 
 
-[^a]: [[Leviticus 10.2|Lev. 10:2 (1-3).]]
-[^b]: [[Moroni 7.44|Moro. 7:44.]]
+[^a]: [[Leviticus 10.1|Lev. 10:2 (1–3)]][[Leviticus 10.2|]][[Leviticus 10.3|]].  
+[^b]: [[Moroni 7.44|Moro. 7:44]].  

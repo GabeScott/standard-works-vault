@@ -5,10 +5,10 @@
 [3 Nephi 30:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/30?lang=eng&id=p2#p2)
 
 
-[^a]: [[Romans 15.10|Rom. 15:10 (8-21).]]
-[^b]: TG [[Repent, Repentance]].
-[^c]: [[Alma 16.18|Alma 16:18]]; [[3 Nephi 21.19|3 Ne. 21:19 (19-21).]]
-[^d]: [[3 Nephi 16.10|3 Ne. 16:10]]; [[Mormon 8.31|Morm. 8:31.]]
-[^e]: TG [[Priestcraft]].
-[^f]: TG [[Envy, Envious]].
-[^g]: [[Galatians 3.29|Gal. 3:29 (27-29)]]; [[2 Nephi 10.18|2 Ne. 10:18 (18-19)]]; [[3 Nephi 21.22|3 Ne. 21:22 (22-25)]]; [[Abraham 2.10|Abr. 2:10.]]
+[^a]: [[Romans 15.8|Rom. 15:10 (8–21)]][[Romans 15.9|]][[Romans 15.10|]][[Romans 15.11|]][[Romans 15.12|]][[Romans 15.13|]][[Romans 15.14|]][[Romans 15.15|]][[Romans 15.16|]][[Romans 15.17|]][[Romans 15.18|]][[Romans 15.19|]][[Romans 15.20|]][[Romans 15.21|]].  
+[^b]: [[Repent, Repentance|TG Repent]].  
+[^c]: [[Alma 16.18|Alma 16:18]]; [[3 Nephi 21.19|3 Ne. 21:19 (19–21)]][[3 Nephi 21.20|]][[3 Nephi 21.21|]].  
+[^d]: [[3 Nephi 16.10|3 Ne. 16:10]]; [[Mormon 8.31|Morm. 8:31]].  
+[^e]: [[Priestcraft|TG Priestcraft]].  
+[^f]: [[Envy, Envious|TG Envy]].  
+[^g]: [[Galatians 3.27|Gal. 3:29 (27–29)]][[Galatians 3.28|]][[Galatians 3.29|]]; [[2 Nephi 10.18|2 Ne. 10:18 (18–19)]][[2 Nephi 10.19|]]; [[3 Nephi 21.22|3 Ne. 21:22 (22–25)]][[3 Nephi 21.23|]][[3 Nephi 21.24|]][[3 Nephi 21.25|]]; [[Abraham 2.10|Abr. 2:10]].  

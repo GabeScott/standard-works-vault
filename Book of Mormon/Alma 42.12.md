@@ -5,5 +5,5 @@
 [Alma 42:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p12#p12)
 
 
-[^a]: [[1 Corinthians 15.22|1 Cor. 15:22.]]
-[^b]: TG [[Disobedience, Disobey]].
+[^a]: [[1 Corinthians 15.22|1 Cor. 15:22]].  
+[^b]: [[Disobedience, Disobey|TG Disobedience]].  

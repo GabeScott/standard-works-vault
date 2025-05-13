@@ -5,6 +5,6 @@
 [Luke 4:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.22?lang=eng#p22)
 
 
-[^a]: OR marveled.
-[^b]: [[Psalms 45.2|Ps. 45:2.]]
-[^c]: [[John 6.42|John 6:42.]]
+[^a]: OR marveled.  
+[^b]: [[Psalms 45.2|Ps. 45:2]].  
+[^c]: [[John 6.42|John 6:42]].  

@@ -5,4 +5,4 @@
 [Matthew 25:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.8?lang=eng#p8)
 
 
-[^a]: GR are going out.
+[^a]: GR are going out.  

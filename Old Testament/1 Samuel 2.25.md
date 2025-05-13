@@ -5,4 +5,4 @@
 [1 Samuel 2:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.25?lang=eng#p25)
 
 
-[^a]: TG [[Judgment]].
+[^a]: [[Judgment|TG Judgment]].  

@@ -5,6 +5,6 @@
 [Jeremiah 14:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.22?lang=eng#p22)
 
 
-[^a]: IE worthless idols of the nations.
-[^b]: [[Jeremiah 3.3|Jer. 3:3 (1-5).]]
-[^c]: [[Mosiah 4.2|Mosiah 4:2]]; [[3 Nephi 9.15|3 Ne. 9:15]]; [[D&C 14.9|D&C 14:9]]; [[D&C 45.1|45:1.]]
+[^a]: IE worthless idols of the nations.  
+[^b]: [[Jeremiah 3.1|Jer. 3:3 (1–5)]][[Jeremiah 3.2|]][[Jeremiah 3.3|]][[Jeremiah 3.4|]][[Jeremiah 3.5|]].  
+[^c]: [[Mosiah 4.2|Mosiah 4:2]]; [[3 Nephi 9.15|3 Ne. 9:15]]; [[D&C 14.9|D&C 14:9]]; [[D&C 45.1|45:1]].  

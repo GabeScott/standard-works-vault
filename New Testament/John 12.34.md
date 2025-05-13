@@ -5,4 +5,4 @@
 [John 12:34](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.34?lang=eng#p34)
 
 
-[^a]: [[2 Samuel 7.16|2 Sam. 7:16.]]
+[^a]: [[2 Samuel 7.16|2 Sam. 7:16]].  

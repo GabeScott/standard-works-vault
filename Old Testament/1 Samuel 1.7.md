@@ -5,4 +5,4 @@
 [1 Samuel 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/1.7?lang=eng#p7)
 
 
-[^a]: TG [[Genealogy and Temple Work]].
+[^a]: [[Temple|TG Temple]].  

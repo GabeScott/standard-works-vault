@@ -5,4 +5,4 @@
 [Exodus 9:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.25?lang=eng#p25)
 
 
-[^a]: [[Psalms 78.47|Ps. 78:47 (47-48).]]
+[^a]: [[Psalms 78.47|Ps. 78:47 (47–48)]][[Psalms 78.48|]].  

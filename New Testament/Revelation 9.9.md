@@ -5,4 +5,4 @@
 [Revelation 9:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/9.9?lang=eng#p9)
 
 
-[^a]: [[Joel 2.5|Joel 2:5.]]
+[^a]: [[Joel 2.5|Joel 2:5]].  

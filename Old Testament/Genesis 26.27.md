@@ -5,4 +5,4 @@
 [Genesis 26:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.27?lang=eng#p27)
 
 
-[^a]: TG [[Forbear, Forbearance]].
+[^a]: [[Forbear, Forbearance|TG Forbear]].  

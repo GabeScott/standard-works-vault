@@ -5,4 +5,4 @@
 [Numbers 11:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.29?lang=eng#p29)
 
 
-[^a]: TG [[Prophecy]]; [[Prophets, Mission of]].
+[^a]: [[Prophecy|TG Prophecy]]; [[Prophets, Mission of|Prophets, Mission of]].  

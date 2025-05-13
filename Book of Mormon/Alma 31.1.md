@@ -5,6 +5,6 @@
 [Alma 31:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p1#p1)
 
 
-[^a]: [[Exodus 20.5|Ex. 20:5]]; [[Mosiah 13.13|Mosiah 13:13.]]
-[^b]: [[2 Nephi 9.37|2 Ne. 9:37]]. TG [[Idolatry, Idol]].
-[^c]: [[Alma 35.15|Alma 35:15.]]
+[^a]: [[Exodus 20.5|Ex. 20:5]]; [[Mosiah 13.13|Mosiah 13:13]].  
+[^b]: [[2 Nephi 9.37|2 Ne. 9:37]]. [[Idolatry, Idol|TG Idolatry]].  
+[^c]: [[Alma 35.15|Alma 35:15]].  

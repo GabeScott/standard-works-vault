@@ -5,5 +5,5 @@
 [3 Nephi 4:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/4?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Reverence]].
-[^b]: [[Jeremiah 17.17|Jer. 17:17 (17-18).]]
+[^a]: [[Reverence|TG Reverence]].  
+[^b]: [[Jeremiah 17.17|Jer. 17:17 (17–18)]][[Jeremiah 17.18|]].  

@@ -5,4 +5,4 @@
 [2 Kings 18:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/18.18?lang=eng#p18)
 
 
-[^a]: [[Isaiah 22.20|Isa. 22:20.]]
+[^a]: [[Isaiah 22.20|Isa. 22:20]].  

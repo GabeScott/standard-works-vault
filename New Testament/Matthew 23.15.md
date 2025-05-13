@@ -5,4 +5,4 @@
 [Matthew 23:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.15?lang=eng#p15)
 
 
-[^a]: JST Matt. 23:12 … than he was before, like unto yourselves.
+[^a]: JST Matt. 23:12 … than he was before, like unto yourselves.  

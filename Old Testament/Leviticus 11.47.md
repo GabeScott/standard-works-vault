@@ -5,5 +5,5 @@
 [Leviticus 11:47](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.47?lang=eng#p47)
 
 
-[^a]: HEB To differentiate.
-[^b]: TG [[Uncleanness, Unclean]].
+[^a]: HEB To differentiate.  
+[^b]: [[Uncleanness, Unclean|TG Uncleanness]].  

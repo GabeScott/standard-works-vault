@@ -5,4 +5,4 @@
 [1 Samuel 15:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.6?lang=eng#p6)
 
 
-[^a]: [[Judges 1.16|Judg. 1:16.]]
+[^a]: [[Judges 1.16|Judg. 1:16]].  

@@ -5,4 +5,4 @@
 [Hebrews 12:6](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.6?lang=eng#p6)
 
 
-[^a]: TG [[Chastening]]; [[Persecution, Persecute]].
+[^a]: [[Chastening|TG Chastening]]; [[Persecution, Persecute|Persecution]].  

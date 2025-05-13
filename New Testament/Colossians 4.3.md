@@ -5,4 +5,4 @@
 [Colossians 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/col/4.3?lang=eng#p3)
 
 
-[^a]: [[1 Corinthians 16.9|1 Cor. 16:9.]]
+[^a]: [[1 Corinthians 16.9|1 Cor. 16:9]].  

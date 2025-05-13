@@ -5,6 +5,6 @@
 [Romans 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.10?lang=eng#p10)
 
 
-[^a]: TG [[Peace of God]].
-[^b]: TG [[Work, Value of]].
-[^c]: GR Greek.
+[^a]: [[Peace of God|TG Peace of God]].  
+[^b]: [[Work, Value of|TG Work, Value of]].  
+[^c]: GR Greek.  

@@ -5,4 +5,4 @@
 [Proverbs 17:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.10?lang=eng#p10)
 
 
-[^a]: TG [[Reproof, Reprove]].
+[^a]: [[Reproof, Reprove|TG Reproof]].  

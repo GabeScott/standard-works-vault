@@ -5,5 +5,5 @@
 [Joshua 11:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/11.6?lang=eng#p6)
 
 
-[^a]: [[1 Nephi 17.32|1 Ne. 17:32 (32-38)]]; [[D&C 105.14|D&C 105:14.]]
-[^b]: OR hock, cut the hamstring of.
+[^a]: [[1 Nephi 17.32|1 Ne. 17:32 (32–38)]][[1 Nephi 17.33|]][[1 Nephi 17.34|]][[1 Nephi 17.35|]][[1 Nephi 17.36|]][[1 Nephi 17.37|]][[1 Nephi 17.38|]]; [[D&C 105.14|D&C 105:14]].  
+[^b]: OR hock, cut the hamstring of.  

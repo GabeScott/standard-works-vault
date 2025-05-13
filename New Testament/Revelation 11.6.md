@@ -5,5 +5,5 @@
 [Revelation 11:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/11.6?lang=eng#p6)
 
 
-[^a]: [[Exodus 7.17|Ex. 7:17 (17-21).]]
-[^b]: TG [[Plague]].
+[^a]: [[Exodus 7.17|Ex. 7:17 (17–21)]][[Exodus 7.18|]][[Exodus 7.19|]][[Exodus 7.20|]][[Exodus 7.21|]].  
+[^b]: [[Plague|TG Plague]].  

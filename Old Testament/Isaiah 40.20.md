@@ -5,4 +5,4 @@
 [Isaiah 40:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.20?lang=eng#p20)
 
 
-[^a]: [[Isaiah 41.7|Isa. 41:7.]]
+[^a]: [[Isaiah 41.7|Isa. 41:7]].  

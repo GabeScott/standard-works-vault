@@ -5,5 +5,5 @@
 [Mormon 8:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p11#p11)
 
 
-[^a]: [[3 Nephi 28.26|3 Ne. 28:26.]]
-[^b]: TG [[Translated Beings]].
+[^a]: [[3 Nephi 28.26|3 Ne. 28:26]].  
+[^b]: [[Translated Beings|TG Translated Beings]].  

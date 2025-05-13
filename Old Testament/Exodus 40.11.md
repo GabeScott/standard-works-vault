@@ -5,4 +5,4 @@
 [Exodus 40:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.11?lang=eng#p11)
 
 
-[^a]: OR its base.
+[^a]: OR its base.  

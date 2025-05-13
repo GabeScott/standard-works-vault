@@ -5,4 +5,4 @@
 [Ezekiel 39:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.11?lang=eng#p11)
 
 
-[^a]: HEB travelers.
+[^a]: HEB travelers.  

@@ -5,4 +5,4 @@
 [Isaiah 65:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.4?lang=eng#p4)
 
 
-[^a]: HEB Who sit.
+[^a]: HEB Who sit.  

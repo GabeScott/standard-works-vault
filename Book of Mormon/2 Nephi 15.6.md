@@ -5,5 +5,5 @@
 [2 Nephi 15:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p6#p6)
 
 
-[^a]: [[Isaiah 7.23|Isa. 7:23 (23-24)]]; [[Isaiah 32.13|32:13.]]
-[^b]: [[Leviticus 26.4|Lev. 26:4]]; [[Jeremiah 3.3|Jer. 3:3.]]
+[^a]: [[Isaiah 7.23|Isa. 7:23 (23–24)]][[Isaiah 7.24|]]; [[Isaiah 32.13|32:13]].  
+[^b]: [[Leviticus 26.4|Lev. 26:4]]; [[Jeremiah 3.3|Jer. 3:3]].  

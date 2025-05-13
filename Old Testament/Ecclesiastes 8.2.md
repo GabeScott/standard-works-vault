@@ -5,4 +5,4 @@
 [Ecclesiastes 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/8.2?lang=eng#p2)
 
 
-[^a]: TG [[Citizenship]]; [[Governments]].
+[^a]: [[Citizenship|TG Citizenship]]; [[Governments|Governments]].  

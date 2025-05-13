@@ -5,4 +5,4 @@
 [1 Corinthians 6:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/6.15?lang=eng#p15)
 
 
-[^a]: [[Ephesians 5.30|Eph. 5:30.]]
+[^a]: [[Ephesians 5.30|Eph. 5:30]].  

@@ -5,5 +5,5 @@
 [Mosiah 1:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/1?lang=eng&id=p10#p10)
 
 
-[^a]: [[Omni 1.14|Omni 1:14]]; [[Mosiah 27.35|Mosiah 27:35.]]
-[^b]: [[Genesis 41.43|Gen. 41:43 (41-43)]]; [[Jarom 1.7|Jarom 1:7 (7, 14)]]; [[Mosiah 2.30|Mosiah 2:30.]]
+[^a]: [[Omni 1.14|Omni 1:14]]; [[Mosiah 27.35|Mosiah 27:35]].  
+[^b]: [[Genesis 41.41|Gen. 41:43 (41–43)]][[Genesis 41.42|]][[Genesis 41.43|]]; [[Jarom 1.7|Jarom 1:7 (7, 14)]][[Jarom 1.14|]]; [[Mosiah 2.30|Mosiah 2:30]].  

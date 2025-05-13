@@ -5,4 +5,4 @@
 [Ruth 4:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.10?lang=eng#p10)
 
 
-[^a]: [[Deuteronomy 25.6|Deut. 25:6.]]
+[^a]: [[Deuteronomy 25.6|Deut. 25:6]].  

@@ -5,4 +5,4 @@
 [Isaiah 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.20?lang=eng#p20)
 
 
-[^a]: IE the land will be depopulated by a foreign invader.
+[^a]: IE the land will be depopulated by a foreign invader.  

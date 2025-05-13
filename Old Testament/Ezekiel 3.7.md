@@ -5,4 +5,4 @@
 [Ezekiel 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.7?lang=eng#p7)
 
 
-[^a]: TG [[Hardheartedness, Harden, Hardness]]; [[Stubbornness, Stubborn]].
+[^a]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]]; [[Stubbornness, Stubborn|Stubbornness]].  

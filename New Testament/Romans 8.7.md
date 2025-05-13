@@ -5,5 +5,5 @@
 [Romans 8:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.7?lang=eng#p7)
 
 
-[^a]: TG [[Fall of Man]].
-[^b]: TG [[Opposition]].
+[^a]: [[Fall of Man|TG Fall of Man]].  
+[^b]: [[Opposition|TG Opposition]].  

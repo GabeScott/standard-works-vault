@@ -5,5 +5,5 @@
 [Mark 4:19](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.19?lang=eng#p19)
 
 
-[^a]: TG [[Treasure]].
-[^b]: TG [[Lust]].
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[Lust|TG Lust]].  

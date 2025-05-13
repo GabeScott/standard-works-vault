@@ -5,5 +5,5 @@
 [Isaiah 30:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.6?lang=eng#p6)
 
 
-[^a]: IE a message of doom for those of Judah who travel with loads of gifts on animals toward Egypt (vv. 2-7).
-[^b]: HEB Negev; i.e., the southern desert.
+[^a]: IE a message of doom for those of Judah who travel with loads of gifts on animals toward Egypt ([[Isaiah 30.2|vv. 2–7]][[Isaiah 30.3|]][[Isaiah 30.4|]][[Isaiah 30.5|]][[Isaiah 30.6|]][[Isaiah 30.7|]]).  
+[^b]: HEB Negev; i.e., the southern desert.  

@@ -5,5 +5,5 @@
 [Exodus 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.20?lang=eng#p20)
 
 
-[^a]: [[Exodus 14.16|Ex. 14:16 (15-17)]]; [[Exodus 17.5|17:5.]]
-[^b]: [[Psalms 105.29|Ps. 105:29.]]
+[^a]: [[Exodus 14.15|Ex. 14:16 (15–17)]][[Exodus 14.16|]][[Exodus 14.17|]]; [[Exodus 17.5|17:5]].  
+[^b]: [[Psalms 105.29|Ps. 105:29]].  

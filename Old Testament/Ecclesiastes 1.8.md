@@ -5,4 +5,4 @@
 [Ecclesiastes 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.8?lang=eng#p8)
 
 
-[^a]: [[Proverbs 27.20|Prov. 27:20.]]
+[^a]: [[Proverbs 27.20|Prov. 27:20]].  

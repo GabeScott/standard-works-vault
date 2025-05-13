@@ -5,4 +5,4 @@
 [Acts 24:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.6?lang=eng#p6)
 
 
-[^a]: [[Acts 21.28|Acts 21:28.]]
+[^a]: [[Acts 21.28|Acts 21:28]].  

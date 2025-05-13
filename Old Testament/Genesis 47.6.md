@@ -5,4 +5,4 @@
 [Genesis 47:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.6?lang=eng#p6)
 
 
-[^a]: [[Ether 13.7|Ether 13:7.]]
+[^a]: [[Ether 13.7|Ether 13:7]].  

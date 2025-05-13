@@ -5,5 +5,5 @@
 [Moroni 6:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/6?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Assembly for Worship]]; [[Meetings]].
-[^b]: TG [[Sacrament]].
+[^a]: [[Assembly for Worship|TG Assembly for Worship]]; [[Meetings|Meetings]].  
+[^b]: [[Sacrament|TG Sacrament]].  

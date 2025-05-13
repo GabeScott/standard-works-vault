@@ -5,4 +5,4 @@
 [Psalms 130:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/130.7?lang=eng#p7)
 
 
-[^a]: [[Isaiah 55.7|Isa. 55:7.]]
+[^a]: [[Isaiah 55.7|Isa. 55:7]].  

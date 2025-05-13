@@ -5,5 +5,5 @@
 [Romans 11:30](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.30?lang=eng#p30)
 
 
-[^a]: GR were disbelieving, disobedient to.
-[^b]: GR disobedience, disbelief.
+[^a]: GR were disbelieving, disobedient to.  
+[^b]: GR disobedience, disbelief.  

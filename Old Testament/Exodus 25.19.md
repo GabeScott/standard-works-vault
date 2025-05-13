@@ -5,4 +5,4 @@
 [Exodus 25:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.19?lang=eng#p19)
 
 
-[^a]: OR as part of it.
+[^a]: OR as part of it.  

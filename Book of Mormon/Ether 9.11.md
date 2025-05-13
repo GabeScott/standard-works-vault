@@ -5,5 +5,5 @@
 [Ether 9:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p11#p11)
 
 
-[^a]: TG [[Tyranny]].
-[^b]: [[1 Samuel 8.3|1 Sam. 8:3 (1-4)]]; [[Helaman 9.20|Hel. 9:20]]. TG [[Bribe, Bribery]].
+[^a]: [[Tyranny|TG Tyranny]].  
+[^b]: [[1 Samuel 8.1|1 Sam. 8:3 (1–4)]][[1 Samuel 8.2|]][[1 Samuel 8.3|]][[1 Samuel 8.4|]]; [[Helaman 9.20|Hel. 9:20]]. [[Bribe, Bribery|TG Bribe]].  

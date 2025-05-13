@@ -5,4 +5,4 @@
 [John 5:42](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.42?lang=eng#p42)
 
 
-[^a]: TG [[God, Love of]]; [[Love]].
+[^a]: [[God, Love of|TG God, Love of]]; [[Love|Love]].  

@@ -5,4 +5,4 @@
 [Isaiah 43:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.15?lang=eng#p15)
 
 
-[^a]: [[Psalms 5.2|Ps. 5:2.]]
+[^a]: [[Psalms 5.2|Ps. 5:2]].  

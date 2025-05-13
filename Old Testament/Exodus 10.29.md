@@ -5,4 +5,4 @@
 [Exodus 10:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.29?lang=eng#p29)
 
 
-[^a]: HEB As you have spoken.
+[^a]: HEB As you have spoken.  

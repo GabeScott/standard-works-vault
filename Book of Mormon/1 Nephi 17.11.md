@@ -5,4 +5,4 @@
 [1 Nephi 17:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p11#p11)
 
 
-[^a]: [[Isaiah 54.16|Isa. 54:16.]]
+[^a]: [[Isaiah 54.16|Isa. 54:16]].  

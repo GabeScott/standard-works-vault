@@ -5,4 +5,4 @@
 [Ezekiel 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.22?lang=eng#p22)
 
 
-[^a]: [[Ezekiel 8.4|Ezek. 8:4.]]
+[^a]: [[Ezekiel 8.4|Ezek. 8:4]].  

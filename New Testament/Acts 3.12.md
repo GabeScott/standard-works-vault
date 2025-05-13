@@ -5,4 +5,4 @@
 [Acts 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.12?lang=eng#p12)
 
 
-[^a]: [[Genesis 41.16|Gen. 41:16]]; Dan. 2:30.
+[^a]: [[Genesis 41.16|Gen. 41:16]]; [[Daniel 2.30|Dan. 2:30]].  

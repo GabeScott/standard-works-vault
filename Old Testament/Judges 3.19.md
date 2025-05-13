@@ -5,4 +5,4 @@
 [Judges 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/3.19?lang=eng#p19)
 
 
-[^a]: OR message.
+[^a]: OR message.  

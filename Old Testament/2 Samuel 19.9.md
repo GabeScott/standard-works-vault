@@ -5,4 +5,4 @@
 [2 Samuel 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.9?lang=eng#p9)
 
 
-[^a]: TG [[Strife]].
+[^a]: [[Strife|TG Strife]].  

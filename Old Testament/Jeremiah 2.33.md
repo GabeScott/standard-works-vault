@@ -5,4 +5,4 @@
 [Jeremiah 2:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.33?lang=eng#p33)
 
 
-[^a]: HEB women.
+[^a]: HEB women.  

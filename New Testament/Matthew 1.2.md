@@ -5,5 +5,5 @@
 [Matthew 1:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 25.19|Gen. 25:19.]]
-[^b]: TG [[Israel, Judah, People of]].
+[^a]: [[Genesis 25.19|Gen. 25:19]].  
+[^b]: [[Israel, Judah, People of|TG Israel, Judah, People of]].  

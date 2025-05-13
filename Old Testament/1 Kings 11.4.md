@@ -5,5 +5,5 @@
 [1 Kings 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.4?lang=eng#p4)
 
 
-[^a]: TG [[Marriage, Interfaith]].
-[^b]: JST 1 Kgs. 11:4 … and it became as the heart …
+[^a]: [[Marriage, Interfaith|TG Marriage, Interfaith]].  
+[^b]: JST 1 Kgs. 11:4 … and it became as the heart …  

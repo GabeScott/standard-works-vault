@@ -5,6 +5,6 @@
 [Alma 4:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p13#p13)
 
 
-[^a]: TG [[Almsgiving]].
-[^b]: TG [[Affliction]].
-[^c]: [[2 Corinthians 12.10|2 Cor. 12:10.]]
+[^a]: [[Almsgiving|TG Almsgiving]].  
+[^b]: [[Affliction|TG Affliction]].  
+[^c]: [[2 Corinthians 12.10|2 Cor. 12:10]].  

@@ -5,4 +5,4 @@
 [Daniel 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.2?lang=eng#p2)
 
 
-[^a]: OR one.
+[^a]: OR one.  

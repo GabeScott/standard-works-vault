@@ -5,4 +5,4 @@
 [Colossians 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.7?lang=eng#p7)
 
 
-[^a]: Col. 4:12 (12-13); Philem. 1:23.
+[^a]: [[Colossians 4.12|Col. 4:12 (12–13)]][[Colossians 4.13|]]; [[Philemon 1.23|Philem. 1:23]].  

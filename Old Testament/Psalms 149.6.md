@@ -5,4 +5,4 @@
 [Psalms 149:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/149.6?lang=eng#p6)
 
 
-[^a]: [[D&C 6.2|D&C 6:2.]]
+[^a]: [[D&C 6.2|D&C 6:2]].  

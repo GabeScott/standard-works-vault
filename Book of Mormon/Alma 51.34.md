@@ -5,5 +5,5 @@
 [Alma 51:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p34#p34)
 
 
-[^a]: [[Alma 62.36|Alma 62:36.]]
-[^b]: [[Alma 54.16|Alma 54:16.]]
+[^a]: [[Alma 62.36|Alma 62:36]].  
+[^b]: [[Alma 54.16|Alma 54:16]].  

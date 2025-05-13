@@ -5,4 +5,4 @@
 [Micah 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/2.10?lang=eng#p10)
 
 
-[^a]: [[D&C 84.24|D&C 84:24.]]
+[^a]: [[D&C 84.24|D&C 84:24]].  

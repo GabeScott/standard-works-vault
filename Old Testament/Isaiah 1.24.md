@@ -5,4 +5,4 @@
 [Isaiah 1:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.24?lang=eng#p24)
 
 
-[^a]: [[D&C 101.58|D&C 101:58.]]
+[^a]: [[D&C 101.58|D&C 101:58]].  

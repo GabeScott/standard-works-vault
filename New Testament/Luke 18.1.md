@@ -5,6 +5,6 @@
 [Luke 18:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.1?lang=eng#p1)
 
 
-[^a]: TG [[Perseverance]].
-[^b]: TG [[Prayer, Pray]].
-[^c]: [[D&C 75.11|D&C 75:11.]]
+[^a]: [[Perseverance|TG Perseverance]].  
+[^b]: [[Prayer, Pray|TG Prayer]].  
+[^c]: [[D&C 75.11|D&C 75:11]].  

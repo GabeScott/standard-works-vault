@@ -5,4 +5,4 @@
 [Romans 9:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.5?lang=eng#p5)
 
 
-[^a]: TG [[Jesus Christ, Condescension of]].
+[^a]: [[Jesus Christ, Condescension of|TG Jesus Christ, Condescension of]].  

@@ -5,5 +5,5 @@
 [Numbers 16:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.11?lang=eng#p11)
 
 
-[^a]: [[Exodus 16.8|Ex. 16:8.]]
-[^b]: [[D&C 121.16|D&C 121:16.]]
+[^a]: [[Exodus 16.8|Ex. 16:8]].  
+[^b]: [[D&C 121.16|D&C 121:16]].  

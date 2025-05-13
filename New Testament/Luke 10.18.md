@@ -5,4 +5,4 @@
 [Luke 10:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.18?lang=eng#p18)
 
 
-[^a]: TG [[Council in Heaven]]; [[Devil, Church of]].
+[^a]: [[Council in Heaven|TG Council in Heaven]]; [[Devil|Devil]].  

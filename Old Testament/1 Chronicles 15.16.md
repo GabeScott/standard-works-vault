@@ -5,4 +5,4 @@
 [1 Chronicles 15:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/15.16?lang=eng#p16)
 
 
-[^a]: [[2 Samuel 6.5|2 Sam. 6:5]]; Dan. 3:5 (5, 7, 10, 15).
+[^a]: [[2 Samuel 6.5|2 Sam. 6:5]]; [[Daniel 3.5|Dan. 3:5 (5, 7, 10, 15)]][[Daniel 3.7|]][[Daniel 3.10|]][[Daniel 3.15|]].  

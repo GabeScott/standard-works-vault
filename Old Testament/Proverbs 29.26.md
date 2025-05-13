@@ -5,4 +5,4 @@
 [Proverbs 29:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.26?lang=eng#p26)
 
 
-[^a]: [[Proverbs 19.6|Prov. 19:6.]]
+[^a]: [[Proverbs 19.6|Prov. 19:6]].  

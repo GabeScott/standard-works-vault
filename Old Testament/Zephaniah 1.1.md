@@ -5,4 +5,4 @@
 [Zephaniah 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.1?lang=eng#p1)
 
 
-[^a]: [[2 Kings 21.24|2 Kgs. 21:24.]]
+[^a]: [[2 Kings 21.24|2 Kgs. 21:24]].  

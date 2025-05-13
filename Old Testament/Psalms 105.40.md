@@ -5,4 +5,4 @@
 [Psalms 105:40](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.40?lang=eng#p40)
 
 
-[^a]: [[Exodus 16.13|Ex. 16:13 (12-13).]]
+[^a]: [[Exodus 16.12|Ex. 16:13 (12–13)]][[Exodus 16.13|]].  

@@ -5,5 +5,5 @@
 [Judges 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/1.19?lang=eng#p19)
 
 
-[^a]: [[Deuteronomy 33.7|Deut. 33:7.]]
-[^b]: [[Joshua 17.16|Josh. 17:16]]; [[Judges 4.3|Judg. 4:3.]]
+[^a]: [[Deuteronomy 33.7|Deut. 33:7]].  
+[^b]: [[Joshua 17.16|Josh. 17:16]]; [[Judges 4.3|Judg. 4:3]].  

@@ -5,4 +5,4 @@
 [Acts 15:18](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.18?lang=eng#p18)
 
 
-[^a]: TG [[God, Omniscience of]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  

@@ -5,4 +5,4 @@
 [Mormon 5:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p2#p2)
 
 
-[^a]: [[Mormon 3.12|Morm. 3:12.]]
+[^a]: [[Mormon 3.12|Morm. 3:12]].  

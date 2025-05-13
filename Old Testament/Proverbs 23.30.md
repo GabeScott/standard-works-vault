@@ -5,4 +5,4 @@
 [Proverbs 23:30](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.30?lang=eng#p30)
 
 
-[^a]: TG [[Temperance, Temperate]].
+[^a]: [[Temperance, Temperate|TG Temperance]].  

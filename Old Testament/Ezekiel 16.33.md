@@ -5,4 +5,4 @@
 [Ezekiel 16:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.33?lang=eng#p33)
 
 
-[^a]: [[Hosea 8.9|Hosea 8:9.]]
+[^a]: [[Hosea 8.9|Hosea 8:9]].  

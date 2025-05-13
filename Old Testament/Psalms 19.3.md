@@ -5,4 +5,4 @@
 [Psalms 19:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.3?lang=eng#p3)
 
 
-[^a]: TG [[Language]].
+[^a]: [[Language|TG Language]].  

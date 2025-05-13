@@ -5,4 +5,4 @@
 [Ezekiel 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.15?lang=eng#p15)
 
 
-[^a]: Dan. 7:9.
+[^a]: [[Daniel 7.9|Dan. 7:9]].  

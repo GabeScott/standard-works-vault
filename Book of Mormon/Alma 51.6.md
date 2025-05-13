@@ -5,6 +5,6 @@
 [Alma 51:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 61.3|Alma 61:3 (3-4)]]; [[Alma 62.6|62:6.]]
-[^b]: [[1 Kings 16.21|1 Kgs. 16:21 (21-22).]]
-[^c]: [[Alma 48.13|Alma 48:13]]; [[Alma 60.25|60:25 (25-27).]]
+[^a]: [[Alma 61.3|Alma 61:3 (3–4)]][[Alma 61.4|]]; [[Alma 62.6|62:6]].  
+[^b]: [[1 Kings 16.21|1 Kgs. 16:21 (21–22)]][[1 Kings 16.22|]].  
+[^c]: [[Alma 48.13|Alma 48:13]]; [[Alma 60.25|60:25 (25–27)]][[Alma 60.26|]][[Alma 60.27|]].  

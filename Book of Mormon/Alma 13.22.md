@@ -5,4 +5,4 @@
 [Alma 13:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 10.20|Alma 10:20 (7-10, 20).]]
+[^a]: [[Alma 10.7|Alma 10:20 (7–10, 20)]][[Alma 10.8|]][[Alma 10.9|]][[Alma 10.10|]][[Alma 10.20|]].  

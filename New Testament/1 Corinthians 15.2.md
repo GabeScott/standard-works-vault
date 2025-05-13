@@ -5,5 +5,5 @@
 [1 Corinthians 15:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.2?lang=eng#p2)
 
 
-[^a]: [[Romans 1.16|Rom. 1:16.]]
-[^b]: GR hold fast to, retain.
+[^a]: [[Romans 1.16|Rom. 1:16]].  
+[^b]: GR hold fast to, retain.  

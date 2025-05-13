@@ -5,9 +5,9 @@
 [Hebrews 7:26](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.26?lang=eng#p26)
 
 
-[^a]: [[Hebrews 7.25|JST Heb. 7:25-26 (Appendix).]]
-[^b]: TG [[High Priest, Melchizedek Priesthood]].
-[^c]: [[Leviticus 3.6|Lev. 3:6]]. TG [[Separation, Separate]].
-[^d]: [[Hebrews 4.15|Heb. 4:15]]; [[D&C 45.4|D&C 45:4.]]
-[^e]: TG [[Priesthood, Magnifying Callings within]].
-[^f]: [[Ephesians 1.20|Eph. 1:20.]]
+[^a]: [[JST Hebrews 7.25|JST Heb. 7:25–26 (Appendix)]][[JST Hebrews 7.26|]].  
+[^b]: [[High Priest, Melchizedek Priesthood|TG High Priest, Melchizedek Priesthood]].  
+[^c]: [[Leviticus 3.6|Lev. 3:6]]. [[Separation, Separate|TG Separation]].  
+[^d]: [[Hebrews 4.15|Heb. 4:15]]; [[D&C 45.4|D&C 45:4]].  
+[^e]: [[Priesthood, Magnifying Callings within|TG Priesthood, Magnifying Callings within]].  
+[^f]: [[Ephesians 1.20|Eph. 1:20]].  

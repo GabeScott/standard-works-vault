@@ -5,4 +5,4 @@
 [Micah 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/2.8?lang=eng#p8)
 
 
-[^a]: HEB returning.
+[^a]: HEB returning.  

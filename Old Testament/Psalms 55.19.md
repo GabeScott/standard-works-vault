@@ -5,5 +5,5 @@
 [Psalms 55:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/55.19?lang=eng#p19)
 
 
-[^a]: OR humble.
-[^b]: [[Job 10.17|Job 10:17.]]
+[^a]: OR humble.  
+[^b]: [[Job 10.17|Job 10:17]].  

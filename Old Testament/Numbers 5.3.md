@@ -5,4 +5,4 @@
 [Numbers 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/5.3?lang=eng#p3)
 
 
-[^a]: [[Leviticus 15.31|Lev. 15:31.]]
+[^a]: [[Leviticus 15.31|Lev. 15:31]].  

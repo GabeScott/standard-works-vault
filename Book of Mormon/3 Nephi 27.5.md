@@ -5,4 +5,4 @@
 [3 Nephi 27:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Jesus Christ, Taking the Name of]].
+[^a]: [[Jesus Christ, Taking the Name of|TG Jesus Christ, Taking the Name of]].  

@@ -5,5 +5,5 @@
 [Mosiah 11:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Sackcloth]].
-[^b]: [[Isaiah 1.15|Isa. 1:15 (15-17)]]; [[Isaiah 59.2|59:2.]]
+[^a]: [[Sackcloth|TG Sackcloth]].  
+[^b]: [[Isaiah 1.15|Isa. 1:15 (15–17)]][[Isaiah 1.16|]][[Isaiah 1.17|]]; [[Isaiah 59.2|59:2]].  

@@ -5,5 +5,5 @@
 [Ezekiel 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.2?lang=eng#p2)
 
 
-[^a]: [[Jeremiah 39.1|Jer. 39:1.]]
-[^b]: [[1 Nephi 10.3|1 Ne. 10:3.]]
+[^a]: [[Jeremiah 39.1|Jer. 39:1]].  
+[^b]: [[1 Nephi 10.3|1 Ne. 10:3]].  

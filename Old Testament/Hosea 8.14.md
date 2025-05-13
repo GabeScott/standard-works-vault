@@ -5,7 +5,7 @@
 [Hosea 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/8.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 17.7|Isa. 17:7]]; [[Isaiah 45.9|45:9.]]
-[^b]: OR palaces or great buildings.
-[^c]: OR fortified.
-[^d]: [[2 Kings 25.9|2 Kgs. 25:9.]]
+[^a]: [[Isaiah 17.7|Isa. 17:7]]; [[Isaiah 45.9|45:9]].  
+[^b]: OR palaces or great buildings.  
+[^c]: OR fortified.  
+[^d]: [[2 Kings 25.9|2 Kgs. 25:9]].  

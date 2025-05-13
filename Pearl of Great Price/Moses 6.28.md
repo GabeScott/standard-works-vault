@@ -5,4 +5,4 @@
 [Moses 6:28](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.28?lang=eng#p28)
 
 
-[^a]: TG [[Rebellion, Rebel]].
+[^a]: [[Rebellion, Rebel|TG Rebellion]].  

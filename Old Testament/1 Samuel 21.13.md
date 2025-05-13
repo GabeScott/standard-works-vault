@@ -5,4 +5,4 @@
 [1 Samuel 21:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/21.13?lang=eng#p13)
 
 
-[^a]: HEB saliva.
+[^a]: HEB saliva.  

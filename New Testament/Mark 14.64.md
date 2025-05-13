@@ -5,5 +5,5 @@
 [Mark 14:64](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.64?lang=eng#p64)
 
 
-[^a]: TG [[Jesus Christ, Trials of]].
-[^b]: TG [[Guiltless]].
+[^a]: [[Jesus Christ, Trials of|TG Jesus Christ, Trials of]].  
+[^b]: [[Guilt, Guilty|TG Guilt]].  

@@ -5,6 +5,6 @@
 [Ether 9:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p34#p34)
 
 
-[^a]: [[Jeremiah 7.33|Jer. 7:33 (32-33).]]
-[^b]: [[Alma 34.34|Alma 34:34.]]
-[^c]: [[D&C 101.8|D&C 101:8.]]
+[^a]: [[Jeremiah 7.32|Jer. 7:33 (32–33)]][[Jeremiah 7.33|]].  
+[^b]: [[Alma 34.34|Alma 34:34]].  
+[^c]: [[D&C 101.8|D&C 101:8]].  

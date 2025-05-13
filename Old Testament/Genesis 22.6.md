@@ -5,4 +5,4 @@
 [Genesis 22:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.6?lang=eng#p6)
 
 
-[^a]: [[John 19.17|John 19:17.]]
+[^a]: [[John 19.17|John 19:17]].  

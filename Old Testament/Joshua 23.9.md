@@ -5,4 +5,4 @@
 [Joshua 23:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.9?lang=eng#p9)
 
 
-[^a]: [[Joshua 21.44|Josh. 21:44.]]
+[^a]: [[Joshua 21.44|Josh. 21:44]].  

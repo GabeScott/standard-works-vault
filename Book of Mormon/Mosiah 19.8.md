@@ -5,4 +5,4 @@
 [Mosiah 19:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/19?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Selfishness]].
+[^a]: [[Selfishness|TG Selfishness]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 30:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.16?lang=eng#p16)
 
 
-[^a]: [[D&C 25.2|D&C 25:2.]]
-[^b]: HEB ordinances.
+[^a]: [[D&C 25.2|D&C 25:2]].  
+[^b]: HEB ordinances.  

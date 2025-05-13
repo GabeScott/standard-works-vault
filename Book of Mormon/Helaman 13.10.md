@@ -5,4 +5,4 @@
 [Helaman 13:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p10#p10)
 
 
-[^a]: [[1 Nephi 12.12|1 Ne. 12:12]]; [[2 Nephi 26.9|2 Ne. 26:9]]; [[Alma 45.12|Alma 45:12]]; [[3 Nephi 27.32|3 Ne. 27:32.]]
+[^a]: [[1 Nephi 12.12|1 Ne. 12:12]]; [[2 Nephi 26.9|2 Ne. 26:9]]; [[Alma 45.12|Alma 45:12]]; [[3 Nephi 27.32|3 Ne. 27:32]].  

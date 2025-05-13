@@ -5,5 +5,5 @@
 [Psalms 69:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.35?lang=eng#p35)
 
 
-[^a]: [[Isaiah 65.9|Isa. 65:9.]]
-[^b]: OR rebuild.
+[^a]: [[Isaiah 65.9|Isa. 65:9]].  
+[^b]: OR rebuild.  

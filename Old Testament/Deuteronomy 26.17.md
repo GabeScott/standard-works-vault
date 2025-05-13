@@ -5,4 +5,4 @@
 [Deuteronomy 26:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.17?lang=eng#p17)
 
 
-[^a]: OR declared, testified. Ex. 19:8.
+[^a]: OR declared, testified. [[Exodus 19.8|Ex. 19:8]].  

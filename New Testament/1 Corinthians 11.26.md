@@ -5,6 +5,6 @@
 [1 Corinthians 11:26](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.26?lang=eng#p26)
 
 
-[^a]: TG [[Sacrament]].
-[^b]: GR proclaim, announce.
-[^c]: TG [[Jesus Christ, Death of]].
+[^a]: [[Sacrament|TG Sacrament]].  
+[^b]: GR proclaim, announce.  
+[^c]: [[Jesus Christ, Death of|TG Jesus Christ, Death of]].  

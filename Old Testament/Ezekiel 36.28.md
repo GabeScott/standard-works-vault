@@ -5,4 +5,4 @@
 [Ezekiel 36:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.28?lang=eng#p28)
 
 
-[^a]: [[Ezekiel 28.25|Ezek. 28:25]]; [[Ezekiel 37.12|37:12 (12-13), 25.]]
+[^a]: [[Ezekiel 28.25|Ezek. 28:25]]; [[Ezekiel 37.12|37:12 (12–13)]][[Ezekiel 37.13|]], [[Ezekiel 37.25|25]].  

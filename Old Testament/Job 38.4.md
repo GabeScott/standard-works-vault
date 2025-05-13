@@ -5,6 +5,6 @@
 [Job 38:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/38.4?lang=eng#p4)
 
 
-[^a]: TG [[Jesus Christ, Creator]].
-[^b]: TG [[Creation, Create]].
-[^c]: TG [[Nature, Earth]].
+[^a]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  
+[^b]: [[Creation, Create|TG Creation]].  
+[^c]: [[Nature, Earth|TG Nature, Earth]].  

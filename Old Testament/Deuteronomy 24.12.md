@@ -5,4 +5,4 @@
 [Deuteronomy 24:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.12?lang=eng#p12)
 
 
-[^a]: IE keep it overnight.
+[^a]: IE keep it overnight.  

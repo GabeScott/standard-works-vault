@@ -5,6 +5,6 @@
 [Ezekiel 29:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.14?lang=eng#p14)
 
 
-[^a]: HEB return from exile the Egyptians.
-[^b]: HEB origin.
-[^c]: OR lowly.
+[^a]: HEB return from exile the Egyptians.  
+[^b]: HEB origin.  
+[^c]: OR lowly.  

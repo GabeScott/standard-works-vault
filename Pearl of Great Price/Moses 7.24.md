@@ -5,4 +5,4 @@
 [Moses 7:24](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.24?lang=eng#p24)
 
 
-[^a]: [[2 Corinthians 12.2|2 Cor. 12:2 (1-4).]]
+[^a]: [[2 Corinthians 12.2|2 Cor. 12:2 (1–4)]].  

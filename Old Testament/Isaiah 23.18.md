@@ -5,6 +5,6 @@
 [Isaiah 23:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/23.18?lang=eng#p18)
 
 
-[^a]: IE Any success she has will only be as permitted by the Lord.
-[^b]: TG [[Wages]].
-[^c]: [[Jeremiah 2.3|Jer. 2:3.]]
+[^a]: IE Any success she has will only be as permitted by the Lord.  
+[^b]: [[Wages|TG Wages]].  
+[^c]: [[Jeremiah 2.3|Jer. 2:3]].  

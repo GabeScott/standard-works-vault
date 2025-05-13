@@ -5,4 +5,4 @@
 [Isaiah 54:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.2?lang=eng#p2)
 
 
-[^a]: TG [[Stake]].
+[^a]: [[Stake|TG Stake]].  

@@ -5,5 +5,5 @@
 [Judges 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/14.3?lang=eng#p3)
 
 
-[^a]: TG [[Marriage, Interfaith]].
-[^b]: [[Genesis 34.14|Gen. 34:14.]]
+[^a]: [[Marriage, Interfaith|TG Marriage, Interfaith]].  
+[^b]: [[Genesis 34.14|Gen. 34:14]].  

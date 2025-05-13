@@ -5,6 +5,6 @@
 [Moroni 9:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/9?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 1.26|2 Ne. 1:26 (26-27)]]; W of M 1:17; [[D&C 121.43|D&C 121:43 (41-43).]]
-[^b]: TG [[Hardheartedness, Harden, Hardness]].
-[^c]: [[Moroni 8.28|Moro. 8:28]]; [[D&C 1.33|D&C 1:33.]]
+[^a]: [[2 Nephi 1.26|2 Ne. 1:26 (26–27)]][[2 Nephi 1.27|]]; [[Words of Mormon 1.17|W of M 1:17]]; [[D&C 121.41|D&C 121:43 (41–43)]][[D&C 121.42|]][[D&C 121.43|]].  
+[^b]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  
+[^c]: [[Moroni 8.28|Moro. 8:28]]; [[D&C 1.33|D&C 1:33]].  

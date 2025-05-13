@@ -5,4 +5,4 @@
 [Deuteronomy 7:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.21?lang=eng#p21)
 
 
-[^a]: OR awesome. Ps. 47:2.
+[^a]: OR awesome. [[Psalms 47.2|Ps. 47:2]].  

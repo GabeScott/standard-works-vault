@@ -5,4 +5,4 @@
 [Jeremiah 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.3?lang=eng#p3)
 
 
-[^a]: [[Jeremiah 52.15|Jer. 52:15.]]
+[^a]: [[Jeremiah 52.15|Jer. 52:15]].  

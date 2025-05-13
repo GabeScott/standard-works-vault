@@ -5,5 +5,5 @@
 [Proverbs 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.2?lang=eng#p2)
 
 
-[^a]: [[2 Nephi 26.20|2 Ne. 26:20 (20-22)]]; [[D&C 38.39|D&C 38:39.]]
-[^b]: TG [[Shame]].
+[^a]: [[2 Nephi 26.20|2 Ne. 26:20 (20–22)]][[2 Nephi 26.21|]][[2 Nephi 26.22|]]; [[D&C 38.39|D&C 38:39]].  
+[^b]: [[Shame|TG Shame]].  

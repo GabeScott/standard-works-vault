@@ -5,4 +5,4 @@
 [Psalms 68:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.31?lang=eng#p31)
 
 
-[^a]: [[Isaiah 19.21|Isa. 19:21.]]
+[^a]: [[Isaiah 19.21|Isa. 19:21]].  

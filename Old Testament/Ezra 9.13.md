@@ -5,5 +5,5 @@
 [Ezra 9:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.13?lang=eng#p13)
 
 
-[^a]: TG [[Evil]].
-[^b]: TG [[Sin]].
+[^a]: [[Evil|TG Evil]].  
+[^b]: [[Sin|TG Sin]].  

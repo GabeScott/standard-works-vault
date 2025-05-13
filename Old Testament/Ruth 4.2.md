@@ -5,4 +5,4 @@
 [Ruth 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.2?lang=eng#p2)
 
 
-[^a]: [[Joshua 20.4|Josh. 20:4.]]
+[^a]: [[Joshua 20.4|Josh. 20:4]].  

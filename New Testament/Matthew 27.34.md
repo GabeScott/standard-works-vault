@@ -5,4 +5,4 @@
 [Matthew 27:34](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.34?lang=eng#p34)
 
 
-[^a]: [[Psalms 69.21|Ps. 69:21.]]
+[^a]: [[Psalms 69.21|Ps. 69:21]].  

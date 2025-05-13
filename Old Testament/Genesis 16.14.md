@@ -5,5 +5,5 @@
 [Genesis 16:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.14?lang=eng#p14)
 
 
-[^a]: [[Genesis 24.62|Gen. 24:62.]]
-[^b]: IE The well of Him who liveth and seeth me.
+[^a]: [[Genesis 24.62|Gen. 24:62]].  
+[^b]: IE The well of Him who liveth and seeth me.  

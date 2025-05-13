@@ -5,4 +5,4 @@
 [Luke 22:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.35?lang=eng#p35)
 
 
-[^a]: [[Matthew 10.9|Matt. 10:9 (9-10)]]; [[D&C 84.78|D&C 84:78.]]
+[^a]: [[Matthew 10.9|Matt. 10:9 (9–10)]][[Matthew 10.10|]]; [[D&C 84.78|D&C 84:78]].  

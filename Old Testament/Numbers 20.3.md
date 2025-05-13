@@ -5,4 +5,4 @@
 [Numbers 20:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.3?lang=eng#p3)
 
 
-[^a]: OR contended (also v. 13, for “strove”). Deut. 33:8.
+[^a]: OR contended (also [[Numbers 20.13|v. 13]], for “strove”). [[Deuteronomy 33.8|Deut. 33:8]].  

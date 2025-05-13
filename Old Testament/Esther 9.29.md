@@ -5,5 +5,5 @@
 [Esther 9:29](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/9.29?lang=eng#p29)
 
 
-[^a]: [[Esther 2.15|Esth. 2:15.]]
-[^b]: [[Esther 8.10|Esth. 8:10 (8-12).]]
+[^a]: [[Esther 2.15|Esth. 2:15]].  
+[^b]: [[Esther 8.8|Esth. 8:10 (8–12)]][[Esther 8.9|]][[Esther 8.10|]][[Esther 8.11|]][[Esther 8.12|]].  

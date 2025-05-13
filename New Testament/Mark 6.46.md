@@ -5,4 +5,4 @@
 [Mark 6:46](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.46?lang=eng#p46)
 
 
-[^a]: GR bid them farewell.
+[^a]: GR bid them farewell.  

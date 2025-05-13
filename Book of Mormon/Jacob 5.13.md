@@ -5,4 +5,4 @@
 [Jacob 5:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p13#p13)
 
 
-[^a]: [[Hosea 8.8|Hosea 8:8]]; [[1 Nephi 10.12|1 Ne. 10:12.]]
+[^a]: [[Hosea 8.8|Hosea 8:8]]; [[1 Nephi 10.12|1 Ne. 10:12]].  

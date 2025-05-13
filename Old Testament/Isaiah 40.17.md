@@ -5,4 +5,4 @@
 [Isaiah 40:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.17?lang=eng#p17)
 
 
-[^a]: TG [[Vanity]].
+[^a]: [[Vanity|TG Vanity]].  

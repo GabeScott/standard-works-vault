@@ -5,5 +5,5 @@
 [1 Corinthians 15:51](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.51?lang=eng#p51)
 
 
-[^a]: GR die, sleep in death. 1 Thes. 4:17.
-[^b]: Philip. 3:21; [[D&C 43.32|D&C 43:32.]]
+[^a]: GR die, sleep in death. [[1 Thessalonians 4.17|1 Thes. 4:17]].  
+[^b]: [[Philippians 3.21|Philip. 3:21]]; [[D&C 43.32|D&C 43:32]].  

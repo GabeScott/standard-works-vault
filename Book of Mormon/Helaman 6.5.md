@@ -5,4 +5,4 @@
 [Helaman 6:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p5#p5)
 
 
-[^a]: [[1 Nephi 15.20|1 Ne. 15:20]]; [[Alma 48.20|Alma 48:20.]]
+[^a]: [[1 Nephi 15.20|1 Ne. 15:20]]; [[Alma 48.20|Alma 48:20]].  

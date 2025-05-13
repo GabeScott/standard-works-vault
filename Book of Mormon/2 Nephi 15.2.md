@@ -5,4 +5,4 @@
 [2 Nephi 15:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p2#p2)
 
 
-[^a]: [[Jeremiah 2.21|Jer. 2:21.]]
+[^a]: [[Jeremiah 2.21|Jer. 2:21]].  

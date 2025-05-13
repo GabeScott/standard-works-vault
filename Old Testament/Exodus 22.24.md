@@ -5,5 +5,5 @@
 [Exodus 22:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 32.10|Ex. 32:10.]]
-[^b]: OR be aroused.
+[^a]: [[Exodus 32.10|Ex. 32:10]].  
+[^b]: OR be aroused.  

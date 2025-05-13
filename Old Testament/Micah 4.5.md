@@ -5,5 +5,5 @@
 [Micah 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/4.5?lang=eng#p5)
 
 
-[^a]: [[D&C 134.7|D&C 134:7 (4, 7)]]; A of F 1:11.
-[^b]: [[Zechariah 10.12|Zech. 10:12.]]
+[^a]: [[D&C 134.4|D&C 134:7 (4, 7)]][[D&C 134.7|]]; [[Articles of Faith 1.11|A of F 1:11]].  
+[^b]: [[Zechariah 10.12|Zech. 10:12]].  

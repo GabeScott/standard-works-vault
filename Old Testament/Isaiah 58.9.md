@@ -5,5 +5,5 @@
 [Isaiah 58:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.9?lang=eng#p9)
 
 
-[^a]: [[Matthew 7.7|Matt. 7:7 (7-8)]]; [[3 Nephi 18.20|3 Ne. 18:20 (18-21)]]; [[D&C 8.1|D&C 8:1.]]
-[^b]: IE pointing in a gesture of scorn.
+[^a]: [[Matthew 7.7|Matt. 7:7 (7–8)]][[Matthew 7.8|]]; [[3 Nephi 18.18|3 Ne. 18:20 (18–21)]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]]; [[D&C 8.1|D&C 8:1]].  
+[^b]: IE pointing in a gesture of scorn.  

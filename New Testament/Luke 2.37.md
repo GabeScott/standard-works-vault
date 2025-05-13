@@ -5,4 +5,4 @@
 [Luke 2:37](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.37?lang=eng#p37)
 
 
-[^a]: TG [[Fast, Fasting]].
+[^a]: [[Fast, Fasting|TG Fast, Fasting]].  

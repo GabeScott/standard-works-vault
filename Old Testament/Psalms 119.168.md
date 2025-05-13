@@ -5,4 +5,4 @@
 [Psalms 119:168](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.168?lang=eng#p168)
 
 
-[^a]: [[Proverbs 5.21|Prov. 5:21.]]
+[^a]: [[Proverbs 5.21|Prov. 5:21]].  

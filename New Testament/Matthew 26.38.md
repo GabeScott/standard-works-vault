@@ -5,5 +5,5 @@
 [Matthew 26:38](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.38?lang=eng#p38)
 
 
-[^a]: GR deeply grieved. TG [[Pain]]; [[Sorrow]].
-[^b]: GR stay awake.
+[^a]: GR deeply grieved. [[Pain|TG Pain]]; [[Sorrow|Sorrow]].  
+[^b]: GR stay awake.  

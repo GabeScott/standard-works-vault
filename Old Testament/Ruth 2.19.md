@@ -5,5 +5,5 @@
 [Ruth 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.19?lang=eng#p19)
 
 
-[^a]: OR told.
-[^b]: OR worked.
+[^a]: OR told.  
+[^b]: OR worked.  

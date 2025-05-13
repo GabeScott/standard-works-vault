@@ -5,4 +5,4 @@
 [Mormon 3:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p18#p18)
 
 
-[^a]: [[Matthew 19.28|Matt. 19:28]]; [[Luke 22.30|Luke 22:30 (29-30)]]; [[D&C 29.12|D&C 29:12.]]
+[^a]: [[Matthew 19.28|Matt. 19:28]]; [[Luke 22.29|Luke 22:30 (29–30)]][[Luke 22.30|]]; [[D&C 29.12|D&C 29:12]].  

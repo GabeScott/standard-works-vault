@@ -5,6 +5,6 @@
 [Galatians 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.10?lang=eng#p10)
 
 
-[^a]: GR appease, aspire to the favor of. JST Gal. 1:10 … please …
-[^b]: TG [[Peer Influence]].
-[^c]: TG [[Courage, Courageous]].
+[^a]: GR appease, aspire to the favor of. JST Gal. 1:10 … please …  
+[^b]: [[Peer Influence|TG Peer Influence]].  
+[^c]: [[Courage, Courageous|TG Courage]].  

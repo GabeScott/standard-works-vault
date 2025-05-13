@@ -5,5 +5,5 @@
 [Jeremiah 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.10?lang=eng#p10)
 
 
-[^a]: Zeph. 1:6.
-[^b]: OR worship.
+[^a]: [[Zephaniah 1.6|Zeph. 1:6]].  
+[^b]: OR worship.  

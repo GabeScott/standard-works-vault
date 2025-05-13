@@ -5,4 +5,4 @@
 [Proverbs 31:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.4?lang=eng#p4)
 
 
-[^a]: [[2 Nephi 15.22|2 Ne. 15:22 (22-23).]]
+[^a]: [[2 Nephi 15.22|2 Ne. 15:22 (22–23)]][[2 Nephi 15.23|]].  

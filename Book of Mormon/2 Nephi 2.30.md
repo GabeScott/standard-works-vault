@@ -5,4 +5,4 @@
 [2 Nephi 2:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p30#p30)
 
 
-[^a]: TG [[Family, Children, Responsibilities toward]].
+[^a]: [[Family, Children, Responsibilities toward|TG Family, Children, Responsibilities toward]].  

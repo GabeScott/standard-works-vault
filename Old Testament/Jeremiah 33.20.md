@@ -5,4 +5,4 @@
 [Jeremiah 33:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/33.20?lang=eng#p20)
 
 
-[^a]: [[Genesis 8.22|Gen. 8:22.]]
+[^a]: [[Genesis 8.22|Gen. 8:22]].  

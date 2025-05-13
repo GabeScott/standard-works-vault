@@ -5,4 +5,4 @@
 [Alma 4:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p15#p15)
 
 
-[^a]: [[2 Corinthians 8.14|2 Cor. 8:14]]; [[D&C 49.20|D&C 49:20.]]
+[^a]: [[2 Corinthians 8.14|2 Cor. 8:14]]; [[D&C 49.20|D&C 49:20]].  

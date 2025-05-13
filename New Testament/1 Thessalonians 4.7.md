@@ -5,4 +5,4 @@
 [1 Thessalonians 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/4.7?lang=eng#p7)
 
 
-[^a]: TG [[Uncleanness, Unclean]].
+[^a]: [[Uncleanness, Unclean|TG Uncleanness]].  

@@ -5,4 +5,4 @@
 [John 7:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.26?lang=eng#p26)
 
 
-[^a]: [[John 3.1|John 3:1 (1-2).]]
+[^a]: [[John 3.1|John 3:1 (1–2)]][[John 3.2|]].  

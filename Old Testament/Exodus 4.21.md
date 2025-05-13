@@ -5,7 +5,7 @@
 [Exodus 4:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.21?lang=eng#p21)
 
 
-[^a]: OR miracles.
-[^b]: OR power.
-[^c]: [[Exodus 4.21|JST Ex. 4:21 … and I will prosper thee]]; but Pharaoh will harden his heart, and he will not let the people go.
-[^d]: TG [[Hardheartedness, Harden, Hardness]].
+[^a]: OR miracles.  
+[^b]: OR power.  
+[^c]: [[JST Exodus 4.21|JST Ex. 4:21]] … and I will prosper thee; but Pharaoh will harden his heart, and he will not let the people go.  
+[^d]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  

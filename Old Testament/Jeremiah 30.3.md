@@ -5,5 +5,5 @@
 [Jeremiah 30:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.3?lang=eng#p3)
 
 
-[^a]: TG [[Israel, Twelve Tribes of]].
-[^b]: TG [[Israel, Gathering of]].
+[^a]: [[Israel, Twelve Tribes of|TG Israel, Twelve Tribes of]].  
+[^b]: [[Israel, Gathering of|TG Israel, Gathering of]].  

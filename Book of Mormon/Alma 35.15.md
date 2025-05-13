@@ -5,5 +5,5 @@
 [Alma 35:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/35?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 31.1|Alma 31:1.]]
-[^b]: TG [[Prophets, Rejection of]].
+[^a]: [[Alma 31.1|Alma 31:1]].  
+[^b]: [[Prophets, Rejection of|TG Prophets, Rejection of]].  

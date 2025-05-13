@@ -5,5 +5,5 @@
 [Jacob 3:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p13#p13)
 
 
-[^a]: [[Jacob 1.1|Jacob 1:1 (1-4)]]; [[Jacob 4.1|4:1 (1-4).]]
-[^b]: [[Jarom 1.14|Jarom 1:14.]]
+[^a]: [[Jacob 1.1|Jacob 1:1 (1–4)]][[Jacob 1.2|]][[Jacob 1.3|]][[Jacob 1.4|]]; [[Jacob 4.1|4:1 (1–4)]][[Jacob 4.2|]][[Jacob 4.3|]][[Jacob 4.4|]].  
+[^b]: [[Jarom 1.14|Jarom 1:14]].  

@@ -5,6 +5,6 @@
 [1 Nephi 17:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p14#p14)
 
 
-[^a]: [[2 Nephi 1.4|2 Ne. 1:4]]. TG [[God, Knowledge about]]; [[Testimony]].
-[^b]: [[D&C 5.2|D&C 5:2.]]
-[^c]: TG [[Deliver, Deliverance]].
+[^a]: [[2 Nephi 1.4|2 Ne. 1:4]]. [[God, Knowledge about|TG God, Knowledge about]]; [[Testimony|Testimony]].  
+[^b]: [[D&C 5.2|D&C 5:2]].  
+[^c]: [[Deliver, Deliverance|TG Deliver]].  

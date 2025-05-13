@@ -5,4 +5,4 @@
 [2 Nephi 25:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p24#p24)
 
 
-[^a]: [[Jacob 4.5|Jacob 4:5.]]
+[^a]: [[Jacob 4.5|Jacob 4:5]].  

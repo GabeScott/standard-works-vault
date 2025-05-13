@@ -5,4 +5,4 @@
 [2 Timothy 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.14?lang=eng#p14)
 
 
-[^a]: [[D&C 130.22|D&C 130:22.]]
+[^a]: [[D&C 130.22|D&C 130:22]].  

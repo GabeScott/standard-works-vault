@@ -5,4 +5,4 @@
 [Psalms 71:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/71.9?lang=eng#p9)
 
 
-[^a]: TG [[Old Age]].
+[^a]: [[Old Age|TG Old Age]].  

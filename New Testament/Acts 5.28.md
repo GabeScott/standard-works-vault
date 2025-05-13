@@ -5,6 +5,6 @@
 [Acts 5:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.28?lang=eng#p28)
 
 
-[^a]: [[Acts 4.18|Acts 4:18 (15-18).]]
-[^b]: TG [[Name of the Lord]].
-[^c]: [[Matthew 27.25|Matt. 27:25.]]
+[^a]: [[Acts 4.15|Acts 4:18 (15–18)]][[Acts 4.16|]][[Acts 4.17|]][[Acts 4.18|]].  
+[^b]: [[Name|TG Name]].  
+[^c]: [[Matthew 27.25|Matt. 27:25]].  

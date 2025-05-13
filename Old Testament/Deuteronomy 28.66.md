@@ -5,4 +5,4 @@
 [Deuteronomy 28:66](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.66?lang=eng#p66)
 
 
-[^a]: TG [[Doubt, Doubtful]].
+[^a]: [[Doubt, Doubtful|TG Doubt]].  

@@ -5,4 +5,4 @@
 [Isaiah 63:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.5?lang=eng#p5)
 
 
-[^a]: [[Isaiah 59.16|Isa. 59:16.]]
+[^a]: [[Isaiah 59.16|Isa. 59:16]].  

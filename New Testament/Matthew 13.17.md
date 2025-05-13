@@ -5,4 +5,4 @@
 [Matthew 13:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.17?lang=eng#p17)
 
 
-[^a]: [[Hebrews 11.13|Heb. 11:13]]; [[1 Peter 1.10|1 Pet. 1:10 (10-11).]]
+[^a]: [[Hebrews 11.13|Heb. 11:13]]; [[1 Peter 1.10|1 Pet. 1:10 (10–11)]][[1 Peter 1.11|]].  

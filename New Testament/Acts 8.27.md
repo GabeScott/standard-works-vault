@@ -5,4 +5,4 @@
 [Acts 8:27](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.27?lang=eng#p27)
 
 
-[^a]: [[John 12.20|John 12:20.]]
+[^a]: [[John 12.20|John 12:20]].  

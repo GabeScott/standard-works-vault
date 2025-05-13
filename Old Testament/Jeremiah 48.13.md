@@ -5,4 +5,4 @@
 [Jeremiah 48:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.13?lang=eng#p13)
 
 
-[^a]: [[Hosea 10.6|Hosea 10:6.]]
+[^a]: [[Hosea 10.6|Hosea 10:6]].  

@@ -5,4 +5,4 @@
 [Proverbs 25:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.22?lang=eng#p22)
 
 
-[^a]: TG [[Reward]].
+[^a]: [[Reward|TG Reward]].  

@@ -5,5 +5,5 @@
 [Mormon 8:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p3#p3)
 
 
-[^a]: [[Moroni 9.22|Moro. 9:22.]]
-[^b]: [[Ether 4.3|Ether 4:3.]]
+[^a]: [[Moroni 9.22|Moro. 9:22]].  
+[^b]: [[Ether 4.3|Ether 4:3]].  

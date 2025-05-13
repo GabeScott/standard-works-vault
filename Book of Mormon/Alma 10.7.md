@@ -5,6 +5,6 @@
 [Alma 10:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p7#p7)
 
 
-[^a]: [[Alma 8.20|Alma 8:20.]]
-[^b]: [[Alma 5.46|Alma 5:46]]; [[Alma 6.6|6:6.]]
-[^c]: [[Acts 10.30|Acts 10:30 (30-35)]]. TG [[Hospitality]].
+[^a]: [[Alma 8.20|Alma 8:20]].  
+[^b]: [[Alma 5.46|Alma 5:46]]; [[Alma 6.6|6:6]].  
+[^c]: [[Acts 10.30|Acts 10:30 (30–35)]][[Acts 10.31|]][[Acts 10.32|]][[Acts 10.33|]][[Acts 10.34|]][[Acts 10.35|]]. [[Hospitality|TG Hospitality]].  

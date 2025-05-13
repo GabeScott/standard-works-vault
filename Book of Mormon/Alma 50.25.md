@@ -5,6 +5,6 @@
 [Alma 50:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Contention]].
-[^b]: [[Helaman 6.10|Hel. 6:10.]]
-[^c]: [[Alma 51.26|Alma 51:26.]]
+[^a]: [[Contention|TG Contention]].  
+[^b]: [[Helaman 6.10|Hel. 6:10]].  
+[^c]: [[Alma 51.26|Alma 51:26]].  

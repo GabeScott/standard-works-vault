@@ -5,6 +5,6 @@
 [Isaiah 45:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.4?lang=eng#p4)
 
 
-[^a]: [[Isaiah 44.1|Isa. 44:1 (1-2), 21]]; [[1 Nephi 20.20|1 Ne. 20:20.]]
-[^b]: TG [[Election, Elect]].
-[^c]: TG [[Governments]].
+[^a]: [[Isaiah 44.1|Isa. 44:1 (1–2)]][[Isaiah 44.2|]], [[Isaiah 44.21|21]]; [[1 Nephi 20.20|1 Ne. 20:20]].  
+[^b]: [[Election, Elect|TG Election]].  
+[^c]: [[Governments|TG Governments]].  

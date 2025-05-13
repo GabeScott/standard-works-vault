@@ -5,5 +5,5 @@
 [Leviticus 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/1.5?lang=eng#p5)
 
 
-[^a]: HEB offspring of the cattle, or calf.
-[^b]: [[Ezekiel 43.18|Ezek. 43:18]]; [[Hebrews 12.24|Heb. 12:24]]; [[3 Nephi 20.45|3 Ne. 20:45.]]
+[^a]: HEB offspring of the cattle, or calf.  
+[^b]: [[Ezekiel 43.18|Ezek. 43:18]]; [[Hebrews 12.24|Heb. 12:24]]; [[3 Nephi 20.45|3 Ne. 20:45]].  

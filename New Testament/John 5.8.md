@@ -5,4 +5,4 @@
 [John 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.8?lang=eng#p8)
 
 
-[^a]: [[John 7.23|John 7:23.]]
+[^a]: [[John 7.23|John 7:23]].  

@@ -5,5 +5,5 @@
 [Romans 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.19?lang=eng#p19)
 
 
-[^a]: [[Ezekiel 16.63|Ezek. 16:63.]]
-[^b]: TG [[Guiltless]].
+[^a]: [[Ezekiel 16.63|Ezek. 16:63]].  
+[^b]: [[Guilt, Guilty|TG Guilt]].  

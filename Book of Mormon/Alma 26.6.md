@@ -5,4 +5,4 @@
 [Alma 26:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p6#p6)
 
 
-[^a]: [[Helaman 5.12|Hel. 5:12]]; [[3 Nephi 14.25|3 Ne. 14:25 (25, 27).]]
+[^a]: [[Helaman 5.12|Hel. 5:12]]; [[3 Nephi 14.25|3 Ne. 14:25 (25, 27)]][[3 Nephi 14.27|]].  

@@ -5,4 +5,4 @@
 [John 21:18](https://www.churchofjesuschrist.org/study/scriptures/nt/john/21.18?lang=eng#p18)
 
 
-[^a]: TG [[Old Age]].
+[^a]: [[Old Age|TG Old Age]].  

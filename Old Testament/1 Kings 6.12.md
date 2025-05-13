@@ -5,5 +5,5 @@
 [1 Kings 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.12?lang=eng#p12)
 
 
-[^a]: [[1 Kings 9.4|1 Kgs. 9:4]]; [[D&C 124.55|D&C 124:55.]]
-[^b]: [[2 Samuel 7.13|2 Sam. 7:13]]; [[1 Chronicles 22.10|1 Chr. 22:10.]]
+[^a]: [[1 Kings 9.4|1 Kgs. 9:4]]; [[D&C 124.55|D&C 124:55]].  
+[^b]: [[2 Samuel 7.13|2 Sam. 7:13]]; [[1 Chronicles 22.10|1 Chr. 22:10]].  

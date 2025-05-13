@@ -5,4 +5,4 @@
 [Psalms 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/6.5?lang=eng#p5)
 
 
-[^a]: [[Psalms 30.9|Ps. 30:9.]]
+[^a]: [[Psalms 30.9|Ps. 30:9]].  

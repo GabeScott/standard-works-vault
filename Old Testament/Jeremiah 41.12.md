@@ -5,4 +5,4 @@
 [Jeremiah 41:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/41.12?lang=eng#p12)
 
 
-[^a]: OR many pools.
+[^a]: OR many pools.  

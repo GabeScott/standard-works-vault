@@ -5,4 +5,4 @@
 [Isaiah 17:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/17.12?lang=eng#p12)
 
 
-[^a]: IE the Assyrian empire of numerous nations (vv. 12-14).
+[^a]: IE the Assyrian empire of numerous nations ([[Isaiah 17.12|vv. 12–14]][[Isaiah 17.13|]][[Isaiah 17.14|]]).  

@@ -5,8 +5,8 @@
 [Luke 16:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.15?lang=eng#p15)
 
 
-[^a]: [[Luke 10.29|Luke 10:29.]]
-[^b]: TG [[God, Intelligence of]]; [[God, Omniscience of]].
-[^c]: [[Proverbs 21.2|Prov. 21:2.]]
-[^d]: [[2 Nephi 9.28|2 Ne. 9:28 (28-30).]]
-[^e]: TG [[Man, Natural, Not Spiritually Reborn]].
+[^a]: [[Luke 10.29|Luke 10:29]].  
+[^b]: [[God, Intelligence of|TG God, Intelligence of]]; [[God, Omniscience of|God, Omniscience of]].  
+[^c]: [[Proverbs 21.2|Prov. 21:2]].  
+[^d]: [[2 Nephi 9.28|2 Ne. 9:28 (28–30)]][[2 Nephi 9.29|]][[2 Nephi 9.30|]].  
+[^e]: [[Man, Natural, Not Spiritually Reborn|TG Man, Natural, Not Spiritually Reborn]].  

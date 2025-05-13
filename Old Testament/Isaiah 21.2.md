@@ -5,5 +5,5 @@
 [Isaiah 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/21.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 33.1|Isa. 33:1.]]
-[^b]: This prophecy was fulfilled in 538 B.C., about 200 years after Isaiah lived.
+[^a]: [[Isaiah 33.1|Isa. 33:1]].  
+[^b]: This prophecy was fulfilled in 538 B.C., about 200 years after Isaiah lived.  

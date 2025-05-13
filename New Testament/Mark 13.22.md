@@ -5,6 +5,6 @@
 [Mark 13:22](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.22?lang=eng#p22)
 
 
-[^a]: TG [[False Christs]].
-[^b]: TG [[False Prophets]].
-[^c]: TG [[Signs]].
+[^a]: [[False Christs|TG False Christs]].  
+[^b]: [[False Prophets|TG False Prophets]].  
+[^c]: [[Signs|TG Signs]].  

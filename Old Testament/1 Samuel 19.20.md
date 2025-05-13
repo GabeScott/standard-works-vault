@@ -5,4 +5,4 @@
 [1 Samuel 19:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/19.20?lang=eng#p20)
 
 
-[^a]: [[1 Samuel 10.10|1 Sam. 10:10.]]
+[^a]: [[1 Samuel 10.10|1 Sam. 10:10]].  

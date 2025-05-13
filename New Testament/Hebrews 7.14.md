@@ -5,4 +5,4 @@
 [Hebrews 7:14](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.14?lang=eng#p14)
 
 
-[^a]: [[Isaiah 11.1|Isa. 11:1]]; [[Micah 5.2|Micah 5:2]]. TG [[Israel, Judah, People of]].
+[^a]: [[Isaiah 11.1|Isa. 11:1]]; [[Micah 5.2|Micah 5:2]]. [[Israel, Judah, People of|TG Israel, Judah, People of]].  

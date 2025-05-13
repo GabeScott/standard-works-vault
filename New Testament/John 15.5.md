@@ -5,5 +5,5 @@
 [John 15:5](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.5?lang=eng#p5)
 
 
-[^a]: TG [[Vineyard of the Lord]].
-[^b]: Philip. 4:13.
+[^a]: [[Vineyard of the Lord|TG Vineyard of the Lord]].  
+[^b]: [[Philippians 4.13|Philip. 4:13]].  

@@ -5,4 +5,4 @@
 [Exodus 10:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.27?lang=eng#p27)
 
 
-[^a]: [[Exodus 10.27|JST Ex. 10:27 But Pharaoh hardened his heart …]]
+[^a]: JST Ex. 10:27 But Pharaoh hardened his heart …  

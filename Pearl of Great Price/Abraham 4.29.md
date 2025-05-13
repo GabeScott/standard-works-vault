@@ -5,4 +5,4 @@
 [Abraham 4:29](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.29?lang=eng#p29)
 
 
-[^a]: [[Genesis 1.29|Gen. 1:29 (29-30).]]
+[^a]: [[Genesis 1.29|Gen. 1:29 (29–30)]][[Genesis 1.30|]].  

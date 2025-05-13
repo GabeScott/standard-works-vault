@@ -5,4 +5,4 @@
 [Psalms 31:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.5?lang=eng#p5)
 
 
-[^a]: [[Luke 23.46|Luke 23:46.]]
+[^a]: [[Luke 23.46|Luke 23:46]].  

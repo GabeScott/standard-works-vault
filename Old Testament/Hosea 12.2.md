@@ -5,4 +5,4 @@
 [Hosea 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.2?lang=eng#p2)
 
 
-[^a]: [[Hosea 4.1|Hosea 4:1 (1-2).]]
+[^a]: [[Hosea 4.1|Hosea 4:1 (1–2)]][[Hosea 4.2|]].  

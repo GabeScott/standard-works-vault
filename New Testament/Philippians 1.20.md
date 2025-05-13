@@ -5,5 +5,5 @@
 [Philippians 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.20?lang=eng#p20)
 
 
-[^a]: [[Psalms 119.116|Ps. 119:116.]]
-[^b]: [[Psalms 34.3|Ps. 34:3 (1-3).]]
+[^a]: [[Psalms 119.116|Ps. 119:116]].  
+[^b]: [[Psalms 34.1|Ps. 34:3 (1–3)]][[Psalms 34.2|]][[Psalms 34.3|]].  

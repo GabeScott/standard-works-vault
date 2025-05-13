@@ -5,4 +5,4 @@
 [Alma 22:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 20.17|Alma 20:17 (17-18).]]
+[^a]: [[Alma 20.17|Alma 20:17 (17–18)]][[Alma 20.18|]].  

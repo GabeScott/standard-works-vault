@@ -5,4 +5,4 @@
 [Luke 12:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.17?lang=eng#p17)
 
 
-[^a]: GR gather.
+[^a]: GR gather.  

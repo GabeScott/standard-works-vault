@@ -5,6 +5,6 @@
 [2 Nephi 6:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/6?lang=eng&id=p12#p12)
 
 
-[^a]: [[1 Nephi 14.2|1 Ne. 14:2 (1-5)]]; [[2 Nephi 10.10|2 Ne. 10:10 (8-14, 18).]]
-[^b]: TG [[Devil, Church of]].
-[^c]: TG [[Abrahamic Covenant]].
+[^a]: [[1 Nephi 14.1|1 Ne. 14:2 (1–5)]][[1 Nephi 14.2|]][[1 Nephi 14.3|]][[1 Nephi 14.4|]][[1 Nephi 14.5|]]; [[2 Nephi 10.8|2 Ne. 10:10 (8–14, 18)]][[2 Nephi 10.9|]][[2 Nephi 10.10|]][[2 Nephi 10.11|]][[2 Nephi 10.12|]][[2 Nephi 10.13|]][[2 Nephi 10.14|]][[2 Nephi 10.18|]].  
+[^b]: [[Devil, Church of|TG Devil, Church of]].  
+[^c]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  

@@ -5,5 +5,5 @@
 [Luke 23:2](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.2?lang=eng#p2)
 
 
-[^a]: [[D&C 63.26|D&C 63:26.]]
-[^b]: [[Alma 5.50|Alma 5:50.]]
+[^a]: [[D&C 63.26|D&C 63:26]].  
+[^b]: [[Alma 5.50|Alma 5:50]].  

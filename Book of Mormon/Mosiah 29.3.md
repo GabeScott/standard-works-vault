@@ -5,6 +5,6 @@
 [Mosiah 29:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 17.6|Alma 17:6.]]
-[^b]: [[Mosiah 27.34|Mosiah 27:34.]]
-[^c]: [[Mosiah 28.10|Mosiah 28:10.]]
+[^a]: [[Alma 17.6|Alma 17:6]].  
+[^b]: [[Mosiah 27.34|Mosiah 27:34]].  
+[^c]: [[Mosiah 28.10|Mosiah 28:10]].  

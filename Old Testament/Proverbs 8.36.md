@@ -5,4 +5,4 @@
 [Proverbs 8:36](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.36?lang=eng#p36)
 
 
-[^a]: TG [[Death]]; [[Death]], Spiritual, First.
+[^a]: [[Death|TG Death]]; [[Death, Spiritual, First|Death, Spiritual, First]].  

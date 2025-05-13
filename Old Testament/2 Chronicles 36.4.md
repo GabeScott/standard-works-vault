@@ -5,4 +5,4 @@
 [2 Chronicles 36:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.4?lang=eng#p4)
 
 
-[^a]: [[Ezekiel 19.4|Ezek. 19:4.]]
+[^a]: [[Ezekiel 19.4|Ezek. 19:4]].  

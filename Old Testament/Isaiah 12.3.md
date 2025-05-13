@@ -5,4 +5,4 @@
 [Isaiah 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/12.3?lang=eng#p3)
 
 
-[^a]: TG [[Joy]].
+[^a]: [[Joy|TG Joy]].  

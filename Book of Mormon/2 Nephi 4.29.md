@@ -5,4 +5,4 @@
 [2 Nephi 4:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p29#p29)
 
 
-[^a]: TG [[Anger]].
+[^a]: [[Anger|TG Anger]].  

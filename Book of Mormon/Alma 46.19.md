@@ -5,4 +5,4 @@
 [Alma 46:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p19#p19)
 
 
-[^a]: TG [[Ensign]].
+[^a]: [[Ensign|TG Ensign]].  

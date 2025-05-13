@@ -5,6 +5,6 @@
 [Alma 42:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p30#p30)
 
 
-[^a]: TG [[God, Justice of]].
-[^b]: TG [[God, Mercy of]].
-[^c]: TG [[Humility, Humble]].
+[^a]: [[Justice|TG Justice]].  
+[^b]: [[God, Mercy of|TG God, Mercy of]].  
+[^c]: [[Humility, Humble|TG Humility]].  

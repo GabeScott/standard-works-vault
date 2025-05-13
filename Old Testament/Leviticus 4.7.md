@@ -5,5 +5,5 @@
 [Leviticus 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.7?lang=eng#p7)
 
 
-[^a]: [[Leviticus 8.15|Lev. 8:15]]; [[Leviticus 9.9|9:9]]; [[Leviticus 16.18|16:18.]]
-[^b]: [[Exodus 29.12|Ex. 29:12]]; [[Leviticus 8.15|Lev. 8:15.]]
+[^a]: [[Leviticus 8.15|Lev. 8:15]]; [[Leviticus 9.9|9:9]]; [[Leviticus 16.18|16:18]].  
+[^b]: [[Exodus 29.12|Ex. 29:12]]; [[Leviticus 8.15|Lev. 8:15]].  

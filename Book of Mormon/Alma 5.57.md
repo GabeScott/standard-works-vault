@@ -5,6 +5,6 @@
 [Alma 5:57](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p57#p57)
 
 
-[^a]: TG [[Jesus Christ, Good Shepherd]].
-[^b]: [[Ezra 6.21|Ezra 6:21]]; [[Ezra 9.1|9:1]]; [[Nehemiah 9.2|Neh. 9:2]]; 2 Thes. 3:6; [[D&C 133.5|D&C 133:5 (5, 14).]]
-[^c]: [[Deuteronomy 29.20|Deut. 29:20]]; [[Psalms 109.13|Ps. 109:13.]]
+[^a]: [[Jesus Christ, Good Shepherd|TG Jesus Christ, Good Shepherd]].  
+[^b]: [[Ezra 6.21|Ezra 6:21]]; [[Ezra 9.1|9:1]]; [[Nehemiah 9.2|Neh. 9:2]]; [[2 Thessalonians 3.6|2 Thes. 3:6]]; [[D&C 133.5|D&C 133:5 (5, 14)]][[D&C 133.14|]].  
+[^c]: [[Deuteronomy 29.20|Deut. 29:20]]; [[Psalms 109.13|Ps. 109:13]].  

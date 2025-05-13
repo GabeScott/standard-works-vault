@@ -5,5 +5,5 @@
 [Job 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.6?lang=eng#p6)
 
 
-[^a]: JST Job 1:6 … children … TG [[Sons and Daughters of God]].
-[^b]: TG [[Devil, Church of]].
+[^a]: JST Job 1:6 … children … [[Sons and Daughters of God|TG Sons and Daughters of God]].  
+[^b]: [[Devil|TG Devil]].  

@@ -5,4 +5,4 @@
 [Numbers 15:35](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.35?lang=eng#p35)
 
 
-[^a]: [[Exodus 31.14|Ex. 31:14]]; [[Exodus 35.2|35:2 (1-3).]]
+[^a]: [[Exodus 31.14|Ex. 31:14]]; [[Exodus 35.1|35:2 (1–3)]][[Exodus 35.2|]][[Exodus 35.3|]].  

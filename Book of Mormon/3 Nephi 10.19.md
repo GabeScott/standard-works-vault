@@ -5,4 +5,4 @@
 [3 Nephi 10:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/10?lang=eng&id=p19#p19)
 
 
-[^a]: [[3 Nephi 11.12|3 Ne. 11:12 (12-15).]]
+[^a]: [[3 Nephi 11.12|3 Ne. 11:12 (12–15)]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]].  

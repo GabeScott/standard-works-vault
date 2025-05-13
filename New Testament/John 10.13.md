@@ -5,4 +5,4 @@
 [John 10:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.13?lang=eng#p13)
 
 
-[^a]: TG [[Wages]].
+[^a]: [[Wages|TG Wages]].  

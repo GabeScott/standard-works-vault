@@ -5,4 +5,4 @@
 [Jeremiah 2:36](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.36?lang=eng#p36)
 
 
-[^a]: [[Isaiah 30.5|Isa. 30:5 (3, 5).]]
+[^a]: [[Isaiah 30.3|Isa. 30:5 (3, 5)]][[Isaiah 30.5|]].  

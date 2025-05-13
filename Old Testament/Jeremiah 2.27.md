@@ -5,6 +5,6 @@
 [Jeremiah 2:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.27?lang=eng#p27)
 
 
-[^a]: OR wood; i.e., an idol. Jer. 3:9.
-[^b]: [[Jeremiah 18.17|Jer. 18:17]]; [[Jeremiah 32.33|32:33]]; [[Ezekiel 8.16|Ezek. 8:16.]]
-[^c]: [[Mosiah 11.24|Mosiah 11:24 (22-25)]]; [[D&C 101.7|D&C 101:7 (7-9).]]
+[^a]: OR wood; i.e., an idol. [[Jeremiah 3.9|Jer. 3:9]].  
+[^b]: [[Jeremiah 18.17|Jer. 18:17]]; [[Jeremiah 32.33|32:33]]; [[Ezekiel 8.16|Ezek. 8:16]].  
+[^c]: [[Mosiah 11.22|Mosiah 11:24 (22–25)]][[Mosiah 11.23|]][[Mosiah 11.24|]][[Mosiah 11.25|]]; [[D&C 101.7|D&C 101:7 (7–9)]][[D&C 101.8|]][[D&C 101.9|]].  

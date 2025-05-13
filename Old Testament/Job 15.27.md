@@ -5,4 +5,4 @@
 [Job 15:27](https://www.churchofjesuschrist.org/study/scriptures/ot/job/15.27?lang=eng#p27)
 
 
-[^a]: OR has grown fat on his loins.
+[^a]: OR has grown fat on his loins.  

@@ -5,4 +5,4 @@
 [Leviticus 24:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.9?lang=eng#p9)
 
 
-[^a]: [[Exodus 29.33|Ex. 29:33 (32-33)]]; [[Luke 6.4|Luke 6:4.]]
+[^a]: [[Exodus 29.32|Ex. 29:33 (32–33)]][[Exodus 29.33|]]; [[Luke 6.4|Luke 6:4]].  

@@ -5,4 +5,4 @@
 [Ezekiel 18:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.22?lang=eng#p22)
 
 
-[^a]: TG [[Forgive, Forgiveness]]; [[Transgressor]].
+[^a]: [[Forgive, Forgiveness|TG Forgive]]; [[Transgress, Transgression|Transgress]].  

@@ -5,4 +5,4 @@
 [Revelation 12:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.5?lang=eng#p5)
 
 
-[^a]: [[1 Nephi 11.25|1 Ne. 11:25.]]
+[^a]: [[1 Nephi 11.25|1 Ne. 11:25]].  

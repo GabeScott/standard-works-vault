@@ -5,4 +5,4 @@
 [Ezekiel 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.9?lang=eng#p9)
 
 
-[^a]: [[Ezekiel 10.11|Ezek. 10:11.]]
+[^a]: [[Ezekiel 10.11|Ezek. 10:11]].  

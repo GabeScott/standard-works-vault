@@ -5,4 +5,4 @@
 [Leviticus 26:38](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.38?lang=eng#p38)
 
 
-[^a]: [[Psalms 106.42|Ps. 106:42 (42-43).]]
+[^a]: [[Psalms 106.42|Ps. 106:42 (42–43)]][[Psalms 106.43|]].  

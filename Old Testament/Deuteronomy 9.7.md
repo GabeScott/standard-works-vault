@@ -5,4 +5,4 @@
 [Deuteronomy 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.7?lang=eng#p7)
 
 
-[^a]: TG [[Apostasy of Israel]].
+[^a]: [[Apostasy of Israel|TG Apostasy of Israel]].  

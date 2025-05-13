@@ -5,6 +5,6 @@
 [1 Corinthians 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.18?lang=eng#p18)
 
 
-[^a]: TG [[Boast, Boasting]].
-[^b]: [[2 Nephi 9.42|2 Ne. 9:42 (42-43).]]
-[^c]: TG [[Learn, Learning]].
+[^a]: [[Boast, Boasting|TG Boast]].  
+[^b]: [[2 Nephi 9.42|2 Ne. 9:42 (42–43)]][[2 Nephi 9.43|]].  
+[^c]: [[Learn, Learning|TG Learn]].  

@@ -5,4 +5,4 @@
 [2 Corinthians 13:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/13.10?lang=eng#p10)
 
 
-[^a]: [[2 Corinthians 10.8|2 Cor. 10:8.]]
+[^a]: [[2 Corinthians 10.8|2 Cor. 10:8]].  

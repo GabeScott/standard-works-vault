@@ -5,4 +5,4 @@
 [Isaiah 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/25.5?lang=eng#p5)
 
 
-[^a]: OR song of tyrants.
+[^a]: OR song of tyrants.  

@@ -5,4 +5,4 @@
 [Psalms 59:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/59.10?lang=eng#p10)
 
 
-[^a]: HEB My God, in His loving kindness, shall go before me.
+[^a]: HEB My God, in His loving kindness, shall go before me.  

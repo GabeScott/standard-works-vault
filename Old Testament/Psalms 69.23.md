@@ -5,4 +5,4 @@
 [Psalms 69:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.23?lang=eng#p23)
 
 
-[^a]: TG [[Spiritual Blindness]].
+[^a]: [[Spiritual Blindness|TG Spiritual Blindness]].  

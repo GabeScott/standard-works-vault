@@ -5,4 +5,4 @@
 [Mark 7:32](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.32?lang=eng#p32)
 
 
-[^a]: TG [[Administrations to the Sick]]; [[Hands, Laying on of]].
+[^a]: [[Administrations to the Sick|TG Administrations to the Sick]]; [[Hands, Laying on of|Hands, Laying on of]].  

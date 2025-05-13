@@ -5,5 +5,5 @@
 [Proverbs 10:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.19?lang=eng#p19)
 
 
-[^a]: TG [[Boast, Boasting]].
-[^b]: [[Proverbs 17.27|Prov. 17:27.]]
+[^a]: [[Boast, Boasting|TG Boast]].  
+[^b]: [[Proverbs 17.27|Prov. 17:27]].  

@@ -5,4 +5,4 @@
 [Exodus 14:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.26?lang=eng#p26)
 
 
-[^a]: [[Isaiah 10.26|Isa. 10:26.]]
+[^a]: [[Isaiah 10.26|Isa. 10:26]].  

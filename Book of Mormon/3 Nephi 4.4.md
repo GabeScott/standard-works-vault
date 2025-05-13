@@ -5,5 +5,5 @@
 [3 Nephi 4:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/4?lang=eng&id=p4#p4)
 
 
-[^a]: [[3 Nephi 3.22|3 Ne. 3:22]]; [[3 Nephi 6.1|6:1 (1-2).]]
-[^b]: [[Genesis 41.36|Gen. 41:36 (29-36)]]; [[3 Nephi 4.18|3 Ne. 4:18.]]
+[^a]: [[3 Nephi 3.22|3 Ne. 3:22]]; [[3 Nephi 6.1|6:1 (1–2)]][[3 Nephi 6.2|]].  
+[^b]: [[Genesis 41.29|Gen. 41:36 (29–36)]][[Genesis 41.30|]][[Genesis 41.31|]][[Genesis 41.32|]][[Genesis 41.33|]][[Genesis 41.34|]][[Genesis 41.35|]][[Genesis 41.36|]]; [[3 Nephi 4.18|3 Ne. 4:18]].  

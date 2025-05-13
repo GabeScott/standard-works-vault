@@ -5,5 +5,5 @@
 [Ezekiel 33:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.6?lang=eng#p6)
 
 
-[^a]: [[D&C 88.81|D&C 88:81 (81-82).]]
-[^b]: TG [[Accountability]].
+[^a]: [[D&C 88.81|D&C 88:81 (81–82)]][[D&C 88.82|]].  
+[^b]: [[Accountability|TG Accountability]].  

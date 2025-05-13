@@ -5,6 +5,6 @@
 [Alma 43:45](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p45#p45)
 
 
-[^a]: [[Alma 44.1|Alma 44:1.]]
-[^b]: [[Mosiah 20.11|Mosiah 20:11]]; [[Alma 44.5|Alma 44:5.]]
-[^c]: TG [[Liberty]].
+[^a]: [[Alma 44.1|Alma 44:1]].  
+[^b]: [[Mosiah 20.11|Mosiah 20:11]]; [[Alma 44.5|Alma 44:5]].  
+[^c]: [[Liberty|TG Liberty]].  

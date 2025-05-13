@@ -5,4 +5,4 @@
 [Exodus 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 9.12|JST Ex. 9:12 And Pharaoh hardened his heart …]]
+[^a]: JST Ex. 9:12 And Pharaoh hardened his heart …  

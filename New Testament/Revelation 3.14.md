@@ -5,6 +5,6 @@
 [Revelation 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 42.5|Jer. 42:5.]]
-[^b]: TG [[Jesus Christ, Firstborn]].
-[^c]: TG [[Creation, Create]].
+[^a]: [[Jeremiah 42.5|Jer. 42:5]].  
+[^b]: [[Jesus Christ, Firstborn|TG Jesus Christ, Firstborn]].  
+[^c]: [[Creation, Create|TG Creation]].  

@@ -5,4 +5,4 @@
 [Ezekiel 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.13?lang=eng#p13)
 
 
-[^a]: OR sound.
+[^a]: OR sound.  

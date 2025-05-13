@@ -5,6 +5,6 @@
 [2 Timothy 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.7?lang=eng#p7)
 
 
-[^a]: TG [[Courage, Courageous]]; [[Fearful]].
-[^b]: [[Acts 1.8|Acts 1:8.]]
-[^c]: TG [[Love]].
+[^a]: [[Courage, Courageous|TG Courage]]; [[Fearful|Fearful]].  
+[^b]: [[Acts 1.8|Acts 1:8]].  
+[^c]: [[Love|TG Love]].  

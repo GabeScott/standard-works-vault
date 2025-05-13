@@ -5,9 +5,9 @@
 [2 Nephi 27:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p26#p26)
 
 
-[^a]: [[1 Nephi 22.8|1 Ne. 22:8]]; [[2 Nephi 29.1|2 Ne. 29:1 (1-2)]]. TG [[Restoration of the Gospel]].
-[^b]: [[Isaiah 29.14|Isa. 29:14]]; [[2 Nephi 25.17|2 Ne. 25:17.]]
-[^c]: TG [[Wisdom]].
-[^d]: TG [[Learn, Learning]].
-[^e]: TG [[Knowledge]].
-[^f]: TG [[Prudence, Prudent]].
+[^a]: [[1 Nephi 22.8|1 Ne. 22:8]]; [[2 Nephi 29.1|2 Ne. 29:1 (1–2)]][[2 Nephi 29.2|]]. [[Restoration of the Gospel|TG Restoration of the Gospel]].  
+[^b]: [[Isaiah 29.14|Isa. 29:14]]; [[2 Nephi 25.17|2 Ne. 25:17]].  
+[^c]: [[Wisdom|TG Wisdom]].  
+[^d]: [[Learn, Learning|TG Learn]].  
+[^e]: [[Knowledge|TG Knowledge]].  
+[^f]: [[Prudence, Prudent|TG Prudence]].  

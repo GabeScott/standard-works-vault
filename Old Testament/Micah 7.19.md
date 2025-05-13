@@ -5,4 +5,4 @@
 [Micah 7:19](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.19?lang=eng#p19)
 
 
-[^a]: [[D&C 64.2|D&C 64:2.]]
+[^a]: [[D&C 64.2|D&C 64:2]].  

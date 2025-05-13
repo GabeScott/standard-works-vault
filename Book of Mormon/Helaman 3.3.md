@@ -5,4 +5,4 @@
 [Helaman 3:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 63.4|Alma 63:4.]]
+[^a]: [[Alma 63.4|Alma 63:4]].  

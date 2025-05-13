@@ -5,5 +5,5 @@
 [Romans 9:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.18?lang=eng#p18)
 
 
-[^a]: TG [[Forgive, Forgiveness]].
-[^b]: GR leaves to stubbornness, hardness. Deut. 2:30.
+[^a]: [[Forgive, Forgiveness|TG Forgive]].  
+[^b]: GR leaves to stubbornness, hardness. [[Deuteronomy 2.30|Deut. 2:30]].  

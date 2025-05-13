@@ -5,4 +5,4 @@
 [Job 10:20](https://www.churchofjesuschrist.org/study/scriptures/ot/job/10.20?lang=eng#p20)
 
 
-[^a]: [[Job 7.6|Job 7:6.]]
+[^a]: [[Job 7.6|Job 7:6]].  

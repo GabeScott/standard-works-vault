@@ -5,4 +5,4 @@
 [Revelation 11:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/11.2?lang=eng#p2)
 
 
-[^a]: [[Nehemiah 11.1|Neh. 11:1.]]
+[^a]: [[Nehemiah 11.1|Neh. 11:1]].  

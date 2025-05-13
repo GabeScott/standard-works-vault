@@ -5,4 +5,4 @@
 [Matthew 25:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.24?lang=eng#p24)
 
 
-[^a]: GR strict.
+[^a]: GR strict.  

@@ -5,4 +5,4 @@
 [1 Chronicles 11:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/11.26?lang=eng#p26)
 
 
-[^a]: [[2 Samuel 2.18|2 Sam. 2:18 (18-23)]]; [[1 Chronicles 27.7|1 Chr. 27:7.]]
+[^a]: [[2 Samuel 2.18|2 Sam. 2:18 (18–23)]][[2 Samuel 2.19|]][[2 Samuel 2.20|]][[2 Samuel 2.21|]][[2 Samuel 2.22|]][[2 Samuel 2.23|]]; [[1 Chronicles 27.7|1 Chr. 27:7]].  

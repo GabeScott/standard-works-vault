@@ -5,4 +5,4 @@
 [Judges 17:8](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/17.8?lang=eng#p8)
 
 
-[^a]: [[Joshua 20.9|Josh. 20:9.]]
+[^a]: [[Joshua 20.9|Josh. 20:9]].  

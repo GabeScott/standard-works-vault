@@ -5,4 +5,4 @@
 [Leviticus 26:28](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.28?lang=eng#p28)
 
 
-[^a]: TG [[Chastening]].
+[^a]: [[Chastening|TG Chastening]].  

@@ -5,5 +5,5 @@
 [Deuteronomy 11:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.28?lang=eng#p28)
 
 
-[^a]: [[1 Nephi 2.23|1 Ne. 2:23]]; [[D&C 41.1|D&C 41:1.]]
-[^b]: TG [[Disobedience, Disobey]].
+[^a]: [[1 Nephi 2.23|1 Ne. 2:23]]; [[D&C 41.1|D&C 41:1]].  
+[^b]: [[Disobedience, Disobey|TG Disobedience]].  

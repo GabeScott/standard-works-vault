@@ -5,4 +5,4 @@
 [Acts 23:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.4?lang=eng#p4)
 
 
-[^a]: TG [[Reviling, Revile]].
+[^a]: [[Reviling, Revile|TG Reviling]].  

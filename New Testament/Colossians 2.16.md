@@ -5,6 +5,6 @@
 [Colossians 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/col/2.16?lang=eng#p16)
 
 
-[^a]: [[Romans 14.3|Rom. 14:3 (1-3).]]
-[^b]: TG [[Word of Wisdom]].
-[^c]: TG [[Sabbath]].
+[^a]: [[Romans 14.1|Rom. 14:3 (1–3)]][[Romans 14.2|]][[Romans 14.3|]].  
+[^b]: [[Word of Wisdom|TG Word of Wisdom]].  
+[^c]: [[Sabbath|TG Sabbath]].  

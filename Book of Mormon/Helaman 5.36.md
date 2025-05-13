@@ -5,4 +5,4 @@
 [Helaman 5:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p36#p36)
 
 
-[^a]: [[Exodus 34.29|Ex. 34:29 (29-35)]]; [[Acts 6.15|Acts 6:15.]]
+[^a]: [[Exodus 34.29|Ex. 34:29 (29–35)]][[Exodus 34.30|]][[Exodus 34.31|]][[Exodus 34.32|]][[Exodus 34.33|]][[Exodus 34.34|]][[Exodus 34.35|]]; [[Acts 6.15|Acts 6:15]].  

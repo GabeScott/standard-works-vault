@@ -5,6 +5,6 @@
 [Zechariah 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/3.1?lang=eng#p1)
 
 
-[^a]: TG [[Angels]].
-[^b]: HEB the Adversary or Accuser (also v. 2). Ps. 109:6.
-[^c]: HEB accuse.
+[^a]: [[Angels|TG Angels]].  
+[^b]: HEB the Adversary or Accuser (also [[Zechariah 3.2|v. 2]]). [[Psalms 109.6|Ps. 109:6]].  
+[^c]: HEB accuse.  

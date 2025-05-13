@@ -5,4 +5,4 @@
 [2 Kings 10:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.24?lang=eng#p24)
 
 
-[^a]: [[1 Kings 20.42|1 Kgs. 20:42.]]
+[^a]: [[1 Kings 20.42|1 Kgs. 20:42]].  

@@ -5,4 +5,4 @@
 [Alma 7:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p3#p3)
 
 
-[^a]: [[Alma 5.17|Alma 5:17 (16-17).]]
+[^a]: [[Alma 5.16|Alma 5:17 (16–17)]][[Alma 5.17|]].  

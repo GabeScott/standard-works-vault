@@ -5,4 +5,4 @@
 [3 Nephi 18:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p26#p26)
 
 
-[^a]: [[3 Nephi 13.25|3 Ne. 13:25.]]
+[^a]: [[3 Nephi 13.25|3 Ne. 13:25]].  

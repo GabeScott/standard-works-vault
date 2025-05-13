@@ -5,4 +5,4 @@
 [Jeremiah 42:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.18?lang=eng#p18)
 
 
-[^a]: [[Jeremiah 44.12|Jer. 44:12.]]
+[^a]: [[Jeremiah 44.12|Jer. 44:12]].  

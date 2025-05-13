@@ -5,4 +5,4 @@
 [Psalms 37:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.34?lang=eng#p34)
 
 
-[^a]: [[Psalms 27.14|Ps. 27:14]]; [[D&C 98.2|D&C 98:2 (2-3).]]
+[^a]: [[Psalms 27.14|Ps. 27:14]]; [[D&C 98.2|D&C 98:2 (2–3)]][[D&C 98.3|]].  

@@ -5,6 +5,6 @@
 [Daniel 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.4?lang=eng#p4)
 
 
-[^a]: Dan. 8:22 (8-22).
-[^b]: Dan. 7:6; 8:8.
-[^c]: [[Ezekiel 37.9|Ezek. 37:9]]; [[Revelation 7.1|Rev. 7:1.]]
+[^a]: [[Daniel 8.8|Dan. 8:22 (8–22)]][[Daniel 8.9|]][[Daniel 8.10|]][[Daniel 8.11|]][[Daniel 8.12|]][[Daniel 8.13|]][[Daniel 8.14|]][[Daniel 8.15|]][[Daniel 8.16|]][[Daniel 8.17|]][[Daniel 8.18|]][[Daniel 8.19|]][[Daniel 8.20|]][[Daniel 8.21|]][[Daniel 8.22|]].  
+[^b]: [[Daniel 7.6|Dan. 7:6]]; [[Daniel 8.8|8:8]].  
+[^c]: [[Ezekiel 37.9|Ezek. 37:9]]; [[Revelation 7.1|Rev. 7:1]].  

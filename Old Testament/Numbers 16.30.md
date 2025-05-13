@@ -5,4 +5,4 @@
 [Numbers 16:30](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.30?lang=eng#p30)
 
 
-[^a]: [[Psalms 55.15|Ps. 55:15.]]
+[^a]: [[Psalms 55.15|Ps. 55:15]].  

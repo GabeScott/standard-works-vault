@@ -5,4 +5,4 @@
 [Joshua 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.8?lang=eng#p8)
 
 
-[^a]: IE completely healed.
+[^a]: IE completely healed.  

@@ -5,4 +5,4 @@
 [Deuteronomy 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.8?lang=eng#p8)
 
 
-[^a]: [[Nehemiah 9.13|Neh. 9:13]]; [[Ezekiel 20.11|Ezek. 20:11]]; [[Mosiah 29.25|Mosiah 29:25.]]
+[^a]: [[Nehemiah 9.13|Neh. 9:13]]; [[Ezekiel 20.11|Ezek. 20:11]]; [[Mosiah 29.25|Mosiah 29:25]].  

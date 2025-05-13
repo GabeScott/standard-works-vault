@@ -5,6 +5,6 @@
 [Deuteronomy 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.4?lang=eng#p4)
 
 
-[^a]: TG [[Israel, Blessings of]].
-[^b]: [[1 Nephi 17.38|1 Ne. 17:38 (32-38).]]
-[^c]: TG [[Sin]].
+[^a]: [[Blessing|TG Blessing]].  
+[^b]: [[1 Nephi 17.32|1 Ne. 17:38 (32–38)]][[1 Nephi 17.33|]][[1 Nephi 17.34|]][[1 Nephi 17.35|]][[1 Nephi 17.36|]][[1 Nephi 17.37|]][[1 Nephi 17.38|]].  
+[^c]: [[Sin|TG Sin]].  

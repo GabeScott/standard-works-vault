@@ -5,4 +5,4 @@
 [Jacob 6:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/6?lang=eng&id=p6#p6)
 
 
-[^a]: [[Ezekiel 18.28|Ezek. 18:28 (26-28, 32).]]
+[^a]: [[Ezekiel 18.26|Ezek. 18:28 (26–28, 32)]][[Ezekiel 18.27|]][[Ezekiel 18.28|]][[Ezekiel 18.32|]].  

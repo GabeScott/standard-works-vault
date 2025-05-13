@@ -5,4 +5,4 @@
 [2 Kings 19:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.1?lang=eng#p1)
 
 
-[^a]: [[1 Kings 8.29|1 Kgs. 8:29 (29-30)]]; [[Psalms 73.17|Ps. 73:17 (16-17).]]
+[^a]: [[1 Kings 8.29|1 Kgs. 8:29 (29–30)]][[1 Kings 8.30|]]; [[Psalms 73.16|Ps. 73:17 (16–17)]][[Psalms 73.17|]].  

@@ -5,5 +5,5 @@
 [Mark 9:35](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.35?lang=eng#p35)
 
 
-[^a]: [[Proverbs 18.17|Prov. 18:17.]]
-[^b]: TG [[Meek, Meekness]].
+[^a]: [[Proverbs 18.17|Prov. 18:17]].  
+[^b]: [[Meek, Meekness|TG Meek]].  

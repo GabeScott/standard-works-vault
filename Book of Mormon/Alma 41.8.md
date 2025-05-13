@@ -5,6 +5,6 @@
 [Alma 41:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/41?lang=eng&id=p8#p8)
 
 
-[^a]: [[Mormon 9.19|Morm. 9:19.]]
-[^b]: [[Alma 42.27|Alma 42:27.]]
-[^c]: TG [[Walking with God]].
+[^a]: [[Mormon 9.19|Morm. 9:19]].  
+[^b]: [[Alma 42.27|Alma 42:27]].  
+[^c]: [[Walking with God|TG Walking with God]].  

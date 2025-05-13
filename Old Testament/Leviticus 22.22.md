@@ -5,6 +5,6 @@
 [Leviticus 22:22](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.22?lang=eng#p22)
 
 
-[^a]: Mal. 1:8.
-[^b]: Mal. 1:13 (8-13).
-[^c]: HEB wart.
+[^a]: [[Malachi 1.8|Mal. 1:8]].  
+[^b]: [[Malachi 1.8|Mal. 1:13 (8–13)]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]].  
+[^c]: HEB wart.  

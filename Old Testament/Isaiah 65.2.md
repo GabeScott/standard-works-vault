@@ -5,4 +5,4 @@
 [Isaiah 65:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.2?lang=eng#p2)
 
 
-[^a]: [[Romans 10.21|Rom. 10:21]]; [[2 Nephi 1.2|2 Ne. 1:2.]]
+[^a]: [[Romans 10.21|Rom. 10:21]]; [[2 Nephi 1.2|2 Ne. 1:2]].  

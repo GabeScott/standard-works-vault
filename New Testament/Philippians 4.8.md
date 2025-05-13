@@ -5,11 +5,11 @@
 [Philippians 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.8?lang=eng#p8)
 
 
-[^a]: TG [[Truth]].
-[^b]: TG [[Honesty]].
-[^c]: TG [[God, the Standard of Righteousness]].
-[^d]: TG [[Purity, Pure]].
-[^e]: TG [[Beauty]].
-[^f]: A of F 1:13.
-[^g]: TG [[Chastity, Chaste]]; [[Virtue, Virtuous]].
-[^h]: TG [[Motivations]]; [[Study]].
+[^a]: [[Truth|TG Truth]].  
+[^b]: [[Honesty|TG Honesty]].  
+[^c]: [[Righteousness|TG Righteousness]].  
+[^d]: [[Purity, Pure|TG Purity]].  
+[^e]: [[Beauty|TG Beauty]].  
+[^f]: [[Articles of Faith 1.13|A of F 1:13]].  
+[^g]: [[Chastity, Chaste|TG Chastity]]; [[Virtue, Virtuous|Virtue]].  
+[^h]: [[Motivations|TG Motivations]]; [[Study|Study]].  

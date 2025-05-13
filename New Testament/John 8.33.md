@@ -5,4 +5,4 @@
 [John 8:33](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.33?lang=eng#p33)
 
 
-[^a]: TG [[Abrahamic Covenant]].
+[^a]: [[Abrahamic Covenant|TG Abrahamic Covenant]].  

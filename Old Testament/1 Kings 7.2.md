@@ -5,4 +5,4 @@
 [1 Kings 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 22.8|Isa. 22:8.]]
+[^a]: [[Isaiah 22.8|Isa. 22:8]].  

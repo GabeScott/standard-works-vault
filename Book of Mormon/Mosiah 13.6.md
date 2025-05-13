@@ -5,4 +5,4 @@
 [Mosiah 13:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Priesthood, Power of]]; [[Teaching with the Spirit]].
+[^a]: [[Priesthood, Power of|TG Priesthood, Power of]]; [[Teaching with the Spirit|Teaching with the Spirit]].  

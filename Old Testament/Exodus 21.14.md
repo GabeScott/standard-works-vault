@@ -5,5 +5,5 @@
 [Exodus 21:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.14?lang=eng#p14)
 
 
-[^a]: [[Deuteronomy 27.24|Deut. 27:24.]]
-[^b]: TG [[Guile]].
+[^a]: [[Deuteronomy 27.24|Deut. 27:24]].  
+[^b]: [[Guile|TG Guile]].  

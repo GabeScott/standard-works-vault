@@ -5,5 +5,5 @@
 [Proverbs 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/2.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 91.4|Ps. 91:4.]]
-[^b]: TG [[Walking with God]].
+[^a]: [[Psalms 91.4|Ps. 91:4]].  
+[^b]: [[Walking with God|TG Walking with God]].  

@@ -5,6 +5,6 @@
 [Ezekiel 33:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.17?lang=eng#p17)
 
 
-[^a]: [[Ezekiel 18.25|Ezek. 18:25 (25, 27).]]
-[^b]: HEB right or just.
-[^c]: TG [[God, Justice of]].
+[^a]: [[Ezekiel 18.25|Ezek. 18:25 (25, 27)]][[Ezekiel 18.27|]].  
+[^b]: HEB right or just.  
+[^c]: [[Justice|TG Justice]].  

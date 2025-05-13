@@ -5,5 +5,5 @@
 [Matthew 19:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.13?lang=eng#p13)
 
 
-[^a]: TG [[Hands, Laying on of]].
-[^b]: JST Matt. 19:13 … them, saying, There is no need, for Jesus hath said, Such shall be saved.
+[^a]: [[Hands, Laying on of|TG Hands, Laying on of]].  
+[^b]: [[JST Matthew 19.13|JST Matt. 19:13]] … them, saying, There is no need, for Jesus hath said, Such shall be saved.  

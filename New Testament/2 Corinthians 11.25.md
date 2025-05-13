@@ -5,4 +5,4 @@
 [2 Corinthians 11:25](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.25?lang=eng#p25)
 
 
-[^a]: [[Acts 16.22|Acts 16:22]]. TG [[Persecution, Persecute]].
+[^a]: [[Acts 16.22|Acts 16:22]]. [[Persecution, Persecute|TG Persecution]].  

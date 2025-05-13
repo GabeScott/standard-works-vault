@@ -5,4 +5,4 @@
 [2 Thessalonians 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.4?lang=eng#p4)
 
 
-[^a]: TG [[Dependability]].
+[^a]: [[Dependability|TG Dependability]].  

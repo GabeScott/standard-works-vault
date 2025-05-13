@@ -5,4 +5,4 @@
 [Daniel 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.2?lang=eng#p2)
 
 
-[^a]: [[Numbers 18.3|Num. 18:3]]; Dan. 1:2.
+[^a]: [[Numbers 18.3|Num. 18:3]]; [[Daniel 1.2|Dan. 1:2]].  

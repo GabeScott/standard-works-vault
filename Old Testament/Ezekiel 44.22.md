@@ -5,5 +5,5 @@
 [Ezekiel 44:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.22?lang=eng#p22)
 
 
-[^a]: [[Leviticus 21.14|Lev. 21:14 (7, 13-14).]]
-[^b]: OR divorced. Matt. 5:32.
+[^a]: [[Leviticus 21.7|Lev. 21:14 (7, 13–14)]][[Leviticus 21.13|]][[Leviticus 21.14|]].  
+[^b]: OR divorced. [[Matthew 5.32|Matt. 5:32]].  

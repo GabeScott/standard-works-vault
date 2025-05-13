@@ -5,4 +5,4 @@
 [Leviticus 6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.20?lang=eng#p20)
 
 
-[^a]: IE a continual meal offering.
+[^a]: IE a continual meal offering.  

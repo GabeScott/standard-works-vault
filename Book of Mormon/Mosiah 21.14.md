@@ -5,5 +5,5 @@
 [Mosiah 21:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p14#p14)
 
 
-[^a]: [[Mosiah 29.20|Mosiah 29:20.]]
-[^b]: TG [[Deliver, Deliverance]]; [[Protection, Divine]].
+[^a]: [[Mosiah 29.20|Mosiah 29:20]].  
+[^b]: [[Deliver, Deliverance|TG Deliver]]; [[Protection, Divine|Protection, Divine]].  

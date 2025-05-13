@@ -5,5 +5,5 @@
 [Acts 4:35](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.35?lang=eng#p35)
 
 
-[^a]: [[Acts 6.1|Acts 6:1]]; [[D&C 83.6|D&C 83:6 (1-6).]]
-[^b]: [[Acts 2.45|Acts 2:45]]. TG [[Welfare]].
+[^a]: [[Acts 6.1|Acts 6:1]]; [[D&C 83.1|D&C 83:6 (1–6)]][[D&C 83.2|]][[D&C 83.3|]][[D&C 83.4|]][[D&C 83.5|]][[D&C 83.6|]].  
+[^b]: [[Acts 2.45|Acts 2:45]]. [[Welfare|TG Welfare]].  

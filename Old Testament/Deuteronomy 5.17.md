@@ -5,4 +5,4 @@
 [Deuteronomy 5:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.17?lang=eng#p17)
 
 
-[^a]: TG [[Murder, Murderer]].
+[^a]: [[Murder, Murderer|TG Murder]].  

@@ -5,4 +5,4 @@
 [2 Nephi 24:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p13#p13)
 
 
-[^a]: [[Moses 4.1|Moses 4:1 (1-4).]]
+[^a]: [[Moses 4.1|Moses 4:1 (1–4)]][[Moses 4.2|]][[Moses 4.3|]][[Moses 4.4|]].  

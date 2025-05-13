@@ -5,4 +5,4 @@
 [Acts 23:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.28?lang=eng#p28)
 
 
-[^a]: [[Acts 22.30|Acts 22:30.]]
+[^a]: [[Acts 22.30|Acts 22:30]].  

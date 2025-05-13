@@ -5,5 +5,5 @@
 [Numbers 18:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.19?lang=eng#p19)
 
 
-[^a]: [[2 Chronicles 13.5|2 Chr. 13:5.]]
-[^b]: TG [[Salt]].
+[^a]: [[2 Chronicles 13.5|2 Chr. 13:5]].  
+[^b]: [[Salt|TG Salt]].  

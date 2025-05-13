@@ -5,4 +5,4 @@
 [Genesis 31:40](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.40?lang=eng#p40)
 
 
-[^a]: TG [[Drought]].
+[^a]: [[Drought|TG Drought]].  

@@ -5,4 +5,4 @@
 [Habakkuk 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.4?lang=eng#p4)
 
 
-[^a]: OR rays of light are at His side.
+[^a]: OR rays of light are at His side.  

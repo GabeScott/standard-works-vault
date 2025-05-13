@@ -5,6 +5,6 @@
 [Moses 1:8](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.8?lang=eng#p8)
 
 
-[^a]: [[Moses 2.1|Moses 2:1.]]
-[^b]: [[Moses 1.27|Moses 1:27.]]
-[^c]: [[Psalms 8.3|Ps. 8:3 (3-4).]]
+[^a]: [[Moses 2.1|Moses 2:1]].  
+[^b]: [[Moses 1.27|Moses 1:27]].  
+[^c]: [[Psalms 8.3|Ps. 8:3 (3–4)]][[Psalms 8.4|]].  

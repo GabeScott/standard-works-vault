@@ -5,5 +5,5 @@
 [Genesis 29:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.30?lang=eng#p30)
 
 
-[^a]: [[Genesis 30.15|Gen. 30:15.]]
-[^b]: [[Genesis 30.26|Gen. 30:26.]]
+[^a]: [[Genesis 30.15|Gen. 30:15]].  
+[^b]: [[Genesis 30.26|Gen. 30:26]].  

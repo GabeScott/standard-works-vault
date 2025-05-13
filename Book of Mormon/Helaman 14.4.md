@@ -5,5 +5,5 @@
 [Helaman 14:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p4#p4)
 
 
-[^a]: [[3 Nephi 1.8|3 Ne. 1:8.]]
-[^b]: TG [[Jesus Christ, Birth of]].
+[^a]: [[3 Nephi 1.8|3 Ne. 1:8]].  
+[^b]: [[Jesus Christ, Birth of|TG Jesus Christ, Birth of]].  

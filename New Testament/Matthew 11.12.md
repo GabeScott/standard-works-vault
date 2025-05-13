@@ -5,4 +5,4 @@
 [Matthew 11:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.12?lang=eng#p12)
 
 
-[^a]: GR violent men are seizing control of it, or plundering it.
+[^a]: GR violent men are seizing control of it, or plundering it.  

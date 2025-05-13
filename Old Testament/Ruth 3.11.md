@@ -5,4 +5,4 @@
 [Ruth 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/3.11?lang=eng#p11)
 
 
-[^a]: [[Proverbs 12.4|Prov. 12:4]]; [[Moroni 9.9|Moro. 9:9.]]
+[^a]: [[Proverbs 12.4|Prov. 12:4]]; [[Moroni 9.9|Moro. 9:9]].  

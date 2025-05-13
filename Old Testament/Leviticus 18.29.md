@@ -5,4 +5,4 @@
 [Leviticus 18:29](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.29?lang=eng#p29)
 
 
-[^a]: TG [[Excommunication]].
+[^a]: [[Excommunication|TG Excommunication]].  

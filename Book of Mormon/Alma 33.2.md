@@ -5,6 +5,6 @@
 [Alma 33:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p2#p2)
 
 
-[^a]: [[Alma 32.5|Alma 32:5.]]
-[^b]: TG [[Assembly for Worship]].
-[^c]: [[Mosiah 2.34|Mosiah 2:34]]; [[Alma 37.8|Alma 37:8 (3-10)]]. TG [[Prayer, Pray]].
+[^a]: [[Alma 32.5|Alma 32:5]].  
+[^b]: [[Worship|TG Worship]].  
+[^c]: [[Mosiah 2.34|Mosiah 2:34]]; [[Alma 37.3|Alma 37:8 (3–10)]][[Alma 37.4|]][[Alma 37.5|]][[Alma 37.6|]][[Alma 37.7|]][[Alma 37.8|]][[Alma 37.9|]][[Alma 37.10|]]. [[Prayer, Pray|TG Prayer]].  

@@ -5,5 +5,5 @@
 [Alma 19:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p23#p23)
 
 
-[^a]: [[Mosiah 28.7|Mosiah 28:7]]; [[Alma 17.35|Alma 17:35.]]
-[^b]: TG [[Family, Love within]]; [[Trust in God]].
+[^a]: [[Mosiah 28.7|Mosiah 28:7]]; [[Alma 17.35|Alma 17:35]].  
+[^b]: [[Family, Love within|TG Family, Love within]]; [[Trust in God|Trust in God]].  

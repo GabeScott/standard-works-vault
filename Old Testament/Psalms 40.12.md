@@ -5,4 +5,4 @@
 [Psalms 40:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/40.12?lang=eng#p12)
 
 
-[^a]: [[Psalms 73.26|Ps. 73:26.]]
+[^a]: [[Psalms 73.26|Ps. 73:26]].  

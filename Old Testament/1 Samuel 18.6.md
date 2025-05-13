@@ -5,5 +5,5 @@
 [1 Samuel 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/18.6?lang=eng#p6)
 
 
-[^a]: [[Judges 11.34|Judg. 11:34.]]
-[^b]: [[Exodus 15.20|Ex. 15:20 (20-21).]]
+[^a]: [[Judges 11.34|Judg. 11:34]].  
+[^b]: [[Exodus 15.20|Ex. 15:20 (20–21)]][[Exodus 15.21|]].  

@@ -5,4 +5,4 @@
 [Jeremiah 4:28](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.28?lang=eng#p28)
 
 
-[^a]: HEB relent.
+[^a]: HEB relent.  

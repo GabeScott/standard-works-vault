@@ -5,5 +5,5 @@
 [Ether 7:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/7?lang=eng&id=p23#p23)
 
 
-[^a]: [[Ether 9.28|Ether 9:28]]; [[Ether 11.1|11:1 (1, 12, 20).]]
-[^b]: TG [[Idolatry, Idol]].
+[^a]: [[Ether 9.28|Ether 9:28]]; [[Ether 11.1|11:1 (1, 12, 20)]][[Ether 11.12|]][[Ether 11.20|]].  
+[^b]: [[Idolatry, Idol|TG Idolatry]].  

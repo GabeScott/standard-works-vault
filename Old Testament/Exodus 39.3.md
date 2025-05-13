@@ -5,5 +5,5 @@
 [Exodus 39:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.3?lang=eng#p3)
 
 
-[^a]: OR threads.
-[^b]: OR skillful design.
+[^a]: OR threads.  
+[^b]: OR skillful design.  

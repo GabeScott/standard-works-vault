@@ -5,6 +5,6 @@
 [Jeremiah 25:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.33?lang=eng#p33)
 
 
-[^a]: [[Isaiah 66.16|Isa. 66:16.]]
-[^b]: TG [[Mourning, Mourn]].
-[^c]: [[Jeremiah 8.2|Jer. 8:2.]]
+[^a]: [[Isaiah 66.16|Isa. 66:16]].  
+[^b]: [[Mourning, Mourn|TG Mourning]].  
+[^c]: [[Jeremiah 8.2|Jer. 8:2]].  

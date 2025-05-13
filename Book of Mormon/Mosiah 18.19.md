@@ -5,5 +5,5 @@
 [Mosiah 18:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p19#p19)
 
 
-[^a]: [[Mosiah 23.14|Mosiah 23:14.]]
-[^b]: [[D&C 5.10|D&C 5:10.]]
+[^a]: [[Mosiah 23.14|Mosiah 23:14]].  
+[^b]: [[D&C 5.10|D&C 5:10]].  

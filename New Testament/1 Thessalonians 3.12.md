@@ -5,5 +5,5 @@
 [1 Thessalonians 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/3.12?lang=eng#p12)
 
 
-[^a]: 1 Thes. 4:1.
-[^b]: [[D&C 121.45|D&C 121:45.]]
+[^a]: [[1 Thessalonians 4.1|1 Thes. 4:1]].  
+[^b]: [[D&C 121.45|D&C 121:45]].  

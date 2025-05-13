@@ -5,4 +5,4 @@
 [1 Chronicles 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.12?lang=eng#p12)
 
 
-[^a]: [[2 Samuel 24.13|2 Sam. 24:13]]; [[2 Nephi 1.18|2 Ne. 1:18]]; [[Mosiah 1.17|Mosiah 1:17]]; [[Helaman 11.4|Hel. 11:4]]; [[Abraham 2.1|Abr. 2:1.]]
+[^a]: [[2 Samuel 24.13|2 Sam. 24:13]]; [[2 Nephi 1.18|2 Ne. 1:18]]; [[Mosiah 1.17|Mosiah 1:17]]; [[Helaman 11.4|Hel. 11:4]]; [[Abraham 2.1|Abr. 2:1]].  

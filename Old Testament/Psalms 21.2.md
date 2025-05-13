@@ -5,4 +5,4 @@
 [Psalms 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/21.2?lang=eng#p2)
 
 
-[^a]: [[Alma 29.4|Alma 29:4.]]
+[^a]: [[Alma 29.4|Alma 29:4]].  

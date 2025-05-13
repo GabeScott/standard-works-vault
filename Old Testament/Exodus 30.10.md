@@ -5,6 +5,6 @@
 [Exodus 30:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.10?lang=eng#p10)
 
 
-[^a]: [[Hebrews 9.7|Heb. 9:7.]]
-[^b]: TG [[Blood, Symbolism of]].
-[^c]: [[Leviticus 4.20|Lev. 4:20]]; [[1 Chronicles 6.49|1 Chr. 6:49.]]
+[^a]: [[Hebrews 9.7|Heb. 9:7]].  
+[^b]: [[Blood, Symbolism of|TG Blood, Symbolism of]].  
+[^c]: [[Leviticus 4.20|Lev. 4:20]]; [[1 Chronicles 6.49|1 Chr. 6:49]].  

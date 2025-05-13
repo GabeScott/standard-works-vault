@@ -5,4 +5,4 @@
 [Luke 9:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.22?lang=eng#p22)
 
 
-[^a]: [[Matthew 21.42|Matt. 21:42 (42-46)]]; [[1 Peter 2.7|1 Pet. 2:7.]]
+[^a]: [[Matthew 21.42|Matt. 21:42 (42–46)]][[Matthew 21.43|]][[Matthew 21.44|]][[Matthew 21.45|]][[Matthew 21.46|]]; [[1 Peter 2.7|1 Pet. 2:7]].  

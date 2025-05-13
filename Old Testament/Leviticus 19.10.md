@@ -5,4 +5,4 @@
 [Leviticus 19:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.10?lang=eng#p10)
 
 
-[^a]: TG [[Charity]]; [[Poor]]; [[Welfare]].
+[^a]: [[Charity|TG Charity]]; [[Poor|Poor]]; [[Welfare|Welfare]].  

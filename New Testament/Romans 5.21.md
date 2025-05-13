@@ -5,5 +5,5 @@
 [Romans 5:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.21?lang=eng#p21)
 
 
-[^a]: TG [[God, the Standard of Righteousness]].
-[^b]: TG [[Eternal Life]].
+[^a]: [[Righteousness|TG Righteousness]].  
+[^b]: [[Eternal Life|TG Eternal Life]].  

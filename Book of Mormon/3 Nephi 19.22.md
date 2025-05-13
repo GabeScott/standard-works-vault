@@ -5,4 +5,4 @@
 [3 Nephi 19:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p22#p22)
 
 
-[^a]: [[Acts 7.59|Acts 7:59.]]
+[^a]: [[Acts 7.59|Acts 7:59]].  

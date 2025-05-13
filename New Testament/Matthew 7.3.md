@@ -5,6 +5,6 @@
 [Matthew 7:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.3?lang=eng#p3)
 
 
-[^a]: JST Matt. 7:4-8 (Appendix).
-[^b]: GR speck, chip, or splinter. TG [[Gossip]].
-[^c]: The Greek word refers to a wooden beam used in constructing houses.
+[^a]: [[JST Matthew 7.4|JST Matt. 7:4–8 (Appendix)]][[JST Matthew 7.5|]][[JST Matthew 7.6|]][[JST Matthew 7.7|]][[JST Matthew 7.8|]].  
+[^b]: GR speck, chip, or splinter. [[Gossip|TG Gossip]].  
+[^c]: The Greek word refers to a wooden beam used in constructing houses.  

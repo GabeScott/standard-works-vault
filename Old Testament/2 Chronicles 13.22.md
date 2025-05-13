@@ -5,4 +5,4 @@
 [2 Chronicles 13:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/13.22?lang=eng#p22)
 
 
-[^a]: TG [[Scriptures, Lost]].
+[^a]: [[Scriptures, Lost|TG Scriptures, Lost]].  

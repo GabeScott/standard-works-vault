@@ -5,7 +5,7 @@
 [Deuteronomy 17:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/17.8?lang=eng#p8)
 
 
-[^a]: [[Mosiah 29.28|Mosiah 29:28 (28-29).]]
-[^b]: IE regarding degrees of manslaughter, etc.
-[^c]: [[Ezekiel 44.24|Ezek. 44:24]]. TG [[Disputations, Dispute]].
-[^d]: [[1 Kings 8.29|1 Kgs. 8:29 (26-30).]]
+[^a]: [[Mosiah 29.28|Mosiah 29:28 (28–29)]][[Mosiah 29.29|]].  
+[^b]: IE regarding degrees of manslaughter, etc.  
+[^c]: [[Ezekiel 44.24|Ezek. 44:24]]. [[Disputations, Dispute|TG Disputations]].  
+[^d]: [[1 Kings 8.26|1 Kgs. 8:29 (26–30)]][[1 Kings 8.27|]][[1 Kings 8.28|]][[1 Kings 8.29|]][[1 Kings 8.30|]].  

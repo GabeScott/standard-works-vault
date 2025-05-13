@@ -5,4 +5,4 @@
 [Exodus 29:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.13?lang=eng#p13)
 
 
-[^a]: HEB lobe.
+[^a]: HEB lobe.  

@@ -5,4 +5,4 @@
 [Jeremiah 48:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.6?lang=eng#p6)
 
 
-[^a]: [[Jeremiah 17.6|Jer. 17:6.]]
+[^a]: [[Jeremiah 17.6|Jer. 17:6]].  

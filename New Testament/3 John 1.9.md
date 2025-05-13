@@ -5,5 +5,5 @@
 [3 John 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/3-jn/1.9?lang=eng#p9)
 
 
-[^a]: TG [[Unrighteous Dominion]].
-[^b]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Unrighteous Dominion|TG Unrighteous Dominion]].  
+[^b]: [[Apostasy of the Early Christian Church|TG Apostasy of the Early Christian Church]].  

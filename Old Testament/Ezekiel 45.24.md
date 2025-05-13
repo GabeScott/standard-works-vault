@@ -5,4 +5,4 @@
 [Ezekiel 45:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 29.40|Ex. 29:40.]]
+[^a]: [[Exodus 29.40|Ex. 29:40]].  

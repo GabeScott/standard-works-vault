@@ -5,5 +5,5 @@
 [Acts 21:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.31?lang=eng#p31)
 
 
-[^a]: [[Acts 26.21|Acts 26:21]]; [[2 Corinthians 11.26|2 Cor. 11:26.]]
-[^b]: TG [[Rioting and Reveling]].
+[^a]: [[Acts 26.21|Acts 26:21]]; [[2 Corinthians 11.26|2 Cor. 11:26]].  
+[^b]: [[Rioting and Reveling|TG Rioting and Reveling]].  

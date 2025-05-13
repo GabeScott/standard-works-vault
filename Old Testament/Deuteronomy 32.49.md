@@ -5,5 +5,5 @@
 [Deuteronomy 32:49](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.49?lang=eng#p49)
 
 
-[^a]: [[Numbers 27.12|Num. 27:12 (12-14)]]; [[Numbers 33.47|33:47.]]
-[^b]: OR opposite.
+[^a]: [[Numbers 27.12|Num. 27:12 (12–14)]][[Numbers 27.13|]][[Numbers 27.14|]]; [[Numbers 33.47|33:47]].  
+[^b]: OR opposite.  

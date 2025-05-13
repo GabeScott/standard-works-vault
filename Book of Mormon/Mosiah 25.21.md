@@ -5,4 +5,4 @@
 [Mosiah 25:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/25?lang=eng&id=p21#p21)
 
 
-[^a]: TG [[Apostasy of the Early Christian Church]].
+[^a]: [[Church|TG Church]].  

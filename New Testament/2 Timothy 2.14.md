@@ -5,4 +5,4 @@
 [2 Timothy 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.14?lang=eng#p14)
 
 
-[^a]: GR dispute not about words, or trivialities.
+[^a]: GR dispute not about words, or trivialities.  

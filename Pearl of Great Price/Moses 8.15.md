@@ -5,4 +5,4 @@
 [Moses 8:15](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.15?lang=eng#p15)
 
 
-[^a]: TG [[Disobedience, Disobey]].
+[^a]: [[Disobedience, Disobey|TG Disobedience]].  

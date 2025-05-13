@@ -5,5 +5,5 @@
 [Psalms 29:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/29.11?lang=eng#p11)
 
 
-[^a]: TG [[Strength]].
-[^b]: TG [[Peace of God]].
+[^a]: [[Strength|TG Strength]].  
+[^b]: [[Peace|TG Peace]].  

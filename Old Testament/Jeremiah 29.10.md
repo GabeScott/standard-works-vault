@@ -5,6 +5,6 @@
 [Jeremiah 29:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.10?lang=eng#p10)
 
 
-[^a]: [[Jeremiah 25.11|Jer. 25:11.]]
-[^b]: [[Jeremiah 33.14|Jer. 33:14.]]
-[^c]: [[1 Nephi 10.3|1 Ne. 10:3]]; [[2 Nephi 6.9|2 Ne. 6:9 (8-9).]]
+[^a]: [[Jeremiah 25.11|Jer. 25:11]].  
+[^b]: [[Jeremiah 33.14|Jer. 33:14]].  
+[^c]: [[1 Nephi 10.3|1 Ne. 10:3]]; [[2 Nephi 6.8|2 Ne. 6:9 (8–9)]][[2 Nephi 6.9|]].  

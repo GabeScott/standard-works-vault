@@ -5,4 +5,4 @@
 [Isaiah 36:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/36.7?lang=eng#p7)
 
 
-[^a]: IE All outlying shrines had been eliminated, in favor of one temple, in Jerusalem.
+[^a]: IE All outlying shrines had been eliminated, in favor of one temple, in Jerusalem.  

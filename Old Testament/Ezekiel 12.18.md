@@ -5,4 +5,4 @@
 [Ezekiel 12:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.18?lang=eng#p18)
 
 
-[^a]: HEB apprehension or anxiety.
+[^a]: HEB apprehension or anxiety.  

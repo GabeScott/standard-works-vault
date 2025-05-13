@@ -5,5 +5,5 @@
 [Deuteronomy 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.2?lang=eng#p2)
 
 
-[^a]: OR set apart (also v. 7).
-[^b]: [[Exodus 21.13|Ex. 21:13.]]
+[^a]: OR set apart (also [[Deuteronomy 19.7|v. 7]]).  
+[^b]: [[Exodus 21.13|Ex. 21:13]].  

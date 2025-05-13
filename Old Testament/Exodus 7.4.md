@@ -5,5 +5,5 @@
 [Exodus 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.4?lang=eng#p4)
 
 
-[^a]: OR But if Pharaoh will not hearken … then I will …
-[^b]: [[D&C 105.26|D&C 105:26.]]
+[^a]: OR But if Pharaoh will not hearken … then I will …  
+[^b]: [[D&C 105.26|D&C 105:26]].  

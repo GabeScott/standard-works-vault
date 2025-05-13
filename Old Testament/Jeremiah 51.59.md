@@ -5,4 +5,4 @@
 [Jeremiah 51:59](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.59?lang=eng#p59)
 
 
-[^a]: OR quartermaster.
+[^a]: OR quartermaster.  

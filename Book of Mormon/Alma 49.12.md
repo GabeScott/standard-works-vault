@@ -5,4 +5,4 @@
 [Alma 49:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/49?lang=eng&id=p12#p12)
 
 
-[^a]: [[Alma 16.3|Alma 16:3.]]
+[^a]: [[Alma 16.3|Alma 16:3]].  

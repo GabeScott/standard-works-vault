@@ -5,4 +5,4 @@
 [Job 33:26](https://www.churchofjesuschrist.org/study/scriptures/ot/job/33.26?lang=eng#p26)
 
 
-[^a]: [[2 Nephi 32.9|2 Ne. 32:9]]; [[D&C 75.11|D&C 75:11.]]
+[^a]: [[2 Nephi 32.9|2 Ne. 32:9]]; [[D&C 75.11|D&C 75:11]].  

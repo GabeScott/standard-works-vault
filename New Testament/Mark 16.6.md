@@ -5,4 +5,4 @@
 [Mark 16:6](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.6?lang=eng#p6)
 
 
-[^a]: TG [[Immortality, Immortal]].
+[^a]: [[Immortality, Immortal|TG Immortality]].  

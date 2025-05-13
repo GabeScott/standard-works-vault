@@ -5,5 +5,5 @@
 [Psalms 8:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/8.5?lang=eng#p5)
 
 
-[^a]: HEB less than the gods.
-[^b]: TG [[Man, Potential to Become like Heavenly Father]]; [[Worth of Souls]].
+[^a]: HEB less than the gods.  
+[^b]: [[Man, Potential to Become like Heavenly Father|TG Man, Potential to Become like Heavenly Father]]; [[Worth of Souls|Worth of Souls]].  

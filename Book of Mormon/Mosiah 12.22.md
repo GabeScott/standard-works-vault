@@ -5,4 +5,4 @@
 [Mosiah 12:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/12?lang=eng&id=p22#p22)
 
 
-[^a]: [[Mosiah 15.29|Mosiah 15:29.]]
+[^a]: [[Mosiah 15.29|Mosiah 15:29]].  

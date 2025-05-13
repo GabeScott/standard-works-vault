@@ -5,4 +5,4 @@
 [Leviticus 13:54](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.54?lang=eng#p54)
 
 
-[^a]: HEB quarantine it seven days the second time.
+[^a]: HEB quarantine it seven days the second time.  

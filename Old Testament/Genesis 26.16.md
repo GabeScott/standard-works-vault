@@ -5,4 +5,4 @@
 [Genesis 26:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 1.9|Ex. 1:9.]]
+[^a]: [[Exodus 1.9|Ex. 1:9]].  

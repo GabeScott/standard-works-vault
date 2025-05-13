@@ -5,6 +5,6 @@
 [Mormon 9:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p4#p4)
 
 
-[^a]: TG [[Filthiness, Filthy]].
-[^b]: TG [[Damnation, Damned]].
-[^c]: TG [[Hell]].
+[^a]: [[Filthiness, Filthy|TG Filthiness]].  
+[^b]: [[Damnation, Damned|TG Damnation]].  
+[^c]: [[Hell|TG Hell]].  

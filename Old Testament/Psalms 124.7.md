@@ -5,4 +5,4 @@
 [Psalms 124:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/124.7?lang=eng#p7)
 
 
-[^a]: [[Psalms 91.3|Ps. 91:3.]]
+[^a]: [[Psalms 91.3|Ps. 91:3]].  

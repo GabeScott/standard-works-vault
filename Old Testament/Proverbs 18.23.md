@@ -5,5 +5,5 @@
 [Proverbs 18:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.23?lang=eng#p23)
 
 
-[^a]: [[Proverbs 19.7|Prov. 19:7.]]
-[^b]: [[Alma 32.5|Alma 32:5 (1-5).]]
+[^a]: [[Proverbs 19.7|Prov. 19:7]].  
+[^b]: [[Alma 32.1|Alma 32:5 (1–5)]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]].  

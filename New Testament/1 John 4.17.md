@@ -5,4 +5,4 @@
 [1 John 4:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.17?lang=eng#p17)
 
 
-[^a]: TG [[Jesus Christ, Exemplar]].
+[^a]: [[Jesus Christ, Exemplar|TG Jesus Christ, Exemplar]].  

@@ -5,5 +5,5 @@
 [Joshua 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/7.9?lang=eng#p9)
 
 
-[^a]: HEB surround.
-[^b]: [[Isaiah 48.9|Isa. 48:9.]]
+[^a]: HEB surround.  
+[^b]: [[Isaiah 48.9|Isa. 48:9]].  

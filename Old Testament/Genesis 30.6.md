@@ -5,4 +5,4 @@
 [Genesis 30:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.6?lang=eng#p6)
 
 
-[^a]: IE He has judged, or vindicated. Gen. 49:16 (16-18); [[1 Chronicles 2.2|1 Chr. 2:2.]]
+[^a]: IE He has judged, or vindicated. [[Genesis 49.16|Gen. 49:16 (16–18)]][[Genesis 49.17|]][[Genesis 49.18|]]; [[1 Chronicles 2.2|1 Chr. 2:2]].  

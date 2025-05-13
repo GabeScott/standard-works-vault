@@ -5,5 +5,5 @@
 [Revelation 20:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/20.11?lang=eng#p11)
 
 
-[^a]: [[D&C 29.24|D&C 29:24 (24-25).]]
-[^b]: Dan. 2:35 (31-36).
+[^a]: [[D&C 29.24|D&C 29:24 (24–25)]][[D&C 29.25|]].  
+[^b]: [[Daniel 2.31|Dan. 2:35 (31–36)]][[Daniel 2.32|]][[Daniel 2.33|]][[Daniel 2.34|]][[Daniel 2.35|]][[Daniel 2.36|]].  

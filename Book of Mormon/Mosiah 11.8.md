@@ -5,4 +5,4 @@
 [Mosiah 11:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p8#p8)
 
 
-[^a]: [[Esther 1.4|Esth. 1:4.]]
+[^a]: [[Esther 1.4|Esth. 1:4]].  

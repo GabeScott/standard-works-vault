@@ -5,6 +5,6 @@
 [Ephesians 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.10?lang=eng#p10)
 
 
-[^a]: [[Psalms 100.3|Ps. 100:3]]; [[Isaiah 60.21|Isa. 60:21]]; [[D&C 29.25|D&C 29:25.]]
-[^b]: TG [[Good Works]].
-[^c]: TG [[Walking with God]].
+[^a]: [[Psalms 100.3|Ps. 100:3]]; [[Isaiah 60.21|Isa. 60:21]]; [[D&C 29.25|D&C 29:25]].  
+[^b]: [[Good Works|TG Good Works]].  
+[^c]: [[Walking with God|TG Walking with God]].  

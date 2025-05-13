@@ -5,4 +5,4 @@
 [2 Chronicles 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/13.18?lang=eng#p18)
 
 
-[^a]: TG [[Trust in God]].
+[^a]: [[Trust in God|TG Trust in God]].  

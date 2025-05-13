@@ -5,4 +5,4 @@
 [Zephaniah 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.3?lang=eng#p3)
 
 
-[^a]: [[Jeremiah 5.6|Jer. 5:6.]]
+[^a]: [[Jeremiah 5.6|Jer. 5:6]].  

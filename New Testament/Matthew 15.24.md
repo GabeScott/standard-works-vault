@@ -5,5 +5,5 @@
 [Matthew 15:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.24?lang=eng#p24)
 
 
-[^a]: [[3 Nephi 15.23|3 Ne. 15:23]]. TG [[Jesus Christ, Messenger of the Covenant]].
-[^b]: TG [[Israel, Scattering of]].
+[^a]: [[3 Nephi 15.23|3 Ne. 15:23]]. [[Jesus Christ, Messenger of the Covenant|TG Jesus Christ, Messenger of the Covenant]].  
+[^b]: [[Israel, Scattering of|TG Israel, Scattering of]].  

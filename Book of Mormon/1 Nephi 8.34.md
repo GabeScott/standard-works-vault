@@ -5,4 +5,4 @@
 [1 Nephi 8:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p34#p34)
 
 
-[^a]: [[Exodus 23.2|Ex. 23:2]]; [[Proverbs 19.27|Prov. 19:27]]; [[Mosiah 2.37|Mosiah 2:37 (33, 37).]]
+[^a]: [[Exodus 23.2|Ex. 23:2]]; [[Proverbs 19.27|Prov. 19:27]]; [[Mosiah 2.33|Mosiah 2:37 (33, 37)]][[Mosiah 2.37|]].  

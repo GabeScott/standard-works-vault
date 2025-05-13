@@ -5,4 +5,4 @@
 [Isaiah 14:27](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.27?lang=eng#p27)
 
 
-[^a]: TG [[God, Power of]].
+[^a]: [[God, Power of|TG God, Power of]].  

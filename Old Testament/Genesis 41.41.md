@@ -5,4 +5,4 @@
 [Genesis 41:41](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.41?lang=eng#p41)
 
 
-[^a]: Dan. 6:3.
+[^a]: [[Daniel 6.3|Dan. 6:3]].  

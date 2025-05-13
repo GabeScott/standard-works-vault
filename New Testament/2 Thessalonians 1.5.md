@@ -5,4 +5,4 @@
 [2 Thessalonians 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/1.5?lang=eng#p5)
 
 
-[^a]: TG [[Suffering]].
+[^a]: [[Suffering|TG Suffering]].  

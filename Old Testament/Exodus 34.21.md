@@ -5,5 +5,5 @@
 [Exodus 34:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.21?lang=eng#p21)
 
 
-[^a]: TG [[Restoration of the Gospel]].
-[^b]: HEB plowing.
+[^a]: [[Rest|TG Rest]].  
+[^b]: HEB plowing.  

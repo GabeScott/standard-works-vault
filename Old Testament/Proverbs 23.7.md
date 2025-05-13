@@ -5,5 +5,5 @@
 [Proverbs 23:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.7?lang=eng#p7)
 
 
-[^a]: TG [[Motivations]].
-[^b]: TG [[Heart]].
+[^a]: [[Motivations|TG Motivations]].  
+[^b]: [[Heart|TG Heart]].  

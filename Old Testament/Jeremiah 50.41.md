@@ -5,5 +5,5 @@
 [Jeremiah 50:41](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.41?lang=eng#p41)
 
 
-[^a]: [[Jeremiah 6.22|Jer. 6:22 (22-24).]]
-[^b]: HEB remote parts.
+[^a]: [[Jeremiah 6.22|Jer. 6:22 (22–24)]][[Jeremiah 6.23|]][[Jeremiah 6.24|]].  
+[^b]: HEB remote parts.  

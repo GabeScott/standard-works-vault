@@ -5,5 +5,5 @@
 [Isaiah 29:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.24?lang=eng#p24)
 
 
-[^a]: [[D&C 1.25|D&C 1:25.]]
-[^b]: TG [[Learn, Learning]].
+[^a]: [[D&C 1.25|D&C 1:25]].  
+[^b]: [[Learn, Learning|TG Learn]].  

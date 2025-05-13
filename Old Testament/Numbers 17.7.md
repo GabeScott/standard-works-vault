@@ -5,4 +5,4 @@
 [Numbers 17:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/17.7?lang=eng#p7)
 
 
-[^a]: [[Exodus 38.21|Ex. 38:21.]]
+[^a]: [[Exodus 38.21|Ex. 38:21]].  

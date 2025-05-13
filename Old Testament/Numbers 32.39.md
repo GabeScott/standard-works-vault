@@ -5,5 +5,5 @@
 [Numbers 32:39](https://www.churchofjesuschrist.org/study/scriptures/ot/num/32.39?lang=eng#p39)
 
 
-[^a]: [[Genesis 50.23|Gen. 50:23.]]
-[^b]: TG [[Israel, Joseph, People of]].
+[^a]: [[Genesis 50.23|Gen. 50:23]].  
+[^b]: [[Israel, Joseph, People of|TG Israel, Joseph, People of]].  

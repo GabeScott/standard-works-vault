@@ -5,4 +5,4 @@
 [Psalms 68:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.29?lang=eng#p29)
 
 
-[^a]: [[Psalms 76.11|Ps. 76:11.]]
+[^a]: [[Psalms 76.11|Ps. 76:11]].  

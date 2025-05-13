@@ -5,4 +5,4 @@
 [Joshua 21:20](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.20?lang=eng#p20)
 
 
-[^a]: [[1 Chronicles 6.66|1 Chr. 6:66 (66-70).]]
+[^a]: [[1 Chronicles 6.66|1 Chr. 6:66 (66–70)]][[1 Chronicles 6.67|]][[1 Chronicles 6.68|]][[1 Chronicles 6.69|]][[1 Chronicles 6.70|]].  

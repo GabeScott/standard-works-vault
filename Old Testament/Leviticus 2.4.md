@@ -5,5 +5,5 @@
 [Leviticus 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/2.4?lang=eng#p4)
 
 
-[^a]: [[Ezekiel 46.20|Ezek. 46:20.]]
-[^b]: [[Exodus 29.2|Ex. 29:2.]]
+[^a]: [[Ezekiel 46.20|Ezek. 46:20]].  
+[^b]: [[Exodus 29.2|Ex. 29:2]].  

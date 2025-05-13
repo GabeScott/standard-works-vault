@@ -5,6 +5,6 @@
 [Deuteronomy 29:23](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.23?lang=eng#p23)
 
 
-[^a]: [[Genesis 19.24|Gen. 19:24 (24-25).]]
-[^b]: [[Jeremiah 17.6|Jer. 17:6.]]
-[^c]: [[Hosea 11.8|Hosea 11:8.]]
+[^a]: [[Genesis 19.24|Gen. 19:24 (24–25)]][[Genesis 19.25|]].  
+[^b]: [[Jeremiah 17.6|Jer. 17:6]].  
+[^c]: [[Hosea 11.8|Hosea 11:8]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.3?lang=eng#p3)
 
 
-[^a]: [[D&C 136.26|D&C 136:26.]]
+[^a]: [[D&C 136.26|D&C 136:26]].  

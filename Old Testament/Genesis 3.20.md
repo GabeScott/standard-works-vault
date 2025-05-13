@@ -5,4 +5,4 @@
 [Genesis 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.20?lang=eng#p20)
 
 
-[^a]: TG [[Marriage, Motherhood]].
+[^a]: [[Marriage, Motherhood|TG Marriage, Motherhood]].  

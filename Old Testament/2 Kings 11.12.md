@@ -5,5 +5,5 @@
 [2 Kings 11:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/11.12?lang=eng#p12)
 
 
-[^a]: [[Exodus 25.16|Ex. 25:16.]]
-[^b]: HEB May the king live!
+[^a]: [[Exodus 25.16|Ex. 25:16]].  
+[^b]: HEB May the king live!  

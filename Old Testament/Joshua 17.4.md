@@ -5,5 +5,5 @@
 [Joshua 17:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/17.4?lang=eng#p4)
 
 
-[^a]: [[Exodus 6.25|Ex. 6:25.]]
-[^b]: [[Numbers 27.7|Num. 27:7 (6-7)]]; [[Joshua 16.4|Josh. 16:4.]]
+[^a]: [[Exodus 6.25|Ex. 6:25]].  
+[^b]: [[Numbers 27.6|Num. 27:7 (6–7)]][[Numbers 27.7|]]; [[Joshua 16.4|Josh. 16:4]].  

@@ -5,4 +5,4 @@
 [Ezekiel 28:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.17?lang=eng#p17)
 
 
-[^a]: [[Ezekiel 31.10|Ezek. 31:10.]]
+[^a]: [[Ezekiel 31.10|Ezek. 31:10]].  

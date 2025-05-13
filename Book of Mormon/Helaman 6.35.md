@@ -5,4 +5,4 @@
 [Helaman 6:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p35#p35)
 
 
-[^a]: [[Matthew 13.15|Matt. 13:15]]; [[Mosiah 2.36|Mosiah 2:36]]; [[D&C 121.37|D&C 121:37.]]
+[^a]: [[Matthew 13.15|Matt. 13:15]]; [[Mosiah 2.36|Mosiah 2:36]]; [[D&C 121.37|D&C 121:37]].  

@@ -5,4 +5,4 @@
 [2 Chronicles 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/3.16?lang=eng#p16)
 
 
-[^a]: OR inner sanctuary.
+[^a]: OR inner sanctuary.  

@@ -5,5 +5,5 @@
 [2 Nephi 7:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/7?lang=eng&id=p11#p11)
 
 
-[^a]: [[Deuteronomy 12.8|Deut. 12:8]]; [[Judges 17.6|Judg. 17:6.]]
-[^b]: [[D&C 133.70|D&C 133:70.]]
+[^a]: [[Deuteronomy 12.8|Deut. 12:8]]; [[Judges 17.6|Judg. 17:6]].  
+[^b]: [[D&C 133.70|D&C 133:70]].  

@@ -5,7 +5,7 @@
 [Alma 38:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p8#p8)
 
 
-[^a]: [[Alma 36.10|Alma 36:10 (10, 16).]]
-[^b]: TG [[Pain]].
-[^c]: TG [[Sorrow]].
-[^d]: TG [[Remission of Sins]].
+[^a]: [[Alma 36.10|Alma 36:10 (10, 16)]][[Alma 36.16|]].  
+[^b]: [[Pain|TG Pain]].  
+[^c]: [[Sorrow|TG Sorrow]].  
+[^d]: [[Remission of Sins|TG Remission of Sins]].  

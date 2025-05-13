@@ -5,4 +5,4 @@
 [1 Chronicles 17:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/17.14?lang=eng#p14)
 
 
-[^a]: [[Jeremiah 23.11|Jer. 23:11]]; [[D&C 124.145|D&C 124:145.]]
+[^a]: [[Jeremiah 23.11|Jer. 23:11]]; [[D&C 124.145|D&C 124:145]].  

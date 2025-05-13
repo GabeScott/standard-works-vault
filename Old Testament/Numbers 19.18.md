@@ -5,4 +5,4 @@
 [Numbers 19:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/19.18?lang=eng#p18)
 
 
-[^a]: [[Psalms 51.7|Ps. 51:7.]]
+[^a]: [[Psalms 51.7|Ps. 51:7]].  

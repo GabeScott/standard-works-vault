@@ -5,4 +5,4 @@
 [Exodus 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.7?lang=eng#p7)
 
 
-[^a]: [[John 11.40|John 11:40.]]
+[^a]: [[John 11.40|John 11:40]].  

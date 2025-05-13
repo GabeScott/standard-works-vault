@@ -5,6 +5,6 @@
 [Hebrews 9:24](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.24?lang=eng#p24)
 
 
-[^a]: [[Hebrews 8.2|Heb. 8:2.]]
-[^b]: [[Hebrews 4.14|Heb. 4:14.]]
-[^c]: TG [[Jesus Christ, Atonement through]].
+[^a]: [[Hebrews 8.2|Heb. 8:2]].  
+[^b]: [[Hebrews 4.14|Heb. 4:14]].  
+[^c]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  

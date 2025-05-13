@@ -5,4 +5,4 @@
 [Mark 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.1?lang=eng#p1)
 
 
-[^a]: [[Matthew 13.1|Matt. 13:1.]]
+[^a]: [[Matthew 13.1|Matt. 13:1]].  

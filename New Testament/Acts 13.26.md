@@ -5,4 +5,4 @@
 [Acts 13:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.26?lang=eng#p26)
 
 
-[^a]: [[Abraham 2.9|Abr. 2:9 (9-10).]]
+[^a]: [[Abraham 2.9|Abr. 2:9 (9–10)]][[Abraham 2.10|]].  

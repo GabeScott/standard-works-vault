@@ -5,5 +5,5 @@
 [Deuteronomy 29:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.29?lang=eng#p29)
 
 
-[^a]: TG [[Mysteries of Godliness]].
-[^b]: TG [[Revelation]].
+[^a]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  
+[^b]: [[Revelation|TG Revelation]].  

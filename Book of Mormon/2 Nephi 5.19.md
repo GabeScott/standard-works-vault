@@ -5,5 +5,5 @@
 [2 Nephi 5:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p19#p19)
 
 
-[^a]: [[2 Nephi 1.25|2 Ne. 1:25 (25-27).]]
-[^b]: TG [[Teacher]].
+[^a]: [[2 Nephi 1.25|2 Ne. 1:25 (25–27)]][[2 Nephi 1.26|]][[2 Nephi 1.27|]].  
+[^b]: [[Teacher|TG Teacher]].  

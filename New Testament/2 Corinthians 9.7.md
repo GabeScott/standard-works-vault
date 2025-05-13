@@ -5,7 +5,7 @@
 [2 Corinthians 9:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/9.7?lang=eng#p7)
 
 
-[^a]: [[D&C 6.33|D&C 6:33 (33-34).]]
-[^b]: TG [[Hypocrisy, Hypocrite]].
-[^c]: TG [[Cheerful, Cheerfulness]].
-[^d]: TG [[Generosity]].
+[^a]: [[D&C 6.33|D&C 6:33 (33–34)]][[D&C 6.34|]].  
+[^b]: [[Hypocrisy, Hypocrite|TG Hypocrisy]].  
+[^c]: [[Cheerful, Cheerfulness|TG Cheerful]].  
+[^d]: [[Generosity|TG Generosity]].  

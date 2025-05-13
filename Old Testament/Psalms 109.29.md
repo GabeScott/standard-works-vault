@@ -5,4 +5,4 @@
 [Psalms 109:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.29?lang=eng#p29)
 
 
-[^a]: [[Psalms 71.13|Ps. 71:13.]]
+[^a]: [[Psalms 71.13|Ps. 71:13]].  

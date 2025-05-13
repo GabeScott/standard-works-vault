@@ -5,5 +5,5 @@
 [Ezekiel 29:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.3?lang=eng#p3)
 
 
-[^a]: [[2 Nephi 8.9|2 Ne. 8:9.]]
-[^b]: IE the Nile.
+[^a]: [[2 Nephi 8.9|2 Ne. 8:9]].  
+[^b]: IE the Nile.  

@@ -5,5 +5,5 @@
 [Ezekiel 34:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.2?lang=eng#p2)
 
 
-[^a]: [[Isaiah 56.11|Isa. 56:11]]. TG [[Shepherd]].
-[^b]: TG [[Priesthood, Magnifying Callings within]].
+[^a]: [[Isaiah 56.11|Isa. 56:11]]. [[Shepherd|TG Shepherd]].  
+[^b]: [[Priesthood, Magnifying Callings within|TG Priesthood, Magnifying Callings within]].  

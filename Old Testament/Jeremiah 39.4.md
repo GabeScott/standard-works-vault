@@ -5,4 +5,4 @@
 [Jeremiah 39:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/39.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 52.3|Jer. 52:3 (3-15)]]; [[Omni 1.15|Omni 1:15 (15-16).]]
+[^a]: [[Jeremiah 52.3|Jer. 52:3 (3–15)]][[Jeremiah 52.4|]][[Jeremiah 52.5|]][[Jeremiah 52.6|]][[Jeremiah 52.7|]][[Jeremiah 52.8|]][[Jeremiah 52.9|]][[Jeremiah 52.10|]][[Jeremiah 52.11|]][[Jeremiah 52.12|]][[Jeremiah 52.13|]][[Jeremiah 52.14|]][[Jeremiah 52.15|]]; [[Omni 1.15|Omni 1:15 (15–16)]][[Omni 1.16|]].  

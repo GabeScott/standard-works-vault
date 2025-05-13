@@ -5,4 +5,4 @@
 [Jeremiah 48:29](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.29?lang=eng#p29)
 
 
-[^a]: TG [[Pride]].
+[^a]: [[Pride|TG Pride]].  

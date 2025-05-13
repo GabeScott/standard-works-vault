@@ -5,7 +5,7 @@
 [Genesis 24:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.7?lang=eng#p7)
 
 
-[^a]: [[Genesis 24.40|Gen. 24:40.]]
-[^b]: [[Genesis 12.1|Gen. 12:1.]]
-[^c]: TG [[Promised Lands]].
-[^d]: TG [[Angels]].
+[^a]: [[Genesis 24.40|Gen. 24:40]].  
+[^b]: [[Genesis 12.1|Gen. 12:1]].  
+[^c]: [[Promised Lands|TG Promised Lands]].  
+[^d]: [[Angels|TG Angels]].  

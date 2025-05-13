@@ -5,6 +5,6 @@
 [Romans 9:33](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.33?lang=eng#p33)
 
 
-[^a]: TG [[Cornerstone]]; [[Jesus Christ, Prophecies about]].
-[^b]: TG [[Rock]].
-[^c]: TG [[Offense, Offend, Offender]].
+[^a]: [[Cornerstone|TG Cornerstone]]; [[Jesus Christ, Prophecies about|Jesus Christ, Prophecies about]].  
+[^b]: [[Rock|TG Rock]].  
+[^c]: [[Offense, Offend, Offender|TG Offense]].  

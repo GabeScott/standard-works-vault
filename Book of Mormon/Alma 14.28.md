@@ -5,6 +5,6 @@
 [Alma 14:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/14?lang=eng&id=p28#p28)
 
 
-[^a]: [[Alma 15.2|Alma 15:2.]]
-[^b]: [[1 Nephi 7.17|1 Ne. 7:17 (17-18)]]; [[Jacob 4.6|Jacob 4:6]]; [[3 Nephi 28.20|3 Ne. 28:20 (19-22).]]
-[^c]: [[Alma 36.27|Alma 36:27.]]
+[^a]: [[Alma 15.2|Alma 15:2]].  
+[^b]: [[1 Nephi 7.17|1 Ne. 7:17 (17–18)]][[1 Nephi 7.18|]]; [[Jacob 4.6|Jacob 4:6]]; [[3 Nephi 28.19|3 Ne. 28:20 (19–22)]][[3 Nephi 28.20|]][[3 Nephi 28.21|]][[3 Nephi 28.22|]].  
+[^c]: [[Alma 36.27|Alma 36:27]].  

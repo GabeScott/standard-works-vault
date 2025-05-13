@@ -5,4 +5,4 @@
 [Exodus 15:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.22?lang=eng#p22)
 
 
-[^a]: [[Genesis 16.7|Gen. 16:7.]]
+[^a]: [[Genesis 16.7|Gen. 16:7]].  

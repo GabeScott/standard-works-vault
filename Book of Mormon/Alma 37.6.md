@@ -5,5 +5,5 @@
 [Alma 37:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p6#p6)
 
 
-[^a]: [[1 Corinthians 2.14|1 Cor. 2:14.]]
-[^b]: [[1 Nephi 16.29|1 Ne. 16:29]]; [[D&C 64.33|D&C 64:33]]; [[D&C 123.16|123:16.]]
+[^a]: [[1 Corinthians 2.14|1 Cor. 2:14]].  
+[^b]: [[1 Nephi 16.29|1 Ne. 16:29]]; [[D&C 64.33|D&C 64:33]]; [[D&C 123.16|123:16]].  

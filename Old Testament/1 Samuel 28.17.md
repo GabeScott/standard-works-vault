@@ -5,4 +5,4 @@
 [1 Samuel 28:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/28.17?lang=eng#p17)
 
 
-[^a]: [[1 Samuel 15.28|1 Sam. 15:28.]]
+[^a]: [[1 Samuel 15.28|1 Sam. 15:28]].  

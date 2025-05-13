@@ -5,4 +5,4 @@
 [Mark 8:36](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/8.36?lang=eng#p36)
 
 
-[^a]: [[Jeremiah 45.5|Jer. 45:5.]]
+[^a]: [[Jeremiah 45.5|Jer. 45:5]].  

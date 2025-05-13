@@ -5,4 +5,4 @@
 [Zechariah 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/3.5?lang=eng#p5)
 
 
-[^a]: HEB a clean (pure) cap.
+[^a]: HEB a clean (pure) cap.  

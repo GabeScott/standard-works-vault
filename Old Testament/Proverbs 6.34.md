@@ -5,4 +5,4 @@
 [Proverbs 6:34](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.34?lang=eng#p34)
 
 
-[^a]: TG [[Jealous, Jealousy]].
+[^a]: [[Jealous, Jealousy|TG Jealous]].  

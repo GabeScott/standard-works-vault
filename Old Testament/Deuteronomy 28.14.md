@@ -5,5 +5,5 @@
 [Deuteronomy 28:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.14?lang=eng#p14)
 
 
-[^a]: [[D&C 124.120|D&C 124:120.]]
-[^b]: [[Deuteronomy 5.32|Deut. 5:32 (32-33).]]
+[^a]: [[D&C 124.120|D&C 124:120]].  
+[^b]: [[Deuteronomy 5.32|Deut. 5:32 (32–33)]][[Deuteronomy 5.33|]].  

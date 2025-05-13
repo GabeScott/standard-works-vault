@@ -5,5 +5,5 @@
 [John 14:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.16?lang=eng#p16)
 
 
-[^a]: TG [[Holy Ghost, Comforter]].
-[^b]: [[D&C 20.77|D&C 20:77.]]
+[^a]: [[Holy Ghost, Comforter|TG Holy Ghost, Comforter]].  
+[^b]: [[D&C 20.77|D&C 20:77]].  

@@ -5,4 +5,4 @@
 [Isaiah 44:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.11?lang=eng#p11)
 
 
-[^a]: IE the fellow-worshippers of idols.
+[^a]: IE the fellow-worshippers of idols.  

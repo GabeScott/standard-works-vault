@@ -5,6 +5,6 @@
 [Alma 48:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p23#p23)
 
 
-[^a]: [[Alma 28.11|Alma 28:11 (11-12)]]; [[D&C 42.45|D&C 42:45.]]
-[^b]: [[3 Nephi 12.44|3 Ne. 12:44.]]
-[^c]: [[Amos 4.12|Amos 4:12]]; [[Alma 20.17|Alma 20:17.]]
+[^a]: [[Alma 28.11|Alma 28:11 (11–12)]][[Alma 28.12|]]; [[D&C 42.45|D&C 42:45]].  
+[^b]: [[3 Nephi 12.44|3 Ne. 12:44]].  
+[^c]: [[Amos 4.12|Amos 4:12]]; [[Alma 20.17|Alma 20:17]].  

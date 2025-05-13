@@ -5,4 +5,4 @@
 [2 Chronicles 36:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.23?lang=eng#p23)
 
 
-[^a]: [[Ezra 1.2|Ezra 1:2 (1-3)]]; [[Isaiah 44.28|Isa. 44:28.]]
+[^a]: [[Ezra 1.1|Ezra 1:2 (1–3)]][[Ezra 1.2|]][[Ezra 1.3|]]; [[Isaiah 44.28|Isa. 44:28]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 32:40](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.40?lang=eng#p40)
 
 
-[^a]: [[D&C 110.4|D&C 110:4 (2-4).]]
+[^a]: [[D&C 110.2|D&C 110:4 (2–4)]][[D&C 110.3|]][[D&C 110.4|]].  

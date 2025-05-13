@@ -5,7 +5,7 @@
 [John 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.17?lang=eng#p17)
 
 
-[^a]: JST John 1:17-18 (Appendix).
-[^b]: TG [[Law of Moses]].
-[^c]: TG [[Grace]].
-[^d]: TG [[Truth]].
+[^a]: [[JST John 1.17|JST John 1:17–18 (Appendix)]][[JST John 1.18|]].  
+[^b]: [[Law of Moses|TG Law of Moses]].  
+[^c]: [[Grace|TG Grace]].  
+[^d]: [[Truth|TG Truth]].  

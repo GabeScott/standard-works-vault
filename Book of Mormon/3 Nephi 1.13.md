@@ -5,6 +5,6 @@
 [3 Nephi 1:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p13#p13)
 
 
-[^a]: [[Matthew 2.2|Matt. 2:2.]]
-[^b]: [[Luke 2.11|Luke 2:11 (10-11).]]
-[^c]: TG [[Jesus Christ, Prophecies about]].
+[^a]: [[Matthew 2.2|Matt. 2:2]].  
+[^b]: [[Luke 2.10|Luke 2:11 (10–11)]][[Luke 2.11|]].  
+[^c]: [[Jesus Christ, Prophecies about|TG Jesus Christ, Prophecies about]].  

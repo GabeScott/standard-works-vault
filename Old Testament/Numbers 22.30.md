@@ -5,5 +5,5 @@
 [Numbers 22:30](https://www.churchofjesuschrist.org/study/scriptures/ot/num/22.30?lang=eng#p30)
 
 
-[^a]: 2 Pet. 2:16.
-[^b]: OR accustomed.
+[^a]: [[2 Peter 2.16|2 Pet. 2:16]].  
+[^b]: OR accustomed.  

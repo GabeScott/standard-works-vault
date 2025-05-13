@@ -5,5 +5,5 @@
 [Judges 10:16](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/10.16?lang=eng#p16)
 
 
-[^a]: [[1 Samuel 7.3|1 Sam. 7:3.]]
-[^b]: HEB at the end of patience, exasperated.
+[^a]: [[1 Samuel 7.3|1 Sam. 7:3]].  
+[^b]: HEB at the end of patience, exasperated.  

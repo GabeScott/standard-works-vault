@@ -5,4 +5,4 @@
 [1 Samuel 8:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/8.12?lang=eng#p12)
 
 
-[^a]: OR cultivate.
+[^a]: OR cultivate.  

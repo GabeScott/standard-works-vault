@@ -5,4 +5,4 @@
 [Hosea 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.7?lang=eng#p7)
 
 
-[^a]: [[Micah 6.11|Micah 6:11.]]
+[^a]: [[Micah 6.11|Micah 6:11]].  

@@ -5,4 +5,4 @@
 [Alma 23:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/23?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 22.11|Mosiah 22:11 (8, 11).]]
+[^a]: [[Mosiah 22.8|Mosiah 22:11 (8, 11)]][[Mosiah 22.11|]].  

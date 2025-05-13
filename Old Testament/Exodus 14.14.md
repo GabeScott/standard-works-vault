@@ -5,5 +5,5 @@
 [Exodus 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.14?lang=eng#p14)
 
 
-[^a]: TG [[Protection, Divine]].
-[^b]: [[D&C 10.37|D&C 10:37]]; [[D&C 11.22|11:22.]]
+[^a]: [[Protection, Divine|TG Protection, Divine]].  
+[^b]: [[D&C 10.37|D&C 10:37]]; [[D&C 11.22|11:22]].  

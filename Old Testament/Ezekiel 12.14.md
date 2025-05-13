@@ -5,6 +5,6 @@
 [Ezekiel 12:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.14?lang=eng#p14)
 
 
-[^a]: [[2 Kings 25.5|2 Kgs. 25:5.]]
-[^b]: HEB troops. Ezek. 17:21.
-[^c]: [[Ezekiel 5.2|Ezek. 5:2.]]
+[^a]: [[2 Kings 25.5|2 Kgs. 25:5]].  
+[^b]: HEB troops. [[Ezekiel 17.21|Ezek. 17:21]].  
+[^c]: [[Ezekiel 5.2|Ezek. 5:2]].  

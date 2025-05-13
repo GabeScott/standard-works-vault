@@ -5,4 +5,4 @@
 [Jeremiah 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.20?lang=eng#p20)
 
 
-[^a]: TG [[God, Indignation of]].
+[^a]: [[God, Indignation of|TG God, Indignation of]].  

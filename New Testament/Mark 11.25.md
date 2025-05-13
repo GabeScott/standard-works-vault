@@ -5,5 +5,5 @@
 [Mark 11:25](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/11.25?lang=eng#p25)
 
 
-[^a]: TG [[Prayer, Pray]].
-[^b]: TG [[Forgive, Forgiveness]].
+[^a]: [[Prayer, Pray|TG Prayer]].  
+[^b]: [[Forgive, Forgiveness|TG Forgive]].  

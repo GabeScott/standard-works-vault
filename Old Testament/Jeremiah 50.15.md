@@ -5,4 +5,4 @@
 [Jeremiah 50:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.15?lang=eng#p15)
 
 
-[^a]: IE submitted.
+[^a]: IE submitted.  

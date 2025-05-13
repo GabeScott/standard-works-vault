@@ -5,4 +5,4 @@
 [1 Corinthians 14:26](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.26?lang=eng#p26)
 
 
-[^a]: [[2 Corinthians 12.19|2 Cor. 12:19]]; [[D&C 50.23|D&C 50:23.]]
+[^a]: [[2 Corinthians 12.19|2 Cor. 12:19]]; [[D&C 50.23|D&C 50:23]].  

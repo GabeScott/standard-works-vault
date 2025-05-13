@@ -5,5 +5,5 @@
 [Exodus 14:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.11?lang=eng#p11)
 
 
-[^a]: [[Psalms 106.7|Ps. 106:7.]]
-[^b]: [[Exodus 32.22|Ex. 32:22.]]
+[^a]: [[Psalms 106.7|Ps. 106:7]].  
+[^b]: [[Exodus 32.22|Ex. 32:22]].  

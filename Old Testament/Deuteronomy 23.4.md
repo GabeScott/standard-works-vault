@@ -5,5 +5,5 @@
 [Deuteronomy 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.4?lang=eng#p4)
 
 
-[^a]: OR food.
-[^b]: [[Numbers 22.5|Num. 22:5]]; 2 Pet. 2:15.
+[^a]: OR food.  
+[^b]: [[Numbers 22.5|Num. 22:5]]; [[2 Peter 2.15|2 Pet. 2:15]].  

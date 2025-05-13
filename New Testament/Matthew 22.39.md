@@ -5,4 +5,4 @@
 [Matthew 22:39](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.39?lang=eng#p39)
 
 
-[^a]: TG [[Love]].
+[^a]: [[Love|TG Love]].  

@@ -5,4 +5,4 @@
 [Jeremiah 15:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/15.19?lang=eng#p19)
 
 
-[^a]: OR repent.
+[^a]: OR repent.  

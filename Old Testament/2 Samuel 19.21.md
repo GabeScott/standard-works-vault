@@ -5,5 +5,5 @@
 [2 Samuel 19:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.21?lang=eng#p21)
 
 
-[^a]: [[Exodus 22.28|Ex. 22:28]]; [[D&C 121.16|D&C 121:16.]]
-[^b]: TG [[Anointing, Anoint]].
+[^a]: [[Exodus 22.28|Ex. 22:28]]; [[D&C 121.16|D&C 121:16]].  
+[^b]: [[Anointing, Anoint|TG Anointing]].  

@@ -5,4 +5,4 @@
 [Luke 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.13?lang=eng#p13)
 
 
-[^a]: JST Luke 3:19-20 (Appendix).
+[^a]: [[JST Luke 3.19|JST Luke 3:19–20 (Appendix)]][[JST Luke 3.20|]].  

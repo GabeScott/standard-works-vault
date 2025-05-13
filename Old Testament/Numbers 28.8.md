@@ -5,4 +5,4 @@
 [Numbers 28:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.8?lang=eng#p8)
 
 
-[^a]: [[Nehemiah 10.33|Neh. 10:33.]]
+[^a]: [[Nehemiah 10.33|Neh. 10:33]].  

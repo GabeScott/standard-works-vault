@@ -5,4 +5,4 @@
 [Luke 13:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.18?lang=eng#p18)
 
 
-[^a]: GR compare.
+[^a]: GR compare.  

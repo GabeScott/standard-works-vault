@@ -5,5 +5,5 @@
 [Hebrews 7:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.11?lang=eng#p11)
 
 
-[^a]: [[Hebrews 8.7|Heb. 8:7]]. TG [[Perfection, Perfect, Perfectly]].
-[^b]: TG [[Priesthood, Aaronic]].
+[^a]: [[Hebrews 8.7|Heb. 8:7]]. [[Perfection, Perfect, Perfectly|TG Perfection]].  
+[^b]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  

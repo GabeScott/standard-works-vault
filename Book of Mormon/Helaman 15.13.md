@@ -5,6 +5,6 @@
 [Helaman 15:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p13#p13)
 
 
-[^a]: [[3 Nephi 16.12|3 Ne. 16:12.]]
-[^b]: TG [[Jesus Christ, Good Shepherd]].
-[^c]: TG [[Sheep]].
+[^a]: [[3 Nephi 16.12|3 Ne. 16:12]].  
+[^b]: [[Jesus Christ, Good Shepherd|TG Jesus Christ, Good Shepherd]].  
+[^c]: [[Sheep|TG Sheep]].  

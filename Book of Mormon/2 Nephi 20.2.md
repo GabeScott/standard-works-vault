@@ -5,5 +5,5 @@
 [2 Nephi 20:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p2#p2)
 
 
-[^a]: [[Amos 4.1|Amos 4:1.]]
-[^b]: TG [[Widows]].
+[^a]: [[Amos 4.1|Amos 4:1]].  
+[^b]: [[Widows|TG Widows]].  

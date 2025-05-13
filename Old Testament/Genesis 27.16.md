@@ -5,4 +5,4 @@
 [Genesis 27:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.16?lang=eng#p16)
 
 
-[^a]: [[Alma 49.6|Alma 49:6]]; [[Moses 4.27|Moses 4:27.]]
+[^a]: [[Alma 49.6|Alma 49:6]]; [[Moses 4.27|Moses 4:27]].  

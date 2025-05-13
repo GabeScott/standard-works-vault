@@ -5,5 +5,5 @@
 [Matthew 13:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.35?lang=eng#p35)
 
 
-[^a]: [[Psalms 78.2|Ps. 78:2]]; [[Mark 4.11|Mark 4:11 (11-12).]]
-[^b]: [[D&C 35.18|D&C 35:18.]]
+[^a]: [[Psalms 78.2|Ps. 78:2]]; [[Mark 4.11|Mark 4:11 (11–12)]][[Mark 4.12|]].  
+[^b]: [[D&C 35.18|D&C 35:18]].  

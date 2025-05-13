@@ -5,4 +5,4 @@
 [Obadiah 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/obad/1.8?lang=eng#p8)
 
 
-[^a]: [[D&C 45.26|D&C 45:26.]]
+[^a]: [[D&C 45.26|D&C 45:26]].  

@@ -5,5 +5,5 @@
 [John 17:22](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.22?lang=eng#p22)
 
 
-[^a]: [[Galatians 2.20|Gal. 2:20.]]
-[^b]: [[D&C 93.3|D&C 93:3.]]
+[^a]: [[Galatians 2.20|Gal. 2:20]].  
+[^b]: [[D&C 93.3|D&C 93:3]].  

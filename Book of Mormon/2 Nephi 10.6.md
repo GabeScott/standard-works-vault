@@ -5,5 +5,5 @@
 [2 Nephi 10:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Plague]].
-[^b]: [[1 Nephi 19.14|1 Ne. 19:14 (13-14)]]; [[2 Nephi 25.15|2 Ne. 25:15]]. TG [[Israel, Bondage of, in Other Lands]].
+[^a]: [[Plague|TG Plague]].  
+[^b]: [[1 Nephi 19.13|1 Ne. 19:14 (13–14)]][[1 Nephi 19.14|]]; [[2 Nephi 25.15|2 Ne. 25:15]]. [[Israel, Bondage of, in Other Lands|TG Israel, Bondage of, in Other Lands]].  

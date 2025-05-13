@@ -5,4 +5,4 @@
 [Jeremiah 48:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.1?lang=eng#p1)
 
 
-[^a]: [[Jeremiah 25.21|Jer. 25:21.]]
+[^a]: [[Jeremiah 25.21|Jer. 25:21]].  

@@ -5,5 +5,5 @@
 [Psalms 33:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.10?lang=eng#p10)
 
 
-[^a]: [[Nehemiah 4.15|Neh. 4:15.]]
-[^b]: HEB nations, Gentiles. TG [[Heathen]].
+[^a]: [[Nehemiah 4.15|Neh. 4:15]].  
+[^b]: HEB nations, Gentiles. [[Heathen|TG Heathen]].  

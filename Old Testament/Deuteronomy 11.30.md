@@ -5,5 +5,5 @@
 [Deuteronomy 11:30](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.30?lang=eng#p30)
 
 
-[^a]: HEB Arabah (desert descent).
-[^b]: HEB oaks.
+[^a]: HEB Arabah (desert descent).  
+[^b]: HEB oaks.  

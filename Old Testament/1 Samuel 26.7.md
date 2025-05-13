@@ -5,4 +5,4 @@
 [1 Samuel 26:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/26.7?lang=eng#p7)
 
 
-[^a]: IE the place of his head.
+[^a]: IE the place of his head.  

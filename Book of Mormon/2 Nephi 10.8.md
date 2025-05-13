@@ -5,6 +5,6 @@
 [2 Nephi 10:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p8#p8)
 
 
-[^a]: TG [[Israel, Gathering of]].
-[^b]: [[Isaiah 51.5|Isa. 51:5]]; [[1 Nephi 22.4|1 Ne. 22:4]]; [[2 Nephi 29.7|2 Ne. 29:7]]; [[D&C 133.8|D&C 133:8.]]
-[^c]: [[Isaiah 11.14|Isa. 11:14]]; [[1 Nephi 21.22|1 Ne. 21:22]]; [[1 Nephi 22.8|22:8.]]
+[^a]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^b]: [[Isaiah 51.5|Isa. 51:5]]; [[1 Nephi 22.4|1 Ne. 22:4]]; [[2 Nephi 29.7|2 Ne. 29:7]]; [[D&C 133.8|D&C 133:8]].  
+[^c]: [[Isaiah 11.14|Isa. 11:14]]; [[1 Nephi 21.22|1 Ne. 21:22]]; [[1 Nephi 22.8|22:8]].  

@@ -5,4 +5,4 @@
 [Jeremiah 44:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.18?lang=eng#p18)
 
 
-[^a]: HEB lacked.
+[^a]: HEB lacked.  

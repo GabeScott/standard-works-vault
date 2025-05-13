@@ -5,5 +5,5 @@
 [Philippians 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.12?lang=eng#p12)
 
 
-[^a]: TG [[Perfection, Perfect, Perfectly]].
-[^b]: GR press forward.
+[^a]: [[Perfection, Perfect, Perfectly|TG Perfection]].  
+[^b]: GR press forward.  

@@ -5,6 +5,6 @@
 [Mosiah 24:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p15#p15)
 
 
-[^a]: [[Matthew 11.28|Matt. 11:28 (28-30).]]
-[^b]: [[Alma 31.38|Alma 31:38]]; [[Alma 33.23|33:23.]]
-[^c]: [[2 Corinthians 4.16|2 Cor. 4:16]]; [[D&C 54.10|D&C 54:10]]. TG [[Patience, Patient, Patiently]].
+[^a]: [[Matthew 11.28|Matt. 11:28 (28–30)]][[Matthew 11.29|]][[Matthew 11.30|]].  
+[^b]: [[Alma 31.38|Alma 31:38]]; [[Alma 33.23|33:23]].  
+[^c]: [[2 Corinthians 4.16|2 Cor. 4:16]]; [[D&C 54.10|D&C 54:10]]. [[Patience, Patient, Patiently|TG Patience]].  

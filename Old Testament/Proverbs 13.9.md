@@ -5,4 +5,4 @@
 [Proverbs 13:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.9?lang=eng#p9)
 
 
-[^a]: [[Job 18.5|Job 18:5]]; [[Proverbs 24.20|Prov. 24:20.]]
+[^a]: [[Job 18.5|Job 18:5]]; [[Proverbs 24.20|Prov. 24:20]].  

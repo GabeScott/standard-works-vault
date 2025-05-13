@@ -5,5 +5,5 @@
 [1 Peter 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.12?lang=eng#p12)
 
 
-[^a]: TG [[Children of Light]]; [[Honesty]].
-[^b]: [[Matthew 5.16|Matt. 5:16 (14-16)]]; [[Titus 2.8|Titus 2:8.]]
+[^a]: [[Children of Light|TG Children of Light]]; [[Honesty|Honesty]].  
+[^b]: [[Matthew 5.14|Matt. 5:16 (14–16)]][[Matthew 5.15|]][[Matthew 5.16|]]; [[Titus 2.8|Titus 2:8]].  

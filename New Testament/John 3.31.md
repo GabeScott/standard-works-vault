@@ -5,4 +5,4 @@
 [John 3:31](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.31?lang=eng#p31)
 
 
-[^a]: [[John 8.23|John 8:23.]]
+[^a]: [[John 8.23|John 8:23]].  

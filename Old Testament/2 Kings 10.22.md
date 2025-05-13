@@ -5,4 +5,4 @@
 [2 Kings 10:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.22?lang=eng#p22)
 
 
-[^a]: IE ceremonial robes.
+[^a]: IE ceremonial robes.  

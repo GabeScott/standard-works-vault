@@ -5,4 +5,4 @@
 [Jacob 2:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p3#p3)
 
 
-[^a]: [[2 Nephi 6.3|2 Ne. 6:3]]; [[Mosiah 25.11|Mosiah 25:11.]]
+[^a]: [[2 Nephi 6.3|2 Ne. 6:3]]; [[Mosiah 25.11|Mosiah 25:11]].  

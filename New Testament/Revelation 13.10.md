@@ -5,6 +5,6 @@
 [Revelation 13:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/13.10?lang=eng#p10)
 
 
-[^a]: TG [[Blood, Shedding of]]; [[Retribution]].
-[^b]: TG [[Patience, Patient, Patiently]].
-[^c]: TG [[Mission of Latter-day Saints]].
+[^a]: [[Blood, Shedding of|TG Blood, Shedding of]]; [[Retribution|Retribution]].  
+[^b]: [[Patience, Patient, Patiently|TG Patience]].  
+[^c]: [[Saints|TG Saints]].  

@@ -5,4 +5,4 @@
 [Isaiah 22:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.4?lang=eng#p4)
 
 
-[^a]: TG [[Mourning, Mourn]].
+[^a]: [[Mourning, Mourn|TG Mourning]].  

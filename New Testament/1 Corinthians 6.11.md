@@ -5,7 +5,7 @@
 [1 Corinthians 6:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/6.11?lang=eng#p11)
 
 
-[^a]: TG [[Holy Ghost, Baptism of]]; [[Wash, Washing]].
-[^b]: TG [[Sanctification, Sanctify]].
-[^c]: TG [[Jesus Christ, Taking the Name of]]; [[Name of the Lord]].
-[^d]: TG [[God, Spirit of]].
+[^a]: [[Baptism|TG Baptism]]; [[Wash, Washing|Wash]].  
+[^b]: [[Sanctification, Sanctify|TG Sanctification]].  
+[^c]: [[Jesus Christ, Taking the Name of|TG Jesus Christ, Taking the Name of]]; [[Name|Name]].  
+[^d]: [[God, Spirit of|TG God, Spirit of]].  

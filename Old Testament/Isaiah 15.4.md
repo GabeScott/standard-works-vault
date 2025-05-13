@@ -5,4 +5,4 @@
 [Isaiah 15:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/15.4?lang=eng#p4)
 
 
-[^a]: [[Jeremiah 48.34|Jer. 48:34.]]
+[^a]: [[Jeremiah 48.34|Jer. 48:34]].  

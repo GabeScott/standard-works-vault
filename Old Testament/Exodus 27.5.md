@@ -5,4 +5,4 @@
 [Exodus 27:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/27.5?lang=eng#p5)
 
 
-[^a]: OR ledge.
+[^a]: OR ledge.  

@@ -5,6 +5,6 @@
 [1 Nephi 16:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p38#p38)
 
 
-[^a]: [[1 Nephi 3.30|1 Ne. 3:30 (30-31)]]; [[1 Nephi 4.3|4:3.]]
-[^b]: TG [[Provoking, Provoke]].
-[^c]: TG [[Anger]].
+[^a]: [[1 Nephi 3.30|1 Ne. 3:30 (30–31)]][[1 Nephi 3.31|]]; [[1 Nephi 4.3|4:3]].  
+[^b]: [[Provoking, Provoke|TG Provoking]].  
+[^c]: [[Anger|TG Anger]].  

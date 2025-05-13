@@ -5,5 +5,5 @@
 [2 Nephi 19:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p4#p4)
 
 
-[^a]: IE Israel, the nation mentioned in v. 3.
-[^b]: TG [[Oppression, Oppress]].
+[^a]: IE Israel, the nation mentioned in [[2 Nephi 19.3|v. 3]].  
+[^b]: [[Oppression, Oppress|TG Oppression]].  

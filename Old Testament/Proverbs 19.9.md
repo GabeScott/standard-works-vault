@@ -5,5 +5,5 @@
 [Proverbs 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.9?lang=eng#p9)
 
 
-[^a]: TG [[Punish, Punishment]].
-[^b]: [[2 Nephi 9.34|2 Ne. 9:34.]]
+[^a]: [[Punish, Punishment|TG Punish]].  
+[^b]: [[2 Nephi 9.34|2 Ne. 9:34]].  

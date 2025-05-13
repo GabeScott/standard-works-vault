@@ -5,4 +5,4 @@
 [Ezekiel 16:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.19?lang=eng#p19)
 
 
-[^a]: [[Hosea 2.8|Hosea 2:8.]]
+[^a]: [[Hosea 2.8|Hosea 2:8]].  

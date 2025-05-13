@@ -5,7 +5,7 @@
 [Romans 1:26](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.26?lang=eng#p26)
 
 
-[^a]: GR abandoned, delivered.
-[^b]: GR sufferings, passions of dishonor. 2 Tim. 3:3.
-[^c]: [[Judges 19.22|Judg. 19:22.]]
-[^d]: TG [[Woman, Women]].
+[^a]: GR abandoned, delivered.  
+[^b]: GR sufferings, passions of dishonor. [[2 Timothy 3.3|2 Tim. 3:3]].  
+[^c]: [[Judges 19.22|Judg. 19:22]].  
+[^d]: [[Woman, Women|TG Woman]].  

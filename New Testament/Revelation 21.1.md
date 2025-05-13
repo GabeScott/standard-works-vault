@@ -5,7 +5,7 @@
 [Revelation 21:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.1?lang=eng#p1)
 
 
-[^a]: TG [[Celestial Glory]].
-[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
-[^c]: TG [[Earth, Destiny of]]; [[Earth, Renewal of]].
-[^d]: TG [[World, End of]].
+[^a]: [[Celestial Glory|TG Celestial Glory]].  
+[^b]: [[Heaven|TG Heaven]].  
+[^c]: [[Earth, Destiny of|TG Earth, Destiny of]]; [[Earth, Renewal of|Earth, Renewal of]].  
+[^d]: [[World, End of|TG World, End of]].  

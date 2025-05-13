@@ -5,5 +5,5 @@
 [Acts 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.16?lang=eng#p16)
 
 
-[^a]: TG [[Name of the Lord]].
-[^b]: TG [[Faith]].
+[^a]: [[Name|TG Name]].  
+[^b]: [[Faith|TG Faith]].  

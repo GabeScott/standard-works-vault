@@ -5,5 +5,5 @@
 [1 Kings 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/1.6?lang=eng#p6)
 
 
-[^a]: HEB handsome.
-[^b]: [[1 Kings 2.22|1 Kgs. 2:22.]]
+[^a]: HEB handsome.  
+[^b]: [[1 Kings 2.22|1 Kgs. 2:22]].  

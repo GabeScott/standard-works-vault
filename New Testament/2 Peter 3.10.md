@@ -5,8 +5,8 @@
 [2 Peter 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.10?lang=eng#p10)
 
 
-[^a]: TG [[Day of the Lord]].
-[^b]: TG [[Jesus Christ, Second Coming]].
-[^c]: [[Psalms 102.26|Ps. 102:26 (25-26)]]; [[Isaiah 51.6|Isa. 51:6.]]
-[^d]: TG [[World, End of]].
-[^e]: TG [[Earth, Destiny of]].
+[^a]: [[Day of the Lord|TG Day of the Lord]].  
+[^b]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  
+[^c]: [[Psalms 102.25|Ps. 102:26 (25–26)]][[Psalms 102.26|]]; [[Isaiah 51.6|Isa. 51:6]].  
+[^d]: [[World, End of|TG World, End of]].  
+[^e]: [[Earth, Destiny of|TG Earth, Destiny of]].  

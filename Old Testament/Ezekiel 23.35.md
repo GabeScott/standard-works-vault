@@ -5,5 +5,5 @@
 [Ezekiel 23:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.35?lang=eng#p35)
 
 
-[^a]: TG [[Unbelief, Unbelievers]].
-[^b]: IE bear the consequences of.
+[^a]: [[Unbelief, Unbelievers|TG Unbelief]].  
+[^b]: IE bear the consequences of.  

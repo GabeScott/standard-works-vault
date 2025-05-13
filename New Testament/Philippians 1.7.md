@@ -5,6 +5,6 @@
 [Philippians 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.7?lang=eng#p7)
 
 
-[^a]: GR just, right.
-[^b]: GR establishment, strengthening.
-[^c]: TG [[Grace]].
+[^a]: GR just, right.  
+[^b]: GR establishment, strengthening.  
+[^c]: [[Grace|TG Grace]].  

@@ -5,4 +5,4 @@
 [Joshua 10:8](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.8?lang=eng#p8)
 
 
-[^a]: [[Joshua 10.42|Josh. 10:42]]; [[Joshua 21.44|21:44]]; [[D&C 98.37|D&C 98:37.]]
+[^a]: [[Joshua 10.42|Josh. 10:42]]; [[Joshua 21.44|21:44]]; [[D&C 98.37|D&C 98:37]].  

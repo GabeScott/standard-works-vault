@@ -5,4 +5,4 @@
 [2 Samuel 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/2.6?lang=eng#p6)
 
 
-[^a]: OR do, recompense.
+[^a]: OR do, recompense.  

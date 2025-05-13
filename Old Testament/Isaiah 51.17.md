@@ -5,6 +5,6 @@
 [Isaiah 51:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.17?lang=eng#p17)
 
 
-[^a]: [[Jeremiah 25.15|Jer. 25:15.]]
-[^b]: TG [[God, Indignation of]].
-[^c]: [[Zechariah 12.2|Zech. 12:2.]]
+[^a]: [[Jeremiah 25.15|Jer. 25:15]].  
+[^b]: [[God, Indignation of|TG God, Indignation of]].  
+[^c]: [[Zechariah 12.2|Zech. 12:2]].  

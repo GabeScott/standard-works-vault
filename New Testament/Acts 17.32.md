@@ -5,5 +5,5 @@
 [Acts 17:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.32?lang=eng#p32)
 
 
-[^a]: [[Alma 12.15|Alma 12:15 (12-18).]]
-[^b]: TG [[Mocking, Mock, Mocker, Mockery]].
+[^a]: [[Alma 12.12|Alma 12:15 (12–18)]][[Alma 12.13|]][[Alma 12.14|]][[Alma 12.15|]][[Alma 12.16|]][[Alma 12.17|]][[Alma 12.18|]].  
+[^b]: [[Mocking, Mock, Mocker, Mockery|TG Mocking]].  

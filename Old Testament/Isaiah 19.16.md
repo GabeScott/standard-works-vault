@@ -5,4 +5,4 @@
 [Isaiah 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.16?lang=eng#p16)
 
 
-[^a]: [[Joel 3.19|Joel 3:19]]; [[Zechariah 10.11|Zech. 10:11.]]
+[^a]: [[Joel 3.19|Joel 3:19]]; [[Zechariah 10.11|Zech. 10:11]].  

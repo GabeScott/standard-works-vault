@@ -5,4 +5,4 @@
 [Alma 21:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/21?lang=eng&id=p10#p10)
 
 
-[^a]: TG [[Mocking, Mock, Mocker, Mockery]].
+[^a]: [[Mocking, Mock, Mocker, Mockery|TG Mocking]].  

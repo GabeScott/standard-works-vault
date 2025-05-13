@@ -5,4 +5,4 @@
 [Matthew 18:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.31?lang=eng#p31)
 
 
-[^a]: GR distressed.
+[^a]: GR distressed.  

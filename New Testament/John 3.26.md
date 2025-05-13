@@ -5,4 +5,4 @@
 [John 3:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.26?lang=eng#p26)
 
 
-[^a]: JST John 3:27 … and he receiveth of all people who come unto him.
+[^a]: JST John 3:27 … and he receiveth of all people who come unto him.  

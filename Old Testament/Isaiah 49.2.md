@@ -5,4 +5,4 @@
 [Isaiah 49:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.2?lang=eng#p2)
 
 
-[^a]: [[Hebrews 4.12|Heb. 4:12.]]
+[^a]: [[Hebrews 4.12|Heb. 4:12]].  

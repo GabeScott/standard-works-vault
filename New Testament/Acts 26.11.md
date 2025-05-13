@@ -5,4 +5,4 @@
 [Acts 26:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.11?lang=eng#p11)
 
 
-[^a]: GR foreign.
+[^a]: GR foreign.  

@@ -5,4 +5,4 @@
 [1 Chronicles 24:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/24.5?lang=eng#p5)
 
 
-[^a]: [[1 Chronicles 24.31|1 Chr. 24:31.]]
+[^a]: [[1 Chronicles 24.31|1 Chr. 24:31]].  

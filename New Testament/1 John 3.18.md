@@ -5,5 +5,5 @@
 [1 John 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.18?lang=eng#p18)
 
 
-[^a]: JST 1 Jn. 3:18 … neither in tongue only …
-[^b]: TG [[Good Works]].
+[^a]: JST 1 Jn. 3:18 … neither in tongue only …  
+[^b]: [[Good Works|TG Good Works]].  

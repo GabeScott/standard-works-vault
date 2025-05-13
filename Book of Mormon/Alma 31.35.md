@@ -5,4 +5,4 @@
 [Alma 31:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p35#p35)
 
 
-[^a]: TG [[Worth of Souls]].
+[^a]: [[Worth of Souls|TG Worth of Souls]].  

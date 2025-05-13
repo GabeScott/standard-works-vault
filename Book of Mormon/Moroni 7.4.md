@@ -5,4 +5,4 @@
 [Moroni 7:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p4#p4)
 
 
-[^a]: 1 Jn. 2:6; [[D&C 19.23|D&C 19:23.]]
+[^a]: [[1 John 2.6|1 Jn. 2:6]]; [[D&C 19.23|D&C 19:23]].  

@@ -5,4 +5,4 @@
 [Deuteronomy 34:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.8?lang=eng#p8)
 
 
-[^a]: TG [[Mourning, Mourn]].
+[^a]: [[Mourning, Mourn|TG Mourning]].  

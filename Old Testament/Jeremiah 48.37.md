@@ -5,4 +5,4 @@
 [Jeremiah 48:37](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.37?lang=eng#p37)
 
 
-[^a]: [[Isaiah 15.2|Isa. 15:2.]]
+[^a]: [[Isaiah 15.2|Isa. 15:2]].  

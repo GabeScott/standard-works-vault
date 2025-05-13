@@ -5,5 +5,5 @@
 [3 Nephi 22:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/22?lang=eng&id=p3#p3)
 
 
-[^a]: Obad. 1:19 (19-21).
-[^b]: TG [[Gentiles]].
+[^a]: [[Obadiah 1.19|Obad. 1:19 (19–21)]][[Obadiah 1.20|]][[Obadiah 1.21|]].  
+[^b]: [[Gentiles|TG Gentiles]].  

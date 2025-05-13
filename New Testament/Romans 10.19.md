@@ -5,4 +5,4 @@
 [Romans 10:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.19?lang=eng#p19)
 
 
-[^a]: [[Deuteronomy 32.21|Deut. 32:21]]. TG [[Jealous, Jealousy]].
+[^a]: [[Deuteronomy 32.21|Deut. 32:21]]. [[Jealous, Jealousy|TG Jealous]].  

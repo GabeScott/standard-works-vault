@@ -5,5 +5,5 @@
 [2 Chronicles 33:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.18?lang=eng#p18)
 
 
-[^a]: [[2 Kings 21.17|2 Kgs. 21:17.]]
-[^b]: TG [[Seer]].
+[^a]: [[2 Kings 21.17|2 Kgs. 21:17]].  
+[^b]: [[Seer|TG Seer]].  

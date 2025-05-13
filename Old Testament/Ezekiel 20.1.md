@@ -5,5 +5,5 @@
 [Ezekiel 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 33.21|Ezek. 33:21.]]
-[^b]: TG [[Elder, Melchizedek Priesthood]].
+[^a]: [[Ezekiel 33.21|Ezek. 33:21]].  
+[^b]: [[Elder|TG Elder]].  

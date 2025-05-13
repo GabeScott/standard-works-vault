@@ -5,4 +5,4 @@
 [Matthew 11:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.14?lang=eng#p14)
 
 
-[^a]: [[Luke 1.17|Luke 1:17.]]
+[^a]: [[Luke 1.17|Luke 1:17]].  

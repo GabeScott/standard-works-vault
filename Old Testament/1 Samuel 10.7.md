@@ -5,4 +5,4 @@
 [1 Samuel 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.7?lang=eng#p7)
 
 
-[^a]: IE whatever occasion demands.
+[^a]: IE whatever occasion demands.  

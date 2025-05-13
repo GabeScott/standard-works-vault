@@ -5,4 +5,4 @@
 [Alma 22:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p7#p7)
 
 
-[^a]: [[D&C 46.14|D&C 46:14 (13-14).]]
+[^a]: [[D&C 46.13|D&C 46:14 (13–14)]][[D&C 46.14|]].  

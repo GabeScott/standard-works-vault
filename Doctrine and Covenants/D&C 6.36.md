@@ -5,6 +5,6 @@
 [D&C 6:36](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.36?lang=eng#p36)
 
 
-[^a]: [[Isaiah 45.22|Isa. 45:22]]; [[D&C 43.34|D&C 43:34.]]
-[^b]: TG [[Motivations]].
-[^c]: TG [[Doubt, Doubtful]].
+[^a]: [[Isaiah 45.22|Isa. 45:22]]; [[D&C 43.34|D&C 43:34]].  
+[^b]: [[Motivations|TG Motivations]].  
+[^c]: [[Doubt, Doubtful|TG Doubt]].  

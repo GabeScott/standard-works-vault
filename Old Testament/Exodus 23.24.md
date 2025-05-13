@@ -5,5 +5,5 @@
 [Exodus 23:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.24?lang=eng#p24)
 
 
-[^a]: [[Exodus 20.5|Ex. 20:5.]]
-[^b]: [[Numbers 33.52|Num. 33:52 (52-53)]]; [[Deuteronomy 6.19|Deut. 6:19.]]
+[^a]: [[Exodus 20.5|Ex. 20:5]].  
+[^b]: [[Numbers 33.52|Num. 33:52 (52–53)]][[Numbers 33.53|]]; [[Deuteronomy 6.19|Deut. 6:19]].  

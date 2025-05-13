@@ -5,4 +5,4 @@
 [Alma 34:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p15#p15)
 
 
-[^a]: TG [[Salvation for the Dead]].
+[^a]: [[Salvation|TG Salvation]].  

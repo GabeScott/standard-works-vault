@@ -5,7 +5,7 @@
 [2 Corinthians 8:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.2?lang=eng#p2)
 
 
-[^a]: TG [[Probation, Probationary]]; [[Testament]].
-[^b]: TG [[Affliction]].
-[^c]: [[Mark 12.44|Mark 12:44 (43-44).]]
-[^d]: GR sincerity, purity of mind. TG [[Generosity]].
+[^a]: [[Probation, Probationary|TG Probation]]; [[Test, Try, Prove|Test]].  
+[^b]: [[Affliction|TG Affliction]].  
+[^c]: [[Mark 12.43|Mark 12:44 (43–44)]][[Mark 12.44|]].  
+[^d]: GR sincerity, purity of mind. [[Generosity|TG Generosity]].  

@@ -5,6 +5,6 @@
 [Deuteronomy 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.1?lang=eng#p1)
 
 
-[^a]: HEB beyond the Jordan.
-[^b]: HEB Arabah.
-[^c]: HEB Reed Sea.
+[^a]: HEB beyond the Jordan.  
+[^b]: HEB Arabah.  
+[^c]: HEB Reed Sea.  

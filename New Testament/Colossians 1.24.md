@@ -5,4 +5,4 @@
 [Colossians 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.24?lang=eng#p24)
 
 
-[^a]: [[2 Corinthians 1.5|2 Cor. 1:5.]]
+[^a]: [[2 Corinthians 1.5|2 Cor. 1:5]].  

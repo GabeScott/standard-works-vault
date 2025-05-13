@@ -5,4 +5,4 @@
 [Ezekiel 30:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/30.12?lang=eng#p12)
 
 
-[^a]: [[Isaiah 19.5|Isa. 19:5]]; [[Jeremiah 51.36|Jer. 51:36.]]
+[^a]: [[Isaiah 19.5|Isa. 19:5]]; [[Jeremiah 51.36|Jer. 51:36]].  

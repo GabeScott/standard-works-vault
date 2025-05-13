@@ -5,5 +5,5 @@
 [1 Samuel 29:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/29.4?lang=eng#p4)
 
 
-[^a]: [[1 Chronicles 12.19|1 Chr. 12:19.]]
-[^b]: TG [[Reconciliation, Reconcile]].
+[^a]: [[1 Chronicles 12.19|1 Chr. 12:19]].  
+[^b]: [[Reconciliation, Reconcile|TG Reconciliation]].  

@@ -5,5 +5,5 @@
 [Ephesians 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.8?lang=eng#p8)
 
 
-[^a]: TG [[God, Omniscience of]].
-[^b]: TG [[Prudence, Prudent]].
+[^a]: [[God, Omniscience of|TG God, Omniscience of]].  
+[^b]: [[Prudence, Prudent|TG Prudence]].  

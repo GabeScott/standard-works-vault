@@ -5,5 +5,5 @@
 [Micah 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/4.13?lang=eng#p13)
 
 
-[^a]: [[3 Nephi 20.19|3 Ne. 20:19 (17-22).]]
-[^b]: [[2 Nephi 2.2|2 Ne. 2:2]]; [[2 Nephi 32.9|32:9]]; [[D&C 42.30|D&C 42:30.]]
+[^a]: [[3 Nephi 20.17|3 Ne. 20:19 (17–22)]][[3 Nephi 20.18|]][[3 Nephi 20.19|]][[3 Nephi 20.20|]][[3 Nephi 20.21|]][[3 Nephi 20.22|]].  
+[^b]: [[2 Nephi 2.2|2 Ne. 2:2]]; [[2 Nephi 32.9|32:9]]; [[D&C 42.30|D&C 42:30]].  

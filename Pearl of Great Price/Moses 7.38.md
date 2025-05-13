@@ -5,4 +5,4 @@
 [Moses 7:38](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.38?lang=eng#p38)
 
 
-[^a]: [[1 Peter 3.20|1 Pet. 3:20 (18-21)]]. TG [[Spirits in Prison]].
+[^a]: [[1 Peter 3.20|1 Pet. 3:20 (18–21)]]. [[Spirits in Prison|TG Spirits in Prison]].  

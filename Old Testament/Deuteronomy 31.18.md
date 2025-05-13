@@ -5,4 +5,4 @@
 [Deuteronomy 31:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.18?lang=eng#p18)
 
 
-[^a]: [[3 Nephi 9.11|3 Ne. 9:11.]]
+[^a]: [[3 Nephi 9.11|3 Ne. 9:11]].  

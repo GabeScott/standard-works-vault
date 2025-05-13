@@ -5,4 +5,4 @@
 [Leviticus 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.14?lang=eng#p14)
 
 
-[^a]: [[Ezekiel 43.19|Ezek. 43:19.]]
+[^a]: [[Ezekiel 43.19|Ezek. 43:19]].  

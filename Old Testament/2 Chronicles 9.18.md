@@ -5,4 +5,4 @@
 [2 Chronicles 9:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/9.18?lang=eng#p18)
 
 
-[^a]: IE armrests.
+[^a]: IE armrests.  

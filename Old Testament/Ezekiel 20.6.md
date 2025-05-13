@@ -5,7 +5,7 @@
 [Ezekiel 20:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.6?lang=eng#p6)
 
 
-[^a]: TG [[Israel, Deliverance of]].
-[^b]: [[Abraham 2.6|Abr. 2:6.]]
-[^c]: OR sought out.
-[^d]: [[Psalms 48.2|Ps. 48:2.]]
+[^a]: [[Israel, Deliverance of|TG Israel, Deliverance of]].  
+[^b]: [[Abraham 2.6|Abr. 2:6]].  
+[^c]: OR sought out.  
+[^d]: [[Psalms 48.2|Ps. 48:2]].  

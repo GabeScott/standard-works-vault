@@ -5,4 +5,4 @@
 [1 Samuel 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.7?lang=eng#p7)
 
 
-[^a]: [[2 Kings 4.42|2 Kgs. 4:42]]; [[2 Kings 5.5|5:5.]]
+[^a]: [[2 Kings 4.42|2 Kgs. 4:42]]; [[2 Kings 5.5|5:5]].  

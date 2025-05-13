@@ -5,6 +5,6 @@
 [Isaiah 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.16?lang=eng#p16)
 
 
-[^a]: [[D&C 109.46|D&C 109:46.]]
-[^b]: TG [[Seal]].
-[^c]: HEB teachings or doctrine.
+[^a]: [[D&C 109.46|D&C 109:46]].  
+[^b]: [[Seal|TG Seal]].  
+[^c]: HEB teachings or doctrine.  

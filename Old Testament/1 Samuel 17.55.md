@@ -5,4 +5,4 @@
 [1 Samuel 17:55](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.55?lang=eng#p55)
 
 
-[^a]: [[2 Samuel 2.8|2 Sam. 2:8.]]
+[^a]: [[2 Samuel 2.8|2 Sam. 2:8]].  

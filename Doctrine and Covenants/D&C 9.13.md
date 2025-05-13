@@ -5,5 +5,5 @@
 [D&C 9:13](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/9.13?lang=eng#p13)
 
 
-[^a]: [[Deuteronomy 29.9|Deut. 29:9]]; [[Psalms 1.3|Ps. 1:3 (2-3).]]
-[^b]: TG [[Temptation]].
+[^a]: [[Deuteronomy 29.9|Deut. 29:9]]; [[Psalms 1.2|Ps. 1:3 (2–3)]][[Psalms 1.3|]].  
+[^b]: [[Temptation|TG Temptation]].  

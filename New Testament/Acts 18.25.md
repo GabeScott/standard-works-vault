@@ -5,7 +5,7 @@
 [Acts 18:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.25?lang=eng#p25)
 
 
-[^a]: TG [[Education]].
-[^b]: TG [[Zeal, Zealous]].
-[^c]: GR accurately, precisely, diligently.
-[^d]: [[Acts 19.3|Acts 19:3 (3-6).]]
+[^a]: [[Education|TG Education]].  
+[^b]: [[Zeal, Zealous|TG Zeal]].  
+[^c]: GR accurately, precisely, diligently.  
+[^d]: [[Acts 19.3|Acts 19:3 (3–6)]][[Acts 19.4|]][[Acts 19.5|]][[Acts 19.6|]].  

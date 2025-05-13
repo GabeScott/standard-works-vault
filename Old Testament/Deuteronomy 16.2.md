@@ -5,5 +5,5 @@
 [Deuteronomy 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.2?lang=eng#p2)
 
 
-[^a]: [[2 Kings 23.21|2 Kgs. 23:21.]]
-[^b]: [[2 Chronicles 7.12|2 Chr. 7:12.]]
+[^a]: [[2 Kings 23.21|2 Kgs. 23:21]].  
+[^b]: [[2 Chronicles 7.12|2 Chr. 7:12]].  

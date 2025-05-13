@@ -5,4 +5,4 @@
 [Luke 1:40](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.40?lang=eng#p40)
 
 
-[^a]: GR greeted.
+[^a]: GR greeted.  

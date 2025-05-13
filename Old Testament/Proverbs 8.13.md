@@ -5,5 +5,5 @@
 [Proverbs 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.13?lang=eng#p13)
 
 
-[^a]: TG [[Reverence]].
-[^b]: [[Alma 13.12|Alma 13:12 (12-13).]]
+[^a]: [[Reverence|TG Reverence]].  
+[^b]: [[Alma 13.12|Alma 13:12 (12–13)]][[Alma 13.13|]].  

@@ -5,4 +5,4 @@
 [2 Nephi 1:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p16#p16)
 
 
-[^a]: [[Deuteronomy 4.6|Deut. 4:6 (5-8)]]; [[Ezekiel 20.11|Ezek. 20:11]]; [[2 Nephi 5.10|2 Ne. 5:10 (10-11).]]
+[^a]: [[Deuteronomy 4.5|Deut. 4:6 (5–8)]][[Deuteronomy 4.6|]][[Deuteronomy 4.7|]][[Deuteronomy 4.8|]]; [[Ezekiel 20.11|Ezek. 20:11]]; [[2 Nephi 5.10|2 Ne. 5:10 (10–11)]][[2 Nephi 5.11|]].  

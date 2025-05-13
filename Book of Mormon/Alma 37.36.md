@@ -5,6 +5,6 @@
 [Alma 37:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p36#p36)
 
 
-[^a]: TG [[Prayer, Pray]].
-[^b]: [[Psalms 37.5|Ps. 37:5 (4-7).]]
-[^c]: [[D&C 6.36|D&C 6:36]]. TG [[Motivations]].
+[^a]: [[Prayer, Pray|TG Prayer]].  
+[^b]: [[Psalms 37.4|Ps. 37:5 (4–7)]][[Psalms 37.5|]][[Psalms 37.6|]][[Psalms 37.7|]].  
+[^c]: [[D&C 6.36|D&C 6:36]]. [[Motivations|TG Motivations]].  

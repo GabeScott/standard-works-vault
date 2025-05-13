@@ -5,4 +5,4 @@
 [Psalms 74:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.11?lang=eng#p11)
 
 
-[^a]: Lam. 2:3.
+[^a]: [[Lamentations 2.3|Lam. 2:3]].  

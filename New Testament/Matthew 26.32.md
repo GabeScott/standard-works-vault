@@ -5,4 +5,4 @@
 [Matthew 26:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.32?lang=eng#p32)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
+[^a]: [[Jesus Christ, Resurrection|TG Jesus Christ, Resurrection]].  

@@ -5,4 +5,4 @@
 [2 Nephi 24:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p28#p28)
 
 
-[^a]: [[2 Kings 16.20|2 Kgs. 16:20.]]
+[^a]: [[2 Kings 16.20|2 Kgs. 16:20]].  

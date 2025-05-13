@@ -5,4 +5,4 @@
 [Isaiah 47:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.9?lang=eng#p9)
 
 
-[^a]: OR in full measure.
+[^a]: OR in full measure.  

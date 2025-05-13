@@ -5,4 +5,4 @@
 [1 Kings 17:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/17.18?lang=eng#p18)
 
 
-[^a]: [[Job 13.26|Job 13:26.]]
+[^a]: [[Job 13.26|Job 13:26]].  

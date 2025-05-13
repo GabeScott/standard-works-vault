@@ -5,6 +5,6 @@
 [Alma 5:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p26#p26)
 
 
-[^a]: TG [[Change]]; [[Conversion, Convert]]; [[Man, New, Spiritually Reborn]].
-[^b]: [[Alma 26.13|Alma 26:13.]]
-[^c]: [[Mosiah 4.12|Mosiah 4:12]]; [[Alma 4.14|Alma 4:14 (13-14)]]; [[D&C 20.32|D&C 20:32 (31-34).]]
+[^a]: [[Change|TG Change]]; [[Conversion, Convert|Conversion]]; [[Man, New, Spiritually Reborn|Man, New, Spiritually Reborn]].  
+[^b]: [[Alma 26.13|Alma 26:13]].  
+[^c]: [[Mosiah 4.12|Mosiah 4:12]]; [[Alma 4.13|Alma 4:14 (13–14)]][[Alma 4.14|]]; [[D&C 20.31|D&C 20:32 (31–34)]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]].  

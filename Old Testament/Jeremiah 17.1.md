@@ -5,5 +5,5 @@
 [Jeremiah 17:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.1?lang=eng#p1)
 
 
-[^a]: [[1 Nephi 3.3|1 Ne. 3:3.]]
-[^b]: [[Exodus 27.2|Ex. 27:2.]]
+[^a]: [[1 Nephi 3.3|1 Ne. 3:3]].  
+[^b]: [[Exodus 27.2|Ex. 27:2]].  

@@ -5,11 +5,11 @@
 [2 Nephi 9:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p16#p16)
 
 
-[^a]: [[1 Kings 8.56|1 Kgs. 8:56]]; [[Psalms 33.11|Ps. 33:11]]; [[D&C 1.38|D&C 1:38 (37-39)]]; [[Moses 1.4|Moses 1:4.]]
-[^b]: [[D&C 56.11|D&C 56:11.]]
-[^c]: [[Proverbs 22.8|Prov. 22:8]]. TG [[Filthiness, Filthy]].
-[^d]: [[1 Nephi 15.33|1 Ne. 15:33 (33-35)]]; [[Alma 7.21|Alma 7:21]]; [[Mormon 9.14|Morm. 9:14]]; [[D&C 88.35|D&C 88:35.]]
-[^e]: TG [[Devil, Church of]].
-[^f]: [[Mosiah 27.28|Mosiah 27:28.]]
-[^g]: TG [[Punish, Punishment]].
-[^h]: [[Revelation 19.20|Rev. 19:20]]; [[Revelation 21.8|21:8]]; [[2 Nephi 28.23|2 Ne. 28:23]]; [[D&C 63.17|D&C 63:17]]; [[D&C 76.36|76:36.]]
+[^a]: [[1 Kings 8.56|1 Kgs. 8:56]]; [[Psalms 33.11|Ps. 33:11]]; [[D&C 1.37|D&C 1:38 (37–39)]][[D&C 1.38|]][[D&C 1.39|]]; [[Moses 1.4|Moses 1:4]].  
+[^b]: [[D&C 56.11|D&C 56:11]].  
+[^c]: [[Proverbs 22.8|Prov. 22:8]]. [[Filthiness, Filthy|TG Filthiness]].  
+[^d]: [[1 Nephi 15.33|1 Ne. 15:33 (33–35)]][[1 Nephi 15.34|]][[1 Nephi 15.35|]]; [[Alma 7.21|Alma 7:21]]; [[Mormon 9.14|Morm. 9:14]]; [[D&C 88.35|D&C 88:35]].  
+[^e]: [[Devil|TG Devil]].  
+[^f]: [[Mosiah 27.28|Mosiah 27:28]].  
+[^g]: [[Punish, Punishment|TG Punish]].  
+[^h]: [[Revelation 19.20|Rev. 19:20]]; [[Revelation 21.8|21:8]]; [[2 Nephi 28.23|2 Ne. 28:23]]; [[D&C 63.17|D&C 63:17]]; [[D&C 76.36|76:36]].  

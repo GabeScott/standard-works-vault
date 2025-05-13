@@ -5,4 +5,4 @@
 [2 Chronicles 15:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/15.15?lang=eng#p15)
 
 
-[^a]: [[D&C 88.63|D&C 88:63.]]
+[^a]: [[D&C 88.63|D&C 88:63]].  

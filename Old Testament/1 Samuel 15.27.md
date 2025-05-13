@@ -5,4 +5,4 @@
 [1 Samuel 15:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.27?lang=eng#p27)
 
 
-[^a]: OR was torn.
+[^a]: OR was torn.  

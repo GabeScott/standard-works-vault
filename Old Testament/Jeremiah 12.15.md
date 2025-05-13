@@ -5,5 +5,5 @@
 [Jeremiah 12:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/12.15?lang=eng#p15)
 
 
-[^a]: [[Deuteronomy 30.3|Deut. 30:3.]]
-[^b]: TG [[Israel, Gathering of]].
+[^a]: [[Deuteronomy 30.3|Deut. 30:3]].  
+[^b]: [[Israel, Gathering of|TG Israel, Gathering of]].  

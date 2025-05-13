@@ -5,5 +5,5 @@
 [Proverbs 14:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.20?lang=eng#p20)
 
 
-[^a]: [[D&C 56.16|D&C 56:16.]]
-[^b]: [[Proverbs 19.4|Prov. 19:4.]]
+[^a]: [[D&C 56.16|D&C 56:16]].  
+[^b]: [[Proverbs 19.4|Prov. 19:4]].  

@@ -5,7 +5,7 @@
 [Isaiah 14:32](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.32?lang=eng#p32)
 
 
-[^a]: IE Philistia.
-[^b]: TG [[Zion, Sion]].
-[^c]: TG [[Poor]].
-[^d]: OR seek refuge in it.
+[^a]: IE Philistia.  
+[^b]: [[Zion, Sion|TG Zion]].  
+[^c]: [[Poor|TG Poor]].  
+[^d]: OR seek refuge in it.  

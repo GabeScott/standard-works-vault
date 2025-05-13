@@ -5,4 +5,4 @@
 [1 Samuel 28:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/28.20?lang=eng#p20)
 
 
-[^a]: IE Saul collapsed.
+[^a]: IE Saul collapsed.  

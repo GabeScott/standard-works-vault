@@ -5,4 +5,4 @@
 [Isaiah 57:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.7?lang=eng#p7)
 
 
-[^a]: IE as an altar for idolatrous use.
+[^a]: IE as an altar for idolatrous use.  

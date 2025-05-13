@@ -5,4 +5,4 @@
 [Habakkuk 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.3?lang=eng#p3)
 
 
-[^a]: [[D&C 39.21|D&C 39:21.]]
+[^a]: [[D&C 39.21|D&C 39:21]].  

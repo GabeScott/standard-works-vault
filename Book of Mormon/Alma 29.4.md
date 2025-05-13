@@ -5,5 +5,5 @@
 [Alma 29:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p4#p4)
 
 
-[^a]: [[Psalms 21.2|Ps. 21:2]]; [[Psalms 37.4|37:4.]]
-[^b]: TG [[Agency]].
+[^a]: [[Psalms 21.2|Ps. 21:2]]; [[Psalms 37.4|37:4]].  
+[^b]: [[Agency|TG Agency]].  

@@ -5,4 +5,4 @@
 [Matthew 10:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.11?lang=eng#p11)
 
 
-[^a]: [[D&C 24.15|D&C 24:15.]]
+[^a]: [[D&C 24.15|D&C 24:15]].  

@@ -5,6 +5,6 @@
 [Revelation 18:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.8?lang=eng#p8)
 
 
-[^a]: TG [[Plague]].
-[^b]: [[Revelation 17.16|Rev. 17:16]]; [[D&C 64.24|D&C 64:24]]; [[D&C 86.7|86:7.]]
-[^c]: TG [[Jesus Christ, Judge]].
+[^a]: [[Plague|TG Plague]].  
+[^b]: [[Revelation 17.16|Rev. 17:16]]; [[D&C 64.24|D&C 64:24]]; [[D&C 86.7|86:7]].  
+[^c]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

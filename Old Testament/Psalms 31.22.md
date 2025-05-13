@@ -5,4 +5,4 @@
 [Psalms 31:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.22?lang=eng#p22)
 
 
-[^a]: TG [[Haste, Hasten, Hasty]]; [[Rashness]].
+[^a]: [[Haste, Hasten, Hasty|TG Haste]]; [[Rashness|Rashness]].  

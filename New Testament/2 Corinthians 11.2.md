@@ -5,5 +5,5 @@
 [2 Corinthians 11:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.2?lang=eng#p2)
 
 
-[^a]: TG [[Jealous, Jealousy]].
-[^b]: [[D&C 20.77|D&C 20:77.]]
+[^a]: [[Jealous, Jealousy|TG Jealous]].  
+[^b]: [[D&C 20.77|D&C 20:77]].  

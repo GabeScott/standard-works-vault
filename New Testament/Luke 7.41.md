@@ -5,4 +5,4 @@
 [Luke 7:41](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.41?lang=eng#p41)
 
 
-[^a]: GR denarii; one denarius was a workman’s daily wage.
+[^a]: GR denarii; one denarius was a workman’s daily wage.  

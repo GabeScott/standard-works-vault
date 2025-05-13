@@ -5,4 +5,4 @@
 [Job 24:19](https://www.churchofjesuschrist.org/study/scriptures/ot/job/24.19?lang=eng#p19)
 
 
-[^a]: TG [[Drought]].
+[^a]: [[Drought|TG Drought]].  

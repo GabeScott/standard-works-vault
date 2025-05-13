@@ -5,4 +5,4 @@
 [1 Kings 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.13?lang=eng#p13)
 
 
-[^a]: OR elders’.
+[^a]: OR elders’.  

@@ -5,4 +5,4 @@
 [Joel 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/1.12?lang=eng#p12)
 
 
-[^a]: [[Isaiah 24.11|Isa. 24:11.]]
+[^a]: [[Isaiah 24.11|Isa. 24:11]].  

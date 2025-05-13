@@ -5,5 +5,5 @@
 [Mosiah 13:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Nephi 17.48|1 Ne. 17:48.]]
-[^b]: [[Mosiah 12.20|Mosiah 12:20 (20-24).]]
+[^a]: [[1 Nephi 17.48|1 Ne. 17:48]].  
+[^b]: [[Mosiah 12.20|Mosiah 12:20 (20–24)]][[Mosiah 12.21|]][[Mosiah 12.22|]][[Mosiah 12.23|]][[Mosiah 12.24|]].  

@@ -5,5 +5,5 @@
 [Romans 6:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.14?lang=eng#p14)
 
 
-[^a]: JST Rom. 6:14 For in so doing sin …
-[^b]: [[2 Nephi 2.29|2 Ne. 2:29 (26-29).]]
+[^a]: JST Rom. 6:14 For in so doing sin …  
+[^b]: [[2 Nephi 2.26|2 Ne. 2:29 (26–29)]][[2 Nephi 2.27|]][[2 Nephi 2.28|]][[2 Nephi 2.29|]].  

@@ -5,4 +5,4 @@
 [Ezekiel 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.4?lang=eng#p4)
 
 
-[^a]: [[Ezekiel 3.20|Ezek. 3:20]]; [[2 Nephi 26.20|2 Ne. 26:20.]]
+[^a]: [[Ezekiel 3.20|Ezek. 3:20]]; [[2 Nephi 26.20|2 Ne. 26:20]].  

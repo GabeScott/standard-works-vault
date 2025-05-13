@@ -5,5 +5,5 @@
 [Job 22:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/22.21?lang=eng#p21)
 
 
-[^a]: IE God.
-[^b]: TG [[Peace of God]].
+[^a]: IE God.  
+[^b]: [[Peace of God|TG Peace of God]].  

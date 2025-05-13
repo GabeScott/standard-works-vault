@@ -5,5 +5,5 @@
 [Ruth 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.8?lang=eng#p8)
 
 
-[^a]: [[Leviticus 19.9|Lev. 19:9.]]
-[^b]: OR close.
+[^a]: [[Leviticus 19.9|Lev. 19:9]].  
+[^b]: OR close.  

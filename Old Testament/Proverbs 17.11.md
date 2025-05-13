@@ -5,4 +5,4 @@
 [Proverbs 17:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.11?lang=eng#p11)
 
 
-[^a]: TG [[Rebellion, Rebel]].
+[^a]: [[Rebellion, Rebel|TG Rebellion]].  

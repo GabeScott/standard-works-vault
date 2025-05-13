@@ -5,5 +5,5 @@
 [Numbers 21:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.8?lang=eng#p8)
 
 
-[^a]: TG [[Jesus Christ, Types of, in Anticipation]]; [[Blood, Symbolism of]].
-[^b]: TG [[Health]].
+[^a]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]]; [[Symbolism|Symbolism]].  
+[^b]: [[Heal, Healing|TG Heal]].  

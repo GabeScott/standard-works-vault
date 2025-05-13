@@ -5,4 +5,4 @@
 [Proverbs 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.3?lang=eng#p3)
 
 
-[^a]: TG [[Woman, Women]].
+[^a]: [[Woman, Women|TG Woman]].  

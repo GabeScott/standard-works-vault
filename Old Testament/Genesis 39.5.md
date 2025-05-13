@@ -5,4 +5,4 @@
 [Genesis 39:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.5?lang=eng#p5)
 
 
-[^a]: [[Genesis 30.27|Gen. 30:27.]]
+[^a]: [[Genesis 30.27|Gen. 30:27]].  

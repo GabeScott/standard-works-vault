@@ -5,5 +5,5 @@
 [Psalms 115:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/115.4?lang=eng#p4)
 
 
-[^a]: [[Exodus 20.4|Ex. 20:4.]]
-[^b]: [[Jeremiah 10.9|Jer. 10:9.]]
+[^a]: [[Exodus 20.4|Ex. 20:4]].  
+[^b]: [[Jeremiah 10.9|Jer. 10:9]].  

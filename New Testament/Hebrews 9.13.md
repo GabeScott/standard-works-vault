@@ -5,5 +5,5 @@
 [Hebrews 9:13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.13?lang=eng#p13)
 
 
-[^a]: [[Leviticus 4.5|Lev. 4:5.]]
-[^b]: TG [[Purification, Purify, Purifying]].
+[^a]: [[Leviticus 4.5|Lev. 4:5]].  
+[^b]: [[Purification, Purify, Purifying|TG Purification]].  

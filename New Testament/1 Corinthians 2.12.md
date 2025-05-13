@@ -5,4 +5,4 @@
 [1 Corinthians 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.12?lang=eng#p12)
 
 
-[^a]: [[D&C 50.15|D&C 50:15.]]
+[^a]: [[D&C 50.15|D&C 50:15]].  

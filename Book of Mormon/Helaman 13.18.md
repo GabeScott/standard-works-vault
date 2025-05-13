@@ -5,4 +5,4 @@
 [Helaman 13:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p18#p18)
 
 
-[^a]: [[Words of Mormon 1.18|Morm. 1:18 (17-19)]]; [[Ether 14.1|Ether 14:1.]]
+[^a]: [[Mormon 1.17|Morm. 1:18 (17–19)]][[Mormon 1.18|]][[Mormon 1.19|]]; [[Ether 14.1|Ether 14:1]].  

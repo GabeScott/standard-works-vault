@@ -5,5 +5,5 @@
 [Psalms 62:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/62.12?lang=eng#p12)
 
 
-[^a]: [[Psalms 86.15|Ps. 86:15.]]
-[^b]: TG [[Good Works]]; [[God, Justice of]].
+[^a]: [[Psalms 86.15|Ps. 86:15]].  
+[^b]: [[Good Works|TG Good Works]]; [[Justice|Justice]].  

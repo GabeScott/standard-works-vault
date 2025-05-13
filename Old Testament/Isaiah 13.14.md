@@ -5,7 +5,7 @@
 [Isaiah 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.14?lang=eng#p14)
 
 
-[^a]: OR hunted deer.
-[^b]: HEB none gathers in.
-[^c]: [[Jeremiah 50.16|Jer. 50:16.]]
-[^d]: TG [[Lands of Inheritance]].
+[^a]: OR hunted deer.  
+[^b]: HEB none gathers in.  
+[^c]: [[Jeremiah 50.16|Jer. 50:16]].  
+[^d]: [[Lands of Inheritance|TG Lands of Inheritance]].  

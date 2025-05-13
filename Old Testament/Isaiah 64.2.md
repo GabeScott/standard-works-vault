@@ -5,4 +5,4 @@
 [Isaiah 64:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/64.2?lang=eng#p2)
 
 
-[^a]: [[D&C 34.8|D&C 34:8.]]
+[^a]: [[D&C 34.8|D&C 34:8]].  

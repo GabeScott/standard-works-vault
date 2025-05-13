@@ -5,5 +5,5 @@
 [Jeremiah 27:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.7?lang=eng#p7)
 
 
-[^a]: Dan. 4:22.
-[^b]: OR make him subservient.
+[^a]: [[Daniel 4.22|Dan. 4:22]].  
+[^b]: OR make him subservient.  

@@ -5,4 +5,4 @@
 [2 Nephi 24:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p23#p23)
 
 
-[^a]: [[Isaiah 34.11|Isa. 34:11 (11-15).]]
+[^a]: [[Isaiah 34.11|Isa. 34:11 (11–15)]][[Isaiah 34.12|]][[Isaiah 34.13|]][[Isaiah 34.14|]][[Isaiah 34.15|]].  

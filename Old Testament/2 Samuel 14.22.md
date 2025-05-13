@@ -5,4 +5,4 @@
 [2 Samuel 14:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/14.22?lang=eng#p22)
 
 
-[^a]: HEB blessed.
+[^a]: HEB blessed.  

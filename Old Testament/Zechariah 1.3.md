@@ -5,4 +5,4 @@
 [Zechariah 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.3?lang=eng#p3)
 
 
-[^a]: [[D&C 88.63|D&C 88:63]]. TG [[Repent, Repentance]].
+[^a]: [[D&C 88.63|D&C 88:63]]. [[Repent, Repentance|TG Repent]].  

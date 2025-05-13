@@ -5,5 +5,5 @@
 [Proverbs 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.13?lang=eng#p13)
 
 
-[^a]: [[Proverbs 19.16|Prov. 19:16]]; [[Mormon 9.26|Morm. 9:26.]]
-[^b]: TG [[Reward]].
+[^a]: [[Proverbs 19.16|Prov. 19:16]]; [[Mormon 9.26|Morm. 9:26]].  
+[^b]: [[Reward|TG Reward]].  

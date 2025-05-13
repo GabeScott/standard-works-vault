@@ -5,4 +5,4 @@
 [1 Thessalonians 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/2.8?lang=eng#p8)
 
 
-[^a]: Philip. 2:17.
+[^a]: [[Philippians 2.17|Philip. 2:17]].  

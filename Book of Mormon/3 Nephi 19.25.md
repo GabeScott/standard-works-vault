@@ -5,7 +5,7 @@
 [3 Nephi 19:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p25#p25)
 
 
-[^a]: [[Numbers 6.25|Num. 6:25 (23-27).]]
-[^b]: [[Psalms 4.6|Ps. 4:6.]]
-[^c]: Dan. 9:17.
-[^d]: TG [[Transfiguration, Transfigured]].
+[^a]: [[Numbers 6.23|Num. 6:25 (23–27)]][[Numbers 6.24|]][[Numbers 6.25|]][[Numbers 6.26|]][[Numbers 6.27|]].  
+[^b]: [[Psalms 4.6|Ps. 4:6]].  
+[^c]: [[Daniel 9.17|Dan. 9:17]].  
+[^d]: [[Transfiguration, Transfigured|TG Transfiguration]].  

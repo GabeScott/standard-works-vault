@@ -5,8 +5,8 @@
 [John 6:51](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.51?lang=eng#p51)
 
 
-[^a]: TG [[Jesus Christ, Types of, in Anticipation]].
-[^b]: TG [[Bread of Life]]; [[Jesus Christ, Types of, in Memory]].
-[^c]: [[Hebrews 10.10|Heb. 10:10.]]
-[^d]: TG [[God, Gifts of]].
-[^e]: TG [[Jesus Christ, Atonement through]].
+[^a]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]].  
+[^b]: [[Bread of Life|TG Bread of Life]]; [[Jesus Christ, Types of, in Memory|Jesus Christ, Types of, in Memory]].  
+[^c]: [[Hebrews 10.10|Heb. 10:10]].  
+[^d]: [[God, Gifts of|TG God, Gifts of]].  
+[^e]: [[Jesus Christ, Atonement through|TG Jesus Christ, Atonement through]].  

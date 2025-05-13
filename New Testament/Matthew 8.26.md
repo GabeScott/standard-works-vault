@@ -5,5 +5,5 @@
 [Matthew 8:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.26?lang=eng#p26)
 
 
-[^a]: TG [[Courage, Courageous]]; [[Fearful]].
-[^b]: [[Psalms 65.7|Ps. 65:7]]; [[Psalms 89.9|89:9]]; [[Psalms 107.29|107:29]]. TG [[God, Power of]].
+[^a]: [[Courage, Courageous|TG Courage]]; [[Fearful|Fearful]].  
+[^b]: [[Psalms 65.7|Ps. 65:7]]; [[Psalms 89.9|89:9]]; [[Psalms 107.29|107:29]]. [[God, Power of|TG God, Power of]].  

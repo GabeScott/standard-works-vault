@@ -5,4 +5,4 @@
 [Genesis 11:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 11.6|JST Gen. 11:6 … city, and they hearkened not unto the Lord …]]
+[^a]: JST Gen. 11:6 … city, and they hearkened not unto the Lord …  

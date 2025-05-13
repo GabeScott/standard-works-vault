@@ -5,4 +5,4 @@
 [Alma 43:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p15#p15)
 
 
-[^a]: [[Alma 27.26|Alma 27:26.]]
+[^a]: [[Alma 27.26|Alma 27:26]].  

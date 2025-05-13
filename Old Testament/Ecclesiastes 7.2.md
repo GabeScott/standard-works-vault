@@ -5,4 +5,4 @@
 [Ecclesiastes 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.2?lang=eng#p2)
 
 
-[^a]: TG [[Mourning, Mourn]].
+[^a]: [[Mourning, Mourn|TG Mourning]].  

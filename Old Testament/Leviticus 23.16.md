@@ -5,4 +5,4 @@
 [Leviticus 23:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.16?lang=eng#p16)
 
 
-[^a]: [[Acts 2.1|Acts 2:1.]]
+[^a]: [[Acts 2.1|Acts 2:1]].  

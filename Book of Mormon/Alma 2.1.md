@@ -5,5 +5,5 @@
 [Alma 2:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 1.15|Alma 1:15]]; [[Alma 16.11|16:11]]; [[Alma 24.28|24:28 (28-30).]]
-[^b]: [[Alma 1.8|Alma 1:8.]]
+[^a]: [[Alma 1.15|Alma 1:15]]; [[Alma 16.11|16:11]]; [[Alma 24.28|24:28 (28–30)]][[Alma 24.29|]][[Alma 24.30|]].  
+[^b]: [[Alma 1.8|Alma 1:8]].  

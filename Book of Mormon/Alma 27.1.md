@@ -5,4 +5,4 @@
 [Alma 27:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 25.3|Alma 25:3.]]
+[^a]: [[Alma 25.3|Alma 25:3]].  

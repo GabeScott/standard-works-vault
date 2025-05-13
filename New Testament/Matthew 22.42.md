@@ -5,4 +5,4 @@
 [Matthew 22:42](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.42?lang=eng#p42)
 
 
-[^a]: TG [[Jesus Christ, Davidic Descent of]].
+[^a]: [[Jesus Christ, Davidic Descent of|TG Jesus Christ, Davidic Descent of]].  

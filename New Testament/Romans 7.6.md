@@ -5,6 +5,6 @@
 [Romans 7:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.6?lang=eng#p6)
 
 
-[^a]: GR released, freed from.
-[^b]: [[2 Corinthians 5.17|2 Cor. 5:17.]]
-[^c]: [[Romans 2.29|Rom. 2:29 (28-29).]]
+[^a]: GR released, freed from.  
+[^b]: [[2 Corinthians 5.17|2 Cor. 5:17]].  
+[^c]: [[Romans 2.28|Rom. 2:29 (28–29)]][[Romans 2.29|]].  

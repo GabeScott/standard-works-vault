@@ -5,4 +5,4 @@
 [Ruth 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/3.12?lang=eng#p12)
 
 
-[^a]: [[Deuteronomy 25.5|Deut. 25:5.]]
+[^a]: [[Deuteronomy 25.5|Deut. 25:5]].  

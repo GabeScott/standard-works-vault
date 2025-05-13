@@ -5,5 +5,5 @@
 [Helaman 4:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p25#p25)
 
 
-[^a]: TG [[Unbelief, Unbelievers]].
-[^b]: [[Joshua 23.8|Josh. 23:8]]; [[Jacob 6.5|Jacob 6:5]]; [[D&C 11.19|D&C 11:19.]]
+[^a]: [[Unbelief, Unbelievers|TG Unbelief]].  
+[^b]: [[Joshua 23.8|Josh. 23:8]]; [[Jacob 6.5|Jacob 6:5]]; [[D&C 11.19|D&C 11:19]].  

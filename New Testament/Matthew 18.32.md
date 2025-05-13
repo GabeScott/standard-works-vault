@@ -5,4 +5,4 @@
 [Matthew 18:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.32?lang=eng#p32)
 
 
-[^a]: TG [[Debt]].
+[^a]: [[Debt|TG Debt]].  

@@ -5,9 +5,9 @@
 [4 Nephi 1:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p14#p14)
 
 
-[^a]: [[3 Nephi 28.3|3 Ne. 28:3]]; [[Mormon 3.19|Morm. 3:19.]]
-[^b]: TG [[Paradise, Paradisiacal]].
-[^c]: [[3 Nephi 28.12|3 Ne. 28:12]]. TG [[Translated Beings]].
-[^d]: TG [[Apostles]].
-[^e]: TG [[Priesthood, History of]].
-[^f]: [[1 Nephi 12.12|1 Ne. 12:12.]]
+[^a]: [[3 Nephi 28.3|3 Ne. 28:3]]; [[Mormon 3.19|Morm. 3:19]].  
+[^b]: [[Paradise, Paradisiacal|TG Paradise]].  
+[^c]: [[3 Nephi 28.12|3 Ne. 28:12]]. [[Translated Beings|TG Translated Beings]].  
+[^d]: [[Apostles|TG Apostles]].  
+[^e]: [[Priesthood, History of|TG Priesthood, History of]].  
+[^f]: [[1 Nephi 12.12|1 Ne. 12:12]].  

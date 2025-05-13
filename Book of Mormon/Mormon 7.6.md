@@ -5,5 +5,5 @@
 [Mormon 7:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/7?lang=eng&id=p6#p6)
 
 
-[^a]: TG [[Jesus Christ, Resurrection]].
-[^b]: TG [[Jesus Christ, Judge]].
+[^a]: [[Resurrection|TG Resurrection]].  
+[^b]: [[Jesus Christ, Judge|TG Jesus Christ, Judge]].  

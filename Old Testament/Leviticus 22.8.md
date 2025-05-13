@@ -5,4 +5,4 @@
 [Leviticus 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.8?lang=eng#p8)
 
 
-[^a]: [[Exodus 22.31|Ex. 22:31]]; [[Ezekiel 44.31|Ezek. 44:31.]]
+[^a]: [[Exodus 22.31|Ex. 22:31]]; [[Ezekiel 44.31|Ezek. 44:31]].  

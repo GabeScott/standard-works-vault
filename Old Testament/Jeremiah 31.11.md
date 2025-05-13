@@ -5,4 +5,4 @@
 [Jeremiah 31:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.11?lang=eng#p11)
 
 
-[^a]: HEB delivered or freed.
+[^a]: HEB delivered or freed.  

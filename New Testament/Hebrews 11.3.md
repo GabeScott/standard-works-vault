@@ -5,5 +5,5 @@
 [Hebrews 11:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.3?lang=eng#p3)
 
 
-[^a]: TG [[Creation, Create]].
-[^b]: TG [[Jesus Christ, Creator]].
+[^a]: [[Creation, Create|TG Creation]].  
+[^b]: [[Jesus Christ, Creator|TG Jesus Christ, Creator]].  

@@ -5,4 +5,4 @@
 [2 Nephi 4:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p14#p14)
 
 
-[^a]: [[1 Nephi 1.17|1 Ne. 1:17 (16-17)]]; [[1 Nephi 9.4|9:4]]; [[2 Nephi 5.33|2 Ne. 5:33 (29-33)]]; [[D&C 10.42|D&C 10:42.]]
+[^a]: [[1 Nephi 1.16|1 Ne. 1:17 (16–17)]][[1 Nephi 1.17|]]; [[1 Nephi 9.4|9:4]]; [[2 Nephi 5.29|2 Ne. 5:33 (29–33)]][[2 Nephi 5.30|]][[2 Nephi 5.31|]][[2 Nephi 5.32|]][[2 Nephi 5.33|]]; [[D&C 10.42|D&C 10:42]].  

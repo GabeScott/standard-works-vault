@@ -5,4 +5,4 @@
 [2 Kings 21:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.14?lang=eng#p14)
 
 
-[^a]: [[2 Kings 24.2|2 Kgs. 24:2.]]
+[^a]: [[2 Kings 24.2|2 Kgs. 24:2]].  

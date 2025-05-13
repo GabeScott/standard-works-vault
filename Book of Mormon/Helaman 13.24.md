@@ -5,4 +5,4 @@
 [Helaman 13:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p24#p24)
 
 
-[^a]: [[2 Chronicles 36.16|2 Chr. 36:16 (15-16)]]; [[Nehemiah 9.26|Neh. 9:26]]; [[Jeremiah 20.2|Jer. 20:2]]; [[1 Nephi 1.20|1 Ne. 1:20]]; [[Helaman 16.6|Hel. 16:6.]]
+[^a]: [[2 Chronicles 36.15|2 Chr. 36:16 (15–16)]][[2 Chronicles 36.16|]]; [[Nehemiah 9.26|Neh. 9:26]]; [[Jeremiah 20.2|Jer. 20:2]]; [[1 Nephi 1.20|1 Ne. 1:20]]; [[Helaman 16.6|Hel. 16:6]].  

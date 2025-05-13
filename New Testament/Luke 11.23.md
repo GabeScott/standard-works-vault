@@ -5,4 +5,4 @@
 [Luke 11:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.23?lang=eng#p23)
 
 
-[^a]: [[D&C 10.68|D&C 10:68 (67-68).]]
+[^a]: [[D&C 10.67|D&C 10:68 (67–68)]][[D&C 10.68|]].  

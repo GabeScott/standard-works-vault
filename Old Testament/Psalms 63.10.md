@@ -5,4 +5,4 @@
 [Psalms 63:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/63.10?lang=eng#p10)
 
 
-[^a]: OR jackals.
+[^a]: OR jackals.  

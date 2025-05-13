@@ -5,4 +5,4 @@
 [Luke 6:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.16?lang=eng#p16)
 
 
-[^a]: [[Joshua 15.25|Josh. 15:25.]]
+[^a]: [[Joshua 15.25|Josh. 15:25]].  

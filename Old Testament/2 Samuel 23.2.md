@@ -5,5 +5,5 @@
 [2 Samuel 23:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/23.2?lang=eng#p2)
 
 
-[^a]: TG [[God, Spirit of]]; [[Teaching with the Spirit]].
-[^b]: TG [[Delegation of Responsibility]]; [[Prophecy]]; [[Scriptures, Writing of]].
+[^a]: [[God, Spirit of|TG God, Spirit of]]; [[Teaching with the Spirit|Teaching with the Spirit]].  
+[^b]: [[Delegation of Responsibility|TG Delegation of Responsibility]]; [[Prophecy|Prophecy]]; [[Scriptures, Writing of|Scriptures, Writing of]].  

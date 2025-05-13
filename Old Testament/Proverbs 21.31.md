@@ -5,5 +5,5 @@
 [Proverbs 21:31](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.31?lang=eng#p31)
 
 
-[^a]: [[Psalms 33.17|Ps. 33:17.]]
-[^b]: OR victory.
+[^a]: [[Psalms 33.17|Ps. 33:17]].  
+[^b]: OR victory.  

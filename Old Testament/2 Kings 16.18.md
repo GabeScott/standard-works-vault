@@ -5,4 +5,4 @@
 [2 Kings 16:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/16.18?lang=eng#p18)
 
 
-[^a]: TG [[Genealogy and Temple Work]].
+[^a]: [[Temple|TG Temple]].  

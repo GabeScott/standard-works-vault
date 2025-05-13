@@ -5,8 +5,8 @@
 [Alma 36:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p28#p28)
 
 
-[^a]: [[Alma 26.7|Alma 26:7]]; [[3 Nephi 15.1|3 Ne. 15:1.]]
-[^b]: TG [[Exaltation]].
-[^c]: [[Ezra 3.11|Ezra 3:11 (11-13)]]; [[2 Nephi 9.49|2 Ne. 9:49.]]
-[^d]: [[Mosiah 12.34|Mosiah 12:34]]; [[D&C 103.16|D&C 103:16.]]
-[^e]: [[Exodus 14.27|Ex. 14:27 (26-27).]]
+[^a]: [[Alma 26.7|Alma 26:7]]; [[3 Nephi 15.1|3 Ne. 15:1]].  
+[^b]: [[Exaltation|TG Exaltation]].  
+[^c]: [[Ezra 3.11|Ezra 3:11 (11–13)]][[Ezra 3.12|]][[Ezra 3.13|]]; [[2 Nephi 9.49|2 Ne. 9:49]].  
+[^d]: [[Mosiah 12.34|Mosiah 12:34]]; [[D&C 103.16|D&C 103:16]].  
+[^e]: [[Exodus 14.26|Ex. 14:27 (26–27)]][[Exodus 14.27|]].  

@@ -5,4 +5,4 @@
 [3 Nephi 10:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/10?lang=eng&id=p17#p17)
 
 
-[^a]: [[Alma 46.24|Alma 46:24]]; [[3 Nephi 5.23|3 Ne. 5:23 (23-24).]]
+[^a]: [[Alma 46.24|Alma 46:24]]; [[3 Nephi 5.23|3 Ne. 5:23 (23–24)]][[3 Nephi 5.24|]].  

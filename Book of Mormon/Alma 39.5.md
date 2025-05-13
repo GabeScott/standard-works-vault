@@ -5,5 +5,5 @@
 [Alma 39:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p5#p5)
 
 
-[^a]: TG [[Adulterer, Adultery]]; [[Fornication]]; [[Sexual Immorality]].
-[^b]: TG [[Life, Sanctity of]].
+[^a]: [[Adulterer, Adultery|TG Adulterer]]; [[Fornication|Fornication]]; [[Sexual Immorality|Sexual Immorality]].  
+[^b]: [[Life, Sanctity of|TG Life, Sanctity of]].  

@@ -5,6 +5,6 @@
 [Hebrews 7:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.2?lang=eng#p2)
 
 
-[^a]: TG [[Tithing]].
-[^b]: TG [[God, the Standard of Righteousness]].
-[^c]: TG [[Jerusalem]].
+[^a]: [[Tithing|TG Tithing]].  
+[^b]: [[Righteousness|TG Righteousness]].  
+[^c]: [[Jerusalem|TG Jerusalem]].  

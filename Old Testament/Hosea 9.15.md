@@ -5,4 +5,4 @@
 [Hosea 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/9.15?lang=eng#p15)
 
 
-[^a]: [[Hosea 12.11|Hosea 12:11]]; [[Amos 4.4|Amos 4:4.]]
+[^a]: [[Hosea 12.11|Hosea 12:11]]; [[Amos 4.4|Amos 4:4]].  

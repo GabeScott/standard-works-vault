@@ -5,5 +5,5 @@
 [Matthew 12:50](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.50?lang=eng#p50)
 
 
-[^a]: [[Mark 3.35|Mark 3:35]]. TG [[God, Will of]].
-[^b]: TG [[Brotherhood and Sisterhood]].
+[^a]: [[Mark 3.35|Mark 3:35]]. [[God, Will of|TG God, Will of]].  
+[^b]: [[Brotherhood and Sisterhood|TG Brotherhood and Sisterhood]].  

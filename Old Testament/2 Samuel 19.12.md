@@ -5,4 +5,4 @@
 [2 Samuel 19:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.12?lang=eng#p12)
 
 
-[^a]: [[2 Samuel 19.42|2 Sam. 19:42.]]
+[^a]: [[2 Samuel 19.42|2 Sam. 19:42]].  

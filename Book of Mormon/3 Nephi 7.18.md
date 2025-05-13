@@ -5,4 +5,4 @@
 [3 Nephi 7:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p18#p18)
 
 
-[^a]: [[Alma 4.19|Alma 4:19.]]
+[^a]: [[Alma 4.19|Alma 4:19]].  

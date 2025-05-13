@@ -5,6 +5,6 @@
 [Deuteronomy 24:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.15?lang=eng#p15)
 
 
-[^a]: HEB The same day.
-[^b]: [[Leviticus 19.13|Lev. 19:13.]]
-[^c]: [[Deuteronomy 15.9|Deut. 15:9.]]
+[^a]: HEB The same day.  
+[^b]: [[Leviticus 19.13|Lev. 19:13]].  
+[^c]: [[Deuteronomy 15.9|Deut. 15:9]].  
