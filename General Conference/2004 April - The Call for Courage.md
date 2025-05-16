@@ -129,7 +129,7 @@ May we each have the courage to do so, I pray, in the name of Jesus Christ, amen
 
 [^4]: See [[Alma 56.1|Alma 56]][[Alma 56.2|]][[Alma 56.3|]][[Alma 56.4|]][[Alma 56.5|]][[Alma 56.6|]][[Alma 56.7|]][[Alma 56.8|]][[Alma 56.9|]][[Alma 56.10|]][[Alma 56.11|]][[Alma 56.12|]][[Alma 56.13|]][[Alma 56.14|]][[Alma 56.15|]][[Alma 56.16|]][[Alma 56.17|]][[Alma 56.18|]][[Alma 56.19|]][[Alma 56.20|]][[Alma 56.21|]][[Alma 56.22|]][[Alma 56.23|]][[Alma 56.24|]][[Alma 56.25|]][[Alma 56.26|]][[Alma 56.27|]][[Alma 56.28|]][[Alma 56.29|]][[Alma 56.30|]][[Alma 56.31|]][[Alma 56.32|]][[Alma 56.33|]][[Alma 56.34|]][[Alma 56.35|]][[Alma 56.36|]][[Alma 56.37|]][[Alma 56.38|]][[Alma 56.39|]][[Alma 56.40|]][[Alma 56.41|]][[Alma 56.42|]][[Alma 56.43|]][[Alma 56.44|]][[Alma 56.45|]][[Alma 56.46|]][[Alma 56.47|]][[Alma 56.48|]][[Alma 56.49|]][[Alma 56.50|]][[Alma 56.51|]][[Alma 56.52|]][[Alma 56.53|]][[Alma 56.54|]][[Alma 56.55|]][[Alma 56.56|]][[Alma 56.57|]].
 
-[^5]: See [[Moroni 1.1|Moroni 1–10]][[Moroni 1.2|]][[Moroni 1.3|]][[Moroni 1.4|]][[Moroni 1.5|]][[Moroni 1.6|]][[Moroni 1.7|]][[Moroni 1.8|]][[Moroni 1.9|]][[Moroni 1.10|]][[Moroni 1.11|]][[Moroni 1.12|]][[Moroni 1.13|]][[Moroni 1.14|]][[Moroni 1.15|]][[Moroni 1.16|]][[Moroni 1.17|]][[Moroni 1.18|]][[Moroni 1.19|]][[Moroni 1.20|]][[Moroni 1.21|]][[Moroni 1.22|]][[Moroni 1.23|]][[Moroni 1.24|]][[Moroni 1.25|]][[Moroni 1.26|]][[Moroni 1.27|]][[Moroni 1.28|]][[Moroni 1.29|]][[Moroni 1.30|]][[Moroni 1.31|]][[Moroni 1.32|]][[Moroni 1.33|]][[Moroni 1.34|]].
+[^5]: See [[Moroni 1.1|Moroni 1–10]][[Moroni 1.2|]][[Moroni 1.3|]][[Moroni 1.4|]].
 
 [^6]: [[Deuteronomy 31.6|Deuteronomy 31:6]].
 

@@ -81,7 +81,7 @@ May we enjoy the Savior’s promise through Moroni to “arise … and put on th
 
 [^4]: See [[Alma 5.21|Alma 5:21–27]][[Alma 5.22|]][[Alma 5.23|]][[Alma 5.24|]][[Alma 5.25|]][[Alma 5.26|]][[Alma 5.27|]]; [[D&C 64.10|D&C 64:10]].
 
-[^5]: See [[Mosiah 2.1|Mosiah 2–5]][[Mosiah 2.2|]][[Mosiah 2.3|]][[Mosiah 2.4|]][[Mosiah 2.5|]][[Mosiah 2.6|]][[Mosiah 2.7|]][[Mosiah 2.8|]][[Mosiah 2.9|]][[Mosiah 2.10|]][[Mosiah 2.11|]][[Mosiah 2.12|]][[Mosiah 2.13|]][[Mosiah 2.14|]][[Mosiah 2.15|]][[Mosiah 2.16|]][[Mosiah 2.17|]][[Mosiah 2.18|]][[Mosiah 2.19|]][[Mosiah 2.20|]][[Mosiah 2.21|]][[Mosiah 2.22|]][[Mosiah 2.23|]][[Mosiah 2.24|]][[Mosiah 2.25|]][[Mosiah 2.26|]][[Mosiah 2.27|]][[Mosiah 2.28|]][[Mosiah 2.29|]][[Mosiah 2.30|]][[Mosiah 2.31|]][[Mosiah 2.32|]][[Mosiah 2.33|]][[Mosiah 2.34|]][[Mosiah 2.35|]][[Mosiah 2.36|]][[Mosiah 2.37|]][[Mosiah 2.38|]][[Mosiah 2.39|]][[Mosiah 2.40|]][[Mosiah 2.41|]][[Mosiah 2.42|]][[Mosiah 2.43|]][[Mosiah 2.44|]][[Mosiah 2.45|]][[Mosiah 2.46|]][[Mosiah 2.47|]].
+[^5]: See [[Mosiah 2.1|Mosiah 2–5]][[Mosiah 2.2|]][[Mosiah 2.3|]][[Mosiah 2.4|]][[Mosiah 2.5|]][[Mosiah 2.6|]][[Mosiah 2.7|]][[Mosiah 2.8|]][[Mosiah 2.9|]][[Mosiah 2.10|]][[Mosiah 2.11|]][[Mosiah 2.12|]][[Mosiah 2.13|]][[Mosiah 2.14|]][[Mosiah 2.15|]][[Mosiah 2.16|]][[Mosiah 2.17|]][[Mosiah 2.18|]][[Mosiah 2.19|]][[Mosiah 2.20|]][[Mosiah 2.21|]][[Mosiah 2.22|]][[Mosiah 2.23|]][[Mosiah 2.24|]][[Mosiah 2.25|]][[Mosiah 2.26|]][[Mosiah 2.27|]][[Mosiah 2.28|]][[Mosiah 2.29|]][[Mosiah 2.30|]][[Mosiah 2.31|]][[Mosiah 2.32|]][[Mosiah 2.33|]][[Mosiah 2.34|]][[Mosiah 2.35|]][[Mosiah 2.36|]][[Mosiah 2.37|]][[Mosiah 2.38|]][[Mosiah 2.39|]][[Mosiah 2.40|]][[Mosiah 2.41|]].
 
 [^6]: See [[Mosiah 5.2|Mosiah 5:2]].
 

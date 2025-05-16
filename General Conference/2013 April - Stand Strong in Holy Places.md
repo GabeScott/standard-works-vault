@@ -103,7 +103,7 @@ My beloved priesthood brethren young and old, let us glorify God’s name by sta
 
 [^11]: See [[Genesis 39.7|Genesis 39:7–12]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]][[Genesis 39.11|]][[Genesis 39.12|]].
 
-[^12]: See [[1 Nephi 2.1|1 Nephi 2]][[1 Nephi 2.2|]][[1 Nephi 2.3|]][[1 Nephi 2.4|]][[1 Nephi 2.5|]][[1 Nephi 2.6|]][[1 Nephi 2.7|]][[1 Nephi 2.8|]][[1 Nephi 2.9|]][[1 Nephi 2.10|]][[1 Nephi 2.11|]][[1 Nephi 2.12|]][[1 Nephi 2.13|]][[1 Nephi 2.14|]][[1 Nephi 2.15|]][[1 Nephi 2.16|]][[1 Nephi 2.17|]][[1 Nephi 2.18|]][[1 Nephi 2.19|]][[1 Nephi 2.20|]][[1 Nephi 2.21|]][[1 Nephi 2.22|]][[1 Nephi 2.23|]][[1 Nephi 2.24|]][[1 Nephi 2.25|]][[1 Nephi 2.26|]][[1 Nephi 2.27|]][[1 Nephi 2.28|]][[1 Nephi 2.29|]][[1 Nephi 2.30|]][[1 Nephi 2.31|]].
+[^12]: See [[1 Nephi 2.1|1 Nephi 2]][[1 Nephi 2.2|]][[1 Nephi 2.3|]][[1 Nephi 2.4|]][[1 Nephi 2.5|]][[1 Nephi 2.6|]][[1 Nephi 2.7|]][[1 Nephi 2.8|]][[1 Nephi 2.9|]][[1 Nephi 2.10|]][[1 Nephi 2.11|]][[1 Nephi 2.12|]][[1 Nephi 2.13|]][[1 Nephi 2.14|]][[1 Nephi 2.15|]][[1 Nephi 2.16|]][[1 Nephi 2.17|]][[1 Nephi 2.18|]][[1 Nephi 2.19|]][[1 Nephi 2.20|]][[1 Nephi 2.21|]][[1 Nephi 2.22|]][[1 Nephi 2.23|]][[1 Nephi 2.24|]].
 
 [^13]: See, for example, [[1 Nephi 18.1|1 Nephi 18]][[1 Nephi 18.2|]][[1 Nephi 18.3|]][[1 Nephi 18.4|]][[1 Nephi 18.5|]][[1 Nephi 18.6|]][[1 Nephi 18.7|]][[1 Nephi 18.8|]][[1 Nephi 18.9|]][[1 Nephi 18.10|]][[1 Nephi 18.11|]][[1 Nephi 18.12|]][[1 Nephi 18.13|]][[1 Nephi 18.14|]][[1 Nephi 18.15|]][[1 Nephi 18.16|]][[1 Nephi 18.17|]][[1 Nephi 18.18|]][[1 Nephi 18.19|]][[1 Nephi 18.20|]][[1 Nephi 18.21|]][[1 Nephi 18.22|]][[1 Nephi 18.23|]][[1 Nephi 18.24|]][[1 Nephi 18.25|]].
 
