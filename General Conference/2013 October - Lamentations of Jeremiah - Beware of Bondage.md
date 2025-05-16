@@ -73,29 +73,29 @@ Let us avoid the despair and sorrow of those who fall into captivity and can no 
 
 [^1]: Many Verdi operas, like *Aida, La traviata,* and *Il trovatore,* are among the most popular operas performed across the world today.
 
-[^2]: See [[1 Nephi 5.13.1|1 Nephi 5:13]][[1 Nephi 5.13.2|]][[1 Nephi 5.13.3|]][[1 Nephi 5.13.4|]][[1 Nephi 5.13.5|]][[1 Nephi 5.13.6|]][[1 Nephi 5.13.7|]][[1 Nephi 5.13.8|]][[1 Nephi 5.13.9|]][[1 Nephi 5.13.10|]][[1 Nephi 5.13.11|]][[1 Nephi 5.13.12|]][[1 Nephi 5.13.13|]]; [[1 Nephi 7.14.1|7:14]][[1 Nephi 7.14.2|]][[1 Nephi 7.14.3|]][[1 Nephi 7.14.4|]][[1 Nephi 7.14.5|]][[1 Nephi 7.14.6|]][[1 Nephi 7.14.7|]][[1 Nephi 7.14.8|]][[1 Nephi 7.14.9|]][[1 Nephi 7.14.10|]][[1 Nephi 7.14.11|]][[1 Nephi 7.14.12|]][[1 Nephi 7.14.13|]][[1 Nephi 7.14.14|]].
+[^2]: See [[1 Nephi 5.13|1 Nephi 5:13]]; [[1 Nephi 7.14|7:14]].
 
-[^3]: [[Jeremiah 1.5.1|Jeremiah 1:5]][[Jeremiah 1.5.2|]][[Jeremiah 1.5.3|]][[Jeremiah 1.5.4|]][[Jeremiah 1.5.5|]].
+[^3]: [[Jeremiah 1.5|Jeremiah 1:5]].
 
-[^4]: See [[1 Nephi 2.2-3.1|1 Nephi 2:2–3]].
+[^4]: See [[1 Nephi 2.2|1 Nephi 2:2–3]][[1 Nephi 2.3|]].
 
 [^5]: The destruction of Solomon’s temple, the downfall of Jerusalem, and the captivity of the tribe of Judah occurred in about 586 b.c.
 
-[^6]: [[Jeremiah 2.11,13.1|Jeremiah 2:11, 13]].
+[^6]: [[Jeremiah 2.11|Jeremiah 2:11, 13]][[Jeremiah 2.13|]].
 
-[^7]: [[Jeremiah 8.20.1|Jeremiah 8:20]][[Jeremiah 8.20.2|]][[Jeremiah 8.20.3|]][[Jeremiah 8.20.4|]][[Jeremiah 8.20.5|]][[Jeremiah 8.20.6|]][[Jeremiah 8.20.7|]][[Jeremiah 8.20.8|]][[Jeremiah 8.20.9|]][[Jeremiah 8.20.10|]][[Jeremiah 8.20.11|]][[Jeremiah 8.20.12|]][[Jeremiah 8.20.13|]][[Jeremiah 8.20.14|]][[Jeremiah 8.20.15|]][[Jeremiah 8.20.16|]][[Jeremiah 8.20.17|]][[Jeremiah 8.20.18|]][[Jeremiah 8.20.19|]][[Jeremiah 8.20.20|]]. Jeremiah previously recorded the Lord crying for repentance, “I am pained at my very heart” ([[Jeremiah 4.19.1|Jeremiah 4:19]][[Jeremiah 4.19.2|]][[Jeremiah 4.19.3|]][[Jeremiah 4.19.4|]][[Jeremiah 4.19.5|]][[Jeremiah 4.19.6|]][[Jeremiah 4.19.7|]][[Jeremiah 4.19.8|]][[Jeremiah 4.19.9|]][[Jeremiah 4.19.10|]][[Jeremiah 4.19.11|]][[Jeremiah 4.19.12|]][[Jeremiah 4.19.13|]][[Jeremiah 4.19.14|]][[Jeremiah 4.19.15|]][[Jeremiah 4.19.16|]][[Jeremiah 4.19.17|]][[Jeremiah 4.19.18|]][[Jeremiah 4.19.19|]]) and pleading, “Find a man … that executeth judgment, that seeketh the truth; and I will pardon it” ([[Jeremiah 5.1.1|Jeremiah 5:1]][[Jeremiah 5.1.2|]][[Jeremiah 5.1.3|]][[Jeremiah 5.1.4|]][[Jeremiah 5.1.5|]][[Jeremiah 5.1.6|]][[Jeremiah 5.1.7|]][[Jeremiah 5.1.8|]][[Jeremiah 5.1.9|]][[Jeremiah 5.1.10|]][[Jeremiah 5.1.11|]][[Jeremiah 5.1.12|]][[Jeremiah 5.1.13|]][[Jeremiah 5.1.14|]][[Jeremiah 5.1.15|]][[Jeremiah 5.1.16|]][[Jeremiah 5.1.17|]][[Jeremiah 5.1.18|]][[Jeremiah 5.1.19|]]).
+[^7]: [[Jeremiah 8.20|Jeremiah 8:20]]. Jeremiah previously recorded the Lord crying for repentance, “I am pained at my very heart” ([[Jeremiah 4.19|Jeremiah 4:19]]) and pleading, “Find a man … that executeth judgment, that seeketh the truth; and I will pardon it” ([[Jeremiah 5.1|Jeremiah 5:1]]).
 
-[^8]: See [[Jeremiah 31.1|Jeremiah 31]][[Jeremiah 31.2|]][[Jeremiah 31.3|]][[Jeremiah 31.4|]][[Jeremiah 31.5|]][[Jeremiah 31.6|]][[Jeremiah 31.7|]][[Jeremiah 31.8|]][[Jeremiah 31.9|]][[Jeremiah 31.10|]][[Jeremiah 31.11|]][[Jeremiah 31.12|]][[Jeremiah 31.13|]][[Jeremiah 31.14|]][[Jeremiah 31.15|]][[Jeremiah 31.16|]][[Jeremiah 31.17|]][[Jeremiah 31.18|]][[Jeremiah 31.19|]][[Jeremiah 31.20|]][[Jeremiah 31.21|]][[Jeremiah 31.22|]][[Jeremiah 31.23|]][[Jeremiah 31.24|]][[Jeremiah 31.25|]][[Jeremiah 31.26|]][[Jeremiah 31.27|]][[Jeremiah 31.28|]][[Jeremiah 31.29|]][[Jeremiah 31.30|]][[Jeremiah 31.31|]][[Jeremiah 31.32|]][[Jeremiah 31.33|]][[Jeremiah 31.34|]][[Jeremiah 31.35|]][[Jeremiah 31.36|]][[Jeremiah 31.37|]][[Jeremiah 31.38|]][[Jeremiah 31.39|]][[Jeremiah 31.40|]]; [[1 Nephi 10.14.1|1 Nephi 10:14]][[1 Nephi 10.14.2|]][[1 Nephi 10.14.3|]][[1 Nephi 10.14.4|]][[1 Nephi 10.14.5|]][[1 Nephi 10.14.6|]][[1 Nephi 10.14.7|]][[1 Nephi 10.14.8|]][[1 Nephi 10.14.9|]][[1 Nephi 10.14.10|]][[1 Nephi 10.14.11|]][[1 Nephi 10.14.12|]][[1 Nephi 10.14.13|]][[1 Nephi 10.14.14|]].
+[^8]: See [[Jeremiah 31.1|Jeremiah 31]][[Jeremiah 31.2|]][[Jeremiah 31.3|]][[Jeremiah 31.4|]][[Jeremiah 31.5|]][[Jeremiah 31.6|]][[Jeremiah 31.7|]][[Jeremiah 31.8|]][[Jeremiah 31.9|]][[Jeremiah 31.10|]][[Jeremiah 31.11|]][[Jeremiah 31.12|]][[Jeremiah 31.13|]][[Jeremiah 31.14|]][[Jeremiah 31.15|]][[Jeremiah 31.16|]][[Jeremiah 31.17|]][[Jeremiah 31.18|]][[Jeremiah 31.19|]][[Jeremiah 31.20|]][[Jeremiah 31.21|]][[Jeremiah 31.22|]][[Jeremiah 31.23|]][[Jeremiah 31.24|]][[Jeremiah 31.25|]][[Jeremiah 31.26|]][[Jeremiah 31.27|]][[Jeremiah 31.28|]][[Jeremiah 31.29|]][[Jeremiah 31.30|]][[Jeremiah 31.31|]][[Jeremiah 31.32|]][[Jeremiah 31.33|]][[Jeremiah 31.34|]][[Jeremiah 31.35|]][[Jeremiah 31.36|]][[Jeremiah 31.37|]][[Jeremiah 31.38|]][[Jeremiah 31.39|]][[Jeremiah 31.40|]]; [[1 Nephi 10.14|1 Nephi 10:14]].
 
-[^9]: See [[2 Kings 17.6.1|2 Kings 17:6]][[2 Kings 17.6.2|]][[2 Kings 17.6.3|]][[2 Kings 17.6.4|]][[2 Kings 17.6.5|]][[2 Kings 17.6.6|]]; [[D&C 110.11.1|Doctrine and Covenants 110:11]][[D&C 110.11.2|]][[D&C 110.11.3|]][[D&C 110.11.4|]][[D&C 110.11.5|]][[D&C 110.11.6|]][[D&C 110.11.7|]][[D&C 110.11.8|]][[D&C 110.11.9|]][[D&C 110.11.10|]][[D&C 110.11.11|]].
+[^9]: See [[2 Kings 17.6|2 Kings 17:6]]; [[D&C 110.11|Doctrine and Covenants 110:11]].
 
-[^10]: [[Articles of Faith 1.10.1|Articles of Faith 1:10]][[Articles of Faith 1.10.2|]][[Articles of Faith 1.10.3|]][[Articles of Faith 1.10.4|]][[Articles of Faith 1.10.5|]][[Articles of Faith 1.10.6|]][[Articles of Faith 1.10.7|]][[Articles of Faith 1.10.8|]][[Articles of Faith 1.10.9|]][[Articles of Faith 1.10.10|]]; see also [[2 Nephi 10.22.1|2 Nephi 10:22]][[2 Nephi 10.22.2|]][[2 Nephi 10.22.3|]][[2 Nephi 10.22.4|]][[2 Nephi 10.22.5|]][[2 Nephi 10.22.6|]][[2 Nephi 10.22.7|]][[2 Nephi 10.22.8|]][[2 Nephi 10.22.9|]][[2 Nephi 10.22.10|]][[2 Nephi 10.22.11|]][[2 Nephi 10.22.12|]][[2 Nephi 10.22.13|]][[2 Nephi 10.22.14|]][[2 Nephi 10.22.15|]][[2 Nephi 10.22.16|]][[2 Nephi 10.22.17|]][[2 Nephi 10.22.18|]][[2 Nephi 10.22.19|]][[2 Nephi 10.22.20|]][[2 Nephi 10.22.21|]][[2 Nephi 10.22.22|]].
+[^10]: [[Articles of Faith 1.10|Articles of Faith 1:10]]; see also [[2 Nephi 10.22|2 Nephi 10:22]].
 
 [^11]: Russell M. Nelson, “The Book of Mormon and the Gathering of Israel” (address given at the seminar for new mission presidents, June 26, 2013).
 
 [^12]: Guide to the Scriptures, [“Israel”](https://churchofjesuschrist.org/study/scriptures/gs/israel?lang=eng); scriptures.lds.org.
 
-[^13]: The Lord, speaking in our day, said, “The whole world lieth in sin, and groaneth under darkness and under the bondage of sin … because they come not unto me” ([[D&C 84.49-50.1|Doctrine and Covenants 84:49–50]]).
+[^13]: The Lord, speaking in our day, said, “The whole world lieth in sin, and groaneth under darkness and under the bondage of sin … because they come not unto me” ([[D&C 84.49|Doctrine and Covenants 84:49–50]][[D&C 84.50|]]).
 
 [^14]: Innocent people can, of course, also be enslaved.
 
@@ -105,13 +105,13 @@ Let us avoid the despair and sorrow of those who fall into captivity and can no 
 
 [^17]: The common mantra in many work environments is “We work hard, and we play hard.” While employee cohesion is important, when “work and play” crowd out family time, it is self-defeating.
 
-[^18]: [[Acts 17.21.1|Acts 17:21]][[Acts 17.21.2|]][[Acts 17.21.3|]][[Acts 17.21.4|]][[Acts 17.21.5|]][[Acts 17.21.6|]][[Acts 17.21.7|]][[Acts 17.21.8|]][[Acts 17.21.9|]][[Acts 17.21.10|]][[Acts 17.21.11|]][[Acts 17.21.12|]][[Acts 17.21.13|]][[Acts 17.21.14|]][[Acts 17.21.15|]][[Acts 17.21.16|]][[Acts 17.21.17|]][[Acts 17.21.18|]][[Acts 17.21.19|]][[Acts 17.21.20|]][[Acts 17.21.21|]]; emphasis added.
+[^18]: [[Acts 17.21|Acts 17:21]]; emphasis added.
 
 [^19]: See Keli Goff, “Female Ivy League Graduates Have a Duty to Stay in the Workforce,” *Guardian,* Apr. 21, 2013, www.theguardian.com/commentisfree/2013/apr/21/female-ivy-league-graduates-stay-home-moms; Sheryl Sandberg, *Lean In: Women, Work, and the Will to Lead* (2013); Anne-Marie Slaughter, “Why Women Still Can’t Have It All,” *The Atlantic,* June 13, 2012, www.theatlantic.com/magazine/print/2012/07/why-women-still-cant-have-it-all/309020; Lois M. Collins, “Can Women ‘Have It All’ When It Comes to Work and Family Life?” *Deseret News,* June 28, 2012, A3; Judith Warner, “The Midcareer Timeout (Is Over),” *New York Times Magazine,* Aug. 11, 2013, 24–29, 38; Scott Schieman, Markus Schafer, and Mitchell McIvor, “When Leaning In Doesn’t Pay Off,” *New York Times,* Aug. 11, 2013, 12.
 
 [^20]: The Church has encouraged bishoprics to assist families by spending more time with young men, young women, and young single adults. Bishoprics have been encouraged to delegate more responsibilities in ward council to the Melchizedek Priesthood quorums, to auxiliaries, and to members who have special abilities to assist others appropriately.
 
-[^21]: See [[D&C 29.7.1|Doctrine and Covenants 29:7]][[D&C 29.7.2|]][[D&C 29.7.3|]][[D&C 29.7.4|]][[D&C 29.7.5|]][[D&C 29.7.6|]][[D&C 29.7.7|]].
+[^21]: See [[D&C 29.7|Doctrine and Covenants 29:7]].
 
-[^22]: [[D&C 45.71.1|Doctrine and Covenants 45:71]][[D&C 45.71.2|]][[D&C 45.71.3|]][[D&C 45.71.4|]][[D&C 45.71.5|]][[D&C 45.71.6|]][[D&C 45.71.7|]][[D&C 45.71.8|]][[D&C 45.71.9|]][[D&C 45.71.10|]][[D&C 45.71.11|]][[D&C 45.71.12|]][[D&C 45.71.13|]][[D&C 45.71.14|]][[D&C 45.71.15|]][[D&C 45.71.16|]][[D&C 45.71.17|]][[D&C 45.71.18|]][[D&C 45.71.19|]][[D&C 45.71.20|]][[D&C 45.71.21|]][[D&C 45.71.22|]][[D&C 45.71.23|]][[D&C 45.71.24|]][[D&C 45.71.25|]][[D&C 45.71.26|]][[D&C 45.71.27|]][[D&C 45.71.28|]][[D&C 45.71.29|]][[D&C 45.71.30|]][[D&C 45.71.31|]][[D&C 45.71.32|]][[D&C 45.71.33|]][[D&C 45.71.34|]][[D&C 45.71.35|]][[D&C 45.71.36|]][[D&C 45.71.37|]][[D&C 45.71.38|]][[D&C 45.71.39|]][[D&C 45.71.40|]][[D&C 45.71.41|]][[D&C 45.71.42|]][[D&C 45.71.43|]][[D&C 45.71.44|]][[D&C 45.71.45|]][[D&C 45.71.46|]][[D&C 45.71.47|]][[D&C 45.71.48|]][[D&C 45.71.49|]][[D&C 45.71.50|]][[D&C 45.71.51|]][[D&C 45.71.52|]][[D&C 45.71.53|]][[D&C 45.71.54|]][[D&C 45.71.55|]][[D&C 45.71.56|]][[D&C 45.71.57|]][[D&C 45.71.58|]][[D&C 45.71.59|]][[D&C 45.71.60|]][[D&C 45.71.61|]][[D&C 45.71.62|]][[D&C 45.71.63|]][[D&C 45.71.64|]][[D&C 45.71.65|]][[D&C 45.71.66|]][[D&C 45.71.67|]][[D&C 45.71.68|]][[D&C 45.71.69|]][[D&C 45.71.70|]][[D&C 45.71.71|]].
+[^22]: [[D&C 45.71|Doctrine and Covenants 45:71]].
 

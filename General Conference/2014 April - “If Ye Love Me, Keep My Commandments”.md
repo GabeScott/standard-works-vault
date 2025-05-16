@@ -111,7 +111,7 @@ I bear my special witness that our Savior lives. Because He obeyed, “every kne
 
 [^14]: [[D&C 71.7|Doctrine and Covenants 71:7–11]][[D&C 71.8|]][[D&C 71.9|]][[D&C 71.10|]][[D&C 71.11|]].
 
-[^15]: Joseph Fielding Smith, *Essentials in Church History* (1922), 65; see also [[D&C 3.1|Doctrine and Covenants 3]][[D&C 3.2|]][[D&C 3.3|]][[D&C 3.4|]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]][[D&C 3.8|]][[D&C 3.9|]][[D&C 3.10|]][[D&C 3.11|]][[D&C 3.12|]][[D&C 3.13|]][[D&C 3.14|]][[D&C 3.15|]][[D&C 3.16|]][[D&C 3.17|]][[D&C 3.18|]][[D&C 3.19|]][[D&C 3.20|]][[D&C 3.21|]][[D&C 3.22|]][[D&C 3.23|]][[D&C 3.24|]][[D&C 3.25|]][[D&C 3.26|]][[D&C 3.27|]][[D&C 3.28|]][[D&C 3.29|]][[D&C 3.30|]][[D&C 3.31|]][[D&C 3.32|]][[D&C 3.33|]][[D&C 3.34|]][[D&C 3.35|]][[D&C 3.36|]][[D&C 3.37|]][[D&C 3.38|]][[D&C 3.39|]][[D&C 3.40|]][[D&C 3.41|]][[D&C 3.42|]].
+[^15]: Joseph Fielding Smith, *Essentials in Church History* (1922), 65; see also [[D&C 3.1|Doctrine and Covenants 3]][[D&C 3.2|]][[D&C 3.3|]][[D&C 3.4|]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]][[D&C 3.8|]][[D&C 3.9|]][[D&C 3.10|]][[D&C 3.11|]][[D&C 3.12|]][[D&C 3.13|]][[D&C 3.14|]][[D&C 3.15|]][[D&C 3.16|]][[D&C 3.17|]][[D&C 3.18|]][[D&C 3.19|]][[D&C 3.20|]].
 
 [^16]: [[Numbers 12.8|Numbers 12:8]].
 

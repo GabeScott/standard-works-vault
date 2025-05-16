@@ -61,17 +61,17 @@ Jesus is the Christ. Joseph is the prophet of the Restoration. President Gordon 
 
 
 
-[^1]: [[Proverbs 3.5-6.1|Prov. 3:5–6]].
+[^1]: [[Proverbs 3.5|Prov. 3:5–6]][[Proverbs 3.6|]].
 
-[^2]: [[1 Nephi 3.7.1|1 Ne. 3:7]][[1 Nephi 3.7.2|]][[1 Nephi 3.7.3|]][[1 Nephi 3.7.4|]][[1 Nephi 3.7.5|]][[1 Nephi 3.7.6|]][[1 Nephi 3.7.7|]].
+[^2]: [[1 Nephi 3.7|1 Ne. 3:7]].
 
-[^3]: [[Matthew 5.4.1|Matt. 5:4]][[Matthew 5.4.2|]][[Matthew 5.4.3|]][[Matthew 5.4.4|]][[Matthew 5.4.5|]][[Matthew 5.4.6|]][[Matthew 5.4.7|]][[Matthew 5.4.8|]][[Matthew 5.4.9|]][[Matthew 5.4.10|]][[Matthew 5.4.11|]][[Matthew 5.4.12|]][[Matthew 5.4.13|]][[Matthew 5.4.14|]][[Matthew 5.4.15|]][[Matthew 5.4.16|]][[Matthew 5.4.17|]][[Matthew 5.4.18|]][[Matthew 5.4.19|]][[Matthew 5.4.20|]][[Matthew 5.4.21|]][[Matthew 5.4.22|]][[Matthew 5.4.23|]][[Matthew 5.4.24|]][[Matthew 5.4.25|]][[Matthew 5.4.26|]][[Matthew 5.4.27|]][[Matthew 5.4.28|]][[Matthew 5.4.29|]][[Matthew 5.4.30|]][[Matthew 5.4.31|]][[Matthew 5.4.32|]][[Matthew 5.4.33|]][[Matthew 5.4.34|]][[Matthew 5.4.35|]][[Matthew 5.4.36|]][[Matthew 5.4.37|]][[Matthew 5.4.38|]][[Matthew 5.4.39|]][[Matthew 5.4.40|]][[Matthew 5.4.41|]][[Matthew 5.4.42|]][[Matthew 5.4.43|]][[Matthew 5.4.44|]][[Matthew 5.4.45|]][[Matthew 5.4.46|]][[Matthew 5.4.47|]][[Matthew 5.4.48|]].
+[^3]: [[Matthew 5.4|Matt. 5:4]].
 
-[^4]: [[John 14.27.1|John 14:27]][[John 14.27.2|]][[John 14.27.3|]][[John 14.27.4|]][[John 14.27.5|]][[John 14.27.6|]][[John 14.27.7|]][[John 14.27.8|]][[John 14.27.9|]][[John 14.27.10|]][[John 14.27.11|]][[John 14.27.12|]][[John 14.27.13|]][[John 14.27.14|]][[John 14.27.15|]][[John 14.27.16|]][[John 14.27.17|]][[John 14.27.18|]][[John 14.27.19|]][[John 14.27.20|]][[John 14.27.21|]][[John 14.27.22|]][[John 14.27.23|]][[John 14.27.24|]][[John 14.27.25|]][[John 14.27.26|]][[John 14.27.27|]].
+[^4]: [[John 14.27|John 14:27]].
 
-[^5]: [[1 Peter 2.20-21,23.1|1 Pet. 2:20–21, 23]].
+[^5]: [[1 Peter 2.20|1 Pet. 2:20–21, 23]][[1 Peter 2.21|]][[1 Peter 2.23|]].
 
-[^6]: [[2 Corinthians 5.7.1|2 Cor. 5:7]][[2 Corinthians 5.7.2|]][[2 Corinthians 5.7.3|]][[2 Corinthians 5.7.4|]][[2 Corinthians 5.7.5|]][[2 Corinthians 5.7.6|]][[2 Corinthians 5.7.7|]].
+[^6]: [[2 Corinthians 5.7|2 Cor. 5:7]].
 
-[^7]: [[Moses 6.36.1|Moses 6:36]][[Moses 6.36.2|]][[Moses 6.36.3|]][[Moses 6.36.4|]][[Moses 6.36.5|]][[Moses 6.36.6|]][[Moses 6.36.7|]][[Moses 6.36.8|]][[Moses 6.36.9|]][[Moses 6.36.10|]][[Moses 6.36.11|]][[Moses 6.36.12|]][[Moses 6.36.13|]][[Moses 6.36.14|]][[Moses 6.36.15|]][[Moses 6.36.16|]][[Moses 6.36.17|]][[Moses 6.36.18|]][[Moses 6.36.19|]][[Moses 6.36.20|]][[Moses 6.36.21|]][[Moses 6.36.22|]][[Moses 6.36.23|]][[Moses 6.36.24|]][[Moses 6.36.25|]][[Moses 6.36.26|]][[Moses 6.36.27|]][[Moses 6.36.28|]][[Moses 6.36.29|]][[Moses 6.36.30|]][[Moses 6.36.31|]][[Moses 6.36.32|]][[Moses 6.36.33|]][[Moses 6.36.34|]][[Moses 6.36.35|]][[Moses 6.36.36|]].
+[^7]: [[Moses 6.36|Moses 6:36]].
 
