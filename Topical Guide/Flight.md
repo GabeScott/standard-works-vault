@@ -1,15 +1,10 @@
 # Flight
 
-[Flight](https://churchofjesuschrist.org/study/scriptures/tg/flight?lang=eng)
 
-### References
-- [[Leviticus 26.8|Leviticus 26:8]]
-- [[Deuteronomy 32.30|Deuteronomy 32:30]]
-- [[Isaiah 52.12|Isaiah 52:12]]
-- [[Amos 2.14|Amos 2:14]]
-- [[Matthew 24.20|Matthew 24:20]]
-- [[Mark 13.18|Mark 13:18]]
-- [[3 Nephi 20.42|3 Nephi 20:42]]
-- [[3 Nephi 21.29|3 Nephi 21:29]]
-- [[D&C 133.58|D&C 133:58]]
-- [[Joseph Smith Matthew 1.17|Joseph Smith Matthew 1:17]]
+hundred of you shall put ten thousand to *flight*, [[Leviticus 26.8|Leviticus 26:8]] ([[Deuteronomy 32.30|Deuteronomy 32:30]]; [[D&C 133.58|D&C 133:58]]).
+
+nor go by *flight*: for the Lord will go before, [[Isaiah 52.12|Isaiah 52:12]] ([[3 Nephi 20.42|3 Nephi 20:42]]; [[3 Nephi 21.29|3 Nephi 21:29]]).
+
+*flight* shall perish from the swift, [[Amos 2.14|Amos 2:14]].
+
+*flight* be not in the winter, [[Matthew 24.20|Matthew 24:20]] ([[Mark 13.18|Mark 13:18]]; [[Joseph Smith Matthew 1.17|Joseph Smith Matthew 1:17]]).

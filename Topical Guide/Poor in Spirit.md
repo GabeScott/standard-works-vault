@@ -1,14 +1,18 @@
 # Poor in Spirit
 
-[Poor in Spirit](https://churchofjesuschrist.org/study/scriptures/tg/poor-in-spirit?lang=eng)
 
-### References
-- [[Matthew 5.3|Matthew 5:3]]
-- [[Luke 6.20|Luke 6:20]]
-- [[Mosiah 4.2|Mosiah 4:2]]
-- [[Alma 32.3|Alma 32:3]]
-- [[Alma 32.4|Alma 32:4]]
-- [[Helaman 6.5|Helaman 6:5]]
-- [[3 Nephi 12.3|3 Nephi 12:3]]
-- [[Moroni 6.2|Moroni 6:2]]
-- [[D&C 56.17|D&C 56:17]]
+*See also* [[Meek, Meekness.md|Meek]]
+
+Blessed are the *poor in spirit*, [[Matthew 5.3|Matthew 5:3]] ([[Luke 6.20|Luke 6:20]]).
+
+they had *viewed* themselves in their own carnal state, [[Mosiah 4.2|Mosiah 4:2]].
+
+also they were *poor* in heart, [[Alma 32.3|Alma 32:3]].
+
+*poor* in heart, because of their poverty, [[Alma 32.4|Alma 32:4]].
+
+blessed are the *poor in spirit* who come unto me, [[3 Nephi 12.3|3 Nephi 12:3]].
+
+Wo unto you poor men, whose hearts are not broken, whose *spirits* are not contrite, [[D&C 56.17|D&C 56:17]].
+
+*See also* [[Helaman 6.5|Helaman 6:5]]; [[Moroni 6.2|Moroni 6:2]].

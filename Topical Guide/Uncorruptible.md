@@ -1,6 +1,6 @@
 # Uncorruptible
 
-[Uncorruptible](https://churchofjesuschrist.org/study/scriptures/tg/uncorruptible?lang=eng)
 
-### References
-- [[Romans 1.23|Romans 1:23]]
+*See also* [[Incorruptible.md|Incorruptible]]
+
+changed the glory of the *uncorruptible* God into an image made like to corruptible man, [[Romans 1.23|Romans 1:23]].

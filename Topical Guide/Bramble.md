@@ -1,7 +1,6 @@
 # Bramble
 
-[Bramble](https://churchofjesuschrist.org/study/scriptures/tg/bramble?lang=eng)
 
-### References
-- [[Judges 9.14|Judges 9:14]]
-- [[Luke 6.44|Luke 6:44]]
+said all the trees unto the *bramble*, [[Judges 9.14|Judges 9:14]].
+
+nor of a *bramble* bush gather they grapes, [[Luke 6.44|Luke 6:44]].

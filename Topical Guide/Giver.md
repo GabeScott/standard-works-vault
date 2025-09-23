@@ -1,6 +1,4 @@
 # Giver
 
-[Giver](https://churchofjesuschrist.org/study/scriptures/tg/giver?lang=eng)
 
-### References
-- [[2 Corinthians 9.7|2 Corinthians 9:7]]
+God loveth a cheerful *giver*, [[2 Corinthians 9.7|2 Corinthians 9:7]].

@@ -1,7 +1,6 @@
 # Visible
 
-[Visible](https://churchofjesuschrist.org/study/scriptures/tg/visible?lang=eng)
 
-### References
-- [[Colossians 1.16|Colossians 1:16]]
-- [[Moses 6.36|Moses 6:36]]
+by him were all things created ... *visible* and invisible, [[Colossians 1.16|Colossians 1:16]].
+
+he beheld also things which were not *visible* to the natural eye, [[Moses 6.36|Moses 6:36]].

@@ -1,6 +1,6 @@
 # Light-Mindedness
 
-[Light-Mindedness](https://churchofjesuschrist.org/study/scriptures/tg/light-mindedness?lang=eng)
 
-### References
-- [[D&C 88.121|D&C 88:121]]
+*See also* [[Levity.md|Levity]]
+
+cease from all your light speeches ... and *light-mindedness*, [[D&C 88.121|D&C 88:121]].

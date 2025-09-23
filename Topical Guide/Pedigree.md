@@ -1,6 +1,4 @@
 # Pedigree
 
-[Pedigree](https://churchofjesuschrist.org/study/scriptures/tg/pedigree?lang=eng)
 
-### References
-- [[Numbers 1.18|Numbers 1:18]]
+declared their *pedigrees* after their families, [[Numbers 1.18|Numbers 1:18]].

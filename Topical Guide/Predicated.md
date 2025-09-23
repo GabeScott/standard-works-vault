@@ -1,6 +1,4 @@
 # Predicated
 
-[Predicated](https://churchofjesuschrist.org/study/scriptures/tg/predicated?lang=eng)
 
-### References
-- [[D&C 130.20|D&C 130:20]]
+law ... upon which all blessings are *predicated*, [[D&C 130.20|D&C 130:20]].

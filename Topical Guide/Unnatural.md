@@ -1,6 +1,4 @@
 # Unnatural
 
-[Unnatural](https://churchofjesuschrist.org/study/scriptures/tg/unnatural?lang=eng)
 
-### References
-- [[Alma 41.12|Alma 41:12]]
+meaning of the word restoration to take a thing of a natural state and place it in an *unnatural* state, [[Alma 41.12|Alma 41:12]].

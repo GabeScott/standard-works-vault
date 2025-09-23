@@ -1,6 +1,6 @@
 # Passion of Jesus Christ
 
-[Passion of Jesus Christ](https://churchofjesuschrist.org/study/scriptures/tg/passion-of-jesus-christ?lang=eng)
 
-### References
-- [[Acts 1.3|Acts 1:3]]
+*See also* [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Crucifixion of.md|Jesus Christ, Crucifixion of]]; [[Jesus Christ, Trials of.md|Jesus Christ, Trials of]]
+
+shewed himself alive after his *passion*, [[Acts 1.3|Acts 1:3]].

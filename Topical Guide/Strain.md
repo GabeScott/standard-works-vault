@@ -1,6 +1,4 @@
 # Strain
 
-[Strain](https://churchofjesuschrist.org/study/scriptures/tg/strain?lang=eng)
 
-### References
-- [[Matthew 23.24|Matthew 23:24]]
+which *strain* at a gnat, and swallow a camel, [[Matthew 23.24|Matthew 23:24]].

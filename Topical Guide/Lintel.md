@@ -1,7 +1,6 @@
 # Lintel
 
-[Lintel](https://churchofjesuschrist.org/study/scriptures/tg/lintel?lang=eng)
 
-### References
-- [[Exodus 12.22|Exodus 12:22]]
-- [[Amos 9.1|Amos 9:1]]
+strike the *lintel* and the two side posts with the blood, [[Exodus 12.22|Exodus 12:22]].
+
+Lord ... said, Smite the *lintel* of the door, [[Amos 9.1|Amos 9:1]].

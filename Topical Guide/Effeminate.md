@@ -1,6 +1,4 @@
 # Effeminate
 
-[Effeminate](https://churchofjesuschrist.org/study/scriptures/tg/effeminate?lang=eng)
 
-### References
-- [[1 Corinthians 6.9|1 Corinthians 6:9]]
+shall not inherit the kingdom of God ... nor *effeminate*, nor abusers of themselves with mankind, [[1 Corinthians 6.9|1 Corinthians 6:9]].

@@ -1,7 +1,6 @@
 # Gaze
 
-[Gaze](https://churchofjesuschrist.org/study/scriptures/tg/gaze?lang=eng)
 
-### References
-- [[Exodus 19.21|Exodus 19:21]]
-- [[Acts 1.11|Acts 1:11]]
+lest they break through unto the Lord to *gaze*, [[Exodus 19.21|Exodus 19:21]].
+
+men of Galilee, why stand ye *gazing* up into heaven, [[Acts 1.11|Acts 1:11]].

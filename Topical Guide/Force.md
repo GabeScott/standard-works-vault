@@ -1,12 +1,18 @@
 # Force
 
-[Force](https://churchofjesuschrist.org/study/scriptures/tg/force?lang=eng)
 
-### References
-- [[Genesis 31.31|Genesis 31:31]]
-- [[2 Samuel 13.12|2 Samuel 13:12]]
-- [[Daniel 11.38|Daniel 11:38]]
-- [[John 6.15|John 6:15]]
-- [[Acts 23.10|Acts 23:10]]
-- [[Hebrews 9.17|Hebrews 9:17]]
-- [[D&C 132.7|D&C 132:7]]
+*See also* [[Power, Powerful.md|Power]]; [[Strength.md|Strength]]
+
+take by *force* thy daughters from me, [[Genesis 31.31|Genesis 31:31]].
+
+do not *force* me; for no such thing ought to be done, [[2 Samuel 13.12|2 Samuel 13:12]].
+
+in his estate shall he honour the God of *forces*, [[Daniel 11.38|Daniel 11:38]].
+
+take him by *force*, to make him a king, [[John 6.15|John 6:15]].
+
+soldiers ... to take him by *force*, [[Acts 23.10|Acts 23:10]].
+
+testament is of *force* after men are dead, [[Hebrews 9.17|Hebrews 9:17]].
+
+covenants ... are of no ... *force* in and after the resurrection, [[D&C 132.7|D&C 132:7]].

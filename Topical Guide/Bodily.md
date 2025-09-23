@@ -1,6 +1,4 @@
 # Bodily
 
-[Bodily](https://churchofjesuschrist.org/study/scriptures/tg/bodily?lang=eng)
 
-### References
-- [[Colossians 2.9|Colossians 2:9]]
+dwelleth all the fulness of the Godhead *bodily*, [[Colossians 2.9|Colossians 2:9]].

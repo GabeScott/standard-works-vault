@@ -1,9 +1,8 @@
 # Rust
 
-[Rust](https://churchofjesuschrist.org/study/scriptures/tg/rust?lang=eng)
 
-### References
-- [[Matthew 6.19|Matthew 6:19]]
-- [[James 5.3|James 5:3]]
-- [[Mosiah 8.11|Mosiah 8:11]]
-- [[3 Nephi 13.19|3 Nephi 13:19]]
+earth, where moth and *rust* doth corrupt, [[Matthew 6.19|Matthew 6:19]] ([[3 Nephi 13.19|3 Nephi 13:19]]).
+
+*rust* of them shall be a witness against you, [[James 5.3|James 5:3]].
+
+swords ... blades thereof were cankered with *rust*, [[Mosiah 8.11|Mosiah 8:11]].

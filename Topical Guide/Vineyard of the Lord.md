@@ -1,151 +1,42 @@
 # Vineyard of the Lord
 
-[Vineyard of the Lord](https://churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
 
-### References
-- [[Genesis 49.22|Genesis 49:22]]
-- [[Judges 9.12|Judges 9:12]]
-- [[Psalms 80.8|Psalms 80:8]]
-- [[Isaiah 1.8|Isaiah 1:8]]
-- [[Isaiah 27.6|Isaiah 27:6]]
-- [[Isaiah 5.7|Isaiah 5:7]]
-- [[Isaiah 60.21|Isaiah 60:21]]
-- [[Isaiah 61.3|Isaiah 61:3]]
-- [[Jeremiah 11.16|Jeremiah 11:16]]
-- [[Jeremiah 12.10|Jeremiah 12:10]]
-- [[Jeremiah 2.21|Jeremiah 2:21]]
-- [[Matthew 15.13|Matthew 15:13]]
-- [[Matthew 20.2|Matthew 20:2]]
-- [[Matthew 21.41|Matthew 21:41]]
-- [[Mark 12.9|Mark 12:9]]
-- [[Luke 13.6|Luke 13:6]]
-- [[Luke 20.9|Luke 20:9]]
-- [[1 Nephi 10.12|1 Nephi 10:12]]
-- [[2 Nephi 15.7|2 Nephi 15:7]]
-- [[2 Nephi 3.5|2 Nephi 3:5]]
-- [[Jacob 5.10|Jacob 5:10]]
-- [[Jacob 5.11|Jacob 5:11]]
-- [[Jacob 5.12|Jacob 5:12]]
-- [[Jacob 5.13|Jacob 5:13]]
-- [[Jacob 5.14|Jacob 5:14]]
-- [[Jacob 5.15|Jacob 5:15]]
-- [[Jacob 5.16|Jacob 5:16]]
-- [[Jacob 5.17|Jacob 5:17]]
-- [[Jacob 5.18|Jacob 5:18]]
-- [[Jacob 5.19|Jacob 5:19]]
-- [[Jacob 5.20|Jacob 5:20]]
-- [[Jacob 5.21|Jacob 5:21]]
-- [[Jacob 5.22|Jacob 5:22]]
-- [[Jacob 5.23|Jacob 5:23]]
-- [[Jacob 5.24|Jacob 5:24]]
-- [[Jacob 5.25|Jacob 5:25]]
-- [[Jacob 5.26|Jacob 5:26]]
-- [[Jacob 5.27|Jacob 5:27]]
-- [[Jacob 5.28|Jacob 5:28]]
-- [[Jacob 5.29|Jacob 5:29]]
-- [[Jacob 5.3|Jacob 5:3]]
-- [[Jacob 5.30|Jacob 5:30]]
-- [[Jacob 5.31|Jacob 5:31]]
-- [[Jacob 5.32|Jacob 5:32]]
-- [[Jacob 5.33|Jacob 5:33]]
-- [[Jacob 5.34|Jacob 5:34]]
-- [[Jacob 5.35|Jacob 5:35]]
-- [[Jacob 5.36|Jacob 5:36]]
-- [[Jacob 5.37|Jacob 5:37]]
-- [[Jacob 5.38|Jacob 5:38]]
-- [[Jacob 5.39|Jacob 5:39]]
-- [[Jacob 5.4|Jacob 5:4]]
-- [[Jacob 5.40|Jacob 5:40]]
-- [[Jacob 5.41|Jacob 5:41]]
-- [[Jacob 5.42|Jacob 5:42]]
-- [[Jacob 5.43|Jacob 5:43]]
-- [[Jacob 5.44|Jacob 5:44]]
-- [[Jacob 5.45|Jacob 5:45]]
-- [[Jacob 5.46|Jacob 5:46]]
-- [[Jacob 5.47|Jacob 5:47]]
-- [[Jacob 5.48|Jacob 5:48]]
-- [[Jacob 5.49|Jacob 5:49]]
-- [[Jacob 5.5|Jacob 5:5]]
-- [[Jacob 5.50|Jacob 5:50]]
-- [[Jacob 5.51|Jacob 5:51]]
-- [[Jacob 5.52|Jacob 5:52]]
-- [[Jacob 5.53|Jacob 5:53]]
-- [[Jacob 5.54|Jacob 5:54]]
-- [[Jacob 5.55|Jacob 5:55]]
-- [[Jacob 5.56|Jacob 5:56]]
-- [[Jacob 5.57|Jacob 5:57]]
-- [[Jacob 5.58|Jacob 5:58]]
-- [[Jacob 5.59|Jacob 5:59]]
-- [[Jacob 5.6|Jacob 5:6]]
-- [[Jacob 5.60|Jacob 5:60]]
-- [[Jacob 5.61|Jacob 5:61]]
-- [[Jacob 5.62|Jacob 5:62]]
-- [[Jacob 5.63|Jacob 5:63]]
-- [[Jacob 5.64|Jacob 5:64]]
-- [[Jacob 5.65|Jacob 5:65]]
-- [[Jacob 5.66|Jacob 5:66]]
-- [[Jacob 5.67|Jacob 5:67]]
-- [[Jacob 5.68|Jacob 5:68]]
-- [[Jacob 5.69|Jacob 5:69]]
-- [[Jacob 5.7|Jacob 5:7]]
-- [[Jacob 5.70|Jacob 5:70]]
-- [[Jacob 5.71|Jacob 5:71]]
-- [[Jacob 5.72|Jacob 5:72]]
-- [[Jacob 5.73|Jacob 5:73]]
-- [[Jacob 5.74|Jacob 5:74]]
-- [[Jacob 5.75|Jacob 5:75]]
-- [[Jacob 5.76|Jacob 5:76]]
-- [[Jacob 5.77|Jacob 5:77]]
-- [[Jacob 5.8|Jacob 5:8]]
-- [[Jacob 5.9|Jacob 5:9]]
-- [[Jacob 6.1|Jacob 6:1]]
-- [[Jacob 6.10|Jacob 6:10]]
-- [[Jacob 6.11|Jacob 6:11]]
-- [[Jacob 6.12|Jacob 6:12]]
-- [[Jacob 6.13|Jacob 6:13]]
-- [[Jacob 6.2|Jacob 6:2]]
-- [[Jacob 6.3|Jacob 6:3]]
-- [[Jacob 6.4|Jacob 6:4]]
-- [[Jacob 6.5|Jacob 6:5]]
-- [[Jacob 6.6|Jacob 6:6]]
-- [[Jacob 6.7|Jacob 6:7]]
-- [[Jacob 6.8|Jacob 6:8]]
-- [[Jacob 6.9|Jacob 6:9]]
-- [[Alma 13.23|Alma 13:23]]
-- [[D&C 101.44|D&C 101:44]]
-- [[D&C 101.45|D&C 101:45]]
-- [[D&C 101.46|D&C 101:46]]
-- [[D&C 101.47|D&C 101:47]]
-- [[D&C 101.48|D&C 101:48]]
-- [[D&C 101.49|D&C 101:49]]
-- [[D&C 101.50|D&C 101:50]]
-- [[D&C 101.51|D&C 101:51]]
-- [[D&C 101.52|D&C 101:52]]
-- [[D&C 101.53|D&C 101:53]]
-- [[D&C 101.54|D&C 101:54]]
-- [[D&C 101.55|D&C 101:55]]
-- [[D&C 101.56|D&C 101:56]]
-- [[D&C 101.57|D&C 101:57]]
-- [[D&C 101.58|D&C 101:58]]
-- [[D&C 101.59|D&C 101:59]]
-- [[D&C 101.60|D&C 101:60]]
-- [[D&C 101.61|D&C 101:61]]
-- [[D&C 101.62|D&C 101:62]]
-- [[D&C 103.15|D&C 103:15]]
-- [[D&C 103.16|D&C 103:16]]
-- [[D&C 103.17|D&C 103:17]]
-- [[D&C 103.18|D&C 103:18]]
-- [[D&C 103.19|D&C 103:19]]
-- [[D&C 103.20|D&C 103:20]]
-- [[D&C 103.21|D&C 103:21]]
-- [[D&C 103.22|D&C 103:22]]
-- [[D&C 103.23|D&C 103:23]]
-- [[D&C 103.24|D&C 103:24]]
-- [[D&C 103.25|D&C 103:25]]
-- [[D&C 103.26|D&C 103:26]]
-- [[D&C 107.96|D&C 107:96]]
-- [[D&C 138.56|D&C 138:56]]
-- [[D&C 21.9|D&C 21:9]]
-- [[D&C 24.19|D&C 24:19]]
-- [[D&C 33.4|D&C 33:4]]
-- [[D&C 43.28|D&C 43:28]]
+*See also* [[Branch.md|Branch]]; [[Fruit.md|Fruit]]; [[Olive.md|Olive]]; [[Plant.md|Plant]]; [[Vine.md|Vine]]; [[Vineyard.md|Vineyard]]
+
+daughter of Zion is left as a cottage in a *vineyard*, [[Isaiah 1.8|Isaiah 1:8]].
+
+*vineyard of the Lord* of hosts is the house of Israel, [[Isaiah 5.7|Isaiah 5:7]] ([[2 Nephi 15.7|2 Nephi 15:7]]).
+
+Many pastors have destroyed my *vineyard*, [[Jeremiah 12.10|Jeremiah 12:10]].
+
+penny a day, he sent them into his *vineyard*, [[Matthew 20.2|Matthew 20:2]].
+
+let out his *vineyard* unto other husbandmen, [[Matthew 21.41|Matthew 21:41]] ([[Luke 20.9|Luke 20:9]]).
+
+will give the *vineyard* unto others, [[Mark 12.9|Mark 12:9]].
+
+fig tree planted in his *vineyard*, [[Luke 13.6|Luke 13:6]].
+
+Israel, like unto a tame olive tree ... nourished in his *vineyard*, [[Jacob 5.3|Jacob 5:3]] ([[Jacob 5.3|5:3-77]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]]).
+
+servants of the Lord shall ... prune his *vineyard*, [[Jacob 6.2|Jacob 6:2]] ([[Jacob 6.1|6:1-13]][[Jacob 6.2|]][[Jacob 6.3|]][[Jacob 6.4|]][[Jacob 6.5|]][[Jacob 6.6|]][[Jacob 6.7|]][[Jacob 6.8|]][[Jacob 6.9|]][[Jacob 6.10|]][[Jacob 6.11|]][[Jacob 6.12|]][[Jacob 6.13|]]).
+
+glad tidings declared unto us in all parts of our *vineyard*, [[Alma 13.23|Alma 13:23]].
+
+I will bless all those who labor in my *vineyard*, [[D&C 21.9|D&C 21:9]].
+
+thou art called to prune my *vineyard*, [[D&C 24.19|D&C 24:19]].
+
+my *vineyard* has become corrupted, [[D&C 33.4|D&C 33:4]].
+
+labor ye in my *vineyard* for the last time, [[D&C 43.28|D&C 43:28]].
+
+redeem my *vineyard*, [[D&C 101.56|D&C 101:56]] ([[D&C 101.44|101:44-62]][[D&C 101.45|]][[D&C 101.46|]][[D&C 101.47|]][[D&C 101.48|]][[D&C 101.49|]][[D&C 101.50|]][[D&C 101.51|]][[D&C 101.52|]][[D&C 101.53|]][[D&C 101.54|]][[D&C 101.55|]][[D&C 101.56|]][[D&C 101.57|]][[D&C 101.58|]][[D&C 101.59|]][[D&C 101.60|]][[D&C 101.61|]][[D&C 101.62|]]).
+
+servant to whom the Lord of the *vineyard* spake in the parable, [[D&C 103.21|D&C 103:21]] ([[D&C 103.15|103:15-26]][[D&C 103.16|]][[D&C 103.17|]][[D&C 103.18|]][[D&C 103.19|]][[D&C 103.20|]][[D&C 103.21|]][[D&C 103.22|]][[D&C 103.23|]][[D&C 103.24|]][[D&C 103.25|]][[D&C 103.26|]]).
+
+seven times seventy, if the labor in the *vineyard* of necessity requires it, [[D&C 107.96|D&C 107:96]].
+
+prepared to come forth ... to labor in his *vineyard*, [[D&C 138.56|D&C 138:56]].
+
+*See also* [[Genesis 49.22|Genesis 49:22]]; [[Judges 9.12|Judges 9:12]]; [[Psalms 80.8|Psalms 80:8]]; [[Isaiah 27.6|Isaiah 27:6]]; [[Isaiah 60.21|Isaiah 60:21]]; [[Isaiah 61.3|Isaiah 61:3]]; [[Jeremiah 2.21|Jeremiah 2:21]]; [[Jeremiah 11.16|Jeremiah 11:16]]; [[Matthew 15.13|Matthew 15:13]]; [[1 Nephi 10.12|1 Nephi 10:12]]; [[2 Nephi 3.5|2 Nephi 3:5]].

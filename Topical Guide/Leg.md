@@ -1,6 +1,4 @@
 # Leg
 
-[Leg](https://churchofjesuschrist.org/study/scriptures/tg/leg?lang=eng)
 
-### References
-- [[John 19.33|John 19:33]]
+was dead already, they brake not his *legs*, [[John 19.33|John 19:33]].

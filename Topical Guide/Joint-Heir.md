@@ -1,6 +1,6 @@
 # Joint-Heir
 
-[Joint-Heir](https://churchofjesuschrist.org/study/scriptures/tg/joint-heir?lang=eng)
 
-### References
-- [[Romans 8.17|Romans 8:17]]
+*See also* [[Election, Elect.md|Election]]; [[Eternal Life.md|Eternal Life]]; [[Exaltation.md|Exaltation]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]
+
+heirs of God, and *joint-heirs* with Christ, [[Romans 8.17|Romans 8:17]].

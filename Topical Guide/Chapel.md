@@ -1,6 +1,4 @@
 # Chapel
 
-[Chapel](https://churchofjesuschrist.org/study/scriptures/tg/chapel?lang=eng)
 
-### References
-- [[Amos 7.13|Amos 7:13]]
+Beth-el: for it is the king's *chapel*, [[Amos 7.13|Amos 7:13]].

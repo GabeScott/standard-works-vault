@@ -1,7 +1,6 @@
 # Deride
 
-[Deride](https://churchofjesuschrist.org/study/scriptures/tg/deride?lang=eng)
 
-### References
-- [[Luke 16.14|Luke 16:14]]
-- [[Luke 23.35|Luke 23:35]]
+Pharisees ... *derided* him, [[Luke 16.14|Luke 16:14]].
+
+rulers also with them *derided* him, [[Luke 23.35|Luke 23:35]].

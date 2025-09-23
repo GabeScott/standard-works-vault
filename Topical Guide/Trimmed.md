@@ -1,7 +1,6 @@
 # Trimmed
 
-[Trimmed](https://churchofjesuschrist.org/study/scriptures/tg/trimmed?lang=eng)
 
-### References
-- [[Matthew 25.7|Matthew 25:7]]
-- [[D&C 33.17|D&C 33:17]]
+virgins ... *trimmed* their lamps, [[Matthew 25.7|Matthew 25:7]].
+
+praying always, having your lamps *trimmed* and burning, [[D&C 33.17|D&C 33:17]].

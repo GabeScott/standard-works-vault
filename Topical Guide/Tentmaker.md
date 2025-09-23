@@ -1,6 +1,6 @@
 # Tentmaker
 
-[Tentmaker](https://churchofjesuschrist.org/study/scriptures/tg/tentmaker?lang=eng)
 
-### References
-- [[Acts 18.3|Acts 18:3]]
+*See also* [[Tent.md|Tent]]
+
+by their occupation they were *tentmakers*, [[Acts 18.3|Acts 18:3]].

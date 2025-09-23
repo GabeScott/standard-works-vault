@@ -1,44 +1,16 @@
 # Telestial Glory
 
-[Telestial Glory](https://churchofjesuschrist.org/study/scriptures/tg/telestial-glory?lang=eng)
 
-### References
-- [[John 14.2|John 14:2]]
-- [[1 Corinthians 15.41|1 Corinthians 15:41]]
-- [[Mosiah 15.26|Mosiah 15:26]]
-- [[D&C 76.100|D&C 76:100]]
-- [[D&C 76.101|D&C 76:101]]
-- [[D&C 76.102|D&C 76:102]]
-- [[D&C 76.103|D&C 76:103]]
-- [[D&C 76.104|D&C 76:104]]
-- [[D&C 76.105|D&C 76:105]]
-- [[D&C 76.106|D&C 76:106]]
-- [[D&C 76.107|D&C 76:107]]
-- [[D&C 76.108|D&C 76:108]]
-- [[D&C 76.109|D&C 76:109]]
-- [[D&C 76.110|D&C 76:110]]
-- [[D&C 76.111|D&C 76:111]]
-- [[D&C 76.112|D&C 76:112]]
-- [[D&C 76.113|D&C 76:113]]
-- [[D&C 76.81|D&C 76:81]]
-- [[D&C 76.82|D&C 76:82]]
-- [[D&C 76.83|D&C 76:83]]
-- [[D&C 76.84|D&C 76:84]]
-- [[D&C 76.85|D&C 76:85]]
-- [[D&C 76.86|D&C 76:86]]
-- [[D&C 76.87|D&C 76:87]]
-- [[D&C 76.88|D&C 76:88]]
-- [[D&C 76.89|D&C 76:89]]
-- [[D&C 76.90|D&C 76:90]]
-- [[D&C 76.91|D&C 76:91]]
-- [[D&C 76.92|D&C 76:92]]
-- [[D&C 76.93|D&C 76:93]]
-- [[D&C 76.94|D&C 76:94]]
-- [[D&C 76.95|D&C 76:95]]
-- [[D&C 76.96|D&C 76:96]]
-- [[D&C 76.97|D&C 76:97]]
-- [[D&C 76.98|D&C 76:98]]
-- [[D&C 76.99|D&C 76:99]]
-- [[D&C 88.24|D&C 88:24]]
-- [[D&C 88.31|D&C 88:31]]
-- [[D&C 88.38|D&C 88:38]]
+*See also* [[Resurrection.md|Resurrection]]
+
+another glory of the *stars*, [[1 Corinthians 15.41|1 Corinthians 15:41]].
+
+they that have no part in the first *resurrection*, [[Mosiah 15.26|Mosiah 15:26]].
+
+we saw the glory of the *telestial*, [[D&C 76.81|D&C 76:81]] ([[D&C 76.81|76:81-113]][[D&C 76.82|]][[D&C 76.83|]][[D&C 76.84|]][[D&C 76.85|]][[D&C 76.86|]][[D&C 76.87|]][[D&C 76.88|]][[D&C 76.89|]][[D&C 76.90|]][[D&C 76.91|]][[D&C 76.92|]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]][[D&C 76.96|]][[D&C 76.97|]][[D&C 76.98|]][[D&C 76.99|]][[D&C 76.100|]][[D&C 76.101|]][[D&C 76.102|]][[D&C 76.103|]][[D&C 76.104|]][[D&C 76.105|]][[D&C 76.106|]][[D&C 76.107|]][[D&C 76.108|]][[D&C 76.109|]][[D&C 76.110|]][[D&C 76.111|]][[D&C 76.112|]][[D&C 76.113|]]).
+
+he who cannot abide the law of a *telestial* kingdom, [[D&C 88.24|D&C 88:24]].
+
+who are quickened by a portion of the *telestial* glory, [[D&C 88.31|D&C 88:31]].
+
+*See also* [[John 14.2|John 14:2]]; [[D&C 88.38|D&C 88:38]].

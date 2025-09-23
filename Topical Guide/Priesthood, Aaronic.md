@@ -1,57 +1,48 @@
 # Priesthood, Aaronic
 
-[Priesthood, Aaronic](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
 
-### References
-- [[Numbers 16.9|Numbers 16:9]]
-- [[Numbers 18.1|Numbers 18:1]]
-- [[Numbers 18.2|Numbers 18:2]]
-- [[Numbers 18.3|Numbers 18:3]]
-- [[Numbers 18.4|Numbers 18:4]]
-- [[Numbers 18.5|Numbers 18:5]]
-- [[Numbers 18.6|Numbers 18:6]]
-- [[Numbers 18.7|Numbers 18:7]]
-- [[Numbers 18.8|Numbers 18:8]]
-- [[Numbers 25.13|Numbers 25:13]]
-- [[Numbers 3.9|Numbers 3:9]]
-- [[Numbers 8.10|Numbers 8:10]]
-- [[Numbers 8.11|Numbers 8:11]]
-- [[Numbers 8.12|Numbers 8:12]]
-- [[Numbers 8.13|Numbers 8:13]]
-- [[Numbers 8.14|Numbers 8:14]]
-- [[Numbers 8.15|Numbers 8:15]]
-- [[Numbers 8.16|Numbers 8:16]]
-- [[Numbers 8.17|Numbers 8:17]]
-- [[Numbers 8.18|Numbers 8:18]]
-- [[Numbers 8.19|Numbers 8:19]]
-- [[Numbers 8.20|Numbers 8:20]]
-- [[Numbers 8.21|Numbers 8:21]]
-- [[Numbers 8.22|Numbers 8:22]]
-- [[Numbers 8.23|Numbers 8:23]]
-- [[Numbers 8.24|Numbers 8:24]]
-- [[Numbers 8.25|Numbers 8:25]]
-- [[Numbers 8.26|Numbers 8:26]]
-- [[Numbers 8.5|Numbers 8:5]]
-- [[Numbers 8.6|Numbers 8:6]]
-- [[Numbers 8.7|Numbers 8:7]]
-- [[Numbers 8.8|Numbers 8:8]]
-- [[Numbers 8.9|Numbers 8:9]]
-- [[Joshua 18.7|Joshua 18:7]]
-- [[2 Chronicles 29.11|2 Chronicles 29:11]]
-- [[Nehemiah 13.29|Nehemiah 13:29]]
-- [[Malachi 3.3|Malachi 3:3]]
-- [[Hebrews 5.4|Hebrews 5:4]]
-- [[Hebrews 7.11|Hebrews 7:11]]
-- [[Hebrews 7.21|Hebrews 7:21]]
-- [[Hebrews 7.5|Hebrews 7:5]]
-- [[3 Nephi 24.3|3 Nephi 24:3]]
-- [[D&C 107.1|D&C 107:1]]
-- [[D&C 107.13|D&C 107:13]]
-- [[D&C 107.20|D&C 107:20]]
-- [[D&C 107.6|D&C 107:6]]
-- [[D&C 132.59|D&C 132:59]]
-- [[D&C 27.8|D&C 27:8]]
-- [[D&C 68.16|D&C 68:16]]
-- [[D&C 84.26|D&C 84:26]]
-- [[D&C 84.27|D&C 84:27]]
-- [[Joseph Smith History 1.69|Joseph Smith History 1:69]]
+*See also* [[Bishop.md|Bishop]]; [[Deacon.md|Deacon]]; [[High Priest, Aaronic Priesthood.md|High Priest, Aaronic Priesthood]]; [[Priest, Aaronic Priesthood.md|Priest, Aaronic Priesthood]]; [[Teacher, Aaronic Priesthood.md|Teacher, Aaronic Priesthood]]; [BD Aaronic Priesthood](https://www.churchofjesuschrist.org/study/scriptures/bd/aaronic-priesthood?lang=eng); [Levites](https://www.churchofjesuschrist.org/study/scriptures/bd/levites?lang=eng)
+
+thou shalt give the *Levites* unto Aaron and to his sons, [[Numbers 3.9|Numbers 3:9]] ([[Numbers 8.5|8:5-26]][[Numbers 8.6|]][[Numbers 8.7|]][[Numbers 8.8|]][[Numbers 8.9|]][[Numbers 8.10|]][[Numbers 8.11|]][[Numbers 8.12|]][[Numbers 8.13|]][[Numbers 8.14|]][[Numbers 8.15|]][[Numbers 8.16|]][[Numbers 8.17|]][[Numbers 8.18|]][[Numbers 8.19|]][[Numbers 8.20|]][[Numbers 8.21|]][[Numbers 8.22|]][[Numbers 8.23|]][[Numbers 8.24|]][[Numbers 8.25|]][[Numbers 8.26|]]; [[Numbers 18.1|18:1-8]][[Numbers 18.2|]][[Numbers 18.3|]][[Numbers 18.4|]][[Numbers 18.5|]][[Numbers 18.6|]][[Numbers 18.7|]][[Numbers 18.8|]]).
+
+separated you ... to do the *service* of the tabernacle, [[Numbers 16.9|Numbers 16:9]].
+
+covenant of an everlasting *priesthood*, [[Numbers 25.13|Numbers 25:13]].
+
+*Levites* ... the *priesthood* of the Lord is their inheritance, [[Joshua 18.7|Joshua 18:7]].
+
+Lord hath *chosen* you to stand before him, [[2 Chronicles 29.11|2 Chronicles 29:11]].
+
+have defiled the *priesthood*, and the covenant, [[Nehemiah 13.29|Nehemiah 13:29]].
+
+shall purify the sons of *Levi*, and purge them, [[Malachi 3.3|Malachi 3:3]] ([[3 Nephi 24.3|3 Nephi 24:3]]).
+
+he that is called of God, as was *Aaron*, [[Hebrews 5.4|Hebrews 5:4]].
+
+sons of Levi, who receive the *office* of the *priesthood*, [[Hebrews 7.5|Hebrews 7:5]].
+
+If ... perfection were by the *Levitical priesthood*, [[Hebrews 7.11|Hebrews 7:11]].
+
+those *priests* were made without an oath, [[Hebrews 7.21|Hebrews 7:21]].
+
+confer the *Priesthood of Aaron*, which holds the keys,.
+
+to ordain you unto the first *priesthood*, [[D&C 27.8|D&C 27:8]].
+
+literal descendants of *Aaron* they have a legal right, [[D&C 68.16|D&C 68:16]].
+
+the lesser *priesthood* continued, which *priesthood* holdeth the key, [[D&C 84.26|D&C 84:26]].
+
+law of carnal commandments ... continue with the house of *Aaron* ... until John, [[D&C 84.27|D&C 84:27]].
+
+two *priesthoods*, namely, the Melchizedek and *Aaronic*, [[D&C 107.1|D&C 107:1]].
+
+other is the *Aaronic* or Levitical *Priesthood*, [[D&C 107.6|D&C 107:6]].
+
+second priesthood is called the *Priesthood of Aaron*, [[D&C 107.13|D&C 107:13]].
+
+authority of the lesser, or *Aaronic Priesthood*, [[D&C 107.20|D&C 107:20]].
+
+man be called of my Father, as was *Aaron*, [[D&C 132.59|D&C 132:59]].
+
+Upon you ... I confer the *Priesthood of Aaron*, [[Joseph Smith History 1.69|Joseph Smith History 1:69]].

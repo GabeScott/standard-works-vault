@@ -1,6 +1,4 @@
 # Champion
 
-[Champion](https://churchofjesuschrist.org/study/scriptures/tg/champion?lang=eng)
 
-### References
-- [[1 Samuel 17.4|1 Samuel 17:4]]
+a *champion* out of the camp of the Philistines, [[1 Samuel 17.4|1 Samuel 17:4]].

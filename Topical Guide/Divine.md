@@ -1,7 +1,6 @@
 # Divine
 
-[Divine](https://churchofjesuschrist.org/study/scriptures/tg/divine?lang=eng)
 
-### References
-- [[2 Peter 1.3|2 Peter 1:3]]
-- [[2 Peter 1.4|2 Peter 1:4]]
+his *divine* power hath given unto us all, [[2 Peter 1.3|2 Peter 1:3]].
+
+partakers of the *divine* nature, [[2 Peter 1.4|2 Peter 1:4]].

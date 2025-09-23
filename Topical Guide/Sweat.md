@@ -1,8 +1,6 @@
 # Sweat
 
-[Sweat](https://churchofjesuschrist.org/study/scriptures/tg/sweat?lang=eng)
 
-### References
-- [[Genesis 3.19|Genesis 3:19]]
-- [[Luke 22.44|Luke 22:44]]
-- [[Moses 4.25|Moses 4:25]]
+In the *sweat* of thy face shalt thou eat bread, [[Genesis 3.19|Genesis 3:19]] ([[Moses 4.25|Moses 4:25]]).
+
+his *sweat* was as it were great drops of blood, [[Luke 22.44|Luke 22:44]].

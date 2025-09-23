@@ -1,6 +1,4 @@
 # Piety
 
-[Piety](https://churchofjesuschrist.org/study/scriptures/tg/piety?lang=eng)
 
-### References
-- [[1 Timothy 5.4|1 Timothy 5:4]]
+let them learn first to shew *piety* at home, [[1 Timothy 5.4|1 Timothy 5:4]].

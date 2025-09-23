@@ -1,6 +1,4 @@
 # Original
 
-[Original](https://churchofjesuschrist.org/study/scriptures/tg/original?lang=eng)
 
-### References
-- [[Moses 6.54|Moses 6:54]]
+Son of God hath atoned for *original* guilt, [[Moses 6.54|Moses 6:54]].

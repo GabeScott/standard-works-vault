@@ -1,6 +1,4 @@
 # Partition
 
-[Partition](https://churchofjesuschrist.org/study/scriptures/tg/partition?lang=eng)
 
-### References
-- [[Ephesians 2.14|Ephesians 2:14]]
+broken down the middle wall of *partition* between us, [[Ephesians 2.14|Ephesians 2:14]].

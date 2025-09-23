@@ -1,7 +1,6 @@
 # Improve
 
-[Improve](https://churchofjesuschrist.org/study/scriptures/tg/improve?lang=eng)
 
-### References
-- [[Alma 34.33|Alma 34:33]]
-- [[D&C 82.18|D&C 82:18]]
+*improve* our time while in this life, [[Alma 34.33|Alma 34:33]].
+
+man may *improve* upon his talent, [[D&C 82.18|D&C 82:18]].

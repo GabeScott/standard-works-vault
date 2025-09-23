@@ -1,7 +1,8 @@
 # Adjure
 
-[Adjure](https://churchofjesuschrist.org/study/scriptures/tg/adjure?lang=eng)
 
-### References
-- [[Matthew 26.63|Matthew 26:63]]
-- [[Acts 19.13|Acts 19:13]]
+*See also* [[Charge.md|Charge]]; [[Command.md|Command]]; [[Swearing, Swear, Sware, Sworn.md|Swearing]]
+
+I *adjure* thee by the living God, [[Matthew 26.63|Matthew 26:63]].
+
+We *adjure* you by Jesus, [[Acts 19.13|Acts 19:13]].

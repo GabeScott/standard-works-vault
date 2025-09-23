@@ -1,11 +1,14 @@
 # Mightily
 
-[Mightily](https://churchofjesuschrist.org/study/scriptures/tg/mightily?lang=eng)
 
-### References
-- [[Judges 14.6|Judges 14:6]]
-- [[Acts 19.20|Acts 19:20]]
-- [[Mosiah 9.17|Mosiah 9:17]]
-- [[Alma 14.27|Alma 14:27]]
-- [[Alma 9.25|Alma 9:25]]
-- [[Mormon 9.6|Mormon 9:6]]
+Spirit of the Lord came *mightily* upon him, [[Judges 14.6|Judges 14:6]].
+
+*mightily* grew the word of God and prevailed, [[Acts 19.20|Acts 19:20]].
+
+my people did cry *mightily* to the Lord, [[Mosiah 9.17|Mosiah 9:17]].
+
+go forth and cry *mightily* unto this people, [[Alma 9.25|Alma 9:25]].
+
+earth shook *mightily*, [[Alma 14.27|Alma 14:27]].
+
+cry *mightily* unto the Father, [[Mormon 9.6|Mormon 9:6]].

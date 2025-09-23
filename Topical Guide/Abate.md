@@ -1,6 +1,6 @@
 # Abate
 
-[Abate](https://churchofjesuschrist.org/study/scriptures/tg/abate?lang=eng)
 
-### References
-- [[Genesis 8.3|Genesis 8:3]]
+*See also* [[Decrease.md|Decrease]]; [[Diminish.md|Diminish]]
+
+hundred and fifty days the waters were *abated*, [[Genesis 8.3|Genesis 8:3]].

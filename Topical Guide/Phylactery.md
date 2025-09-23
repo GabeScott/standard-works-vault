@@ -1,6 +1,6 @@
 # Phylactery
 
-[Phylactery](https://churchofjesuschrist.org/study/scriptures/tg/phylactery?lang=eng)
 
-### References
-- [[Matthew 23.5|Matthew 23:5]]
+*See also* [BD Phylacteries](https://www.churchofjesuschrist.org/study/scriptures/bd/phylacteries?lang=eng)
+
+they make broad their *phylacteries*, [[Matthew 23.5|Matthew 23:5]].

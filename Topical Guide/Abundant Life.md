@@ -1,35 +1,40 @@
 # Abundant Life
 
-[Abundant Life](https://churchofjesuschrist.org/study/scriptures/tg/abundant-life?lang=eng)
 
-### References
-- [[2 Chronicles 20.20|2 Chronicles 20:20]]
-- [[Psalms 1.3|Psalms 1:3]]
-- [[Psalms 112.3|Psalms 112:3]]
-- [[Psalms 144.15|Psalms 144:15]]
-- [[Proverbs 3.10|Proverbs 3:10]]
-- [[Isaiah 1.19|Isaiah 1:19]]
-- [[Isaiah 58.11|Isaiah 58:11]]
-- [[Matthew 16.25|Matthew 16:25]]
-- [[Matthew 6.33|Matthew 6:33]]
-- [[John 10.10|John 10:10]]
-- [[Galatians 5.13|Galatians 5:13]]
-- [[Galatians 6.9|Galatians 6:9]]
-- [[Titus 2.12|Titus 2:12]]
-- [[1 Peter 3.12|1 Peter 3:12]]
-- [[2 Peter 1.8|2 Peter 1:8]]
-- [[2 Nephi 4.35|2 Nephi 4:35]]
-- [[2 Nephi 5.11|2 Nephi 5:11]]
-- [[Jacob 2.18|Jacob 2:18]]
-- [[Alma 37.37|Alma 37:37]]
-- [[Helaman 13.38|Helaman 13:38]]
-- [[Helaman 6.1|Helaman 6:1]]
-- [[Helaman 6.12|Helaman 6:12]]
-- [[Ether 10.28|Ether 10:28]]
-- [[D&C 121.46|D&C 121:46]]
-- [[D&C 58.28|D&C 58:28]]
-- [[D&C 59.16|D&C 59:16]]
-- [[D&C 64.34|D&C 64:34]]
-- [[D&C 88.24|D&C 88:24]]
-- [[D&C 88.32|D&C 88:32]]
-- [[D&C 93.27|D&C 93:27]]
+*See also* [[Abundance.md|Abundance]]
+
+believe his prophets, so shall ye *prosper*, [[2 Chronicles 20.20|2 Chronicles 20:20]].
+
+*riches* shall be in his house, [[Psalms 112.3|Psalms 112:3]].
+
+*Happy* is that people, [[Psalms 144.15|Psalms 144:15]].
+
+thy barns be filled with *plenty*, [[Proverbs 3.10|Proverbs 3:10]].
+
+obedient, ye shall eat the *good* of the land, [[Isaiah 1.19|Isaiah 1:19]].
+
+*spring* of water, whose waters fail not, [[Isaiah 58.11|Isaiah 58:11]].
+
+these things shall be *added* unto you, [[Matthew 6.33|Matthew 6:33]].
+
+lose his *life* for my sake shall find it, [[Matthew 16.25|Matthew 16:25]].
+
+life, and ... have it more *abundantly*, [[John 10.10|John 10:10]].
+
+we shall *reap*, [[Galatians 6.9|Galatians 6:9]].
+
+things be in you, and *abound*, [[2 Peter 1.8|2 Peter 1:8]].
+
+I know that God will give *liberally*, [[2 Nephi 4.35|2 Nephi 4:35]].
+
+before ye seek for riches, *seek* ye for the kingdom, [[Jacob 2.18|Jacob 2:18]].
+
+Lord ... will direct thee for *good*, [[Alma 37.37|Alma 37:37]].
+
+*fulness* of the earth is yours, [[D&C 59.16|D&C 59:16]].
+
+obedient shall eat the *good* of the land, [[D&C 64.34|D&C 64:34]].
+
+no man receiveth a *fulness*, [[D&C 93.27|D&C 93:27]].
+
+*See also* [[Psalms 1.3|Psalms 1:3]]; [[Galatians 5.13|Galatians 5:13]]; [[Titus 2.12|Titus 2:12]]; [[1 Peter 3.12|1 Peter 3:12]]; [[2 Nephi 5.11|2 Nephi 5:11]]; [[Helaman 6.1|Helaman 6:1]], [[Helaman 6.12|Helaman 6:12]]; [[Helaman 13.38|Helaman 13:38]]; [[Ether 10.28|Ether 10:28]]; [[D&C 58.28|D&C 58:28]]; [[D&C 88.24|D&C 88:24]], [[D&C 88.32|D&C 88:32]]; [[D&C 121.46|D&C 121:46]].

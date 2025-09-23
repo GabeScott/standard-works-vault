@@ -1,8 +1,6 @@
 # Bill
 
-[Bill](https://churchofjesuschrist.org/study/scriptures/tg/bill?lang=eng)
 
-### References
-- [[Deuteronomy 24.1|Deuteronomy 24:1]]
-- [[Mark 10.4|Mark 10:4]]
-- [[Luke 16.6|Luke 16:6]]
+write her a *bill* of divorcement, [[Deuteronomy 24.1|Deuteronomy 24:1]] ([[Mark 10.4|Mark 10:4]]).
+
+Take thy *bill*, and sit down quickly, [[Luke 16.6|Luke 16:6]].

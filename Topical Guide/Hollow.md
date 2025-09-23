@@ -1,7 +1,6 @@
 # Hollow
 
-[Hollow](https://churchofjesuschrist.org/study/scriptures/tg/hollow?lang=eng)
 
-### References
-- [[Genesis 32.25|Genesis 32:25]]
-- [[Isaiah 40.12|Isaiah 40:12]]
+*hollow* of Jacob's thigh was out of joint, [[Genesis 32.25|Genesis 32:25]].
+
+measured the waters in the *hollow* of his hand, [[Isaiah 40.12|Isaiah 40:12]].

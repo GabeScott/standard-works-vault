@@ -1,8 +1,6 @@
 # Landmark
 
-[Landmark](https://churchofjesuschrist.org/study/scriptures/tg/landmark?lang=eng)
 
-### References
-- [[Deuteronomy 19.14|Deuteronomy 19:14]]
-- [[Proverbs 22.28|Proverbs 22:28]]
-- [[Proverbs 23.10|Proverbs 23:10]]
+Thou shalt not remove thy neighbour's *landmark*, [[Deuteronomy 19.14|Deuteronomy 19:14]].
+
+Remove not the ancient *landmark*, [[Proverbs 22.28|Proverbs 22:28]] ([[Proverbs 23.10|Proverbs 23:10]]).

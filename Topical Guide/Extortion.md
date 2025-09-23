@@ -1,7 +1,6 @@
 # Extortion
 
-[Extortion](https://churchofjesuschrist.org/study/scriptures/tg/extortion?lang=eng)
 
-### References
-- [[Ezekiel 22.12|Ezekiel 22:12]]
-- [[Matthew 23.25|Matthew 23:25]]
+greedily gained of thy neighbours by *extortion*, [[Ezekiel 22.12|Ezekiel 22:12]].
+
+they are full of *extortion* and excess, [[Matthew 23.25|Matthew 23:25]].

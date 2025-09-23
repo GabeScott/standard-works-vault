@@ -1,6 +1,6 @@
 # Unction
 
-[Unction](https://churchofjesuschrist.org/study/scriptures/tg/unction?lang=eng)
 
-### References
-- [[1 John 2.20|1 John 2:20]]
+*See also* [[Anointing, Anoint.md|Anointing]]
+
+ye have an *unction* from the Holy One, [[1 John 2.20|1 John 2:20]].

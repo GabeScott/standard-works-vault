@@ -1,6 +1,4 @@
 # Presbytery
 
-[Presbytery](https://churchofjesuschrist.org/study/scriptures/tg/presbytery?lang=eng)
 
-### References
-- [[1 Timothy 4.14|1 Timothy 4:14]]
+laying on of the hands of the *presbytery*, [[1 Timothy 4.14|1 Timothy 4:14]].

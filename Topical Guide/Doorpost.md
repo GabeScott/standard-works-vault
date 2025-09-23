@@ -1,7 +1,6 @@
 # Doorpost
 
-[Doorpost](https://churchofjesuschrist.org/study/scriptures/tg/doorpost?lang=eng)
 
-### References
-- [[Exodus 12.7|Exodus 12:7]]
-- [[Deuteronomy 11.20|Deuteronomy 11:20]]
+blood ... on the upper *door post* of the houses, [[Exodus 12.7|Exodus 12:7]].
+
+thou shalt write them upon the *door posts*, [[Deuteronomy 11.20|Deuteronomy 11:20]].

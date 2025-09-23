@@ -1,7 +1,6 @@
 # Mortify
 
-[Mortify](https://churchofjesuschrist.org/study/scriptures/tg/mortify?lang=eng)
 
-### References
-- [[Romans 8.13|Romans 8:13]]
-- [[Colossians 3.5|Colossians 3:5]]
+if ye through the Spirit do *mortify* the deeds of the body, [[Romans 8.13|Romans 8:13]].
+
+*Mortify* therefore your members which are upon the earth, [[Colossians 3.5|Colossians 3:5]].

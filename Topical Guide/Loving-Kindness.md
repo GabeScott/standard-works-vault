@@ -1,9 +1,12 @@
 # Loving-Kindness
 
-[Loving-Kindness](https://churchofjesuschrist.org/study/scriptures/tg/loving-kindness?lang=eng)
 
-### References
-- [[Psalms 51.1|Psalms 51:1]]
-- [[Isaiah 63.7|Isaiah 63:7]]
-- [[Jeremiah 9.24|Jeremiah 9:24]]
-- [[D&C 133.52|D&C 133:52]]
+*See also* [[Kindness.md|Kindness]]; [[Mercy, Merciful.md|Mercy]]
+
+Have mercy upon me, O God, according to thy *lovingkindness*, [[Psalms 51.1|Psalms 51:1]].
+
+I will mention the *lovingkindnesses* of the Lord, [[Isaiah 63.7|Isaiah 63:7]].
+
+I am the Lord which exercise *lovingkindness*, [[Jeremiah 9.24|Jeremiah 9:24]].
+
+they shall mention the *loving kindness* of their Lord, [[D&C 133.52|D&C 133:52]].

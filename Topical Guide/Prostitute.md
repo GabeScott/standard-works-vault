@@ -1,6 +1,6 @@
 # Prostitute
 
-[Prostitute](https://churchofjesuschrist.org/study/scriptures/tg/prostitute?lang=eng)
 
-### References
-- [[Leviticus 19.29|Leviticus 19:29]]
+*See also* [[Harlot.md|Harlot]]; [[Whore, Whoredom.md|Whore]]
+
+Do not *prostitute* thy daughter, [[Leviticus 19.29|Leviticus 19:29]].

@@ -1,8 +1,8 @@
 # Twice
 
-[Twice](https://churchofjesuschrist.org/study/scriptures/tg/twice?lang=eng)
 
-### References
-- [[Mark 14.30|Mark 14:30]]
-- [[Jude 1.12|Jude 1:12]]
-- [[3 Nephi 28.22|3 Nephi 28:22]]
+before the cock crow *twice*, thou shalt deny me, [[Mark 14.30|Mark 14:30]].
+
+trees ... without fruit, *twice* dead, [[Jude 1.12|Jude 1:12]].
+
+*twice* were they cast into a den of wild beasts, [[3 Nephi 28.22|3 Nephi 28:22]].

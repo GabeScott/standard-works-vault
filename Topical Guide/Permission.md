@@ -1,6 +1,6 @@
 # Permission
 
-[Permission](https://churchofjesuschrist.org/study/scriptures/tg/permission?lang=eng)
 
-### References
-- [[1 Corinthians 7.6|1 Corinthians 7:6]]
+*See also* [[Permit.md|Permit]]
+
+I speak this by *permission*, and not of commandment, [[1 Corinthians 7.6|1 Corinthians 7:6]].

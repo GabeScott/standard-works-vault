@@ -1,7 +1,6 @@
 # Eyewitness
 
-[Eyewitness](https://churchofjesuschrist.org/study/scriptures/tg/eyewitness?lang=eng)
 
-### References
-- [[Luke 1.2|Luke 1:2]]
-- [[2 Peter 1.16|2 Peter 1:16]]
+from the beginning were *eyewitnesses*, [[Luke 1.2|Luke 1:2]].
+
+were *eyewitnesses* of his majesty, [[2 Peter 1.16|2 Peter 1:16]].

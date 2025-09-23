@@ -1,35 +1,38 @@
 # Almsgiving
 
-[Almsgiving](https://churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng)
 
-### References
-- [[Deuteronomy 15.8|Deuteronomy 15:8]]
-- [[Psalms 112.9|Psalms 112:9]]
-- [[Proverbs 22.9|Proverbs 22:9]]
-- [[Proverbs 28.27|Proverbs 28:27]]
-- [[Isaiah 58.7|Isaiah 58:7]]
-- [[Matthew 19.21|Matthew 19:21]]
-- [[Matthew 5.42|Matthew 5:42]]
-- [[Matthew 6.1|Matthew 6:1]]
-- [[Mark 12.43|Mark 12:43]]
-- [[Luke 11.41|Luke 11:41]]
-- [[Luke 12.33|Luke 12:33]]
-- [[Acts 10.2|Acts 10:2]]
-- [[Acts 11.29|Acts 11:29]]
-- [[Acts 20.35|Acts 20:35]]
-- [[Acts 24.17|Acts 24:17]]
-- [[Acts 3.3|Acts 3:3]]
-- [[Romans 15.26|Romans 15:26]]
-- [[Jacob 2.17|Jacob 2:17]]
-- [[Mosiah 18.27|Mosiah 18:27]]
-- [[Mosiah 4.26|Mosiah 4:26]]
-- [[Alma 1.27|Alma 1:27]]
-- [[Alma 34.28|Alma 34:28]]
-- [[Alma 4.13|Alma 4:13]]
-- [[3 Nephi 13.1|3 Nephi 13:1]]
-- [[D&C 105.3|D&C 105:3]]
-- [[D&C 112.1|D&C 112:1]]
-- [[D&C 42.31|D&C 42:31]]
-- [[D&C 44.6|D&C 44:6]]
-- [[D&C 56.16|D&C 56:16]]
-- [[D&C 88.2|D&C 88:2]]
+*See also* [[Charity.md|Charity]]; [[Generosity.md|Generosity]]; [[Poor.md|Poor]]; [[Welfare.md|Welfare]]; [BD Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/bd/almsgiving?lang=eng)
+
+*open* thine hand wide unto him, [[Deuteronomy 15.8|Deuteronomy 15:8]].
+
+hath *given* to the poor, [[Psalms 112.9|Psalms 112:9]].
+
+*giveth* unto the poor, [[Proverbs 28.27|Proverbs 28:27]].
+
+*Give* to him that asketh thee, [[Matthew 5.42|Matthew 5:42]].
+
+do not your *alms* before men, [[Matthew 6.1|Matthew 6:1]] ([[3 Nephi 13.1|3 Nephi 13:1]]).
+
+*give* to the poor, [[Matthew 19.21|Matthew 19:21]] ([[Luke 12.33|Luke 12:33]]).
+
+poor widow hath *cast* more in, [[Mark 12.43|Mark 12:43]].
+
+rather give *alms*, [[Luke 11.41|Luke 11:41]].
+
+gave much *alms*, [[Acts 10.2|Acts 10:2]].
+
+more blessed to *give* than to receive, [[Acts 20.35|Acts 20:35]].
+
+came to bring *alms*, [[Acts 24.17|Acts 24:17]].
+
+*contribution* for the poor, [[Romans 15.26|Romans 15:26]].
+
+*impart* of your substance to the poor, [[Mosiah 4.26|Mosiah 4:26]].
+
+have more abundantly he should *impart* more, [[Mosiah 18.27|Mosiah 18:27]].
+
+Wo unto you rich men, that will not *give*, [[D&C 56.16|D&C 56:16]].
+
+thine *alms* have come up as a memorial, [[D&C 112.1|D&C 112:1]].
+
+*See also* [[Proverbs 22.9|Proverbs 22:9]]; [[Isaiah 58.7|Isaiah 58:7]]; [[Acts 3.3|Acts 3:3]]; [[Acts 11.29|Acts 11:29]]; [[Jacob 2.17|Jacob 2:17]]; [[Alma 1.27|Alma 1:27]]; [[Alma 4.13|Alma 4:13]]; [[Alma 34.28|Alma 34:28]]; [[D&C 42.31|D&C 42:31]]; [[D&C 44.6|D&C 44:6]]; [[D&C 88.2|D&C 88:2]]; [[D&C 105.3|D&C 105:3]].

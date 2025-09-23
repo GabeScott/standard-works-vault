@@ -1,6 +1,4 @@
 # Hazard
 
-[Hazard](https://churchofjesuschrist.org/study/scriptures/tg/hazard?lang=eng)
 
-### References
-- [[Acts 15.26|Acts 15:26]]
+*hazarded* their lives for the name of our Lord, [[Acts 15.26|Acts 15:26]].

@@ -1,7 +1,4 @@
 # Finisher
 
-[Finisher](https://churchofjesuschrist.org/study/scriptures/tg/finisher?lang=eng)
 
-### References
-- [[Hebrews 12.2|Hebrews 12:2]]
-- [[Moroni 6.4|Moroni 6:4]]
+Jesus the author and *finisher* of our faith, [[Hebrews 12.2|Hebrews 12:2]] ([[Moroni 6.4|Moroni 6:4]]).

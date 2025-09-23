@@ -1,7 +1,6 @@
 # Philosopher, Philosophy
 
-[Philosopher, Philosophy](https://churchofjesuschrist.org/study/scriptures/tg/philosopher?lang=eng)
 
-### References
-- [[Acts 17.18|Acts 17:18]]
-- [[Colossians 2.8|Colossians 2:8]]
+Then certain *philosophers* ... encountered him, [[Acts 17.18|Acts 17:18]].
+
+Beware lest any man spoil you through *philosophy*, [[Colossians 2.8|Colossians 2:8]].

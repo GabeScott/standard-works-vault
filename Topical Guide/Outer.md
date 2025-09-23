@@ -1,6 +1,6 @@
 # Outer
 
-[Outer](https://churchofjesuschrist.org/study/scriptures/tg/outer?lang=eng)
 
-### References
-- [[Alma 60.23|Alma 60:23]]
+*See also* [[Outer Darkness.md|Outer Darkness]]
+
+then shall the *outer* vessel be cleansed, [[Alma 60.23|Alma 60:23]].

@@ -1,7 +1,8 @@
 # Variance
 
-[Variance](https://churchofjesuschrist.org/study/scriptures/tg/variance?lang=eng)
 
-### References
-- [[Matthew 10.35|Matthew 10:35]]
-- [[Galatians 5.20|Galatians 5:20]]
+*See also* [[Dissension.md|Dissension]]
+
+I am come to set a man at *variance* against his father, [[Matthew 10.35|Matthew 10:35]].
+
+*See also* [[Galatians 5.20|Galatians 5:20]].

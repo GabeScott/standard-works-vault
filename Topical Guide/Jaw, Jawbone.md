@@ -1,6 +1,4 @@
 # Jaw, Jawbone
 
-[Jaw, Jawbone](https://churchofjesuschrist.org/study/scriptures/tg/jaw?lang=eng)
 
-### References
-- [[Judges 15.16|Judges 15:16]]
+With the *jawbone* of an ass ... have I slain a thousand men, [[Judges 15.16|Judges 15:16]].

@@ -1,7 +1,6 @@
 # Frame
 
-[Frame](https://churchofjesuschrist.org/study/scriptures/tg/frame?lang=eng)
 
-### References
-- [[Ephesians 2.21|Ephesians 2:21]]
-- [[Hebrews 11.3|Hebrews 11:3]]
+In whom all the building fitly *framed* together, [[Ephesians 2.21|Ephesians 2:21]].
+
+worlds were *framed* by the word of God, [[Hebrews 11.3|Hebrews 11:3]].

@@ -1,6 +1,4 @@
 # Gardener
 
-[Gardener](https://churchofjesuschrist.org/study/scriptures/tg/gardener?lang=eng)
 
-### References
-- [[John 20.15|John 20:15]]
+supposing him to be the *gardener*, [[John 20.15|John 20:15]].
