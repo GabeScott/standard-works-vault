@@ -41,12 +41,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Old Testament/1 Chronicles 21.15.md",
-                "mode": "source",
+                "file": "General Conference/2025 October - The Atoning Love of Jesus Christ.md",
+                "mode": "preview",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "1 Chronicles 21.15"
+              "title": "2025 October - The Atoning Love of Jesus Christ"
             }
           }
         ],
@@ -82,7 +82,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "JST",
+                "query": "",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -104,7 +104,7 @@
             }
           }
         ],
-        "currentTab": 1
+        "currentTab": 2
       }
     ],
     "direction": "horizontal",
@@ -190,6 +190,7 @@
   },
   "left-ribbon": {
     "hiddenItems": {
+      "bases:Create new base": false,
       "switcher:Open quick switcher": false,
       "graph:Open graph view": false,
       "canvas:Create new canvas": false,
@@ -198,34 +199,35 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "ba98890b4d665bc5",
+  "active": "fc6bb8d34cada38d",
   "lastOpenFiles": [
+    "General Conference/2025 October - “Lovest Thou Me”.md",
+    "General Conference/2025 October - Cheering Each Other On.md",
+    "General Conference/2025 October - The Lord Is Hastening His Work.md",
+    "General Conference/2025 October - Tune Your Heart to Jesus Christ - The Sacred Gift of Primary Music.md",
+    "General Conference/2025 October - Blessed Are the Peacemakers.md",
+    "General Conference/2025 October - Introduction.md",
+    "Book of Mormon/1 Nephi 19.10.md",
+    "Book of Mormon/1 Nephi 19.11.md",
+    "Book of Mormon/1 Nephi 19.12.md",
+    "Book of Mormon/1 Nephi 19.13.md",
+    "Book of Mormon/1 Nephi 19.14.md",
+    "Book of Mormon/1 Nephi 19.15.md",
+    "Book of Mormon/1 Nephi 19.16.md",
+    "Book of Mormon/1 Nephi 19.17.md",
+    "Book of Mormon/1 Nephi 19.18.md",
+    "Book of Mormon/1 Nephi 19.23.md",
+    "Book of Mormon/1 Nephi 19.22.md",
+    "Book of Mormon/1 Nephi 19.21.md",
+    "Book of Mormon/1 Nephi 19.19.md",
+    "Book of Mormon/1 Nephi 19.20.md",
+    "Book of Mormon/Mosiah 3.19.md",
+    "Old Testament/1 Chronicles 21.15.md",
     "LICENSE",
     "Book of Mormon/2 Nephi 1.26.md",
     "Book of Mormon/2 Nephi 1.18.md",
     "Book of Mormon/2 Nephi 1.14.md",
     "Book of Mormon/2 Nephi 1.7.md",
-    "Book of Mormon/2 Nephi 1.1.md",
-    "Book of Mormon/1 Nephi 2.6.md",
-    "Book of Mormon/1 Nephi 2.4.md",
-    "Book of Mormon/1 Nephi 2.3.md",
-    "Book of Mormon/1 Nephi 2.2.md",
-    "Book of Mormon/1 Nephi 2.1.md",
-    "Book of Mormon/1 Nephi 1.20.md",
-    "Book of Mormon/1 Nephi 1.19.md",
-    "Book of Mormon/1 Nephi 1.18.md",
-    "Book of Mormon/1 Nephi 1.17.md",
-    "Book of Mormon/1 Nephi 1.16.md",
-    "Book of Mormon/1 Nephi 1.15.md",
-    "Book of Mormon/1 Nephi 1.14.md",
-    "Book of Mormon/1 Nephi 1.13.md",
-    "Book of Mormon/1 Nephi 1.12.md",
-    "Book of Mormon/1 Nephi 1.11.md",
-    "Book of Mormon/1 Nephi 1.10.md",
-    "Book of Mormon/1 Nephi 1.9.md",
-    "Book of Mormon/1 Nephi 1.8.md",
-    "Book of Mormon/1 Nephi 1.7.md",
-    "Book of Mormon/1 Nephi 1.6.md",
     "bookmarks_gc.json",
     "create_book_marks_gc.py",
     "create_book_marks copy.py",
