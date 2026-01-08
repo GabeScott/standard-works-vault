@@ -32,7 +32,7 @@ Reading about Joseph forgiving his brothers of the terrible things they had done
 
 - What blessings came from Joseph’s forgiveness of his brothers? For example, compare the relationships in Jacob’s family at the beginning of the story (see, for example, [[Genesis 37.3|Genesis 37:3–11]][[Genesis 37.4|]][[Genesis 37.5|]][[Genesis 37.6|]][[Genesis 37.7|]][[Genesis 37.8|]][[Genesis 37.9|]][[Genesis 37.10|]][[Genesis 37.11|]]) with the relationships at the end (see [[Genesis 45.9|Genesis 45:9–15]][[Genesis 45.10|]][[Genesis 45.11|]][[Genesis 45.12|]][[Genesis 45.13|]][[Genesis 45.14|]][[Genesis 45.15|]]; [[Genesis 50.15|50:15–21]][[Genesis 50.16|]][[Genesis 50.17|]][[Genesis 50.18|]][[Genesis 50.19|]][[Genesis 50.20|]][[Genesis 50.21|]]). How might things have turned out differently if Joseph had not been willing to forgive?
 
-- Consider writing down the name of someone who may need your forgiveness—whether or not they have asked for forgiveness. What can you do to invite the Savior’s healing power into that situation? If forgiving seems too difficult, consider reviewing the counsel of Elder Gerrit W. Gong in the last six paragraphs of his message “[Happy and Forever](https://churchofjesuschrist.org/study/general-conference/2022/10/43gong?lang=eng)” (*Liahona*, Nov. 2022, 85). What do you find that gives you hope that you can forgive?
+- Consider writing down the name of someone who may need your forgiveness—whether or not they have asked for forgiveness. What can you do to invite the Savior’s healing power into that situation? If forgiving seems too difficult, consider reviewing the counsel of Elder Gerrit W. Gong in the last six paragraphs of his message “[[2022 October - Happy and Forever.md|Happy and Forever]]” (*Liahona*, Nov. 2022, 85). What do you find that gives you hope that you can forgive?
 
 See also [[D&C 64.9|Doctrine and Covenants 64:9–11]][[D&C 64.10|]][[D&C 64.11|]]; “Forgiveness: My Burden Was Made Light” (video), Gospel Library.
 
@@ -45,7 +45,7 @@ As you read about Judah’s blessing in [[Genesis 49.8|Genesis 49:8–12]][[Gene
 
 Reading these blessings might inspire you to review your patriarchal blessing—or, if you don’t have one, to receive one. What words and phrases in your blessing turn your thoughts to Jesus Christ?
 
-See also Randall K. Bennett, “[Your Patriarchal Blessing—Inspired Direction from Heavenly Father](https://churchofjesuschrist.org/study/general-conference/2023/04/25bennett?lang=eng),” *Liahona*, May 2023, 42–44.
+See also Randall K. Bennett, “[[2023 April - Your Patriarchal Blessing—Inspired Direction from Heavenly Father.md|Your Patriarchal Blessing—Inspired Direction from Heavenly Father]],” *Liahona*, May 2023, 42–44.
 
 [[Genesis 50.19|Genesis 50:19–21]][[Genesis 50.20|]][[Genesis 50.21|]]
 ### God can help me find meaning in my trials.

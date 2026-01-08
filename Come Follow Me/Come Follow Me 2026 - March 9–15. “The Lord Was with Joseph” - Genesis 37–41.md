@@ -15,7 +15,7 @@ Time and again, good fortune seemed to abandon Joseph, but the Lord never did. A
 
 You might also ask similar questions about your life. What evidence have you seen that the Lord has not forsaken you in times of trial? Consider how you can share your experiences with family members and future generations (see [[1 Nephi 5.14|1 Nephi 5:14]]).
 
-Of course, you will have other trials in the future. What can you do now to help ensure that these trials don’t pull you away from the Lord? Consider writing a letter to encourage your future self to stay close to Him no matter what. You might include insights from Joseph’s life or from President D. Todd Christofferson’s message “[Our Relationship with God](https://churchofjesuschrist.org/study/general-conference/2022/04/41christofferson?lang=eng)” (*Liahona*, May 2022, 78–81).
+Of course, you will have other trials in the future. What can you do now to help ensure that these trials don’t pull you away from the Lord? Consider writing a letter to encourage your future self to stay close to Him no matter what. You might include insights from Joseph’s life or from President D. Todd Christofferson’s message “[[2022 April - Our Relationship with God.md|Our Relationship with God]]” (*Liahona*, May 2022, 78–81).
 
 See also [[John 14.18|John 14:18]]; [[Romans 8.28|Romans 8:28]]; [[Alma 36.3|Alma 36:3]]; [[D&C 121.7|Doctrine and Covenants 121:7–8]][[D&C 121.8|]]; “[Abide with Me!](https://churchofjesuschrist.org/study/manual/hymns/abide-with-me?lang=eng),” *Hymns*, no. 166.
 
@@ -56,7 +56,7 @@ As you make your plan, it might also help to think about times in the past when 
 
 Joseph’s interpretation of Pharaoh’s dream led to some very wise and practical counsel for surviving a famine (see [[Genesis 41.15|Genesis 41:15–57]][[Genesis 41.16|]][[Genesis 41.17|]][[Genesis 41.18|]][[Genesis 41.19|]][[Genesis 41.20|]][[Genesis 41.21|]][[Genesis 41.22|]][[Genesis 41.23|]][[Genesis 41.24|]][[Genesis 41.25|]][[Genesis 41.26|]][[Genesis 41.27|]][[Genesis 41.28|]][[Genesis 41.29|]][[Genesis 41.30|]][[Genesis 41.31|]][[Genesis 41.32|]][[Genesis 41.33|]][[Genesis 41.34|]][[Genesis 41.35|]][[Genesis 41.36|]][[Genesis 41.37|]][[Genesis 41.38|]][[Genesis 41.39|]][[Genesis 41.40|]][[Genesis 41.41|]][[Genesis 41.42|]][[Genesis 41.43|]][[Genesis 41.44|]][[Genesis 41.45|]][[Genesis 41.46|]][[Genesis 41.47|]][[Genesis 41.48|]][[Genesis 41.49|]][[Genesis 41.50|]][[Genesis 41.51|]][[Genesis 41.52|]][[Genesis 41.53|]][[Genesis 41.54|]][[Genesis 41.55|]][[Genesis 41.56|]][[Genesis 41.57|]]). Consider what spiritual messages the Lord might have for you in this account. How do you feel He wants you to prepare for hardships in your future?
 
-See also David A. Bednar, “[We Will Prove Them Herewith](https://churchofjesuschrist.org/study/general-conference/2020/10/12bednar?lang=eng),” *Ensign* or *Liahona*, Nov. 2020, 8–11.
+See also David A. Bednar, “[[2020 October - We Will Prove Them Herewith.md|We Will Prove Them Herewith]],” *Ensign* or *Liahona*, Nov. 2020, 8–11.
 
 > For more, see this month’s issues of the [Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng) and [For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng) magazines.
 

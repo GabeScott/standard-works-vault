@@ -20,7 +20,7 @@ One way to find rich spiritual nourishment in the Old Testament is to look for t
 
 What do these examples teach about Him? What other references to Jesus Christ in the Old Testament are you already familiar with?
 
-In his message “[Jesus Christ Is the Treasure](https://churchofjesuschrist.org/study/general-conference/2023/10/57renlund?lang=eng),” Elder Dale G. Renlund encouraged us to “remember and always focus on Jesus Christ” (*Liahona*, Nov. 2023, 98). Consider reading his message, looking for things you can do to find Jesus Christ not only in the Old Testament but also in your life.
+In his message “[[2023 October - Jesus Christ Is the Treasure.md|Jesus Christ Is the Treasure]],” Elder Dale G. Renlund encouraged us to “remember and always focus on Jesus Christ” (*Liahona*, Nov. 2023, 98). Consider reading his message, looking for things you can do to find Jesus Christ not only in the Old Testament but also in your life.
 
 See also “[Types or Symbols of Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng&id=title15-p161#title15)” in Guide to the Scriptures, “[Jesus Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng),” Gospel Library; “[Seek the Lord Early](https://churchofjesuschrist.orghttps://www.churchofjesuschrist.org/media/music/songs/seek-the-lord-early),” *Children’s Songbook*, 108.
 
@@ -29,7 +29,7 @@ See also “[Types or Symbols of Christ](https://churchofjesuschrist.org/study/s
 
 ### Jesus Christ is Jehovah in the Old Testament.
 
-President Dallin H. Oaks taught: “The Father introduced His Only Begotten Son, Jesus Christ, as our Savior and Redeemer and gave us the command to ‘hear Him.’ From this direction we conclude that the scriptural records of words spoken by ‘God’ or the ‘Lord’ are almost always the words of Jehovah, our risen Lord, Jesus Christ” (“[The Teachings of Jesus Christ](https://churchofjesuschrist.org/study/general-conference/2023/04/51oaks?lang=eng&id=p2#p2),” *Liahona*, May 2023, 102).
+President Dallin H. Oaks taught: “The Father introduced His Only Begotten Son, Jesus Christ, as our Savior and Redeemer and gave us the command to ‘hear Him.’ From this direction we conclude that the scriptural records of words spoken by ‘God’ or the ‘Lord’ are almost always the words of Jehovah, our risen Lord, Jesus Christ” (“[[2023 April - The Teachings of Jesus Christ.md|The Teachings of Jesus Christ]],” *Liahona*, May 2023, 102).
 
 When the leaders of the Jews challenged Jesus about His identity, He declared, “Before Abraham was, I am.” These words shocked the people who heard Jesus, and they were ready to stone Him (see [[John 8.58|John 8:58–59]][[John 8.59|]]). Consider reading [[Exodus 3.13|Exodus 3:13–15]][[Exodus 3.14|]][[Exodus 3.15|]]; [[Exodus 6.3|6:3–5]][[Exodus 6.4|]][[Exodus 6.5|]] to see why some Jews were so upset at what Jesus said.
 

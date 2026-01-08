@@ -42,7 +42,7 @@ Jesus Christ is referred to by many different names and titles. Look for titles 
 
 Consider choosing a title or role of the Savior that will help you remember Him throughout the coming year.
 
-See also Quentin L. Cook, “[Personal Peace in Challenging Times](https://churchofjesuschrist.org/study/general-conference/2021/10/46cook?lang=eng),” *Liahona*, Nov. 2021, 89–92; “[Hark! The Herald Angels Sing](https://churchofjesuschrist.org/study/manual/hymns/hark-the-herald-angels-sing?lang=eng),” *Hymns*, no. 209.
+See also Quentin L. Cook, “[[2021 October - Personal Peace in Challenging Times.md|Personal Peace in Challenging Times]],” *Liahona*, Nov. 2021, 89–92; “[Hark! The Herald Angels Sing](https://churchofjesuschrist.org/study/manual/hymns/hark-the-herald-angels-sing?lang=eng),” *Hymns*, no. 209.
 
 > For more, see this month’s issues of the *[Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng)* and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
 

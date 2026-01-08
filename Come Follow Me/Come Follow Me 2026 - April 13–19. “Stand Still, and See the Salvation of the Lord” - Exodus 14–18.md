@@ -41,7 +41,7 @@ You may find additional insights in one or more of these videos: “Daily Bread:
 
 Think of other things, besides eating, that you do every day. Why do certain things have to be done daily to be effective? What do you feel inspired to do to seek daily spiritual experiences?
 
-See also Dieter F. Uchtdorf, “[Daily Restoration](https://churchofjesuschrist.org/study/general-conference/2021/10/41uchtdorf?lang=eng),” *Liahona*, Nov. 2021, 77–79; “Daily Restoration” (video), Gospel Library.
+See also Dieter F. Uchtdorf, “[[2021 October - Daily Restoration.md|Daily Restoration]],” *Liahona*, Nov. 2021, 77–79; “Daily Restoration” (video), Gospel Library.
 
 [[Exodus 17.1|Exodus 17:1–7]][[Exodus 17.2|]][[Exodus 17.3|]][[Exodus 17.4|]][[Exodus 17.5|]][[Exodus 17.6|]][[Exodus 17.7|]]
 ### Jesus Christ is my spiritual rock and living water.

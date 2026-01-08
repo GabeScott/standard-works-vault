@@ -8,7 +8,7 @@
 
 ## Individuals and Families at Home
 
-The ideal place to learn the gospel is the home. Your teachers at church can support you, and you can get encouragement from other ward members. But to survive spiritually, you and your family need daily nourishment from “the good word of God” ([[Moroni 6.4|Moroni 6:4]]; see also Russell M. Nelson, “[Opening Remarks](https://churchofjesuschrist.org/study/general-conference/2018/10/opening-remarks?lang=eng),” *Ensign* or *Liahona*, Nov. 2018, 6–8).
+The ideal place to learn the gospel is the home. Your teachers at church can support you, and you can get encouragement from other ward members. But to survive spiritually, you and your family need daily nourishment from “the good word of God” ([[Moroni 6.4|Moroni 6:4]]; see also Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona*, Nov. 2018, 6–8).
 
 Use this resource in any way that is helpful to you. The outlines highlight some eternal truths found in the Old Testament. They also suggest ideas and activities to help you study the scriptures individually, with your family, or with friends. As you study, follow the Spirit’s guidance to find eternal truths that are meaningful to you. Look for God’s messages for you, and follow the promptings you receive.
 

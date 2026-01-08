@@ -25,7 +25,7 @@ When Asa was the king of Judah, he faced many challenges—just like we all do t
 
 Why do we sometimes stop trusting the Lord? What else do you learn from Asa’s life?
 
-See also Elder D. Todd Christofferson, “[Our Relationship with God](https://churchofjesuschrist.org/study/general-conference/2022/04/41christofferson?lang=eng),” *Liahona*, May 2022, 78–80.
+See also Elder D. Todd Christofferson, “[[2022 April - Our Relationship with God.md|Our Relationship with God]],” *Liahona*, May 2022, 78–80.
 
 [[2 Chronicles 18.1|2 Chronicles 18]][[2 Chronicles 18.2|]][[2 Chronicles 18.3|]][[2 Chronicles 18.4|]][[2 Chronicles 18.5|]][[2 Chronicles 18.6|]][[2 Chronicles 18.7|]][[2 Chronicles 18.8|]][[2 Chronicles 18.9|]][[2 Chronicles 18.10|]][[2 Chronicles 18.11|]][[2 Chronicles 18.12|]][[2 Chronicles 18.13|]][[2 Chronicles 18.14|]][[2 Chronicles 18.15|]][[2 Chronicles 18.16|]][[2 Chronicles 18.17|]][[2 Chronicles 18.18|]][[2 Chronicles 18.19|]][[2 Chronicles 18.20|]][[2 Chronicles 18.21|]][[2 Chronicles 18.22|]][[2 Chronicles 18.23|]][[2 Chronicles 18.24|]][[2 Chronicles 18.25|]][[2 Chronicles 18.26|]][[2 Chronicles 18.27|]][[2 Chronicles 18.28|]][[2 Chronicles 18.29|]][[2 Chronicles 18.30|]][[2 Chronicles 18.31|]][[2 Chronicles 18.32|]][[2 Chronicles 18.33|]][[2 Chronicles 18.34|]]
 ### I can defend the truth, even when it’s unpopular.
@@ -47,7 +47,7 @@ President Russell M. Nelson said: “My experience is that once you stop puttin
 
 See also [[D&C 21.4|Doctrine and Covenants 21:4–6]][[D&C 21.5|]][[D&C 21.6|]]; “A Secure Anchor” (video), Gospel Library; “[Make inspired choices](https://churchofjesuschrist.org/study/manual/for-the-strength-of-youth/02-choices?lang=eng),” *For the Strength of Youth: A Guide for Making Choices* (2022), 4–5.
 
-> **Identify simple statements of truth.** Elder Neal A. Maxwell taught: “The scriptures offer us so many doctrinal diamonds. And when the light of the Spirit plays upon their several facets, they sparkle with celestial sense and illuminate the path we are to follow” (“[According to the Desire of [Our] Hearts](https://churchofjesuschrist.org/study/general-conference/1996/10/according-to-the-desire-of-our-hearts?lang=eng),” *Ensign*, Nov. 1996, 21). As you study the scriptures, consider taking time to identify, mark, and ponder short yet powerful messages. Some examples can be found in [[2 Chronicles 14.11|2 Chronicles 14:11]]; [[2 Chronicles 15.7|15:7]]; [[2 Chronicles 18.13|18:13]]; [[2 Chronicles 20.15|20:15]]; [[2 Chronicles 26.5|26:5]]. What other “doctrinal diamonds” can you find?
+> **Identify simple statements of truth.** Elder Neal A. Maxwell taught: “The scriptures offer us so many doctrinal diamonds. And when the light of the Spirit plays upon their several facets, they sparkle with celestial sense and illuminate the path we are to follow” (“[[1996 October - “According to the Desire of -[Our-] Hearts”.md|According to the Desire of [Our] Hearts]],” *Ensign*, Nov. 1996, 21). As you study the scriptures, consider taking time to identify, mark, and ponder short yet powerful messages. Some examples can be found in [[2 Chronicles 14.11|2 Chronicles 14:11]]; [[2 Chronicles 15.7|15:7]]; [[2 Chronicles 18.13|18:13]]; [[2 Chronicles 20.15|20:15]]; [[2 Chronicles 26.5|26:5]]. What other “doctrinal diamonds” can you find?
 
 
 [[2 Chronicles 26.3|2 Chronicles 26:3–21]][[2 Chronicles 26.4|]][[2 Chronicles 26.5|]][[2 Chronicles 26.6|]][[2 Chronicles 26.7|]][[2 Chronicles 26.8|]][[2 Chronicles 26.9|]][[2 Chronicles 26.10|]][[2 Chronicles 26.11|]][[2 Chronicles 26.12|]][[2 Chronicles 26.13|]][[2 Chronicles 26.14|]][[2 Chronicles 26.15|]][[2 Chronicles 26.16|]][[2 Chronicles 26.17|]][[2 Chronicles 26.18|]][[2 Chronicles 26.19|]][[2 Chronicles 26.20|]][[2 Chronicles 26.21|]]
@@ -66,7 +66,7 @@ In [[2 Chronicles 30.1|2 Chronicles 30]][[2 Chronicles 30.2|]][[2 Chronicles 3
 
 Because it had been so long, some visitors to Jerusalem were not familiar with the details of how to participate in Passover. As you read [[2 Chronicles 30.18|2 Chronicles 30:18–27]][[2 Chronicles 30.19|]][[2 Chronicles 30.20|]][[2 Chronicles 30.21|]][[2 Chronicles 30.22|]][[2 Chronicles 30.23|]][[2 Chronicles 30.24|]][[2 Chronicles 30.25|]][[2 Chronicles 30.26|]][[2 Chronicles 30.27|]], what do you learn from Hezekiah’s response and the results of his response?
 
-See also Russell M. Nelson, “[Peacemakers Needed](https://churchofjesuschrist.org/study/general-conference/2023/04/47nelson?lang=eng),” *Liahona*, May 2023, 98–101.
+See also Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98–101.
 
 > For more, see this month’s issues of the *[Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng)* and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
 

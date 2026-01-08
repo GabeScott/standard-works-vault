@@ -31,7 +31,7 @@ One way to organize your thoughts could be to draw a heart and write inside it t
 
 How do you show that you love God with all your heart? For ideas, see “[Love God, love your neighbor](https://churchofjesuschrist.org/study/manual/for-the-strength-of-youth/04-neighbor?lang=eng)” in *For the Strength of Youth: A Guide for Making Choices*, 10–12.
 
-See also M. Russell Ballard, “[Lovest Thou Me More Than These?](https://churchofjesuschrist.org/study/general-conference/2021/10/31ballard?lang=eng),” *Liahona*, Nov. 2021, 51–53.
+See also M. Russell Ballard, “[[2021 October - “Lovest Thou Me More Than These”.md|Lovest Thou Me More Than These?]],” *Liahona*, Nov. 2021, 51–53.
 
 > **Seek your own spiritual insights.** *Come, Follow Me* suggests passages and principles to focus on in the scriptures, but don’t let that limit your study. As you read Deuteronomy, you might discover a principle that is not highlighted here. Let the Spirit guide you to what you need to learn.
 
@@ -43,9 +43,9 @@ Most of the Israelites who would enter the promised land had not seen the plague
 
 What counsel do you find in [[Deuteronomy 6.4|Deuteronomy 6:4–12, 20–25]][[Deuteronomy 6.5|]][[Deuteronomy 6.6|]][[Deuteronomy 6.7|]][[Deuteronomy 6.8|]][[Deuteronomy 6.9|]][[Deuteronomy 6.10|]][[Deuteronomy 6.11|]][[Deuteronomy 6.12|]][[Deuteronomy 6.20|]][[Deuteronomy 6.21|]][[Deuteronomy 6.22|]][[Deuteronomy 6.23|]][[Deuteronomy 6.24|]][[Deuteronomy 6.25|]] that could help you remember the great things God has done for you? What are you inspired to do so that the word of the Lord will daily “be in thine heart”? ([[Deuteronomy 6.6|verse 6]]).
 
-You might also study Brother Jan E. Newman’s message “[Preserving the Voice of the Covenant People in the Rising Generation](https://churchofjesuschrist.org/study/general-conference/2023/10/23newman?lang=eng)” (*Liahona*, Nov. 2023, 36–38) and consider how you will pass your faith in Christ to future generations.
+You might also study Brother Jan E. Newman’s message “[[2023 October - Preserving the Voice of the Covenant People in the Rising Generation.md|Preserving the Voice of the Covenant People in the Rising Generation]]” (*Liahona*, Nov. 2023, 36–38) and consider how you will pass your faith in Christ to future generations.
 
-See also [[Deuteronomy 11.18|Deuteronomy 11:18–21]][[Deuteronomy 11.19|]][[Deuteronomy 11.20|]][[Deuteronomy 11.21|]]; Dale G. Renlund, “[Consider the Goodness and Greatness of God](https://churchofjesuschrist.org/study/general-conference/2020/04/26renlund?lang=eng),” *Ensign* or *Liahona*, May 2020, 41–44; Bible Dictionary, “[Frontlets or phylacteries](https://churchofjesuschrist.org/study/scriptures/bd/frontlets?lang=eng).”
+See also [[Deuteronomy 11.18|Deuteronomy 11:18–21]][[Deuteronomy 11.19|]][[Deuteronomy 11.20|]][[Deuteronomy 11.21|]]; Dale G. Renlund, “[[2020 April - Consider the Goodness and Greatness of God.md|Consider the Goodness and Greatness of God]],” *Ensign* or *Liahona*, May 2020, 41–44; Bible Dictionary, “[Frontlets or phylacteries](https://churchofjesuschrist.org/study/scriptures/bd/frontlets?lang=eng).”
 
 [[Deuteronomy 15.1|Deuteronomy 15:1–15]][[Deuteronomy 15.2|]][[Deuteronomy 15.3|]][[Deuteronomy 15.4|]][[Deuteronomy 15.5|]][[Deuteronomy 15.6|]][[Deuteronomy 15.7|]][[Deuteronomy 15.8|]][[Deuteronomy 15.9|]][[Deuteronomy 15.10|]][[Deuteronomy 15.11|]][[Deuteronomy 15.12|]][[Deuteronomy 15.13|]][[Deuteronomy 15.14|]][[Deuteronomy 15.15|]]
 ### Helping people in need involves generous hands and willing hearts.

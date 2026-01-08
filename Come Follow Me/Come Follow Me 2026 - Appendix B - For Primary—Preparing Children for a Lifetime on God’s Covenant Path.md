@@ -63,7 +63,7 @@ Becoming a member of The Church of Jesus Christ of Latter-day Saints brings many
 
 When we are baptized and confirmed, Heavenly Father promises that we “may always have his Spirit to be with \[us\]” ([[D&C 20.77|Doctrine and Covenants 20:77]]). This wonderful gift from God is called the gift of the Holy Ghost.
 
-To learn more about the gift of the Holy Ghost, see Gary E. Stevenson, “[Promptings of the Spirit](https://churchofjesuschrist.org/study/general-conference/2023/10/25stevenson?lang=eng),”* Liahona*, Nov. 2023, 42–45; Topics and Questions, “[Gift of the Holy Ghost](https://churchofjesuschrist.org/study/manual/gospel-topics/holy-ghost-gift-study-guide?lang=eng),” Gospel Library.
+To learn more about the gift of the Holy Ghost, see Gary E. Stevenson, “[[2023 October - Promptings of the Spirit.md|Promptings of the Spirit]],”* Liahona*, Nov. 2023, 42–45; Topics and Questions, “[Gift of the Holy Ghost](https://churchofjesuschrist.org/study/manual/gospel-topics/holy-ghost-gift-study-guide?lang=eng),” Gospel Library.
 
 #### Possible Activities
 
@@ -101,13 +101,13 @@ To learn more, see [[Matthew 26.26|Matthew 26:26–30]][[Matthew 26.27|]][[Matth
 
 - Write on the board *“I promise to …”* Read the sacrament prayers to the children (see [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]). When they hear a promise we make to God, pause and help them complete the sentence on the board with the promise they heard.
 
-- What does it mean to take upon ourselves the name of Jesus Christ? To help the children answer this question, share an example of something that we put our names on. Why do we put our names on these things? Why would Jesus Christ want to put His name upon us? Consider sharing this explanation from President Russell M. Nelson: “Taking the Savior’s name upon us includes declaring and witnessing to others—through our actions and our words—that Jesus is the Christ” (“[The Correct Name of the Church](https://churchofjesuschrist.org/study/general-conference/2018/10/the-correct-name-of-the-church?lang=eng),” *Ensign* or *Liahona*, Nov. 2018, 88).
+- What does it mean to take upon ourselves the name of Jesus Christ? To help the children answer this question, share an example of something that we put our names on. Why do we put our names on these things? Why would Jesus Christ want to put His name upon us? Consider sharing this explanation from President Russell M. Nelson: “Taking the Savior’s name upon us includes declaring and witnessing to others—through our actions and our words—that Jesus is the Christ” (“[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88).
 
 ## Priesthood Power, Authority, and Keys
 
 ### God blesses His children through priesthood power.
 
-All of God’s children—female and male, young and old—receive God’s power as they keep the covenants they have made with Him. We make these covenants when we receive priesthood ordinances such as baptism (see *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [3.5](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p67-p82#p67), [3.6](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p83-p85#p83), Gospel Library). To learn more, see Russell M. Nelson, “[Spiritual Treasures](https://churchofjesuschrist.org/study/general-conference/2019/10/36nelson?lang=eng),” *Ensign* or *Liahona*, Nov. 2019, 76–79; “[Priesthood Principles](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng),” [chapter 3](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng) in *General Handbook*.
+All of God’s children—female and male, young and old—receive God’s power as they keep the covenants they have made with Him. We make these covenants when we receive priesthood ordinances such as baptism (see *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [3.5](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p67-p82#p67), [3.6](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p83-p85#p83), Gospel Library). To learn more, see Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 76–79; “[Priesthood Principles](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng),” [chapter 3](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng) in *General Handbook*.
 
 #### Possible Activities
 
@@ -137,7 +137,7 @@ Whenever a person is set apart for a calling or assigned to help in God’s work
 
 Temples are a part of Heavenly Father’s plan for His children. In temples, we make sacred covenants with Him, are endowed with priesthood power, receive revelation, perform ordinances for our deceased ancestors, and are sealed to our families for eternity. All of this is possible because of Jesus Christ and His atoning sacrifice.
 
-How can you help the children you teach recognize the sacredness of the Lord’s house and prepare themselves to be worthy to participate in temple ordinances? Consider reviewing these resources: Russell M. Nelson, “[The Temple and Your Spiritual Foundation](https://churchofjesuschrist.org/study/general-conference/2021/10/47nelson?lang=eng),”* Liahona*, Nov. 2021, 93–96; “[Why Latter-day Saints Build Temples](https://churchofjesuschrist.orghttps://www.churchofjesuschrist.org/temples/why-latter-day-saints-build-temples),” temples.ChurchofJesusChrist.org.
+How can you help the children you teach recognize the sacredness of the Lord’s house and prepare themselves to be worthy to participate in temple ordinances? Consider reviewing these resources: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],”* Liahona*, Nov. 2021, 93–96; “[Why Latter-day Saints Build Temples](https://churchofjesuschrist.orghttps://www.churchofjesuschrist.org/temples/why-latter-day-saints-build-temples),” temples.ChurchofJesusChrist.org.
 
 #### Possible Activities
 
@@ -147,7 +147,7 @@ How can you help the children you teach recognize the sacredness of the Lord’s
 
 ### In the temple, we make covenants with God.
 
-President Russell M. Nelson taught, “Jesus Christ invites us to take the covenant path back home to our Heavenly Parents and be with those we love” (“[Come, Follow Me](https://churchofjesuschrist.org/study/general-conference/2019/04/46nelson?lang=eng),” *Ensign* or *Liahona*, May 2019, 91). Help the children understand that the covenant path includes baptism, confirmation, and the temple endowment and sealing.
+President Russell M. Nelson taught, “Jesus Christ invites us to take the covenant path back home to our Heavenly Parents and be with those we love” (“[[2019 April - “Come, Follow Me”.md|Come, Follow Me]],” *Ensign* or *Liahona*, May 2019, 91). Help the children understand that the covenant path includes baptism, confirmation, and the temple endowment and sealing.
 
 #### Possible Activities
 

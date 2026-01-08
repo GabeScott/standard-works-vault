@@ -17,7 +17,7 @@ Why would anyone voluntarily go without food when food is available? As you stud
 
 - How has fasting brought you the blessings described in [[Isaiah 58.8|Isaiah 58:8–12]][[Isaiah 58.9|]][[Isaiah 58.10|]][[Isaiah 58.11|]][[Isaiah 58.12|]]?
 
-In his message “[Is Not This the Fast That I Have Chosen?](https://churchofjesuschrist.org/study/general-conference/2015/04/is-not-this-the-fast-that-i-have-chosen?lang=eng)” (*Ensign* or *Liahona*, May 2015, 22–25), President Henry B. Eyring shared several examples of how people have been blessed by fasting and fast offerings. How have you witnessed similar blessings in your life?
+In his message “[[2015 April - “Is Not This the Fast That I Have Chosen”.md|Is Not This the Fast That I Have Chosen?]]” (*Ensign* or *Liahona*, May 2015, 22–25), President Henry B. Eyring shared several examples of how people have been blessed by fasting and fast offerings. How have you witnessed similar blessings in your life?
 
 See also “[Bless Our Fast, We Pray](https://churchofjesuschrist.org/study/manual/hymns/bless-our-fast-we-pray?lang=eng),” *Hymns*, no. 138; Topics and Questions, “[Fasting and Fast Offerings,](https://churchofjesuschrist.org/study/manual/gospel-topics/fasting-and-fast-offerings?lang=eng)” Gospel Library.
 
@@ -29,7 +29,7 @@ See also “[Bless Our Fast, We Pray](https://churchofjesuschrist.org/study/manu
 
 Is the Sabbath day “a delight” for you? As you study [[Isaiah 58.13|Isaiah 58:13–14]][[Isaiah 58.14|]], consider how you could find more delight in the Lord’s day. For example, what might it mean to turn “from doing thy pleasure on \[His\] holy day”? What is the difference between “\[delighting\] thyself in the Lord” and “doing thine own ways”?
 
-See also Russell M. Nelson, “[The Sabbath Is a Delight](https://churchofjesuschrist.org/study/general-conference/2015/04/the-sabbath-is-a-delight?lang=eng),” *Ensign* or *Liahona*, May 2015, 129–32.
+See also Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 129–32.
 
 [[Isaiah 59.9|Isaiah 59:9–21]][[Isaiah 59.10|]][[Isaiah 59.11|]][[Isaiah 59.12|]][[Isaiah 59.13|]][[Isaiah 59.14|]][[Isaiah 59.15|]][[Isaiah 59.16|]][[Isaiah 59.17|]][[Isaiah 59.18|]][[Isaiah 59.19|]][[Isaiah 59.20|]][[Isaiah 59.21|]]; [[Isaiah 61.1|61:1–3]][[Isaiah 61.2|]][[Isaiah 61.3|]]; [[Isaiah 63.7|63:7–9]][[Isaiah 63.8|]][[Isaiah 63.9|]]
 ### Jesus Christ is my Savior and Redeemer.
@@ -52,7 +52,7 @@ See also [[Mosiah 3.7|Mosiah 3:7]]; [[D&C 133.46|Doctrine and Covenants 133:46�
 
 [[Isaiah 60.1|Isaiah 60]][[Isaiah 60.2|]][[Isaiah 60.3|]][[Isaiah 60.4|]][[Isaiah 60.5|]][[Isaiah 60.6|]][[Isaiah 60.7|]][[Isaiah 60.8|]][[Isaiah 60.9|]][[Isaiah 60.10|]][[Isaiah 60.11|]][[Isaiah 60.12|]][[Isaiah 60.13|]][[Isaiah 60.14|]][[Isaiah 60.15|]][[Isaiah 60.16|]][[Isaiah 60.17|]][[Isaiah 60.18|]][[Isaiah 60.19|]][[Isaiah 60.20|]][[Isaiah 60.21|]][[Isaiah 60.22|]] and [[Isaiah 62.1|62]][[Isaiah 62.2|]][[Isaiah 62.3|]][[Isaiah 62.4|]][[Isaiah 62.5|]][[Isaiah 62.6|]][[Isaiah 62.7|]][[Isaiah 62.8|]][[Isaiah 62.9|]][[Isaiah 62.10|]][[Isaiah 62.11|]][[Isaiah 62.12|]] speak of light and dark, eyes and seeing to teach about how the gospel of Jesus Christ will bless the world in the last days. Look for these concepts in [[Isaiah 60.1|Isaiah 60:1–5, 19–20]][[Isaiah 60.2|]][[Isaiah 60.3|]][[Isaiah 60.4|]][[Isaiah 60.5|]][[Isaiah 60.19|]][[Isaiah 60.20|]]; [[Isaiah 62.1|62:1–2]][[Isaiah 62.2|]]. As you read these chapters, ponder how God is gathering His children out of darkness to His light. What is your role in this work?
 
-See also [[1 Nephi 22.3|1 Nephi 22:3–12]][[1 Nephi 22.4|]][[1 Nephi 22.5|]][[1 Nephi 22.6|]][[1 Nephi 22.7|]][[1 Nephi 22.8|]][[1 Nephi 22.9|]][[1 Nephi 22.10|]][[1 Nephi 22.11|]][[1 Nephi 22.12|]]; [[3 Nephi 18.24|3 Nephi 18:24]]; [[D&C 14.9|Doctrine and Covenants 14:9]]; Bonnie H. Cordon, “[That They May See](https://churchofjesuschrist.org/study/general-conference/2020/04/42cordon?lang=eng),” *Ensign* or *Liahona*, May 2020, 78–80.
+See also [[1 Nephi 22.3|1 Nephi 22:3–12]][[1 Nephi 22.4|]][[1 Nephi 22.5|]][[1 Nephi 22.6|]][[1 Nephi 22.7|]][[1 Nephi 22.8|]][[1 Nephi 22.9|]][[1 Nephi 22.10|]][[1 Nephi 22.11|]][[1 Nephi 22.12|]]; [[3 Nephi 18.24|3 Nephi 18:24]]; [[D&C 14.9|Doctrine and Covenants 14:9]]; Bonnie H. Cordon, “[[2020 April - That They May See.md|That They May See]],” *Ensign* or *Liahona*, May 2020, 78–80.
 
 [[Isaiah 64.1|Isaiah 64:1–5]][[Isaiah 64.2|]][[Isaiah 64.3|]][[Isaiah 64.4|]][[Isaiah 64.5|]]; [[Isaiah 65.17|65:17–25]][[Isaiah 65.18|]][[Isaiah 65.19|]][[Isaiah 65.20|]][[Isaiah 65.21|]][[Isaiah 65.22|]][[Isaiah 65.23|]][[Isaiah 65.24|]][[Isaiah 65.25|]]; [[Isaiah 66.1|66]][[Isaiah 66.2|]][[Isaiah 66.3|]][[Isaiah 66.4|]][[Isaiah 66.5|]][[Isaiah 66.6|]][[Isaiah 66.7|]][[Isaiah 66.8|]][[Isaiah 66.9|]][[Isaiah 66.10|]][[Isaiah 66.11|]][[Isaiah 66.12|]][[Isaiah 66.13|]][[Isaiah 66.14|]][[Isaiah 66.15|]][[Isaiah 66.16|]][[Isaiah 66.17|]][[Isaiah 66.18|]][[Isaiah 66.19|]][[Isaiah 66.20|]][[Isaiah 66.21|]][[Isaiah 66.22|]][[Isaiah 66.23|]][[Isaiah 66.24|]]
 ### Christ will reign on earth during the Millennium.

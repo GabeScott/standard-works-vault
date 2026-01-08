@@ -30,7 +30,7 @@ When the Lord invites us to read the scriptures, He often uses words that go bey
 | **[[Mosiah 1.7\|Mosiah 1:7]]** |  | Prosper in the land |
 | **[[Helaman 3.29\|Helaman 3:29–30]][[Helaman 3.30\|]]** |  |  |
 | **[[D&C 84.85\|Doctrine and Covenants 84:85]]** |  |  |
-| **Russell M. Nelson, “Hear Him,” *Ensign* or *Liahona*, May 2020, [last paragraph on page 89](https://churchofjesuschrist.org/study/general-conference/2020/04/45nelson?lang=eng&id=p24#p24)** |  |  |
+| **Russell M. Nelson, “Hear Him,” *Ensign* or *Liahona*, May 2020, [[2020 April - Hear Him.md\|last paragraph on page 89]]** |  |  |
 
 How has the Lord fulfilled these promises in your life? Now may be a good time to evaluate your scripture study habits. What’s going well? What do you feel inspired to do to have more meaningful experiences with the word of God?
 
@@ -64,7 +64,7 @@ The Lord worked wonders among His people as He led them into the promised land, 
 
 Joshua’s final teachings to the Israelites in [[Joshua 23.1|Joshua 23–24]][[Joshua 23.2|]][[Joshua 23.3|]][[Joshua 23.4|]][[Joshua 23.5|]][[Joshua 23.6|]][[Joshua 23.7|]][[Joshua 23.8|]][[Joshua 23.9|]][[Joshua 23.10|]][[Joshua 23.11|]][[Joshua 23.12|]][[Joshua 23.13|]][[Joshua 23.14|]][[Joshua 23.15|]][[Joshua 23.16|]] include important warnings, counsel, and promised blessings. Perhaps you could make a list of what you find. Considering everything the Israelites had been through, why do you think Joshua chose to tell them these things at the end of his life? What do you find that inspires you to “cleave unto the Lord”? ([[Joshua 23.8|Joshua 23:8]]).
 
-See also Dale G. Renlund, “[Choose You This Day](https://churchofjesuschrist.org/study/general-conference/2018/10/choose-you-this-day?lang=eng),” *Ensign* or *Liahona*, Nov. 2018, 104–6.
+See also Dale G. Renlund, “[[2018 October - Choose You This Day.md|Choose You This Day]],” *Ensign* or *Liahona*, Nov. 2018, 104–6.
 
 ### Scripture Helps
 

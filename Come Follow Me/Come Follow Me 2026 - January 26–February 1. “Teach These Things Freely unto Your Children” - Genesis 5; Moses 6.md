@@ -20,13 +20,13 @@ If you ever feel overwhelmed with what the Lord has called you to do, you aren�
 
 In [[Moses 6.37|verses 37–47]][[Moses 6.38|]][[Moses 6.39|]][[Moses 6.40|]][[Moses 6.41|]][[Moses 6.42|]][[Moses 6.43|]][[Moses 6.44|]][[Moses 6.45|]][[Moses 6.46|]][[Moses 6.47|]], you could look for ways the Lord supported Enoch and empowered him to do His work (see also [[Moses 7.13|Moses 7:13]]). You might compare Enoch’s experience with that of other prophets who felt inadequate, such as Moses (see [[Exodus 4.10|Exodus 4:10–16]][[Exodus 4.11|]][[Exodus 4.12|]][[Exodus 4.13|]][[Exodus 4.14|]][[Exodus 4.15|]][[Exodus 4.16|]]), Jeremiah (see [[Jeremiah 1.4|Jeremiah 1:4–10]][[Jeremiah 1.5|]][[Jeremiah 1.6|]][[Jeremiah 1.7|]][[Jeremiah 1.8|]][[Jeremiah 1.9|]][[Jeremiah 1.10|]]), Nephi (see [[2 Nephi 33.1|2 Nephi 33:1–4]][[2 Nephi 33.2|]][[2 Nephi 33.3|]][[2 Nephi 33.4|]]), and Moroni (see [[Ether 12.23|Ether 12:23–29]][[Ether 12.24|]][[Ether 12.25|]][[Ether 12.26|]][[Ether 12.27|]][[Ether 12.28|]][[Ether 12.29|]]). What do you feel God wants you to learn from these scriptures about the work He has given you to do?
 
-Many modern-day apostles and prophets have expressed feelings similar to Enoch’s when they described how it felt to receive their calls. For example, see the testimony of Elder Ulisses Soares in “[Prophets Speak by the Power of the Holy Spirit](https://churchofjesuschrist.org/study/general-conference/2018/04/prophets-speak-by-the-power-of-the-holy-spirit?lang=eng)” (*Liahona*, May 2018, 98–99).
+Many modern-day apostles and prophets have expressed feelings similar to Enoch’s when they described how it felt to receive their calls. For example, see the testimony of Elder Ulisses Soares in “[[2018 April - Prophets Speak by the Power of the Holy Spirit.md|Prophets Speak by the Power of the Holy Spirit]]” (*Liahona*, May 2018, 98–99).
 
 What can you learn from these prophets and apostles about your feelings of inadequacy? When have you felt the Savior help you when He asked you to do hard things? Consider writing down a few experiences in your future when you will need to rely on the Savior’s help. How can you approach these events with faith in Jesus Christ?
 
 This year’s youth theme, “Walk with Me,” is based on [[Moses 6.34|Moses 6:34]]. Click [here](https://churchofjesuschrist.orghttps://www.churchofjesuschrist.org/callings/youth/2026-youth-theme) for music and other resources related to this theme. What does it mean to walk with the Savior? What will you do to accept His invitation to walk with Him?
 
-See also David A. Bednar, “[Abide in Me, and I in You; Therefore Walk with Me,](https://churchofjesuschrist.org/study/general-conference/2023/04/57bednar?lang=eng)” *Liahona*, May 2023, 123–25; “[I’ll Go Where You Want Me to Go](https://churchofjesuschrist.org/study/manual/hymns/ill-go-where-you-want-me-to-go?lang=eng),” *Hymns*, no. 270.
+See also David A. Bednar, “[[2023 April - “Abide in Me, and I in You; Therefore Walk with Me”.md|Abide in Me, and I in You; Therefore Walk with Me,]]” *Liahona*, May 2023, 123–25; “[I’ll Go Where You Want Me to Go](https://churchofjesuschrist.org/study/manual/hymns/ill-go-where-you-want-me-to-go?lang=eng),” *Hymns*, no. 270.
 
 [[Moses 6.48|Moses 6:48–68]][[Moses 6.49|]][[Moses 6.50|]][[Moses 6.51|]][[Moses 6.52|]][[Moses 6.53|]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]][[Moses 6.57|]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]][[Moses 6.63|]][[Moses 6.64|]][[Moses 6.65|]][[Moses 6.66|]][[Moses 6.67|]][[Moses 6.68|]]
 ### The gospel of Jesus Christ was taught from the beginning.
@@ -43,7 +43,7 @@ After teaching Adam truths of the gospel of Jesus Christ, in [[Moses 6.51|Moses 
 
 Reading about the “book of remembrance” that Adam and Eve’s family kept may inspire you or your family to make your own book of remembrance. What do you feel the Lord would want you to include? Consider saving information from your book of remembrance on [FamilySearch.org](https://churchofjesuschrist.orghttps://www.familysearch.org).
 
-See also Dieter F. Uchtdorf, “[Jesus Christ Is the Strength of Parents](https://churchofjesuschrist.org/study/general-conference/2023/04/29uchtdorf?lang=eng),” *Liahona*, May 2023, 55–59; “Parenting: Touching the Hearts of Our Youth,” “But Why?” (videos), Gospel Library.
+See also Dieter F. Uchtdorf, “[[2023 April - Jesus Christ Is the Strength of Parents.md|Jesus Christ Is the Strength of Parents]],” *Liahona*, May 2023, 55–59; “Parenting: Touching the Hearts of Our Youth,” “But Why?” (videos), Gospel Library.
 
 > For more, see this month’s issues of the [Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng) and [For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng) magazines.
 

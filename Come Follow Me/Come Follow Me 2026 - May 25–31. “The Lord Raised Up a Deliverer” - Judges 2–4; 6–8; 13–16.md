@@ -28,7 +28,7 @@ Sometimes the faith of one person can inspire faith in many others. In [[Judges 
 
 - What do you think Deborah meant by her question in [[Judges 4.14|verse 14]]: “Is not the Lord gone out before thee?” How does the Lord “go out before” you? (see [[D&C 84.87|Doctrine and Covenants 84:87–88]][[D&C 84.88|]]).
 
-Ponder how your faith in Jesus Christ could bless others the way Deborah’s faith blessed Barak and the other Israelites. To help you think about this, you might study Elder Neil L. Andersen’s message “[We Talk of Christ](https://churchofjesuschrist.org/study/general-conference/2020/10/45andersen?lang=eng)” (*Ensign* or *Liahona*, Nov. 2020, 88–91). Search the message for (1) reasons to speak more openly about the Savior and (2) ways to do it.
+Ponder how your faith in Jesus Christ could bless others the way Deborah’s faith blessed Barak and the other Israelites. To help you think about this, you might study Elder Neil L. Andersen’s message “[[2020 October - We Talk of Christ.md|We Talk of Christ]]” (*Ensign* or *Liahona*, Nov. 2020, 88–91). Search the message for (1) reasons to speak more openly about the Savior and (2) ways to do it.
 
 Then you might make a list of things you know about Jesus Christ—from the scriptures, from words of living prophets, and from your personal experience. Who needs to know this? How will you share it?
 
@@ -51,9 +51,9 @@ Samson lost both his physical strength and his spiritual strength because he vio
 
 You might also ponder the covenants you have made with the Lord. How have these covenants brought His power into your life? What do you learn from Samson’s experiences that inspires you to stay true to your covenants with God?
 
-Sister Ann M. Dibb taught: “Samson was born with great potential. His mother was promised, ‘He shall begin to deliver Israel out of the hand of the Philistines’ \[[[Judges 13.5|Judges 13:5]]\]. But as Samson grew, he looked more to the world’s temptations than to God’s direction. He made choices because they ‘pleaseth \[him\] well’ \[[[Judges 14.3|Judges 14:3]]\] rather than because those choices were right. Repeatedly, the scriptures use the phrase ‘and he went down’ \[[[Judges 14.7|Judges 14:7]]\] as they tell of Samson’s journeys, actions, and choices. Instead of arising and shining forth to fulfill his great potential, Samson was overcome by the world, lost his God-given power, and died a tragic, early death” (“[Arise and Shine Forth](https://churchofjesuschrist.org/study/general-conference/2012/04/arise-and-shine-forth?lang=eng),” *Ensign* or *Liahona*, May 2012, 118).
+Sister Ann M. Dibb taught: “Samson was born with great potential. His mother was promised, ‘He shall begin to deliver Israel out of the hand of the Philistines’ \[[[Judges 13.5|Judges 13:5]]\]. But as Samson grew, he looked more to the world’s temptations than to God’s direction. He made choices because they ‘pleaseth \[him\] well’ \[[[Judges 14.3|Judges 14:3]]\] rather than because those choices were right. Repeatedly, the scriptures use the phrase ‘and he went down’ \[[[Judges 14.7|Judges 14:7]]\] as they tell of Samson’s journeys, actions, and choices. Instead of arising and shining forth to fulfill his great potential, Samson was overcome by the world, lost his God-given power, and died a tragic, early death” (“[[2012 April - Arise and Shine Forth.md|Arise and Shine Forth]],” *Ensign* or *Liahona*, May 2012, 118).
 
-See also Dallin H. Oaks, “[Covenants and Responsibilities](https://churchofjesuschrist.org/study/general-conference/2024/04/47oaks?lang=eng),” *Liahona*, May 2024, 93–96; Ulisses Soares, “[Covenant Confidence through Jesus Christ](https://churchofjesuschrist.org/study/general-conference/2024/04/16soares?lang=eng),” *Liahona*, May 2024, 17–21.
+See also Dallin H. Oaks, “[[2024 April - Covenants and Responsibilities.md|Covenants and Responsibilities]],” *Liahona*, May 2024, 93–96; Ulisses Soares, “[[2024 April - Covenant Confidence through Jesus Christ.md|Covenant Confidence through Jesus Christ]],” *Liahona*, May 2024, 17–21.
 
 ### Scripture Helps
 

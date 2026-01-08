@@ -11,7 +11,7 @@ But while Moses was at the top of the mountain learning how the Israelites could
 [[Exodus 19.3|Exodus 19:3–6]][[Exodus 19.4|]][[Exodus 19.5|]][[Exodus 19.6|]]
 ### The Lord’s covenant people are a treasure to Him.
 
-President Russell M. Nelson taught: “In the Old Testament, the Hebrew term from which *peculiar* was translated is *segullah*, which means ‘valued property,’ or ‘treasure.’ … For us to be identified by servants of the Lord as his *peculiar* people is a compliment of the highest order” (“[Children of the Covenant](https://churchofjesuschrist.org/study/general-conference/1995/04/children-of-the-covenant?lang=eng),” *Ensign*, May 1995, 34). How do President Nelson’s words affect the way you understand [[Exodus 19.3|Exodus 19:3–6]][[Exodus 19.4|]][[Exodus 19.5|]][[Exodus 19.6|]]? How has the Lord shown you that He treasures you?
+President Russell M. Nelson taught: “In the Old Testament, the Hebrew term from which *peculiar* was translated is *segullah*, which means ‘valued property,’ or ‘treasure.’ … For us to be identified by servants of the Lord as his *peculiar* people is a compliment of the highest order” (“[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign*, May 1995, 34). How do President Nelson’s words affect the way you understand [[Exodus 19.3|Exodus 19:3–6]][[Exodus 19.4|]][[Exodus 19.5|]][[Exodus 19.6|]]? How has the Lord shown you that He treasures you?
 
 [[Exodus 19.10|Exodus 19:10–11, 17]][[Exodus 19.11|]][[Exodus 19.17|]]
 ### Sacred experiences require preparation.
@@ -44,7 +44,7 @@ While the Israelites were gathered at the base of Mount Sinai, they heard the vo
 
 - How has the Lord fulfilled the promise in [[Exodus 20.6|Exodus 20:6]] in your life?
 
-See also “[The Great Commandment—Love the Lord](https://churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-ezra-taft-benson/chapter-1-the-great-commandment-love-the-lord?lang=eng),” in *Teachings of Presidents of the Church: Ezra Taft Benson* (2014), 37–45; Dallin H. Oaks, “[No Other Gods](https://churchofjesuschrist.org/study/general-conference/2013/10/no-other-gods?lang=eng),” *Ensign* or *Liahona*, Nov. 2013, 72–75; Topics and Questions, “[Commandments](https://churchofjesuschrist.org/study/manual/gospel-topics/commandments-study-guide?lang=eng),” Gospel Library.
+See also “[The Great Commandment—Love the Lord](https://churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-ezra-taft-benson/chapter-1-the-great-commandment-love-the-lord?lang=eng),” in *Teachings of Presidents of the Church: Ezra Taft Benson* (2014), 37–45; Dallin H. Oaks, “[[2013 October - No Other Gods.md|No Other Gods]],” *Ensign* or *Liahona*, Nov. 2013, 72–75; Topics and Questions, “[Commandments](https://churchofjesuschrist.org/study/manual/gospel-topics/commandments-study-guide?lang=eng),” Gospel Library.
 
 [[Exodus 24.1|Exodus 24:1–11]][[Exodus 24.2|]][[Exodus 24.3|]][[Exodus 24.4|]][[Exodus 24.5|]][[Exodus 24.6|]][[Exodus 24.7|]][[Exodus 24.8|]][[Exodus 24.9|]][[Exodus 24.10|]][[Exodus 24.11|]]
 ### Making covenants shows my willingness to obey God’s law.
@@ -61,7 +61,7 @@ While the Israelites’ sin was serious, this story also includes a message of G
 [[Exodus 31.13|Exodus 31:13–16]][[Exodus 31.14|]][[Exodus 31.15|]][[Exodus 31.16|]]
 ### The Sabbath is a sign.
 
-President Russell M. Nelson explained: “In my much younger years, I studied the work of others who had compiled lists of things to do and things *not* to do on the Sabbath. It wasn’t until later that I learned from the scriptures that my conduct and my attitude on the Sabbath constituted a *sign* between me and my Heavenly Father \[see [[Exodus 31.13|Exodus 31:13]]; [[Ezekiel 20.12|Ezekiel 20:12, 20]][[Ezekiel 20.20|]]\]. With that understanding, I no longer needed lists of dos and don’ts. When I had to make a decision whether or not an activity was appropriate for the Sabbath, I simply asked myself, ‘What *sign* do I want to give to God?’ That question made my choices about the Sabbath day crystal clear” (“[The Sabbath Is a Delight](https://churchofjesuschrist.org/study/general-conference/2015/04/the-sabbath-is-a-delight?lang=eng),” *Ensign* or *Liahona*, May 2015, 130). Ponder what sign you want to give God with your observance of the Sabbath.
+President Russell M. Nelson explained: “In my much younger years, I studied the work of others who had compiled lists of things to do and things *not* to do on the Sabbath. It wasn’t until later that I learned from the scriptures that my conduct and my attitude on the Sabbath constituted a *sign* between me and my Heavenly Father \[see [[Exodus 31.13|Exodus 31:13]]; [[Ezekiel 20.12|Ezekiel 20:12, 20]][[Ezekiel 20.20|]]\]. With that understanding, I no longer needed lists of dos and don’ts. When I had to make a decision whether or not an activity was appropriate for the Sabbath, I simply asked myself, ‘What *sign* do I want to give to God?’ That question made my choices about the Sabbath day crystal clear” (“[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 130). Ponder what sign you want to give God with your observance of the Sabbath.
 
 [[Exodus 34.1|Exodus 34:1–4]][[Exodus 34.2|]][[Exodus 34.3|]][[Exodus 34.4|]]
 ### What was the difference between the two sets of stone tables Moses made?

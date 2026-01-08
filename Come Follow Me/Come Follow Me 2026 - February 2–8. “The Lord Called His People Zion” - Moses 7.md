@@ -19,9 +19,9 @@ Here are some other resources that you could explore to find ideas and inspirati
 
 - [[Philippians 2.1|Philippians 2:1–4]][[Philippians 2.2|]][[Philippians 2.3|]][[Philippians 2.4|]]; [[4 Nephi 1.15|4 Nephi 1:15–18]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]]; [[D&C 97.21|Doctrine and Covenants 97:21]]; [[D&C 105.5|105:5]].
 
-- Ulisses Soares, “[Brothers and Sisters in Christ](https://churchofjesuschrist.org/study/general-conference/2023/10/34soares?lang=eng),” *Liahona*, Nov. 2023, 70–73.
+- Ulisses Soares, “[[2023 October - Brothers and Sisters in Christ.md|Brothers and Sisters in Christ]],” *Liahona*, Nov. 2023, 70–73.
 
-- D. Todd Christofferson, “[One in Christ](https://churchofjesuschrist.org/study/general-conference/2023/04/41christofferson?lang=eng),” *Liahona*, May 2023, 77–80.
+- D. Todd Christofferson, “[[2023 April - One in Christ.md|One in Christ]],” *Liahona*, May 2023, 77–80.
 
 - “We Come Together and Unite as One” (video), Gospel Library.> 6:21
 
@@ -40,14 +40,14 @@ Some people see God as a distant being who isn’t emotionally affected by what 
 
 As the vision continued, Enoch wept too. But God also shared with him reasons to rejoice. Look for them in [[Moses 7.41|Moses 7:41–69]][[Moses 7.42|]][[Moses 7.43|]][[Moses 7.44|]][[Moses 7.45|]][[Moses 7.46|]][[Moses 7.47|]][[Moses 7.48|]][[Moses 7.49|]][[Moses 7.50|]][[Moses 7.51|]][[Moses 7.52|]][[Moses 7.53|]][[Moses 7.54|]][[Moses 7.55|]][[Moses 7.56|]][[Moses 7.57|]][[Moses 7.58|]][[Moses 7.59|]][[Moses 7.60|]][[Moses 7.61|]][[Moses 7.62|]][[Moses 7.63|]][[Moses 7.64|]][[Moses 7.65|]][[Moses 7.66|]][[Moses 7.67|]][[Moses 7.68|]][[Moses 7.69|]]. What do you learn from Enoch’s vision that can help you “lift up your heart, and be glad,” despite the “bitterness” in your life ([[Moses 7.44|verse 44]])?
 
-See also Jeffrey R. Holland, “[The Grandeur of God](https://churchofjesuschrist.org/study/general-conference/2003/10/the-grandeur-of-god?lang=eng),” *Ensign* or *Liahona*, Nov. 2003, 70–73.
+See also Jeffrey R. Holland, “[[2003 October - The Grandeur of God.md|The Grandeur of God]],” *Ensign* or *Liahona*, Nov. 2003, 70–73.
 
 [[Moses 7.59|Moses 7:59–67]][[Moses 7.60|]][[Moses 7.61|]][[Moses 7.62|]][[Moses 7.63|]][[Moses 7.64|]][[Moses 7.65|]][[Moses 7.66|]][[Moses 7.67|]]
 ### Jesus Christ will come again in the last days.
 
 Enoch’s vision, especially what’s recorded in [[Moses 7.59|Moses 7:59–67]][[Moses 7.60|]][[Moses 7.61|]][[Moses 7.62|]][[Moses 7.63|]][[Moses 7.64|]][[Moses 7.65|]][[Moses 7.66|]][[Moses 7.67|]], is one of history’s first prophecies of the Savior’s Second Coming. What impresses you about the way these verses describe the last days? For example, consider how you feel the prophecies from [[Moses 7.62|verse 62]] are being fulfilled. What do these phrases teach you about God’s work in the latter days?
 
-See also Henry B. Eyring, “[Sisters in Zion](https://churchofjesuschrist.org/study/general-conference/2020/10/35eyring?lang=eng),” *Ensign* or *Liahona*, Nov. 2020, 67–69.
+See also Henry B. Eyring, “[[2020 October - Sisters in Zion.md|Sisters in Zion]],” *Ensign* or *Liahona*, Nov. 2020, 67–69.
 
 > For more, see this month’s issues of the [Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng) and [For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng) magazines.
 

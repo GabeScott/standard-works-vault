@@ -17,7 +17,7 @@ In [[Amos 3.3|Amos 3:3–6]][[Amos 3.4|]][[Amos 3.5|]][[Amos 3.6|]], the prophet
 
 What has the Lord revealed to you through His prophets?
 
-Elder Ulisses Soares said that “having prophets is a sign of God’s love” (“[Prophets Speak by the Power of the Holy Spirit](https://churchofjesuschrist.org/study/general-conference/2018/04/prophets-speak-by-the-power-of-the-holy-spirit?lang=eng),” *Ensign* or *Liahona*, May 2018, 99). Consider how you would complete this sentence: “I know God loves me, because He sends prophets who …” Here are some scriptures that can help: [[Deuteronomy 18.18|Deuteronomy 18:18]]; [[Ezekiel 3.16|Ezekiel 3:16–17]][[Ezekiel 3.17|]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]]; [[1 Nephi 22.2|1 Nephi 22:2]]; [[D&C 21.4|Doctrine and Covenants 21:4–6]][[D&C 21.5|]][[D&C 21.6|]]; [[D&C 84.36|84:36–38]][[D&C 84.37|]][[D&C 84.38|]]; [[D&C 107.91|107:91–92]][[D&C 107.92|]].
+Elder Ulisses Soares said that “having prophets is a sign of God’s love” (“[[2018 April - Prophets Speak by the Power of the Holy Spirit.md|Prophets Speak by the Power of the Holy Spirit]],” *Ensign* or *Liahona*, May 2018, 99). Consider how you would complete this sentence: “I know God loves me, because He sends prophets who …” Here are some scriptures that can help: [[Deuteronomy 18.18|Deuteronomy 18:18]]; [[Ezekiel 3.16|Ezekiel 3:16–17]][[Ezekiel 3.17|]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]]; [[1 Nephi 22.2|1 Nephi 22:2]]; [[D&C 21.4|Doctrine and Covenants 21:4–6]][[D&C 21.5|]][[D&C 21.6|]]; [[D&C 84.36|84:36–38]][[D&C 84.37|]][[D&C 84.38|]]; [[D&C 107.91|107:91–92]][[D&C 107.92|]].
 
 What would you say to someone who feels prophets are not needed today?
 
@@ -42,7 +42,7 @@ See also “The Great Apostasy” (video), Gospel Library.
 [[Obadiah 1.21|Obadiah 1:21]]
 ### Who are the “saviours … on mount Zion”?
 
-Referring to [[Obadiah 1.21|Obadiah 1:21]], President Gordon B. Hinckley explained that we become saviors on Mount Zion when we receive ordinances for the dead in the temple (see “[Closing Remarks](https://churchofjesuschrist.org/study/general-conference/2004/10/closing-remarks?lang=eng),” *Ensign* or *Liahona*, Nov. 2004, 105). How is doing that work similar—if only in a small way—to what the Savior did for us? How has doing this work helped you feel closer to the Savior?
+Referring to [[Obadiah 1.21|Obadiah 1:21]], President Gordon B. Hinckley explained that we become saviors on Mount Zion when we receive ordinances for the dead in the temple (see “[[2004 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2004, 105). How is doing that work similar—if only in a small way—to what the Savior did for us? How has doing this work helped you feel closer to the Savior?
 
 See also “[Holy Temples on Mount Zion](https://churchofjesuschrist.org/study/manual/hymns/holy-temples-on-mount-zion?lang=eng),” *Hymns*, no. 289.
 
@@ -64,7 +64,7 @@ Because this Sunday is the fifth Sunday of the month, Primary teachers are encou
 
 - To learn more about what prophets do, you and your children could review [recent messages from the current President of the Church](https://churchofjesuschrist.org/study/books-and-lessons/teachings-of-presidents?lang=eng). You could also sing a song like “[Follow the Prophet](https://churchofjesuschrist.org/study/manual/childrens-songbook/follow-the-prophet?lang=eng)” (*Children’s Songbook*, 110–11). Share with each other why you choose to follow God’s prophet.
 
-> **Help children memorize scriptures.** Elder Richard G. Scott shared: “To memorize a scripture is to forge a new friendship. It is like discovering a new individual who can help in time of need, give inspiration and comfort, and be a source of motivation for needed change” (“[The Power of Scripture](https://churchofjesuschrist.org/study/general-conference/2011/10/the-power-of-scripture?lang=eng),” *Ensign*, Nov. 2011, 6). To help your children memorize all or part of [[Amos 3.7|Amos 3:7]], you could write it down and repeat it together. Then you could erase or cover a few words at a time until your children can repeat the entire verse from memory.
+> **Help children memorize scriptures.** Elder Richard G. Scott shared: “To memorize a scripture is to forge a new friendship. It is like discovering a new individual who can help in time of need, give inspiration and comfort, and be a source of motivation for needed change” (“[[2011 October - The Power of Scripture.md|The Power of Scripture]],” *Ensign*, Nov. 2011, 6). To help your children memorize all or part of [[Amos 3.7|Amos 3:7]], you could write it down and repeat it together. Then you could erase or cover a few words at a time until your children can repeat the entire verse from memory.
 
 
 [[Amos 8.11|Amos 8:11–12]][[Amos 8.12|]]

@@ -36,7 +36,7 @@ One idea is to find messages in the scriptures about the peace and joy Jesus Chr
 
 Hymns about Christ and the Resurrection, such as “[He Is Risen!](https://churchofjesuschrist.org/study/manual/hymns/he-is-risen?lang=eng)” (*Hymns*, no. 199), can also help us feel peace and joy at Easter. Look for phrases in the hymn that, in your opinion, capture the joy of Easter.
 
-See also Jeffrey R. Holland, “[Not as the World Giveth](https://churchofjesuschrist.org/study/general-conference/2021/04/23holland?lang=eng),” *Liahona*, May 2021, 35–38; Mark S. Palmer, “[Our Sorrow Shall Be Turned into Joy](https://churchofjesuschrist.org/study/general-conference/2021/04/43palmer?lang=eng),” *Liahona*, May 2021, 88–90.
+See also Jeffrey R. Holland, “[[2021 April - Not as the World Giveth.md|Not as the World Giveth]],” *Liahona*, May 2021, 35–38; Mark S. Palmer, “[[2021 April - Our Sorrow Shall Be Turned into Joy.md|Our Sorrow Shall Be Turned into Joy]],” *Liahona*, May 2021, 88–90.
 
 ### Because of His Atonement, Jesus Christ has the power to help me overcome sin, death, trials, and weaknesses.
 
@@ -64,9 +64,9 @@ Here’s an activity that can help you see the many blessings that come through 
 
 - [[Moses 5.9|Moses 5:9–12]][[Moses 5.10|]][[Moses 5.11|]][[Moses 5.12|]]
 
-How would you explain to a friend who isn’t a Christian why Jesus Christ is important to you? Elder Ahmad S. Corbitt’s message “[Do You Know Why I as a Christian Believe in Christ?](https://churchofjesuschrist.org/study/general-conference/2023/04/56corbitt?lang=eng)” (*Liahona*, May 2023, 119–21) can help.
+How would you explain to a friend who isn’t a Christian why Jesus Christ is important to you? Elder Ahmad S. Corbitt’s message “[[2023 April - Do You Know Why I as a Christian Believe in Christ.md|Do You Know Why I as a Christian Believe in Christ?]]” (*Liahona*, May 2023, 119–21) can help.
 
-See also Reyna I. Aburto, “[The Grave Has No Victory](https://churchofjesuschrist.org/study/general-conference/2021/04/42aburto?lang=eng),” *Liahona*, May 2021, 85–87; Topics and Questions, “[Atonement of Jesus Christ](https://churchofjesuschrist.org/study/manual/gospel-topics/atonement-of-jesus-christ-study-guide?lang=eng),” “[Resurrection](https://churchofjesuschrist.org/study/manual/gospel-topics/resurrection-study-guide?lang=eng),” Gospel Library.
+See also Reyna I. Aburto, “[[2021 April - The Grave Has No Victory.md|The Grave Has No Victory]],” *Liahona*, May 2021, 85–87; Topics and Questions, “[Atonement of Jesus Christ](https://churchofjesuschrist.org/study/manual/gospel-topics/atonement-of-jesus-christ-study-guide?lang=eng),” “[Resurrection](https://churchofjesuschrist.org/study/manual/gospel-topics/resurrection-study-guide?lang=eng),” Gospel Library.
 
 ### Jesus Christ paid the ultimate price for my salvation.
 

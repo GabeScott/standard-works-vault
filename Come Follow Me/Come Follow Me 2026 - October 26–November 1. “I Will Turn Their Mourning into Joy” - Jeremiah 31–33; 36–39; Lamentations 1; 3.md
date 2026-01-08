@@ -30,7 +30,7 @@ As you read [[Jeremiah 31.31|Jeremiah 31:31–34]][[Jeremiah 31.32|]][[Jeremiah 
 
 What promises have you made to God as you have participated in sacred ordinances? How is He fulfilling His promises to you?
 
-See also David A. Bednar, “[Abide in Me, and I in You; Therefore Walk with Me](https://churchofjesuschrist.org/study/general-conference/2023/04/57bednar?lang=eng),” *Liahona*, May 2023, 123–26.
+See also David A. Bednar, “[[2023 April - “Abide in Me, and I in You; Therefore Walk with Me”.md|Abide in Me, and I in You; Therefore Walk with Me]],” *Liahona*, May 2023, 123–26.
 
 [[Jeremiah 36.1|Jeremiah 36]][[Jeremiah 36.2|]][[Jeremiah 36.3|]][[Jeremiah 36.4|]][[Jeremiah 36.5|]][[Jeremiah 36.6|]][[Jeremiah 36.7|]][[Jeremiah 36.8|]][[Jeremiah 36.9|]][[Jeremiah 36.10|]][[Jeremiah 36.11|]][[Jeremiah 36.12|]][[Jeremiah 36.13|]][[Jeremiah 36.14|]][[Jeremiah 36.15|]][[Jeremiah 36.16|]][[Jeremiah 36.17|]][[Jeremiah 36.18|]][[Jeremiah 36.19|]][[Jeremiah 36.20|]][[Jeremiah 36.21|]][[Jeremiah 36.22|]][[Jeremiah 36.23|]][[Jeremiah 36.24|]][[Jeremiah 36.25|]][[Jeremiah 36.26|]][[Jeremiah 36.27|]][[Jeremiah 36.28|]][[Jeremiah 36.29|]][[Jeremiah 36.30|]][[Jeremiah 36.31|]][[Jeremiah 36.32|]]
 ### The scriptures have power to turn me away from evil.
@@ -70,7 +70,7 @@ President M. Russell Ballard mentioned several situations that may cause some t
 
 “Some of us may find our lives laden with frustration, disappointment, and sorrow. Many feel helpless to deal with the chaos that seems to prevail in the world. Others anguish over family members who are being carried downstream in a swift, raging current of weakening values and declining moral standards. … Many have even resigned themselves to accept the wickedness and cruelty of the world as being irreparable. They have given up hope. …
 
-“… Some among us may have lost all hope because of sin and transgression. A person can become so deeply immersed in the ways of the world that he sees no way out and loses all hope. My plea to all who have fallen into this trap of the adversary is to never give up! Regardless of how desperate things may seem or how desperate they may yet become, please believe me, you can always have hope. Always” (“[The Joy of Hope Fulfilled](https://churchofjesuschrist.org/study/general-conference/1992/10/the-joy-of-hope-fulfilled?lang=eng),” *Ensign*, Nov. 1992, 31–32).
+“… Some among us may have lost all hope because of sin and transgression. A person can become so deeply immersed in the ways of the world that he sees no way out and loses all hope. My plea to all who have fallen into this trap of the adversary is to never give up! Regardless of how desperate things may seem or how desperate they may yet become, please believe me, you can always have hope. Always” (“[[1992 October - The Joy of Hope Fulfilled.md|The Joy of Hope Fulfilled]],” *Ensign*, Nov. 1992, 31–32).
 
 See also “[Come, Ye Disconsolate](https://churchofjesuschrist.org/study/manual/hymns/come-ye-disconsolate?lang=eng),” *Hymns*, no. 115.
 

@@ -19,7 +19,7 @@ Who are the “sheep” the Lord wants you to feed? What do you find in [[Ezekie
 
 You might also ponder the symbolism you find in this chapter. What might the “good pasture” and “good fold” represent in [[Ezekiel 34.14|verse 14]]? What’s the difference between a sheep who is “lost” and one who is “driven away”? ([[Ezekiel 34.16|verse 16]]). What other symbols do you find?
 
-See also [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]]; Gerrit W. Gong, “[Ministering](https://churchofjesuschrist.org/study/general-conference/2023/04/14gong?lang=eng),” *Liahona*, May 2023, 16–19.
+See also [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]]; Gerrit W. Gong, “[[2023 April - Ministering.md|Ministering]],” *Liahona*, May 2023, 16–19.
 
 [[Ezekiel 33.10|Ezekiel 33:10–19]][[Ezekiel 33.11|]][[Ezekiel 33.12|]][[Ezekiel 33.13|]][[Ezekiel 33.14|]][[Ezekiel 33.15|]][[Ezekiel 33.16|]][[Ezekiel 33.17|]][[Ezekiel 33.18|]][[Ezekiel 33.19|]]
 ### The Lord wants to forgive.
@@ -52,7 +52,7 @@ See also [[2 Nephi 3.11|2 Nephi 3:11–13]][[2 Nephi 3.12|]][[2 Nephi 3.13|]]; 
 
 As you read [[Ezekiel 47.1|Ezekiel 47:1–12]][[Ezekiel 47.2|]][[Ezekiel 47.3|]][[Ezekiel 47.4|]][[Ezekiel 47.5|]][[Ezekiel 47.6|]][[Ezekiel 47.7|]][[Ezekiel 47.8|]][[Ezekiel 47.9|]][[Ezekiel 47.10|]][[Ezekiel 47.11|]][[Ezekiel 47.12|]], it might help to know that the Dead Sea is so salty that fish and plants can’t live in it. What impresses you about the waters described in [[Ezekiel 47.1|verses 1–12]][[Ezekiel 47.2|]][[Ezekiel 47.3|]][[Ezekiel 47.4|]][[Ezekiel 47.5|]][[Ezekiel 47.6|]][[Ezekiel 47.7|]][[Ezekiel 47.8|]][[Ezekiel 47.9|]][[Ezekiel 47.10|]][[Ezekiel 47.11|]][[Ezekiel 47.12|]]? (see also [[Revelation 22.1|Revelation 22:1]]). What might these waters symbolize? What could the trees described in [[Ezekiel 47.12|verse 12]] represent?
 
-What does Elder Dale G. Renlund’s message “[Family History and Temple Work: Sealing and Healing](https://churchofjesuschrist.org/study/general-conference/2018/04/family-history-and-temple-work-sealing-and-healing?lang=eng)” add to your understanding? (see *Ensign* or *Liahona*, May 2018, 47–48). Ponder how you have found spiritual life and healing because of the temple.
+What does Elder Dale G. Renlund’s message “[[2018 April - Family History and Temple Work - Sealing and Healing.md|Family History and Temple Work: Sealing and Healing]]” add to your understanding? (see *Ensign* or *Liahona*, May 2018, 47–48). Ponder how you have found spiritual life and healing because of the temple.
 
 ## Ideas for Teaching Children
 

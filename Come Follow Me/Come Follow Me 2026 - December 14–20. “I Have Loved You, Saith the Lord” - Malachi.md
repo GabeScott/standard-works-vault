@@ -31,7 +31,7 @@ As you read about the offerings described in [[Malachi 1.1|Malachi 1]][[Malachi
 [[Malachi 3.8|Malachi 3:8–12]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]
 ### The Lord opens the windows of heaven as I show my faith by paying tithing.
 
-Imagine you have a friend who just found out that you pay tithing. “Why do you do that?” your friend asks. Think about this as you read [[Malachi 3.8|Malachi 3:8–12]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]. What do you find there that could help answer your friend’s question? What else would you want your friend to understand about tithing? For more help, you could search Elder Neil L. Andersen’s message “[Tithing: Opening the Windows of Heaven](https://churchofjesuschrist.org/study/general-conference/2023/10/22andersen?lang=eng)” (*Liahona*, Nov. 2023, 32–35), looking for answers to questions like these:
+Imagine you have a friend who just found out that you pay tithing. “Why do you do that?” your friend asks. Think about this as you read [[Malachi 3.8|Malachi 3:8–12]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]. What do you find there that could help answer your friend’s question? What else would you want your friend to understand about tithing? For more help, you could search Elder Neil L. Andersen’s message “[[2023 October - Tithing - Opening the Windows of Heaven.md|Tithing: Opening the Windows of Heaven]]” (*Liahona*, Nov. 2023, 32–35), looking for answers to questions like these:
 
 - Why does the Lord want us to pay tithing?
 
@@ -39,7 +39,7 @@ Imagine you have a friend who just found out that you pay tithing. “Why do you
 
 - How does paying tithing strengthen our faith in Heavenly Father and Jesus Christ?
 
-You could also share with your friend how the Lord has blessed you when you pay tithing. You can find ideas in the section titled “[Lesson Number 1—Significant but Subtle Blessings](https://churchofjesuschrist.org/study/general-conference/2013/10/the-windows-of-heaven?lang=eng&id=title2#title2)” in Elder David A. Bednar’s message “[The Windows of Heaven](https://churchofjesuschrist.org/study/general-conference/2013/10/the-windows-of-heaven?lang=eng)” (*Ensign* or *Liahona*, Nov. 2013, 17–18). What kind of people do we become by paying tithing?
+You could also share with your friend how the Lord has blessed you when you pay tithing. You can find ideas in the section titled “[[2013 October - The Windows of Heaven.md|Lesson Number 1—Significant but Subtle Blessings]]” in Elder David A. Bednar’s message “[[2013 October - The Windows of Heaven.md|The Windows of Heaven]]” (*Ensign* or *Liahona*, Nov. 2013, 17–18). What kind of people do we become by paying tithing?
 
 What do you think the phrase “open you the windows of heaven” ([[Malachi 3.10|verse 10]]) might mean? Maybe you could look out a window and think about the purposes of windows. Why is “windows of heaven” a good way to describe how the Lord blesses us when we pay tithing?
 
@@ -52,9 +52,9 @@ When Moroni quoted [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]] to Joseph Smi
 
 - What experiences have helped you turn your heart to your ancestors? Why is that so important to Heavenly Father’s plan?
 
-To learn more about the coming of Elijah and how this prophecy is being fulfilled today, see [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]] and D. Todd Christofferson, “[The Sealing Power](https://churchofjesuschrist.org/study/general-conference/2023/10/15christofferson?lang=eng)” (*Liahona*, Nov. 2023, 19–22). Why are you grateful that Elijah has come?
+To learn more about the coming of Elijah and how this prophecy is being fulfilled today, see [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]] and D. Todd Christofferson, “[[2023 October - The Sealing Power.md|The Sealing Power]]” (*Liahona*, Nov. 2023, 19–22). Why are you grateful that Elijah has come?
 
-See also Gerrit W. Gong, “[We Each Have a Story](https://churchofjesuschrist.org/study/general-conference/2022/04/26gong?lang=eng),” *Liahona*, May 2022, 43–46; “[Turn Your Hearts](https://churchofjesuschrist.org/study/manual/hymns/turn-your-hearts?lang=eng),” *Hymns*, no. 291; “The Sealing Power” (video), ChurchofJesusChrist.org.
+See also Gerrit W. Gong, “[[2022 April - We Each Have a Story.md|We Each Have a Story]],” *Liahona*, May 2022, 43–46; “[Turn Your Hearts](https://churchofjesuschrist.org/study/manual/hymns/turn-your-hearts?lang=eng),” *Hymns*, no. 291; “The Sealing Power” (video), ChurchofJesusChrist.org.
 
 > For more, see this month’s issues of the *[Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng)* and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
 
