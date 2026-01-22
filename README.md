@@ -1,4 +1,4 @@
-# LDS Scripture Vault — Verse-Level Notes for the Standard Works
+# Standard Works Vault — Verse-Level Notes for the Scriptures
 
 Welcome to the **Standard Works Vault**, an [Obsidian](https://obsidian.md) vault designed to support in-depth study of the scriptures used by The Church of Jesus Christ of Latter-day Saints. This repository contains a note for **every single verse** in the Standard Works:
 
