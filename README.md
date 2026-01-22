@@ -8,6 +8,7 @@ Welcome to the **Standard Works Vault**, an [Obsidian](https://obsidian.md) vaul
 - The Pearl of Great Price
 - General Conference Talks
 - Topical Guide notes
+- Come Follow Me resources for 2026
 
 Each verse has its own dedicated `.md` file, enabling powerful cross-referencing, personal commentary, and integration with Obsidian’s linking and search capabilities.
 
@@ -30,6 +31,8 @@ vault/
 ├── Book of Mormon/
 ├── Doctrine and Covenants/
 ├── Pearl of Great Price/
+├── Come Follow Me/
+├── Topical Guide/
 └── General Conference/
 
 ```
@@ -65,10 +68,13 @@ git clone https://github.com/GabeScott/standard-works-vault.git
 
 ## 📌 Recommended Obsidian Plugins
 
+⭐ **[Standard Works Plugin](https://github.com/GabeScott/standard-works-plugin)** - My very own plugin designed to work with this vault!
 * **Backlinks** – Easily trace cross-references between verses.
-* **Tag Wrangler** – Manage topics or themes.
-* **Templater** – Use consistent formatting across notes.
+* **Callout Manager** – Create callouts for easy note taking
+* **Colored Text** – Easily highlight text on verse notes
 * **Omnisearch** – Search all your commentary and the verses quickly and easily.
+* **Commander** - Add commands to all different parts of the window
+* **Neighboring Files** - Adds a command to go the next file, helpful for going to the next verse.
 
 ---
 
