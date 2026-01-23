@@ -64,6 +64,15 @@ git clone https://github.com/GabeScott/standard-works-vault.git
 3. **Customize It**
    Add your own highlights, commentary, study questions, or links to talks and resources.
 
+4. FOR WINDOWS USERS:
+   The IndexedDB.zip file contains the indexed files Obsidian makes at startup. To help speed this up (as it is quite a large vault), I've included these files pre-made. Simply extract the zip file to %APPDATA%/obsidian/IndexedDB. The folder structure should look like:
+   
+   %APPDATA%/obsidian/IndexedDB/
+      ├── app_obsidian.md_0.indexeddb.blob/
+      ├── app_obsidian.md_0.indexeddb.leveldb/
+
+    BE AWARE: If you already have a personal obsidian vault and you overwrite any existing index files, your personal vault will need to be indexed again at startup.
+
 ---
 
 ## 📌 Recommended Obsidian Plugins
