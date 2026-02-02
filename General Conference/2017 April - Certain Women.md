@@ -8,7 +8,7 @@ By Linda K. Burton - *Relief Society General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/certain-women?lang=eng)
 
-My beloved sisters, how we love you and thank you for your tenderhearted and enthusiastic response to the First Presidency’s invitation and the #IWasAStranger effort. Please keep praying, listening to the whisperings of the Spirit, and acting on the promptings you receive.
+My beloved sisters, how we love you and thank you for your tenderhearted and enthusiastic response to the First Presidency’s invitation and the \#IWasAStranger effort. Please keep praying, listening to the whisperings of the Spirit, and acting on the promptings you receive.
 
 Whether I travel locally or throughout the world, it is not unusual for someone to ask, “Do you remember me?” Because I am painfully imperfect, I must admit I often can’t remember names. However, I do remember the very real love Heavenly Father has allowed me to feel as I meet His precious daughters and sons.
 

@@ -24,7 +24,7 @@ The son must have felt a thrill of adventure and excitement. At long last, he wa
 
 Arriving in a faraway country, he quickly made new friends and began living the life he had always dreamed of. He must have been a favorite of many, for he spent money freely. His new friends—beneficiaries of his prodigality—did not judge him. They celebrated, applauded, and championed his choices.[^6]
 
-Had there been social media in that time, surely he would have filled pages with animated photos of laughing friends: #Livingmybestlife! #Neverhappier! #Shouldhavedonethislongago!
+Had there been social media in that time, surely he would have filled pages with animated photos of laughing friends: \#Livingmybestlife! \#Neverhappier! \#Shouldhavedonethislongago!
 
 ## The Famine
 

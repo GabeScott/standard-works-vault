@@ -137,7 +137,7 @@ Jesus is the Christ, His gospel has been restored, and as we remain faithful, I 
 
 [^14]: [[3 Nephi 9.20|3 Nephi 9:20]].
 
-[^15]: Russell M. Nelson, “[‘How Do You #HearHim?’ A Special Invitation](https://www.churchofjesuschrist.org/blog/how-do-you-hear-him-a-special-invitation),” Feb. 26, 2020, blog.ChurchofJesusChrist.org.
+[^15]: Russell M. Nelson, “[‘How Do You \#HearHim?’ A Special Invitation](https://www.churchofjesuschrist.org/blog/how-do-you-hear-him-a-special-invitation),” Feb. 26, 2020, blog.ChurchofJesusChrist.org.
 
 [^16]: [[3 Nephi 26.14|3 Nephi 26:14]].
 

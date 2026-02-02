@@ -119,7 +119,7 @@ Of this I testify as an Apostle called to the Lord’s divine service—to decla
 
 [^14]: Russell M. Nelson, “[President Nelson Shares Social Post about Racism and Calls for Respect for Human Dignity](https://newsroom.churchofjesuschrist.org/article/president-nelson-shares-social-post-encouraging-understanding-and-civility),” June 1, 2020, newsroom.ChurchofJesusChrist.org.
 
-[^15]: Russell M. Nelson, in Sarah Jane Weaver, “President Nelson Invites Us to #GiveThanks,” *Church News*, Nov. 20, 2020, thechurchnews.com.
+[^15]: Russell M. Nelson, in Sarah Jane Weaver, “President Nelson Invites Us to \#GiveThanks,” *Church News*, Nov. 20, 2020, thechurchnews.com.
 
 [^16]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 98.
 

@@ -38,7 +38,7 @@ Life’s journey is challenging. It’s easy to be distracted, wander off the pa
 
 ## 5. Don’t Be Distracted and Deceived
 
-To heed is to give careful attention. Heeding those who do not believe in Christ will not help you find Him. Searching #spaciousbuilding for knowledge will not lead you to truth. It’s not posted there. Only the Savior has “the words of eternal life.”[^8] Everything else is just words. The large and spacious building symbolizes the “vain imaginations and the pride”[^9] of the world—in other words, distraction and deception. It’s filled with well-dressed people who seem to have everything. But they mock the Savior and those who follow Him. They are “ever learning, and never able to come to the knowledge of the truth.”[^10] They may be politically correct, but they are spiritually lost.
+To heed is to give careful attention. Heeding those who do not believe in Christ will not help you find Him. Searching \#spaciousbuilding for knowledge will not lead you to truth. It’s not posted there. Only the Savior has “the words of eternal life.”[^8] Everything else is just words. The large and spacious building symbolizes the “vain imaginations and the pride”[^9] of the world—in other words, distraction and deception. It’s filled with well-dressed people who seem to have everything. But they mock the Savior and those who follow Him. They are “ever learning, and never able to come to the knowledge of the truth.”[^10] They may be politically correct, but they are spiritually lost.
 
 ## 6. Stay by the Tree
 

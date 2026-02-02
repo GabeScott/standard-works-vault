@@ -117,7 +117,7 @@ We have all had the privilege of sustaining President Russell M. Nelson as our 
 
 [^18]: A recurring theme in the Book of Mormon is that if the people keep the commandments, they will prosper in the land, but if they do not keep the commandments, they will be cut off from the presence of the Lord. See, among others, [[2 Nephi 1.9|2 Nephi 1:9]]; [[2 Nephi 4.4|4:4]]; [[Alma 9.13|Alma 9:13]].
 
-[^19]: This has occurred in the #MeToo movement.
+[^19]: This has occurred in the \#MeToo movement.
 
 [^20]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
