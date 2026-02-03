@@ -1,6 +1,6 @@
 # 2 Nephi 20:30
 
-> Lift up the voice, O daughter of <u>Gallim</u>[^a]; cause it to be heard unto Laish, O poor <u>Anathoth</u>[^b] .
+> Lift up the voice, O daughter of <u>Gallim</u>[^a]; cause it to be heard unto Laish, O poor <u>Anathoth</u>[^b].
 
 [2 Nephi 20:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p30#p30)
 

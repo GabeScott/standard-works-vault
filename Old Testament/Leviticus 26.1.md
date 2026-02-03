@@ -1,6 +1,6 @@
 # Leviticus 26:1
 
-> Ye shall make you no <u>idols</u>[^a] nor <u>graven image</u>[^b], neither rear you up a <u>standing image</u>[^c], neither shall ye set up any image of stone in your land, to bow down unto it: for I am the Lord your God.
+> Ye shall make you no <u>idols</u>[^a] nor <u>graven image</u>[^b], neither rear you up a <u>standing image</u>[^c], neither shall ye set up *any* image of stone in your land, to bow down unto it: for I *am* the LORD your God.
 
 [Leviticus 26:1](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.1?lang=eng#p1)
 

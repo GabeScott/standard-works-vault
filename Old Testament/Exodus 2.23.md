@@ -1,6 +1,6 @@
 # Exodus 2:23
 
-> ¶ And it came to pass in process of time, that the king of Egypt <u>died</u>[^a] : and the children of Israel sighed by reason of the bondage, and they <u>cried</u>[^b], and their <u>cry</u>[^c] came up unto God by reason of the bondage.
+> ¶ And it came to pass in process of time, that the king of Egypt <u>died</u>[^a]: and the children of Israel sighed by reason of the bondage, and they <u>cried</u>[^b], and their <u>cry</u>[^c] came up unto God by reason of the bondage.
 
 [Exodus 2:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.23?lang=eng#p23)
 

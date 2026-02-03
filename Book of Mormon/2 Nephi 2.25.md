@@ -1,6 +1,6 @@
 # 2 Nephi 2:25
 
-> <u>Adam</u>[^a] <u>fell</u>[^b] that men might be; and men <u>are</u>[^c], that they might have <u>joy</u>[^d] .
+> <u>Adam</u>[^a] <u>fell</u>[^b] that men might be; and men <u>are</u>[^c], that they might have <u>joy</u>[^d].
 
 [2 Nephi 2:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p25#p25)
 

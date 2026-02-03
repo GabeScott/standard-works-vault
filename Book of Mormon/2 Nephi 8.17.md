@@ -1,6 +1,6 @@
 # 2 Nephi 8:17
 
-> Awake, awake, stand up, O Jerusalem, which hast drunk at the hand of the Lord the <u>cup</u>[^a] of his <u>fury</u>[^b] —thou hast drunken the dregs of the cup of trembling wrung out—
+> Awake, awake, stand up, O Jerusalem, which hast drunk at the hand of the Lord the <u>cup</u>[^a] of his <u>fury</u>[^b]—thou hast drunken the dregs of the cup of trembling wrung out—
 
 [2 Nephi 8:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p17#p17)
 

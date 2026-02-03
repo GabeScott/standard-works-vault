@@ -1,6 +1,6 @@
 # 1 Chronicles 2:55
 
-> And the families of the <u>scribes</u>[^a] which dwelt at Jabez; the Tirathites, the Shimeathites, and Suchathites. These are the <u>Kenites</u>[^b] that came of Hemath, the father of the house of <u>Rechab</u>[^c] .
+> And the families of the <u>scribes</u>[^a] which dwelt at Jabez; the Tirathites, the Shimeathites, *and* Suchathites. These *are* the <u>Kenites</u>[^b] that came of Hemath, the father of the house of <u>Rechab</u>[^c].
 
 [1 Chronicles 2:55](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/2.55?lang=eng#p55)
 

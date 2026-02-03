@@ -1,6 +1,6 @@
 # Mosiah 27:16
 
-> Now I say unto thee: Go, and remember the captivity of thy fathers in the land of <u>Helam</u>[^a], and in the land of Nephi; and remember how great things he has done for them; for they were in <u>bondage</u>[^b], and he has <u>delivered</u>[^c] them. And now I say unto thee, Alma, go thy way, and seek to destroy the church no more, that their prayers may be answered, and this even if thou wilt of <u>thyself</u>[^d] be <u>cast off</u>[^e] .
+> Now I say unto thee: Go, and remember the captivity of thy fathers in the land of <u>Helam</u>[^a], and in the land of Nephi; and remember how great things he has done for them; for they were in <u>bondage</u>[^b], and he has <u>delivered</u>[^c] them. And now I say unto thee, Alma, go thy way, and seek to destroy the church no more, that their prayers may be answered, and this even if thou wilt of <u>thyself</u>[^d] be <u>cast off</u>[^e].
 
 [Mosiah 27:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p16#p16)
 

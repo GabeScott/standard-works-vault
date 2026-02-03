@@ -1,6 +1,6 @@
 # Hebrews 7:19
 
-> <u>For</u>[^a] the law made nothing <u>perfect</u>[^b], but the bringing in of a <u>better</u>[^c] hope did; by the which we draw nigh unto God.
+> <u>For</u>[^a] the law made nothing <u>perfect</u>[^b], but the bringing in of a <u>better</u>[^c] hope *did;* by the which we draw nigh unto God.
 
 [Hebrews 7:19](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.19?lang=eng#p19)
 

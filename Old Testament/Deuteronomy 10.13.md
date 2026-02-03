@@ -1,6 +1,6 @@
 # Deuteronomy 10:13
 
-> To keep the <u>commandments</u>[^a] of the Lord , and his statutes, which I command thee this day for thy <u>good</u>[^b] ?
+> To keep the <u>commandments</u>[^a] of the LORD, and his statutes, which I command thee this day for thy <u>good</u>[^b]?
 
 [Deuteronomy 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.13?lang=eng#p13)
 

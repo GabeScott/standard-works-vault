@@ -1,6 +1,6 @@
 # Numbers 13:28
 
-> Nevertheless the people be strong that dwell in the land, and the cities are <u>walled</u>[^a], and very great: and moreover we saw the children of Anak there.
+> Nevertheless the people *be* strong that dwell in the land, and the cities *are* <u>walled</u>[^a], *and* very great: and moreover we saw the children of Anak there.
 
 [Numbers 13:28](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.28?lang=eng#p28)
 

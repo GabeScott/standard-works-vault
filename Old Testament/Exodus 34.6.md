@@ -1,6 +1,6 @@
 # Exodus 34:6
 
-> And the Lord passed by before him, and proclaimed, The Lord , The Lord God, <u>merciful</u>[^a] and <u>gracious</u>[^b], <u>longsuffering</u>[^c], and abundant in <u>goodness</u>[^d] and truth,
+> And the LORD passed by before him, and proclaimed, The LORD, The LORD God, <u>merciful</u>[^a] and <u>gracious</u>[^b], <u>longsuffering</u>[^c], and abundant in <u>goodness</u>[^d] and truth,
 
 [Exodus 34:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.6?lang=eng#p6)
 

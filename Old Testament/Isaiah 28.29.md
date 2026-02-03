@@ -1,6 +1,6 @@
 # Isaiah 28:29
 
-> This also <u>cometh</u>[^a] forth from the Lord of hosts, which is wonderful in counsel, and excellent in working.
+> This also <u>cometh</u>[^a] forth from the LORD of hosts, *which* is wonderful in counsel, *and* excellent in working.
 
 [Isaiah 28:29](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.29?lang=eng#p29)
 

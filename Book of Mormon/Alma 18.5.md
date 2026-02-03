@@ -1,6 +1,6 @@
 # Alma 18:5
 
-> Now this was the <u>tradition</u>[^a] of Lamoni, which he had received from his father, that there was a <u>Great Spirit</u>[^b] . Notwithstanding they believed in a Great Spirit, they supposed that <u>whatsoever</u>[^c] they did was right; nevertheless, Lamoni began to fear exceedingly, with fear lest he had done wrong in slaying his servants;
+> Now this was the <u>tradition</u>[^a] of Lamoni, which he had received from his father, that there was a <u>Great Spirit</u>[^b]. Notwithstanding they believed in a Great Spirit, they supposed that <u>whatsoever</u>[^c] they did was right; nevertheless, Lamoni began to fear exceedingly, with fear lest he had done wrong in slaying his servants;
 
 [Alma 18:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p5#p5)
 

@@ -1,6 +1,6 @@
 # 2 Samuel 7:24
 
-> For thou hast <u>confirmed</u>[^a] to thyself thy people <u>Israel</u>[^b] to be a people unto thee for ever: and thou, Lord , art become their God.
+> For thou hast <u>confirmed</u>[^a] to thyself thy people <u>Israel</u>[^b] *to be* a people unto thee for ever: and thou, LORD, art become their God.
 
 [2 Samuel 7:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.24?lang=eng#p24)
 

@@ -1,6 +1,6 @@
 # Exodus 14:16
 
-> But lift thou up thy <u>rod</u>[^a], and stretch out thine hand over the sea, and <u>divide</u>[^b] it: and the children of Israel shall go on <u>dry</u>[^c] ground through the midst of the sea.
+> But lift thou up thy <u>rod</u>[^a], and stretch out thine hand over the sea, and <u>divide</u>[^b] it: and the children of Israel shall go on <u>dry</u>[^c] *ground* through the midst of the sea.
 
 [Exodus 14:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Acts 2:34
 
-> For <u>David</u>[^a] is not <u>ascended</u>[^b] into the heavens: but he saith himself, The Lord said unto my <u>Lord</u>[^c], Sit thou on my right hand,
+> For <u>David</u>[^a] is not <u>ascended</u>[^b] into the heavens: but he saith himself, The LORD said unto my <u>Lord</u>[^c], Sit thou on my right hand,
 
 [Acts 2:34](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.34?lang=eng#p34)
 

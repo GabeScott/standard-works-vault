@@ -1,6 +1,6 @@
 # Exodus 10:7
 
-> And Pharaoh’s servants said unto him, How long shall this man be a <u>snare</u>[^a] unto us? let the men go, that they may serve the Lord their God: knowest thou not yet that Egypt is <u>destroyed</u>[^b] ?
+> And Pharaoh’s servants said unto him, How long shall this man be a <u>snare</u>[^a] unto us? let the men go, that they may serve the LORD their God: knowest thou not yet that Egypt is <u>destroyed</u>[^b]?
 
 [Exodus 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.7?lang=eng#p7)
 

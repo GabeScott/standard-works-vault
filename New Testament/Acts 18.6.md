@@ -1,6 +1,6 @@
 # Acts 18:6
 
-> And when they opposed themselves, and blasphemed, he <u>shook</u>[^a] his raiment, and said unto them, Your <u>blood</u>[^b] be upon your own heads; I am clean: from henceforth I will go unto the Gentiles.
+> And when they opposed themselves, and blasphemed, he <u>shook</u>[^a] *his* raiment, and said unto them, Your <u>blood</u>[^b] *be* upon your own heads; I *am* clean: from henceforth I will go unto the Gentiles.
 
 [Acts 18:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.6?lang=eng#p6)
 

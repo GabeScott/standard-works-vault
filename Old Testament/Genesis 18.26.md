@@ -1,6 +1,6 @@
 # Genesis 18:26
 
-> And the Lord said, If I find in Sodom fifty <u>righteous</u>[^a] within the city, then I will spare all the place for their sakes.
+> And the LORD said, If I find in Sodom fifty <u>righteous</u>[^a] within the city, then I will spare all the place for their sakes.
 
 [Genesis 18:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.26?lang=eng#p26)
 

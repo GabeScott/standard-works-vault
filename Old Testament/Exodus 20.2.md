@@ -1,6 +1,6 @@
 # Exodus 20:2
 
-> <u>I am</u>[^a] the Lord thy <u>God</u>[^c], which have brought thee out of the land of <u>Egypt</u>[^d], out of the house of <u>bondage</u>[^e] .
+> <u>I am</u>[^a] the <u>Lord</u>[^b] thy <u>God</u>[^c], which have brought thee out of the land of <u>Egypt</u>[^d], out of the house of <u>bondage</u>[^e].
 
 [Exodus 20:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Psalms 119:89
 
-> For ever, O Lord , thy <u>word</u>[^a] is settled in heaven.
+> For ever, O LORD, thy <u>word</u>[^a] is settled in heaven.
 
 [Psalms 119:89](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.89?lang=eng#p89)
 

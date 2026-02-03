@@ -1,6 +1,6 @@
 # Psalms 147:2
 
-> The Lord doth build up Jerusalem: he <u>gathereth</u>[^a] together the <u>outcasts</u>[^b] of Israel.
+> The LORD doth build up Jerusalem: he <u>gathereth</u>[^a] together the <u>outcasts</u>[^b] of Israel.
 
 [Psalms 147:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/147.2?lang=eng#p2)
 

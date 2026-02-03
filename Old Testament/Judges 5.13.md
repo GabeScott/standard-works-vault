@@ -1,6 +1,6 @@
 # Judges 5:13
 
-> <u>Then</u>[^a] he made him that remaineth have dominion over the nobles among the people: the Lord made me have dominion over the mighty.
+> <u>Then</u>[^a] he made him that remaineth have dominion over the nobles among the people: the LORD made me have dominion over the mighty.
 
 [Judges 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.13?lang=eng#p13)
 

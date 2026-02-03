@@ -1,6 +1,6 @@
 # Isaiah 45:19
 
-> I have not spoken in <u>secret</u>[^a], in a dark place of the earth: I said not unto the seed of Jacob, Seek ye me in vain: I the Lord speak <u>righteousness</u>[^b], I declare things that are <u>right</u>[^c] .
+> I have not spoken in <u>secret</u>[^a], in a dark place of the earth: I said not unto the seed of Jacob, Seek ye me in vain: I the LORD speak <u>righteousness</u>[^b], I declare things that are <u>right</u>[^c].
 
 [Isaiah 45:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.19?lang=eng#p19)
 

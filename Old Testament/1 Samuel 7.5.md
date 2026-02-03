@@ -1,6 +1,6 @@
 # 1 Samuel 7:5
 
-> And Samuel said, Gather all Israel to <u>Mizpeh</u>[^a], and I will <u>pray</u>[^b] for you unto the Lord .
+> And Samuel said, Gather all Israel to <u>Mizpeh</u>[^a], and I will <u>pray</u>[^b] for you unto the LORD.
 
 [1 Samuel 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/7.5?lang=eng#p5)
 

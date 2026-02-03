@@ -1,6 +1,6 @@
 # Judges 2:14
 
-> ¶ And the <u>anger</u>[^a] of the Lord was hot against Israel, and he delivered them into the hands of <u>spoilers</u>[^b] that spoiled them, and he sold them into the hands of their enemies round about, so that they could not any longer stand before their enemies.
+> ¶ And the <u>anger</u>[^a] of the LORD was hot against Israel, and he delivered them into the hands of <u>spoilers</u>[^b] that spoiled them, and he sold them into the hands of their enemies round about, so that they could not any longer stand before their enemies.
 
 [Judges 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.14?lang=eng#p14)
 

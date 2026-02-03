@@ -1,6 +1,6 @@
 # Luke 7:23
 
-> And blessed is he, whosoever shall not be <u>offended</u>[^a] in me.
+> And blessed is *he,* whosoever shall not be <u>offended</u>[^a] in me.
 
 [Luke 7:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.23?lang=eng#p23)
 

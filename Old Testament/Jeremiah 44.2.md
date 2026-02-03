@@ -1,6 +1,6 @@
 # Jeremiah 44:2
 
-> Thus saith the Lord of hosts, the God of Israel; Ye have seen all the <u>evil</u>[^a] that I have brought upon Jerusalem, and upon all the cities of Judah; and, behold, this day they are a <u>desolation</u>[^b], and no man dwelleth therein,
+> Thus saith the LORD of hosts, the God of Israel; Ye have seen all the <u>evil</u>[^a] that I have brought upon Jerusalem, and upon all the cities of Judah; and, behold, this day they *are* a <u>desolation</u>[^b], and no man dwelleth therein,
 
 [Jeremiah 44:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.2?lang=eng#p2)
 

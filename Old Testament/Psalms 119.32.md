@@ -1,6 +1,6 @@
 # Psalms 119:32
 
-> I will run the way of thy commandments, when thou shalt <u>enlarge</u>[^a] my <u>heart</u>[^b] .
+> I will run the way of thy commandments, when thou shalt <u>enlarge</u>[^a] my <u>heart</u>[^b].
 
 [Psalms 119:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.32?lang=eng#p32)
 

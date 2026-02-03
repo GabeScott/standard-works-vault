@@ -1,6 +1,6 @@
 # 2 Kings 23:9
 
-> Nevertheless the priests of the high places <u>came</u>[^a] not up to the altar of the Lord in Jerusalem, but they did eat of the <u>unleavened</u>[^b] bread among their brethren.
+> Nevertheless the priests of the high places <u>came</u>[^a] not up to the altar of the LORD in Jerusalem, but they did eat of the <u>unleavened</u>[^b] bread among their brethren.
 
 [2 Kings 23:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.9?lang=eng#p9)
 

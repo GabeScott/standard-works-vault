@@ -1,6 +1,6 @@
 # 1 Corinthians 14:33
 
-> For God is not the author of <u>confusion</u>[^b], but of <u>peace</u>[^c], as in all <u>churches</u>[^d] of the <u>saints</u>[^e] .
+> For God is not *the author* of <u>confusion</u>[^b], but of <u>peace</u>[^c], as in all <u>churches</u>[^d] of the <u>saints</u>[^e].
 
 [1 Corinthians 14:33](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.33?lang=eng#p33)
 

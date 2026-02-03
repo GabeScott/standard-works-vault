@@ -1,6 +1,6 @@
 # 2 Chronicles 27:3
 
-> He built the high <u>gate</u>[^a] of the house of the Lord , and on the wall of Ophel he built much.
+> He built the high <u>gate</u>[^a] of the house of the LORD, and on the wall of Ophel he built much.
 
 [2 Chronicles 27:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/27.3?lang=eng#p3)
 

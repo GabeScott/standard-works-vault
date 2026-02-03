@@ -1,6 +1,6 @@
 # 1 Samuel 7:3
 
-> ¶ And Samuel spake unto all the house of Israel, saying, If ye do <u>return</u>[^a] unto the Lord with all your hearts, then <u>put away</u>[^b] the strange <u>gods</u>[^c] and <u>Ashtaroth</u>[^d] from among you, and prepare your <u>hearts</u>[^e] unto the Lord , and <u>serve</u>[^f] him only: and he will deliver you out of the hand of the Philistines.
+> ¶ And Samuel spake unto all the house of Israel, saying, If ye do <u>return</u>[^a] unto the LORD with all your hearts, *then* <u>put away</u>[^b] the strange <u>gods</u>[^c] and <u>Ashtaroth</u>[^d] from among you, and prepare your <u>hearts</u>[^e] unto the LORD, and <u>serve</u>[^f] him only: and he will deliver you out of the hand of the Philistines.
 
 [1 Samuel 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/7.3?lang=eng#p3)
 

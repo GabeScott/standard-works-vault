@@ -1,6 +1,6 @@
 # Genesis 37:36
 
-> And the Midianites <u>sold</u>[^a] him into Egypt unto <u>Potiphar</u>[^b], an <u>officer</u>[^c] of Pharaoh’s, and <u>captain of the guard</u>[^d] .
+> And the Midianites <u>sold</u>[^a] him into Egypt unto <u>Potiphar</u>[^b], an <u>officer</u>[^c] of Pharaoh’s, *and* <u>captain of the guard</u>[^d].
 
 [Genesis 37:36](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.36?lang=eng#p36)
 

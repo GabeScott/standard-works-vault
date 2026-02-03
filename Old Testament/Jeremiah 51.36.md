@@ -1,6 +1,6 @@
 # Jeremiah 51:36
 
-> Therefore thus saith the Lord ; Behold, I will plead thy cause, and take vengeance for thee; and I will <u>dry up</u>[^a] her sea, and make her springs dry.
+> Therefore thus saith the LORD; Behold, I will plead thy cause, and take vengeance for thee; and I will <u>dry up</u>[^a] her sea, and make her springs dry.
 
 [Jeremiah 51:36](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.36?lang=eng#p36)
 

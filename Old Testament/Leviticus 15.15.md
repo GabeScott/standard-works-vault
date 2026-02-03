@@ -1,6 +1,6 @@
 # Leviticus 15:15
 
-> And the priest shall offer them, the one for a sin offering, and the other for a burnt offering; and the priest shall make an <u>atonement</u>[^a] for him before the Lord for his issue.
+> And the priest shall offer them, the one *for* a sin offering, and the other *for* a burnt offering; and the priest shall make an <u>atonement</u>[^a] for him before the LORD for his issue.
 
 [Leviticus 15:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/15.15?lang=eng#p15)
 

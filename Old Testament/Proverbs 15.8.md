@@ -1,6 +1,6 @@
 # Proverbs 15:8
 
-> The <u>sacrifice</u>[^a] of the wicked is an abomination to the Lord : but the prayer of the upright is his delight.
+> The <u>sacrifice</u>[^a] of the wicked *is* an abomination to the LORD: but the prayer of the upright *is* his delight.
 
 [Proverbs 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.8?lang=eng#p8)
 

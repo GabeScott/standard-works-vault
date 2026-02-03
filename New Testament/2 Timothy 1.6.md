@@ -1,6 +1,6 @@
 # 2 Timothy 1:6
 
-> Wherefore I put thee in remembrance that thou <u>stir up</u>[^a] the <u>gift</u>[^b] of God, which is in thee by the putting on of my <u>hands</u>[^c] .
+> Wherefore I put thee in remembrance that thou <u>stir up</u>[^a] the <u>gift</u>[^b] of God, which is in thee by the putting on of my <u>hands</u>[^c].
 
 [2 Timothy 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Matthew 12:31
 
-> ¶ Wherefore I say unto you, All manner of sin and blasphemy shall be forgiven <u>unto men: but</u>[^a] the <u>blasphemy</u>[^b] against the Holy Ghost shall <u>not</u>[^c] be forgiven unto men.
+> ¶ Wherefore I say unto you, All manner of sin and blasphemy shall be forgiven <u>unto men: but</u>[^a] the <u>blasphemy</u>[^b] *against* the *Holy* Ghost shall <u>not</u>[^c] be forgiven unto men.
 
 [Matthew 12:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.31?lang=eng#p31)
 

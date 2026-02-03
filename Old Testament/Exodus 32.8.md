@@ -1,6 +1,6 @@
 # Exodus 32:8
 
-> They have <u>turned</u>[^a] aside <u>quickly</u>[^b] out of the way which I commanded them: they have made them a <u>molten</u>[^c] calf, and have worshipped it, and have sacrificed thereunto, and said, These be thy gods, O Israel, which have brought thee up out of the land of Egypt.
+> They have <u>turned</u>[^a] aside <u>quickly</u>[^b] out of the way which I commanded them: they have made them a <u>molten</u>[^c] calf, and have worshipped it, and have sacrificed thereunto, and said, These *be* thy gods, O Israel, which have brought thee up out of the land of Egypt.
 
 [Exodus 32:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.8?lang=eng#p8)
 

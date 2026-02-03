@@ -1,6 +1,6 @@
 # John 3:16
 
-> ¶ For <u>God</u>[^a] so <u>loved</u>[^b] the <u>world</u>[^c], that he <u>gave</u>[^d] his <u>only</u>[^e] begotten <u>Son</u>[^f], that whosoever <u>believeth</u>[^g] in him should not perish, but have <u>everlasting</u>[^h] <u>life</u>[^i] .
+> ¶ For <u>God</u>[^a] so <u>loved</u>[^b] the <u>world</u>[^c], that he <u>gave</u>[^d] his <u>only</u>[^e] begotten <u>Son</u>[^f], that whosoever <u>believeth</u>[^g] in him should not perish, but have <u>everlasting</u>[^h] <u>life</u>[^i].
 
 [John 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.16?lang=eng#p16)
 

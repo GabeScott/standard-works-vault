@@ -1,6 +1,6 @@
 # 1 Chronicles 23:6
 
-> And David divided them into <u>courses</u>[^a] among the sons of Levi, namely, Gershon, Kohath, and Merari.
+> And David divided them into <u>courses</u>[^a] among the sons of Levi, *namely,* Gershon, Kohath, and Merari.
 
 [1 Chronicles 23:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/23.6?lang=eng#p6)
 

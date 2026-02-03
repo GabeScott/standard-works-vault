@@ -1,6 +1,6 @@
 # Micah 6:2
 
-> Hear ye, O mountains, the Lord ’s <u>controversy</u>[^a], and ye strong foundations of the earth: for the Lord hath a controversy with his people, and he will <u>plead</u>[^b] with Israel.
+> Hear ye, O mountains, the LORD’s <u>controversy</u>[^a], and ye strong foundations of the earth: for the LORD hath a controversy with his people, and he will <u>plead</u>[^b] with Israel.
 
 [Micah 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.2?lang=eng#p2)
 

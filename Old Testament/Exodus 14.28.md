@@ -1,6 +1,6 @@
 # Exodus 14:28
 
-> And the <u>waters</u>[^a] returned, and <u>covered</u>[^b] the chariots, and the horsemen, and all the host of Pharaoh that came into the <u>sea</u>[^c] after them; there remained not so much as <u>one</u>[^d] of them.
+> And the <u>waters</u>[^a] returned, and <u>covered</u>[^b] the chariots, and the horsemen, *and* all the host of Pharaoh that came into the <u>sea</u>[^c] after them; there remained not so much as <u>one</u>[^d] of them.
 
 [Exodus 14:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.28?lang=eng#p28)
 

@@ -1,6 +1,6 @@
 # Isaiah 52:11
 
-> ¶ Depart ye, depart ye, go ye <u>out</u>[^a] from thence, <u>touch</u>[^b] no <u>unclean thing</u>[^c]; go ye <u>out</u>[^d] of the midst of her; be ye <u>clean</u>[^e], that bear the vessels of the Lord .
+> ¶ Depart ye, depart ye, go ye <u>out</u>[^a] from thence, <u>touch</u>[^b] no <u>unclean thing</u>[^c]*;* go ye <u>out</u>[^d] of the midst of her; be ye <u>clean</u>[^e], that bear the vessels of the LORD.
 
 [Isaiah 52:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.11?lang=eng#p11)
 

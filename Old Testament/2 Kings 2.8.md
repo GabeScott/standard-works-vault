@@ -1,6 +1,6 @@
 # 2 Kings 2:8
 
-> And Elijah took his <u>mantle</u>[^a], and wrapped it together, and smote the <u>waters</u>[^b], and they were divided hither and thither, so that they two went over on dry ground.
+> And Elijah took his <u>mantle</u>[^a], and wrapped *it* together, and smote the <u>waters</u>[^b], and they were divided hither and thither, so that they two went over on dry ground.
 
 [2 Kings 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Isaiah 44:8
 
-> <u>Fear</u>[^a] ye not, neither be afraid: have not I told thee from that time, and have declared it? ye are even my witnesses. Is there a God beside me? yea, there is no <u>God</u>[^b]; I know not any.
+> <u>Fear</u>[^a] ye not, neither be afraid: have not I told thee from that time, and have declared *it?* ye *are* even my witnesses. Is there a God beside me? yea, *there is* no <u>God</u>[^b]; I know not *any.*
 
 [Isaiah 44:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Joshua 6:18
 
-> And ye, in any wise keep yourselves from <u>the accursed thing</u>[^a], lest ye make yourselves accursed, when ye take of the accursed thing, and make the camp of Israel a curse, and trouble it.
+> And ye, in any wise keep *yourselves* from <u>the accursed thing</u>[^a], lest ye make *yourselves* accursed, when ye take of the accursed thing, and make the camp of Israel a curse, and trouble it.
 
 [Joshua 6:18](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.18?lang=eng#p18)
 

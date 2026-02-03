@@ -1,6 +1,6 @@
 # 1 Kings 8:9
 
-> There was nothing in the <u>ark</u>[^a] save the two <u>tables</u>[^b] of stone, which Moses put there at <u>Horeb</u>[^c], when the Lord made a covenant with the children of Israel, when they came out of the land of Egypt.
+> *There was* nothing in the <u>ark</u>[^a] save the two <u>tables</u>[^b] of stone, which Moses put there at <u>Horeb</u>[^c], when the LORD made *a covenant* with the children of Israel, when they came out of the land of Egypt.
 
 [1 Kings 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.9?lang=eng#p9)
 

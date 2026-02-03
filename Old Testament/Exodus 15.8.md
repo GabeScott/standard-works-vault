@@ -1,6 +1,6 @@
 # Exodus 15:8
 
-> And with the blast of thy nostrils the <u>waters</u>[^a] were gathered together, the floods stood upright as an <u>heap</u>[^b], and the depths were congealed in the heart of the sea.
+> And with the blast of thy nostrils the <u>waters</u>[^a] were gathered together, the floods stood upright as an <u>heap</u>[^b], *and* the depths were congealed in the heart of the sea.
 
 [Exodus 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.8?lang=eng#p8)
 

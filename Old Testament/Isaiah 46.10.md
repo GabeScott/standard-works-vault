@@ -1,6 +1,6 @@
 # Isaiah 46:10
 
-> <u>Declaring</u>[^a] the <u>end</u>[^b] from the beginning, and from ancient times the things that are not yet done, saying, My <u>counsel</u>[^c] shall stand, and I will do all my <u>pleasure</u>[^d] :
+> <u>Declaring</u>[^a] the <u>end</u>[^b] from the beginning, and from ancient times *the things* that are not *yet* done, saying, My <u>counsel</u>[^c] shall stand, and I will do all my <u>pleasure</u>[^d]:
 
 [Isaiah 46:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # 1 Kings 8:2
 
-> And all the men of Israel assembled themselves unto king Solomon at the <u>feast</u>[^a] in the month Ethanim, which is the seventh month.
+> And all the men of Israel assembled themselves unto king Solomon at the <u>feast</u>[^a] in the month Ethanim, which *is* the seventh month.
 
 [1 Kings 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Daniel 9:27
 
-> And he shall confirm the covenant with many for one week: and in the midst of the week he shall cause the sacrifice and the oblation to cease, and for the overspreading of <u>abominations</u>[^a] he shall make it <u>desolate</u>[^b], even until the <u>consummation</u>[^c], and that determined shall be poured upon the desolate.
+> And he shall confirm the covenant with many for one week: and in the midst of the week he shall cause the sacrifice and the oblation to cease, and for the overspreading of <u>abominations</u>[^a] he shall make *it* <u>desolate</u>[^b], even until the <u>consummation</u>[^c], and that determined shall be poured upon the desolate.
 
 [Daniel 9:27](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.27?lang=eng#p27)
 

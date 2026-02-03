@@ -1,6 +1,6 @@
 # 1 Kings 9:1
 
-> And it came to pass, when Solomon had <u>finished</u>[^a] the building of the <u>house</u>[^b] of the Lord , and the <u>king’s</u>[^c] house, and all Solomon’s desire which he was pleased to do,
+> And it came to pass, when Solomon had <u>finished</u>[^a] the building of the <u>house</u>[^b] of the LORD, and the <u>king’s</u>[^c] house, and all Solomon’s desire which he was pleased to do,
 
 [1 Kings 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.1?lang=eng#p1)
 

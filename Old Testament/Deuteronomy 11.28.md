@@ -1,6 +1,6 @@
 # Deuteronomy 11:28
 
-> And a <u>curse</u>[^a], if ye will not <u>obey</u>[^b] the commandments of the Lord your God, but turn aside out of the way which I command you this day, to go after other gods, which ye have not known.
+> And a <u>curse</u>[^a], if ye will not <u>obey</u>[^b] the commandments of the LORD your God, but turn aside out of the way which I command you this day, to go after other gods, which ye have not known.
 
 [Deuteronomy 11:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.28?lang=eng#p28)
 

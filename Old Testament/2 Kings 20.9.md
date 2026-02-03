@@ -1,6 +1,6 @@
 # 2 Kings 20:9
 
-> And Isaiah said, This sign shalt thou have of the Lord , that the Lord will do the thing that he hath spoken: shall the <u>shadow</u>[^a] go forward ten degrees, or go back ten degrees?
+> And Isaiah said, This sign shalt thou have of the LORD, that the LORD will do the thing that he hath spoken: shall the <u>shadow</u>[^a] go forward ten degrees, or go back ten degrees?
 
 [2 Kings 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.9?lang=eng#p9)
 

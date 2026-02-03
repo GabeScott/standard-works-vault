@@ -1,6 +1,6 @@
 # Psalms 105:9
 
-> Which covenant he made with Abraham, and his <u>oath</u>[^b] unto Isaac;
+> Which <u>covenant</u>[^a] he made with Abraham, and his <u>oath</u>[^b] unto Isaac;
 
 [Psalms 105:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.9?lang=eng#p9)
 

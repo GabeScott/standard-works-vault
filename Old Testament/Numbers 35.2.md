@@ -1,6 +1,6 @@
 # Numbers 35:2
 
-> Command the children of Israel, that they give unto the <u>Levites</u>[^a] of the inheritance of their possession cities to dwell in; and ye shall give also unto the Levites <u>suburbs</u>[^b] for the cities round about them.
+> Command the children of Israel, that they give unto the <u>Levites</u>[^a] of the inheritance of their possession cities to dwell in; and ye shall give *also* unto the Levites <u>suburbs</u>[^b] for the cities round about them.
 
 [Numbers 35:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.2?lang=eng#p2)
 

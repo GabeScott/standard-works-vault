@@ -1,6 +1,6 @@
 # Genesis 4:17
 
-> And Cain knew his <u>wife</u>[^a]; and she conceived, and bare <u>Enoch</u>[^b] : and he builded a city, and called the <u>name</u>[^c] of the city, after the name of his son, Enoch.
+> And Cain knew his <u>wife</u>[^a]; and she conceived, and bare <u>Enoch</u>[^b]: and he builded a city, and called the <u>name</u>[^c] of the city, after the name of his son, Enoch.
 
 [Genesis 4:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.17?lang=eng#p17)
 

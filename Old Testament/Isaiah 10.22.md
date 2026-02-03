@@ -1,6 +1,6 @@
 # Isaiah 10:22
 
-> For though thy people Israel be as the <u>sand</u>[^a] of the sea, yet a remnant of them shall <u>return</u>[^b] : <u>the</u>[^c] <u>consumption</u>[^d] <u>decreed</u>[^e] shall overflow with righteousness.
+> For though thy people Israel be as the <u>sand</u>[^a] of the sea, *yet* a remnant of them shall <u>return</u>[^b]: <u>the</u>[^c] <u>consumption</u>[^d] <u>decreed</u>[^e] shall overflow with righteousness.
 
 [Isaiah 10:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.22?lang=eng#p22)
 

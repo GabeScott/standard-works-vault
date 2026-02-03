@@ -1,6 +1,6 @@
 # Jeremiah 1:2
 
-> To whom the word of the Lord came in the days of Josiah the son of Amon king of Judah, in the thirteenth <u>year</u>[^a] of his reign.
+> To whom the word of the LORD came in the days of Josiah the son of Amon king of Judah, in the thirteenth <u>year</u>[^a] of his reign.
 
 [Jeremiah 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.2?lang=eng#p2)
 

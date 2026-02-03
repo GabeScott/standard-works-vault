@@ -1,6 +1,6 @@
 # Isaiah 40:31
 
-> But they that <u>wait upon</u>[^a] the Lord shall <u>renew</u>[^b] their <u>strength</u>[^c]; they shall mount up with wings as <u>eagles</u>[^d]; they shall <u>run</u>[^e], and not be weary; and they shall walk, and not faint.
+> But they that <u>wait upon</u>[^a] the LORD shall <u>renew</u>[^b] *their* <u>strength</u>[^c]; they shall mount up with wings as <u>eagles</u>[^d]; they shall <u>run</u>[^e], and not be weary; *and* they shall walk, and not faint.
 
 [Isaiah 40:31](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.31?lang=eng#p31)
 

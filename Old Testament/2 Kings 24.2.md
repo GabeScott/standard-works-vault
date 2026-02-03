@@ -1,6 +1,6 @@
 # 2 Kings 24:2
 
-> And the Lord sent <u>against</u>[^a] him bands of the <u>Chaldees</u>[^b], and bands of the Syrians, and bands of the Moabites, and bands of the children of Ammon, and sent them against Judah to <u>destroy</u>[^c] it, according to the <u>word</u>[^d] of the Lord , which he spake by his servants the prophets.
+> And the LORD sent <u>against</u>[^a] him bands of the <u>Chaldees</u>[^b], and bands of the Syrians, and bands of the Moabites, and bands of the children of Ammon, and sent them against Judah to <u>destroy</u>[^c] it, according to the <u>word</u>[^d] of the LORD, which he spake by his servants the prophets.
 
 [2 Kings 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.2?lang=eng#p2)
 

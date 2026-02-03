@@ -1,6 +1,6 @@
 # Matthew 23:37
 
-> O <u>Jerusalem</u>[^a], Jerusalem, thou that <u>killest</u>[^b] the prophets, and stonest them which are sent unto thee, how often <u>would</u>[^c] I have <u>gathered</u>[^d] thy children together, even as a hen gathereth her chickens under her wings, and ye <u>would not</u>[^e] !
+> O <u>Jerusalem</u>[^a], Jerusalem, *thou* that <u>killest</u>[^b] the prophets, and stonest them which are sent unto thee, how often <u>would</u>[^c] I have <u>gathered</u>[^d] thy children together, even as a hen gathereth her chickens under *her* wings, and ye <u>would not</u>[^e]!
 
 [Matthew 23:37](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.37?lang=eng#p37)
 

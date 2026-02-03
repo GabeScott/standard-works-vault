@@ -1,6 +1,6 @@
 # Psalms 92:5
 
-> O Lord , how great are thy <u>works</u>[^a] ! and thy thoughts are very deep.
+> O LORD, how great are thy <u>works</u>[^a]! *and* thy thoughts are very deep.
 
 [Psalms 92:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/92.5?lang=eng#p5)
 

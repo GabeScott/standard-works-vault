@@ -1,6 +1,6 @@
 # Genesis 19:16
 
-> And while he lingered, the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters; the Lord being <u>merciful</u>[^a] unto him: and they brought him forth, and set him without the city.
+> And while he lingered, the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters; the LORD being <u>merciful</u>[^a] unto him: and they brought him forth, and set him without the city.
 
 [Genesis 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.16?lang=eng#p16)
 

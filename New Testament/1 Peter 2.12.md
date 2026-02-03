@@ -1,6 +1,6 @@
 # 1 Peter 2:12
 
-> Having your conversation <u>honest</u>[^a] among the Gentiles: that, whereas they speak against you as evildoers, they may by your good <u>works</u>[^b], which they shall behold, glorify God in the day of visitation.
+> Having your conversation <u>honest</u>[^a] among the Gentiles: that, whereas they speak against you as evildoers, they may by *your* good <u>works</u>[^b], which they shall behold, glorify God in the day of visitation.
 
 [1 Peter 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 34:9
 
-> ¶ And Joshua the son of <u>Nun</u>[^a] was full of the spirit of wisdom; for Moses had <u>laid</u>[^b] his hands upon him: and the children of Israel <u>hearkened</u>[^c] unto him, and did as the Lord commanded Moses.
+> ¶ And Joshua the son of <u>Nun</u>[^a] was full of the spirit of wisdom; for Moses had <u>laid</u>[^b] his hands upon him: and the children of Israel <u>hearkened</u>[^c] unto him, and did as the LORD commanded Moses.
 
 [Deuteronomy 34:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.9?lang=eng#p9)
 

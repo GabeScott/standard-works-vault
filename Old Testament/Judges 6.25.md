@@ -1,6 +1,6 @@
 # Judges 6:25
 
-> ¶ And it came to pass the same night, that the Lord said unto him, Take thy father’s young bullock, even the second bullock of seven years old, and throw down the altar of <u>Baal</u>[^a] that thy father hath, and cut down the <u>grove</u>[^b] that is by it:
+> ¶ And it came to pass the same night, that the LORD said unto him, Take thy father’s young bullock, even the second bullock of seven years old, and throw down the altar of <u>Baal</u>[^a] that thy father hath, and cut down the <u>grove</u>[^b] that *is* by it:
 
 [Judges 6:25](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.25?lang=eng#p25)
 

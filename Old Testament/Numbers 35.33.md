@@ -1,6 +1,6 @@
 # Numbers 35:33
 
-> So ye shall not <u>pollute</u>[^a] the land wherein ye are: for blood it defileth the land: and <u>the</u>[^b] land cannot be cleansed of the blood that is shed therein, but by the blood of him that shed it.
+> So ye shall not <u>pollute</u>[^a] the land wherein ye *are:* for blood it defileth the land: and <u>the</u>[^b] land cannot be cleansed of the blood that is shed therein, but by the blood of him that shed it.
 
 [Numbers 35:33](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.33?lang=eng#p33)
 

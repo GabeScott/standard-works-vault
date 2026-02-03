@@ -1,6 +1,6 @@
 # Exodus 8:19
 
-> Then the magicians said unto Pharaoh, This is the <u>finger</u>[^a] of God: and Pharaoh’s heart was hardened, and he hearkened not unto them; as the Lord had said.
+> Then the magicians said unto Pharaoh, This *is* the <u>finger</u>[^a] of God: and Pharaoh’s heart was hardened, and he hearkened not unto them; as the LORD had said.
 
 [Exodus 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.19?lang=eng#p19)
 

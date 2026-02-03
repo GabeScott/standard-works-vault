@@ -1,6 +1,6 @@
 # Psalms 91:8
 
-> Only with thine eyes shalt thou behold and see the reward of the <u>wicked</u>[^a] .
+> Only with thine eyes shalt thou behold and see the reward of the <u>wicked</u>[^a].
 
 [Psalms 91:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/91.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Psalms 105:19
 
-> Until the time that his <u>word</u>[^a] came: the word of the Lord tried him.
+> Until the time that his <u>word</u>[^a] came: the word of the LORD tried him.
 
 [Psalms 105:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.19?lang=eng#p19)
 

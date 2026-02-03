@@ -1,6 +1,6 @@
 # Colossians 1:13
 
-> Who hath delivered us from the power of <u>darkness</u>[^a], and hath translated us into the <u>kingdom</u>[^b] of his dear <u>Son</u>[^c] :
+> Who hath delivered us from the power of <u>darkness</u>[^a], and hath translated *us* into the <u>kingdom</u>[^b] of his dear <u>Son</u>[^c]:
 
 [Colossians 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.13?lang=eng#p13)
 

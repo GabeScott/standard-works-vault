@@ -1,6 +1,6 @@
 # Ezekiel 22:10
 
-> In thee have they discovered their fathers’ <u>nakedness</u>[^a] : in thee have they <u>humbled</u>[^b] her that was set <u>apart</u>[^c] for <u>pollution</u>[^d] .
+> In thee have they discovered their fathers’ <u>nakedness</u>[^a]: in thee have they <u>humbled</u>[^b] her that was set <u>apart</u>[^c] for <u>pollution</u>[^d].
 
 [Ezekiel 22:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # 2 Kings 12:16
 
-> The <u>trespass</u>[^a] money and <u>sin</u>[^b] money was not brought into the house of the Lord : it was the priests’.
+> The <u>trespass</u>[^a] money and <u>sin</u>[^b] money was not brought into the house of the LORD: it was the priests’.
 
 [2 Kings 12:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/12.16?lang=eng#p16)
 

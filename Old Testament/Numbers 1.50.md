@@ -1,6 +1,6 @@
 # Numbers 1:50
 
-> But thou shalt appoint the <u>Levites</u>[^a] over the <u>tabernacle</u>[^b] of testimony, and over all the vessels thereof, and over all things that belong to it: they shall bear the tabernacle, and all the vessels thereof; and they shall minister unto it, and shall encamp round about the tabernacle.
+> But thou shalt appoint the <u>Levites</u>[^a] over the <u>tabernacle</u>[^b] of testimony, and over all the vessels thereof, and over all things that *belong* to it: they shall bear the tabernacle, and all the vessels thereof; and they shall minister unto it, and shall encamp round about the tabernacle.
 
 [Numbers 1:50](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.50?lang=eng#p50)
 

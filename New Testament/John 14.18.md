@@ -1,6 +1,6 @@
 # John 14:18
 
-> I will not leave you <u>comfortless</u>[^a] : I will <u>come</u>[^b] to you.
+> I will not leave you <u>comfortless</u>[^a]: I will <u>come</u>[^b] to you.
 
 [John 14:18](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.18?lang=eng#p18)
 

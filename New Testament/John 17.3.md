@@ -1,6 +1,6 @@
 # John 17:3
 
-> And this is <u>life</u>[^a] <u>eternal</u>[^b], that they might <u>know</u>[^c] thee the only true <u>God</u>[^d], and Jesus Christ, whom thou hast <u>sent</u>[^e] .
+> And this is <u>life</u>[^a] <u>eternal</u>[^b], that they might <u>know</u>[^c] thee the only true <u>God</u>[^d], and Jesus Christ, whom thou hast <u>sent</u>[^e].
 
 [John 17:3](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.3?lang=eng#p3)
 

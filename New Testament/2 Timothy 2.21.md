@@ -1,6 +1,6 @@
 # 2 Timothy 2:21
 
-> If a man therefore purge himself from these, he shall be a <u>vessel</u>[^a] unto honour, <u>sanctified</u>[^b], and <u>meet</u>[^c] for the master’s use, and prepared unto every good work.
+> If a man therefore purge himself from these, he shall be a <u>vessel</u>[^a] unto honour, <u>sanctified</u>[^b], and <u>meet</u>[^c] for the master’s use, *and* prepared unto every good work.
 
 [2 Timothy 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.21?lang=eng#p21)
 

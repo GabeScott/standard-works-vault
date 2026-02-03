@@ -1,6 +1,6 @@
 # Deuteronomy 18:15
 
-> ¶ The Lord thy God will <u>raise up</u>[^a] unto thee a <u>Prophet</u>[^b] from the midst of thee, of thy brethren, like unto me; unto him ye shall hearken;
+> ¶ The LORD thy God will <u>raise up</u>[^a] unto thee a <u>Prophet</u>[^b] from the midst of thee, of thy brethren, like unto me; unto him ye shall hearken;
 
 [Deuteronomy 18:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.15?lang=eng#p15)
 

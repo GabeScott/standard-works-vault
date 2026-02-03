@@ -1,6 +1,6 @@
 # Helaman 8:20
 
-> And behold, also <u>Zenock</u>[^a], and also <u>Ezias</u>[^b], and also <u>Isaiah</u>[^c], and <u>Jeremiah</u>[^d], (Jeremiah being that same prophet who testified of the destruction of <u>Jerusalem</u>[^e] ) and now we know that Jerusalem was destroyed according to the words of Jeremiah. O then why not the Son of God come, according to his prophecy?
+> And behold, also <u>Zenock</u>[^a], and also <u>Ezias</u>[^b], and also <u>Isaiah</u>[^c], and <u>Jeremiah</u>[^d], (Jeremiah being that same prophet who testified of the destruction of <u>Jerusalem</u>[^e]) and now we know that Jerusalem was destroyed according to the words of Jeremiah. O then why not the Son of God come, according to his prophecy?
 
 [Helaman 8:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p20#p20)
 

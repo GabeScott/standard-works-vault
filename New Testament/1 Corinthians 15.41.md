@@ -1,6 +1,6 @@
 # 1 Corinthians 15:41
 
-> There is one glory of the <u>sun</u>[^a], and another glory of the moon, and another glory of the <u>stars</u>[^b] : for one star <u>differeth</u>[^c] from another star in <u>glory</u>[^d] .
+> *There is* one glory of the <u>sun</u>[^a], and another glory of the moon, and another glory of the <u>stars</u>[^b]: for *one* star <u>differeth</u>[^c] from *another* star in <u>glory</u>[^d].
 
 [1 Corinthians 15:41](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.41?lang=eng#p41)
 

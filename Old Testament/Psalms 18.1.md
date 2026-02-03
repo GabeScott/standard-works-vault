@@ -1,6 +1,6 @@
 # Psalms 18:1
 
-> I will <u>love</u>[^a] thee, O Lord , my strength.
+> I will <u>love</u>[^a] thee, O LORD, my strength.
 
 [Psalms 18:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.1?lang=eng#p1)
 

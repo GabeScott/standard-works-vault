@@ -1,6 +1,6 @@
 # 1 Nephi 10:4
 
-> Yea, even <u>six hundred</u>[^a] years from the time that my father left Jerusalem, a <u>prophet</u>[^b] would the Lord God raise up among the <u>Jews</u>[^c] —even a <u>Messiah</u>[^d], or, in other words, a Savior of the world.
+> Yea, even <u>six hundred</u>[^a] years from the time that my father left Jerusalem, a <u>prophet</u>[^b] would the Lord God raise up among the <u>Jews</u>[^c]—even a <u>Messiah</u>[^d], or, in other words, a Savior of the world.
 
 [1 Nephi 10:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p4#p4)
 

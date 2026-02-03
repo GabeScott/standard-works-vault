@@ -1,6 +1,6 @@
 # Ezekiel 48:35
 
-> It was round about eighteen thousand measures: <u>and</u>[^a] the name of the city from that day shall be, The Lord is there.
+> *It was* round about eighteen thousand *measures:* <u>and</u>[^a] the name of the city from *that* day *shall be,* The LORD *is* there.
 
 [Ezekiel 48:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.35?lang=eng#p35)
 

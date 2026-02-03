@@ -1,6 +1,6 @@
 # Deuteronomy 29:3
 
-> The great <u>temptations</u>[^a] which thine eyes have seen, the signs, and those great <u>miracles</u>[^b] :
+> The great <u>temptations</u>[^a] which thine eyes have seen, the signs, and those great <u>miracles</u>[^b]:
 
 [Deuteronomy 29:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.3?lang=eng#p3)
 

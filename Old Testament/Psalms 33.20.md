@@ -1,6 +1,6 @@
 # Psalms 33:20
 
-> Our soul waiteth for the Lord : he is our help and our <u>shield</u>[^a] .
+> Our soul waiteth for the LORD: he *is* our help and our <u>shield</u>[^a].
 
 [Psalms 33:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # Genesis 24:10
 
-> ¶ And the servant took ten camels of the camels of his master, and departed; for all the goods of his master were in his hand: and he arose, and went to <u>Mesopotamia</u>[^a], unto the city of <u>Nahor</u>[^b] .
+> ¶ And the servant took ten camels of the camels of his master, and departed; for all the goods of his master *were* in his hand: and he arose, and went to <u>Mesopotamia</u>[^a], unto the city of <u>Nahor</u>[^b].
 
 [Genesis 24:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.10?lang=eng#p10)
 

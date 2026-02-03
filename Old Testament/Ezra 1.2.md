@@ -1,6 +1,6 @@
 # Ezra 1:2
 
-> Thus saith <u>Cyrus</u>[^a] king of Persia, The Lord God of heaven hath given me all the kingdoms of the earth; and he hath charged me to build him an <u>house</u>[^b] at Jerusalem, which is in Judah.
+> Thus saith <u>Cyrus</u>[^a] king of Persia, The LORD God of heaven hath given me all the kingdoms of the earth; and he hath charged me to build him an <u>house</u>[^b] at Jerusalem, which *is* in Judah.
 
 [Ezra 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/1.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Psalms 138:4
 
-> All the <u>kings</u>[^a] of the earth shall praise thee, O Lord , when they hear the words of thy mouth.
+> All the <u>kings</u>[^a] of the earth shall praise thee, O LORD, when they hear the words of thy mouth.
 
 [Psalms 138:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/138.4?lang=eng#p4)
 

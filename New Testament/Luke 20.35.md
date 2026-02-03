@@ -1,6 +1,6 @@
 # Luke 20:35
 
-> But they which shall be accounted worthy to obtain <u>that</u>[^a] world, and the <u>resurrection</u>[^b] from the dead, neither marry, nor are given in <u>marriage</u>[^c] :
+> But they which shall be accounted worthy to obtain <u>that</u>[^a] world, and the <u>resurrection</u>[^b] from the dead, neither marry, nor are given in <u>marriage</u>[^c]:
 
 [Luke 20:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.35?lang=eng#p35)
 

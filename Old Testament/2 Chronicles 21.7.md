@@ -1,6 +1,6 @@
 # 2 Chronicles 21:7
 
-> Howbeit the Lord would not <u>destroy</u>[^a] the house of David, because of the covenant that he had made with David, and as he promised to give a light to him and to his sons for ever.
+> Howbeit the LORD would not <u>destroy</u>[^a] the house of David, because of the covenant that he had made with David, and as he promised to give a light to him and to his sons for ever.
 
 [2 Chronicles 21:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.7?lang=eng#p7)
 

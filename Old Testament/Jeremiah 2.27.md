@@ -1,6 +1,6 @@
 # Jeremiah 2:27
 
-> Saying to <u>a stock</u>[^a], Thou art my father; and to a stone, Thou hast brought me forth: for they have turned their <u>back</u>[^b] unto me, and not their face: but in the <u>time</u>[^c] of their trouble they will say, Arise, and save us.
+> Saying to <u>a stock</u>[^a], Thou *art* my father; and to a stone, Thou hast brought me forth: for they have turned *their* <u>back</u>[^b] unto me, and not *their* face: but in the <u>time</u>[^c] of their trouble they will say, Arise, and save us.
 
 [Jeremiah 2:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.27?lang=eng#p27)
 

@@ -1,6 +1,6 @@
 # Ezra 1:1
 
-> Now in the first year of Cyrus king of Persia, that the word of the Lord by the mouth of <u>Jeremiah</u>[^a] might be fulfilled, the Lord stirred up the spirit of <u>Cyrus</u>[^b] king of Persia, that he made a proclamation throughout all his kingdom, and put it also in writing, saying,
+> Now in the first year of Cyrus king of Persia, that the word of the LORD by the mouth of <u>Jeremiah</u>[^a] might be fulfilled, the LORD stirred up the spirit of <u>Cyrus</u>[^b] king of Persia, that he made a proclamation throughout all his kingdom, and *put it* also in writing, saying,
 
 [Ezra 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/1.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Hebrews 10:10
 
-> By the which will we are <u>sanctified</u>[^a] through the <u>offering</u>[^b] <u>of</u>[^c] the <u>body</u>[^d] of Jesus Christ <u>once</u>[^e] for all.
+> By the which will we are <u>sanctified</u>[^a] through the <u>offering</u>[^b] <u>of</u>[^c] the <u>body</u>[^d] of Jesus Christ <u>once</u>[^e] *for all.*
 
 [Hebrews 10:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.10?lang=eng#p10)
 

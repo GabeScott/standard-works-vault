@@ -1,6 +1,6 @@
 # Nehemiah 9:23
 
-> Their children also <u>multipliedst</u>[^a] thou as the stars of heaven, and broughtest them into the land, concerning which thou hadst promised to their fathers, that they should go in to possess it.
+> Their children also <u>multipliedst</u>[^a] thou as the stars of heaven, and broughtest them into the land, concerning which thou hadst promised to their fathers, that they should go in to possess *it.*
 
 [Nehemiah 9:23](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.23?lang=eng#p23)
 

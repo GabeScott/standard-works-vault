@@ -1,6 +1,6 @@
 # 2 Kings 3:2
 
-> And he wrought <u>evil</u>[^a] in the sight of the Lord ; but not like his <u>father</u>[^b], and like his mother: for he put away the <u>image</u>[^c] of <u>Baal</u>[^d] that his father had made.
+> And he wrought <u>evil</u>[^a] in the sight of the LORD; but not like his <u>father</u>[^b], and like his mother: for he put away the <u>image</u>[^c] of <u>Baal</u>[^d] that his father had made.
 
 [2 Kings 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/3.2?lang=eng#p2)
 

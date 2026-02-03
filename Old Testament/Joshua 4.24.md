@@ -1,6 +1,6 @@
 # Joshua 4:24
 
-> That all the people of the earth might <u>know</u>[^a] the hand of the Lord , that it is mighty: that ye might <u>fear</u>[^b] the Lord your God for ever.
+> That all the people of the earth might <u>know</u>[^a] the hand of the LORD, that it *is* mighty: that ye might <u>fear</u>[^b] the LORD your God for ever.
 
 [Joshua 4:24](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.24?lang=eng#p24)
 

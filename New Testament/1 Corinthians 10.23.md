@@ -1,6 +1,6 @@
 # 1 Corinthians 10:23
 
-> <u>All</u>[^a] things are lawful for me, but all things are not <u>expedient</u>[^b] : all things are lawful for me, but all things <u>edify</u>[^c] not.
+> <u>All</u>[^a] things are lawful for me, but all things are not <u>expedient</u>[^b]: all things are lawful for me, but all things <u>edify</u>[^c] not.
 
 [1 Corinthians 10:23](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.23?lang=eng#p23)
 

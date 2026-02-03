@@ -1,6 +1,6 @@
 # Leviticus 8:9
 
-> And he put <u>the</u>[^a] mitre upon his head; also upon the mitre, even upon his forefront, did he put the golden <u>plate</u>[^b], the holy crown; as the Lord commanded Moses.
+> And he put <u>the</u>[^a] mitre upon his head; also upon the mitre, *even* upon his forefront, did he put the golden <u>plate</u>[^b], the holy crown; as the LORD commanded Moses.
 
 [Leviticus 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.9?lang=eng#p9)
 

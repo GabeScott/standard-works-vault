@@ -1,6 +1,6 @@
 # Ecclesiastes 8:12
 
-> ¶ Though a sinner do evil an hundred times, and his days be prolonged, yet surely I know that it shall be <u>well</u>[^a] with them that <u>fear</u>[^b] God, which fear before him:
+> ¶ Though a sinner do evil an hundred times, and his *days* be prolonged, yet surely I know that it shall be <u>well</u>[^a] with them that <u>fear</u>[^b] God, which fear before him:
 
 [Ecclesiastes 8:12](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/8.12?lang=eng#p12)
 

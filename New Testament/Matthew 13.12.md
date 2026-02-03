@@ -1,6 +1,6 @@
 # Matthew 13:12
 
-> <u>For</u>[^a] whosoever hath, to him shall be <u>given</u>[^b], and he shall have more <u>abundance</u>[^c] : but whosoever hath not, from him shall be taken away even that he hath.
+> <u>For</u>[^a] whosoever hath, to him shall be <u>given</u>[^b], and he shall have more <u>abundance</u>[^c]: but whosoever hath not, from him shall be taken away even that he hath.
 
 [Matthew 13:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.12?lang=eng#p12)
 

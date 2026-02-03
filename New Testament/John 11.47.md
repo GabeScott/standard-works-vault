@@ -1,6 +1,6 @@
 # John 11:47
 
-> ¶ Then gathered the chief <u>priests</u>[^a] and the Pharisees a council, and said, What do we? for this man doeth many <u>miracles</u>[^b] .
+> ¶ Then gathered the chief <u>priests</u>[^a] and the Pharisees a council, and said, What do we? for this man doeth many <u>miracles</u>[^b].
 
 [John 11:47](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.47?lang=eng#p47)
 

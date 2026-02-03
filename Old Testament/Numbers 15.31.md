@@ -1,6 +1,6 @@
 # Numbers 15:31
 
-> Because he hath <u>despised</u>[^a] the word of the Lord , and hath broken his commandment, that soul shall utterly be cut off; his iniquity shall be upon him.
+> Because he hath <u>despised</u>[^a] the word of the LORD, and hath broken his commandment, that soul shall utterly be cut off; his iniquity *shall be* upon him.
 
 [Numbers 15:31](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.31?lang=eng#p31)
 

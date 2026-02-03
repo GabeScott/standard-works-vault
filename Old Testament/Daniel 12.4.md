@@ -1,6 +1,6 @@
 # Daniel 12:4
 
-> But thou, O Daniel, shut up the words, and <u>seal</u>[^a] the <u>book</u>[^b], even to the <u>time</u>[^c] of the end: many shall run to and fro, and <u>knowledge</u>[^d] shall be increased.
+> But thou, O Daniel, shut up the words, and <u>seal</u>[^a] the <u>book</u>[^b], *even* to the <u>time</u>[^c] of the end: many shall run to and fro, and <u>knowledge</u>[^d] shall be increased.
 
 [Daniel 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.4?lang=eng#p4)
 

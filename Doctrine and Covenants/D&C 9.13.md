@@ -1,6 +1,6 @@
 # D&C 9:13
 
-> Do this thing which I have commanded you, and you shall <u>prosper</u>[^a] . Be faithful, and yield to no <u>temptation</u>[^b] .
+> Do this thing which I have commanded you, and you shall <u>prosper</u>[^a]. Be faithful, and yield to no <u>temptation</u>[^b].
 
 [D&C 9:13](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/9.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Joshua 23:13
 
-> Know for a certainty that the Lord your God will no more drive out any of these nations from before you; but they shall be snares and traps unto you, and <u>scourges</u>[^a] in your sides, and <u>thorns</u>[^b] in your eyes, until ye <u>perish</u>[^c] from off this good land which the Lord your God hath given you.
+> Know for a certainty that the LORD your God will no more drive out *any of* these nations from before you; but they shall be snares and traps unto you, and <u>scourges</u>[^a] in your sides, and <u>thorns</u>[^b] in your eyes, until ye <u>perish</u>[^c] from off this good land which the LORD your God hath given you.
 
 [Joshua 23:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.13?lang=eng#p13)
 

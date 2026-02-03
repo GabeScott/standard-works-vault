@@ -1,6 +1,6 @@
 # Zechariah 2:6
 
-> ¶ Ho, ho, come forth, and flee from the land of the <u>north</u>[^a], saith the Lord : for I have <u>spread</u>[^b] you abroad as the <u>four</u>[^c] winds of the heaven, saith the Lord .
+> ¶ Ho, ho, *come forth,* and flee from the land of the <u>north</u>[^a], saith the LORD: for I have <u>spread</u>[^b] you abroad as the <u>four</u>[^c] winds of the heaven, saith the LORD.
 
 [Zechariah 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/2.6?lang=eng#p6)
 

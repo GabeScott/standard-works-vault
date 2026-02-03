@@ -1,6 +1,6 @@
 # Jeremiah 31:9
 
-> They shall come with <u>weeping</u>[^a], and with supplications will I lead them: I will cause them to walk by the rivers of waters in a straight way, wherein they shall not stumble: for I am a <u>father</u>[^b] to Israel, and <u>Ephraim</u>[^c] is my <u>firstborn</u>[^d] .
+> They shall come with <u>weeping</u>[^a], and with supplications will I lead them: I will cause them to walk by the rivers of waters in a straight way, wherein they shall not stumble: for I am a <u>father</u>[^b] to Israel, and <u>Ephraim</u>[^c] *is* my <u>firstborn</u>[^d].
 
 [Jeremiah 31:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.9?lang=eng#p9)
 

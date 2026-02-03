@@ -1,6 +1,6 @@
 # Mosiah 7:6
 
-> And <u>Ammon</u>[^a] took three of his brethren, and their names were Amaleki, Helem, and Hem, and they went down into the land of <u>Nephi</u>[^b] .
+> And <u>Ammon</u>[^a] took three of his brethren, and their names were Amaleki, Helem, and Hem, and they went down into the land of <u>Nephi</u>[^b].
 
 [Mosiah 7:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p6#p6)
 

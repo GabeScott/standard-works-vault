@@ -1,6 +1,6 @@
 # Jeremiah 29:8
 
-> ¶ For thus saith the Lord of hosts, the God of Israel; Let not your prophets and your <u>diviners</u>[^a], that be in the midst of you, deceive you, neither hearken to your <u>dreams</u>[^b] which ye cause to be dreamed.
+> ¶ For thus saith the LORD of hosts, the God of Israel; Let not your prophets and your <u>diviners</u>[^a], that *be* in the midst of you, deceive you, neither hearken to your <u>dreams</u>[^b] which ye cause to be dreamed.
 
 [Jeremiah 29:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.8?lang=eng#p8)
 

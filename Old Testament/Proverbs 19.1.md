@@ -1,6 +1,6 @@
 # Proverbs 19:1
 
-> Better is the <u>poor</u>[^a] that walketh in his <u>integrity</u>[^b], than he that is perverse in his lips, and is a fool.
+> Better *is* the <u>poor</u>[^a] that walketh in his <u>integrity</u>[^b], than *he that is* perverse in his lips, and is a fool.
 
 [Proverbs 19:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.1?lang=eng#p1)
 

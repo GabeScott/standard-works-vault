@@ -1,6 +1,6 @@
 # Psalms 57:4
 
-> My soul is among lions: and I lie even among them that are set on fire, even the sons of men, whose <u>teeth</u>[^a] are spears and arrows, and their <u>tongue</u>[^b] a sharp <u>sword</u>[^c] .
+> My soul *is* among lions: *and* I lie *even among* them that are set on fire, *even* the sons of men, whose <u>teeth</u>[^a] *are* spears and arrows, and their <u>tongue</u>[^b] a sharp <u>sword</u>[^c].
 
 [Psalms 57:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/57.4?lang=eng#p4)
 

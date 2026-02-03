@@ -1,6 +1,6 @@
 # Daniel 10:7
 
-> And I Daniel alone saw the <u>vision</u>[^a] : for the men that were with me saw not the vision; but a great quaking fell upon them, so that they fled to hide themselves.
+> And I Daniel alone saw the <u>vision</u>[^a]: for the men that were with me saw not the vision; but a great quaking fell upon them, so that they fled to hide themselves.
 
 [Daniel 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/10.7?lang=eng#p7)
 

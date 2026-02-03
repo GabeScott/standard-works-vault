@@ -1,6 +1,6 @@
 # Moses 5:23
 
-> If thou doest well, thou shalt be <u>accepted</u>[^a] . And if thou doest not well, sin lieth at the door, and Satan <u>desireth</u>[^b] to have thee; and except thou shalt hearken unto my commandments, I will <u>deliver</u>[^c] thee up, and it shall be unto thee according to his desire. And thou shalt <u>rule</u>[^d] over him;
+> If thou doest well, thou shalt be <u>accepted</u>[^a]. And if thou doest not well, sin lieth at the door, and Satan <u>desireth</u>[^b] to have thee; and except thou shalt hearken unto my commandments, I will <u>deliver</u>[^c] thee up, and it shall be unto thee according to his desire. And thou shalt <u>rule</u>[^d] over him;
 
 [Moses 5:23](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.23?lang=eng#p23)
 

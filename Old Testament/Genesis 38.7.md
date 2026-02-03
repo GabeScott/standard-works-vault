@@ -1,6 +1,6 @@
 # Genesis 38:7
 
-> And <u>Er</u>[^a], Judah’s firstborn, was wicked in the sight of the Lord ; and the Lord slew him.
+> And <u>Er</u>[^a], Judah’s firstborn, was wicked in the sight of the LORD; and the LORD slew him.
 
 [Genesis 38:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/38.7?lang=eng#p7)
 

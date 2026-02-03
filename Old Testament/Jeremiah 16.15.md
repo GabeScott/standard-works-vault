@@ -1,6 +1,6 @@
 # Jeremiah 16:15
 
-> But, The Lord liveth, that <u>brought up</u>[^a] the children of Israel from the land of the <u>north</u>[^b], and from all the <u>lands</u>[^c] whither he had driven them: and I will <u>bring</u>[^d] them again into their <u>land</u>[^e] that I gave unto their fathers.
+> But, The LORD liveth, that <u>brought up</u>[^a] the children of Israel from the land of the <u>north</u>[^b], and from all the <u>lands</u>[^c] whither he had driven them: and I will <u>bring</u>[^d] them again into their <u>land</u>[^e] that I gave unto their fathers.
 
 [Jeremiah 16:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.15?lang=eng#p15)
 

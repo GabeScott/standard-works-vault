@@ -1,6 +1,6 @@
 # Exodus 2:18
 
-> And when they came to <u>Reuel</u>[^a] their father, he said, How is it that ye are come so soon to day?
+> And when they came to <u>Reuel</u>[^a] their father, he said, How *is it that* ye are come so soon to day?
 
 [Exodus 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.18?lang=eng#p18)
 

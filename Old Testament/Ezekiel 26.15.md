@@ -1,6 +1,6 @@
 # Ezekiel 26:15
 
-> ¶ Thus saith the Lord God to Tyrus; Shall not the <u>isles</u>[^a] <u>shake</u>[^b] at the sound of thy fall, when the wounded cry, when the slaughter is made in the midst of thee?
+> ¶ Thus saith the Lord GOD to Tyrus; Shall not the <u>isles</u>[^a] <u>shake</u>[^b] at the sound of thy fall, when the wounded cry, when the slaughter is made in the midst of thee?
 
 [Ezekiel 26:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/26.15?lang=eng#p15)
 

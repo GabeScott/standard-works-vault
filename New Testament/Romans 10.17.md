@@ -1,6 +1,6 @@
 # Romans 10:17
 
-> So then <u>faith</u>[^a] cometh by <u>hearing</u>[^b], and hearing by the word of God.
+> So then <u>faith</u>[^a] *cometh* by <u>hearing</u>[^b], and hearing by the word of God.
 
 [Romans 10:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.17?lang=eng#p17)
 

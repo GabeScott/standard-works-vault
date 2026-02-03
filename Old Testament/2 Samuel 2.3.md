@@ -1,6 +1,6 @@
 # 2 Samuel 2:3
 
-> And his <u>men</u>[^a] that were with him did David bring up, every man with his household: and they dwelt in the cities of Hebron.
+> And his <u>men</u>[^a] that *were* with him did David bring up, every man with his household: and they dwelt in the cities of Hebron.
 
 [2 Samuel 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/2.3?lang=eng#p3)
 

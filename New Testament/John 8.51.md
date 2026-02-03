@@ -1,6 +1,6 @@
 # John 8:51
 
-> Verily, verily, I say unto you, If a man keep my saying, he shall never see <u>death</u>[^a] .
+> Verily, verily, I say unto you, If a man keep my saying, he shall never see <u>death</u>[^a].
 
 [John 8:51](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.51?lang=eng#p51)
 

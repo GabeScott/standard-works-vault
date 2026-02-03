@@ -1,6 +1,6 @@
 # Mark 16:15
 
-> And he said unto them, Go ye into all the world, and <u>preach</u>[^a] the <u>gospel</u>[^b] to every <u>creature</u>[^c] .
+> And he said unto them, Go ye into all the world, and <u>preach</u>[^a] the <u>gospel</u>[^b] to every <u>creature</u>[^c].
 
 [Mark 16:15](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # Isaiah 63:15
 
-> ¶ <u>Look</u>[^a] down from heaven, and behold from the habitation of thy <u>holiness</u>[^b] and of thy glory: where is thy zeal and thy strength, <u>the</u>[^c] sounding of thy bowels and of thy mercies toward me? are they restrained?
+> ¶ <u>Look</u>[^a] down from heaven, and behold from the habitation of thy <u>holiness</u>[^b] and of thy glory: where *is* thy zeal and thy strength, <u>the</u>[^c] sounding of thy bowels and of thy mercies toward me? are they restrained?
 
 [Isaiah 63:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.15?lang=eng#p15)
 

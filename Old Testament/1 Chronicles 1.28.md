@@ -1,6 +1,6 @@
 # 1 Chronicles 1:28
 
-> The sons of Abraham; Isaac, and <u>Ishmael</u>[^a] .
+> The sons of Abraham; Isaac, and <u>Ishmael</u>[^a].
 
 [1 Chronicles 1:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/1.28?lang=eng#p28)
 

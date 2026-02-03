@@ -1,6 +1,6 @@
 # John 19:35
 
-> And he that <u>saw</u>[^a] it bare <u>record</u>[^b], and his record is true: and he knoweth that he saith true, that ye might believe.
+> And he that <u>saw</u>[^a] *it* bare <u>record</u>[^b], and his record is true: and he knoweth that he saith true, that ye might believe.
 
 [John 19:35](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.35?lang=eng#p35)
 

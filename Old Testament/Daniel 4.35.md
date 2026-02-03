@@ -1,6 +1,6 @@
 # Daniel 4:35
 
-> And all the inhabitants of the earth are reputed as <u>nothing</u>[^a] : and he doeth according to his <u>will</u>[^b] in the army of heaven, and among the inhabitants of the earth: and none can <u>stay</u>[^c] his hand, or say unto him, What doest thou?
+> And all the inhabitants of the earth *are* reputed as <u>nothing</u>[^a]: and he doeth according to his <u>will</u>[^b] in the army of heaven, and *among* the inhabitants of the earth: and none can <u>stay</u>[^c] his hand, or say unto him, What doest thou?
 
 [Daniel 4:35](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/4.35?lang=eng#p35)
 

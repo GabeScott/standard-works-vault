@@ -1,6 +1,6 @@
 # Amos 4:4
 
-> ¶ Come to Beth-el, and transgress; at <u>Gilgal</u>[^a] multiply transgression; and bring your sacrifices every morning, and your <u>tithes</u>[^b] after three <u>years</u>[^c] :
+> ¶ Come to Beth-el, and transgress; at <u>Gilgal</u>[^a] multiply transgression; and bring your sacrifices every morning, *and* your <u>tithes</u>[^b] after three <u>years</u>[^c]:
 
 [Amos 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/4.4?lang=eng#p4)
 

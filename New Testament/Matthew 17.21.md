@@ -1,6 +1,6 @@
 # Matthew 17:21
 
-> Howbeit this <u>kind</u>[^a] goeth not out but by prayer and <u>fasting</u>[^b] .
+> Howbeit this <u>kind</u>[^a] goeth not out but by prayer and <u>fasting</u>[^b].
 
 [Matthew 17:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.21?lang=eng#p21)
 

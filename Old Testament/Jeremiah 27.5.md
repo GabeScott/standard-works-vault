@@ -1,6 +1,6 @@
 # Jeremiah 27:5
 
-> I have made the <u>earth</u>[^a], the man and the beast that are upon the ground, by my great power and by my outstretched arm, and have <u>given</u>[^b] it unto whom it seemed meet unto me.
+> I have made the <u>earth</u>[^a], the man and the beast that *are* upon the ground, by my great power and by my outstretched arm, and have <u>given</u>[^b] it unto whom it seemed meet unto me.
 
 [Jeremiah 27:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.5?lang=eng#p5)
 

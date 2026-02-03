@@ -1,6 +1,6 @@
 # Matthew 1:6
 
-> And Jesse begat David the king; and David the king begat <u>Solomon</u>[^a] of her that had been the wife of Urias;
+> And Jesse begat David the king; and David the king begat <u>Solomon</u>[^a] of her *that had been the wife* of Urias;
 
 [Matthew 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.6?lang=eng#p6)
 

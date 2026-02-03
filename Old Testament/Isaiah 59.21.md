@@ -1,6 +1,6 @@
 # Isaiah 59:21
 
-> As for me, this is my <u>covenant</u>[^a] with them, saith the Lord ; My spirit that is upon thee, and my words which I have put in thy mouth, shall not depart out of thy mouth, nor out of the mouth of thy seed, nor out of the mouth of thy seed’s seed, saith the Lord , from henceforth and for ever.
+> As for me, this *is* my <u>covenant</u>[^a] with them, saith the LORD; My spirit that *is* upon thee, and my words which I have put in thy mouth, shall not depart out of thy mouth, nor out of the mouth of thy seed, nor out of the mouth of thy seed’s seed, saith the LORD, from henceforth and for ever.
 
 [Isaiah 59:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.21?lang=eng#p21)
 

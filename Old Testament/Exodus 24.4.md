@@ -1,6 +1,6 @@
 # Exodus 24:4
 
-> And Moses <u>wrote</u>[^a] all the words of the Lord , and rose up early in the morning, and builded an <u>altar</u>[^b] <u>under the hill</u>[^c], and twelve <u>pillars</u>[^d], according to the twelve tribes of Israel.
+> And Moses <u>wrote</u>[^a] all the words of the LORD, and rose up early in the morning, and builded an <u>altar</u>[^b] <u>under the hill</u>[^c], and twelve <u>pillars</u>[^d], according to the twelve tribes of Israel.
 
 [Exodus 24:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.4?lang=eng#p4)
 

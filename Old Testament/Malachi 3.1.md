@@ -1,6 +1,6 @@
 # Malachi 3:1
 
-> Behold, I will <u>send</u>[^a] my <u>messenger</u>[^b], and he shall prepare the way before me: and the Lord, whom ye seek, shall suddenly <u>come</u>[^c] to his <u>temple</u>[^d], even the <u>messenger</u>[^e] of the covenant, whom ye delight in: behold, he shall come, saith the Lord of hosts.
+> Behold, I will <u>send</u>[^a] my <u>messenger</u>[^b], and he shall prepare the way before me: and the Lord, whom ye seek, shall suddenly <u>come</u>[^c] to his <u>temple</u>[^d], even the <u>messenger</u>[^e] of the covenant, whom ye delight in: behold, he shall come, saith the LORD of hosts.
 
 [Malachi 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Isaiah 51:1
 
-> <u>Hearken</u>[^a] to me, ye that follow after righteousness, ye that seek the Lord : look unto the <u>rock</u>[^b] whence ye are hewn, and to the hole of the pit whence ye are digged.
+> <u>Hearken</u>[^a] to me, ye that follow after righteousness, ye that seek the LORD: look unto the <u>rock</u>[^b] *whence* ye are hewn, and to the hole of the pit *whence* ye are digged.
 
 [Isaiah 51:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.1?lang=eng#p1)
 

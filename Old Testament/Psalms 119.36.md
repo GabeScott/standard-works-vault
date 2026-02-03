@@ -1,6 +1,6 @@
 # Psalms 119:36
 
-> Incline my heart unto thy testimonies, and not to <u>covetousness</u>[^a] .
+> Incline my heart unto thy testimonies, and not to <u>covetousness</u>[^a].
 
 [Psalms 119:36](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.36?lang=eng#p36)
 

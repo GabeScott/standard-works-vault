@@ -1,6 +1,6 @@
 # Deuteronomy 5:2
 
-> The Lord our God made a <u>covenant</u>[^a] with us in Horeb.
+> The LORD our God made a <u>covenant</u>[^a] with us in Horeb.
 
 [Deuteronomy 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.2?lang=eng#p2)
 

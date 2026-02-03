@@ -1,6 +1,6 @@
 # Genesis 36:1
 
-> Now these are the generations of Esau, who is <u>Edom</u>[^a] .
+> Now these *are* the generations of Esau, who *is* <u>Edom</u>[^a].
 
 [Genesis 36:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/36.1?lang=eng#p1)
 

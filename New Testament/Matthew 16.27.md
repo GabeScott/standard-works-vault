@@ -1,6 +1,6 @@
 # Matthew 16:27
 
-> For the <u>Son of man</u>[^a] shall come in the <u>glory</u>[^b] of his Father with his angels; and then he shall <u>reward</u>[^c] every man according to his <u>works</u>[^d] .
+> For the <u>Son of man</u>[^a] shall come in the <u>glory</u>[^b] of his Father with his angels; and then he shall <u>reward</u>[^c] every man according to his <u>works</u>[^d].
 
 [Matthew 16:27](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.27?lang=eng#p27)
 

@@ -1,6 +1,6 @@
 # Romans 7:10
 
-> And the commandment, which was ordained to life, I found to be unto <u>death</u>[^a] .
+> And the commandment, which *was ordained* to life, I found *to be* unto <u>death</u>[^a].
 
 [Romans 7:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.10?lang=eng#p10)
 

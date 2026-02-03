@@ -1,6 +1,6 @@
 # Exodus 5:2
 
-> And Pharaoh said, Who is the Lord , that I should <u>obey</u>[^a] his voice to let Israel go? I <u>know not</u>[^b] the Lord , neither will I let Israel go.
+> And Pharaoh said, Who *is* the LORD, that I should <u>obey</u>[^a] his voice to let Israel go? I <u>know not</u>[^b] the LORD, neither will I let Israel go.
 
 [Exodus 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/5.2?lang=eng#p2)
 

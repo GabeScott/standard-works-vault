@@ -1,6 +1,6 @@
 # Ezekiel 41:4
 
-> So he measured the length thereof, twenty cubits; and the breadth, twenty cubits, before the temple: and he said unto me, This is the most <u>holy place</u>[^a] .
+> So he measured the length thereof, twenty cubits; and the breadth, twenty cubits, before the temple: and he said unto me, This *is* the most <u>holy place</u>[^a]*.*
 
 [Ezekiel 41:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.4?lang=eng#p4)
 

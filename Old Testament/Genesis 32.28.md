@@ -1,6 +1,6 @@
 # Genesis 32:28
 
-> And he said, Thy <u>name</u>[^a] shall be called no more Jacob, but <u>Israel</u>[^b] : <u>for</u>[^c] as a <u>prince</u>[^d] hast thou <u>power</u>[^e] with God and with men, and hast <u>prevailed</u>[^f] .
+> And he said, Thy <u>name</u>[^a] shall be called no more Jacob, but <u>Israel</u>[^b]: <u>for</u>[^c] as a <u>prince</u>[^d] hast thou <u>power</u>[^e] with God and with men, and hast <u>prevailed</u>[^f].
 
 [Genesis 32:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.28?lang=eng#p28)
 

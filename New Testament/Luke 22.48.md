@@ -1,6 +1,6 @@
 # Luke 22:48
 
-> But Jesus said unto him, <u>Judas</u>[^a], <u>betrayest</u>[^b] thou the Son of man with a <u>kiss</u>[^c] ?
+> But Jesus said unto him, <u>Judas</u>[^a], <u>betrayest</u>[^b] thou the Son of man with a <u>kiss</u>[^c]?
 
 [Luke 22:48](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.48?lang=eng#p48)
 

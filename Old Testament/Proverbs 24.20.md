@@ -1,6 +1,6 @@
 # Proverbs 24:20
 
-> For there shall be no reward to the evil man; the <u>candle</u>[^a] of the wicked shall be put out.
+> For there shall be no reward to the evil *man;* the <u>candle</u>[^a] of the wicked shall be put out.
 
 [Proverbs 24:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.20?lang=eng#p20)
 

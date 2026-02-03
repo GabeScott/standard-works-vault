@@ -1,6 +1,6 @@
 # Matthew 2:2
 
-> Saying, <u>Where</u>[^a] is he that is born <u>King of the Jews</u>[^b] ? for we have seen his <u>star</u>[^c] in the east, and are come to <u>worship</u>[^d] him.
+> Saying, <u>Where</u>[^a] is he that is born <u>King of the Jews</u>[^b]? for we have seen his <u>star</u>[^c] in the east, and are come to <u>worship</u>[^d] him.
 
 [Matthew 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.2?lang=eng#p2)
 

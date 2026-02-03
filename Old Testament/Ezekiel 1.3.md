@@ -1,6 +1,6 @@
 # Ezekiel 1:3
 
-> The word of the Lord came expressly unto Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the river Chebar; and the <u>hand</u>[^a] of the Lord was there upon him.
+> The word of the LORD came expressly unto Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the river Chebar; and the <u>hand</u>[^a] of the LORD was there upon him.
 
 [Ezekiel 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.3?lang=eng#p3)
 

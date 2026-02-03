@@ -1,6 +1,6 @@
 # 2 Chronicles 35:6
 
-> So kill the passover, and <u>sanctify</u>[^a] yourselves, and <u>prepare</u>[^b] your brethren, that they may do according to the word of the Lord by the hand of Moses.
+> So kill the passover, and <u>sanctify</u>[^a] yourselves, and <u>prepare</u>[^b] your brethren, that *they* may do according to the word of the LORD by the hand of Moses.
 
 [2 Chronicles 35:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/35.6?lang=eng#p6)
 

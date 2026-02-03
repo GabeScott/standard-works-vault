@@ -1,6 +1,6 @@
 # Jeremiah 1:14
 
-> Then the Lord said unto me, Out of the <u>north</u>[^a] an evil shall break forth upon all the inhabitants of the land.
+> Then the LORD said unto me, Out of the <u>north</u>[^a] an evil shall break forth upon all the inhabitants of the land.
 
 [Jeremiah 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.14?lang=eng#p14)
 

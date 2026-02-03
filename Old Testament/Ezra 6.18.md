@@ -1,6 +1,6 @@
 # Ezra 6:18
 
-> And they set the <u>priests</u>[^a] in their divisions, and the Levites in their <u>courses</u>[^b], for the <u>service</u>[^c] of God, which is at Jerusalem; as it is written in the book of Moses.
+> And they set the <u>priests</u>[^a] in their divisions, and the Levites in their <u>courses</u>[^b], for the <u>service</u>[^c] of God, which *is* at Jerusalem; as it is written in the book of Moses.
 
 [Ezra 6:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.18?lang=eng#p18)
 

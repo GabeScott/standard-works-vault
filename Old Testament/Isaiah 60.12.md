@@ -1,6 +1,6 @@
 # Isaiah 60:12
 
-> For the <u>nation</u>[^a] and <u>kingdom</u>[^b] that will not serve thee shall <u>perish</u>[^c]; yea, those <u>nations</u>[^d] shall be utterly wasted.
+> For the <u>nation</u>[^a] and <u>kingdom</u>[^b] that will not serve thee shall <u>perish</u>[^c]; yea, *those* <u>nations</u>[^d] shall be utterly wasted.
 
 [Isaiah 60:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.12?lang=eng#p12)
 

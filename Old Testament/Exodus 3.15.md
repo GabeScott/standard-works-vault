@@ -1,6 +1,6 @@
 # Exodus 3:15
 
-> And God said moreover unto Moses, Thus shalt thou say unto the children of Israel, The <u>Lord God</u>[^a] of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath sent me unto you: this is my <u>name</u>[^b] for ever, and <u>this</u>[^c] is my <u>memorial</u>[^d] unto all generations.
+> And God said moreover unto Moses, Thus shalt thou say unto the children of Israel, The <u>Lord God</u>[^a] of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath sent me unto you: this *is* my <u>name</u>[^b] for ever, and <u>this</u>[^c] *is* my <u>memorial</u>[^d] unto all generations.
 
 [Exodus 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.15?lang=eng#p15)
 

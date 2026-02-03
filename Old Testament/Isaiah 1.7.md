@@ -1,6 +1,6 @@
 # Isaiah 1:7
 
-> Your <u>country</u>[^a] is <u>desolate</u>[^b], your cities are burned with fire: your land, <u>strangers</u>[^c] devour it in your presence, and it is desolate, as overthrown by strangers.
+> Your <u>country</u>[^a] *is* <u>desolate</u>[^b], your cities *are* burned with fire: your land, <u>strangers</u>[^c] devour it in your presence, and *it is* desolate, as overthrown by strangers.
 
 [Isaiah 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.7?lang=eng#p7)
 

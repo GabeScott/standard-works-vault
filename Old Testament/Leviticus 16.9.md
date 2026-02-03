@@ -1,6 +1,6 @@
 # Leviticus 16:9
 
-> And Aaron shall bring the goat upon which the Lord ’s lot fell, and offer him for a sin <u>offering</u>[^a] .
+> And Aaron shall bring the goat upon which the LORD’s lot fell, and offer him *for* a sin <u>offering</u>[^a].
 
 [Leviticus 16:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.9?lang=eng#p9)
 

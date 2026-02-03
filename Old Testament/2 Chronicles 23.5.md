@@ -1,6 +1,6 @@
 # 2 Chronicles 23:5
 
-> And a third part shall be at the king’s house; and a third part at the <u>gate</u>[^a] of the foundation: and all the people shall be in the courts of the house of the Lord .
+> And a third part *shall be* at the king’s house; and a third part at the <u>gate</u>[^a] of the foundation: and all the people *shall be* in the courts of the house of the LORD.
 
 [2 Chronicles 23:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/23.5?lang=eng#p5)
 

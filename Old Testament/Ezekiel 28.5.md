@@ -1,6 +1,6 @@
 # Ezekiel 28:5
 
-> By thy great <u>wisdom</u>[^a] and by thy traffick hast thou increased thy riches, and thine heart is lifted up because of thy riches:
+> By thy great <u>wisdom</u>[^a] *and* by thy traffick hast thou increased thy riches, and thine heart is lifted up because of thy riches:
 
 [Ezekiel 28:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.5?lang=eng#p5)
 

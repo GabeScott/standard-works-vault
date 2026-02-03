@@ -1,6 +1,6 @@
 # Deuteronomy 28:38
 
-> Thou shalt carry much <u>seed</u>[^a] out into the field, and shalt gather but little in; for the locust shall consume it.
+> Thou shalt carry much <u>seed</u>[^a] out into the field, and shalt gather *but* little in; for the locust shall consume it.
 
 [Deuteronomy 28:38](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.38?lang=eng#p38)
 

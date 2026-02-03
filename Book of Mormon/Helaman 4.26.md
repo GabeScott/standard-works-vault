@@ -1,6 +1,6 @@
 # Helaman 4:26
 
-> For behold, they saw that the strength of the Lamanites was as great as their strength, even man for man. And thus had they fallen into this great transgression; yea, thus had they become <u>weak</u>[^a], because of their transgression, in the space of <u>not many years</u>[^b] .
+> For behold, they saw that the strength of the Lamanites was as great as their strength, even man for man. And thus had they fallen into this great transgression; yea, thus had they become <u>weak</u>[^a], because of their transgression, in the space of <u>not many years</u>[^b].
 
 [Helaman 4:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p26#p26)
 

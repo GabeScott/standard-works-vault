@@ -1,6 +1,6 @@
 # Jeremiah 16:21
 
-> Therefore, behold, I will this once cause them to know, I will cause them to know mine hand and my might; and they shall <u>know</u>[^a] that my <u>name</u>[^b] is The Lord .
+> Therefore, behold, I will this once cause them to know, I will cause them to know mine hand and my might; and they shall <u>know</u>[^a] that my <u>name</u>[^b] *is* The LORD.
 
 [Jeremiah 16:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.21?lang=eng#p21)
 

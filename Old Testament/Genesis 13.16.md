@@ -1,6 +1,6 @@
 # Genesis 13:16
 
-> And I will make thy <u>seed</u>[^a] as the <u>dust</u>[^b] of the earth: so that if a man can number the dust of the earth, then shall thy seed also be numbered.
+> And I will make thy <u>seed</u>[^a] as the <u>dust</u>[^b] of the earth: so that if a man can number the dust of the earth, *then* shall thy seed also be numbered.
 
 [Genesis 13:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/13.16?lang=eng#p16)
 

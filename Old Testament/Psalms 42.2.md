@@ -1,6 +1,6 @@
 # Psalms 42:2
 
-> My soul <u>thirsteth</u>[^a] for God, for the <u>living God</u>[^b] : when shall I come and appear before God?
+> My soul <u>thirsteth</u>[^a] for God, for the <u>living God</u>[^b]: when shall I come and appear before God?
 
 [Psalms 42:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/42.2?lang=eng#p2)
 

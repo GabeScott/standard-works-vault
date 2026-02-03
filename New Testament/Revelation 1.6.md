@@ -1,6 +1,6 @@
 # Revelation 1:6
 
-> And hath made us <u>kings</u>[^a] and <u>priests</u>[^b] unto God and his Father; to him be <u>glory</u>[^c] and <u>dominion</u>[^d] for ever and ever. Amen.
+> And hath made us <u>kings</u>[^a] and <u>priests</u>[^b] unto God and his Father; to him *be* <u>glory</u>[^c] and <u>dominion</u>[^d] for ever and ever. Amen.
 
 [Revelation 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Isaiah 66:5
 
-> ¶ Hear the word of the Lord , ye that tremble at his word; Your brethren that hated you, that <u>cast</u>[^a] you out for my name’s sake, said, Let the Lord be <u>glorified</u>[^b] : but he shall appear to your joy, and they shall be ashamed.
+> ¶ Hear the word of the LORD, ye that tremble at his word; Your brethren that hated you, that <u>cast</u>[^a] you out for my name’s sake, said, Let the LORD be <u>glorified</u>[^b]: but he shall appear to your joy, and they shall be ashamed.
 
 [Isaiah 66:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.5?lang=eng#p5)
 

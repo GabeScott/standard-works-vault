@@ -1,6 +1,6 @@
 # 2 Nephi 3:3
 
-> And now, Joseph, my last-born, whom I have brought out of the wilderness of mine afflictions, may the Lord bless thee forever, for thy <u>seed</u>[^a] shall not utterly be <u>destroyed</u>[^b] .
+> And now, Joseph, my last-born, whom I have brought out of the wilderness of mine afflictions, may the Lord bless thee forever, for thy <u>seed</u>[^a] shall not utterly be <u>destroyed</u>[^b].
 
 [2 Nephi 3:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p3#p3)
 

@@ -1,6 +1,6 @@
 # Joel 3:10
 
-> Beat your plowshares into swords, and your pruninghooks into spears: let the weak say, I am <u>strong</u>[^a] .
+> Beat your plowshares into swords, and your pruninghooks into spears: let the weak say, I *am* <u>strong</u>[^a].
 
 [Joel 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.10?lang=eng#p10)
 

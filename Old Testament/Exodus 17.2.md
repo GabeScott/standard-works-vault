@@ -1,6 +1,6 @@
 # Exodus 17:2
 
-> Wherefore the people <u>did chide with</u>[^a] Moses, and said, Give us water that we may drink. And Moses said unto them, Why chide ye with me? wherefore do ye <u>tempt the Lord</u>[^b] ?
+> Wherefore the people <u>did chide with</u>[^a] Moses, and said, Give us water that we may drink. And Moses said unto them, Why chide ye with me? wherefore do ye <u>tempt the Lord</u>[^b]?
 
 [Exodus 17:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.2?lang=eng#p2)
 

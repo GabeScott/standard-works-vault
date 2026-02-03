@@ -1,6 +1,6 @@
 # Zechariah 14:16
 
-> ¶ And it shall come to pass, that every one that is left of all the nations which came against Jerusalem shall even go up from year to year to <u>worship</u>[^a] the <u>King</u>[^b], the Lord of hosts, and to keep the <u>feast</u>[^c] of <u>tabernacles</u>[^d] .
+> ¶ And it shall come to pass, *that* every one that is left of all the nations which came against Jerusalem shall even go up from year to year to <u>worship</u>[^a] the <u>King</u>[^b], the LORD of hosts, and to keep the <u>feast</u>[^c] of <u>tabernacles</u>[^d].
 
 [Zechariah 14:16](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.16?lang=eng#p16)
 

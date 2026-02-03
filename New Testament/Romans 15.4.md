@@ -1,6 +1,6 @@
 # Romans 15:4
 
-> For whatsoever things were <u>written</u>[^a] aforetime were <u>written</u>[^b] for our <u>learning</u>[^c], that we through <u>patience</u>[^d] and comfort of the <u>scriptures</u>[^e] might have <u>hope</u>[^f] .
+> For whatsoever things were <u>written</u>[^a] aforetime were <u>written</u>[^b] for our <u>learning</u>[^c], that we through <u>patience</u>[^d] and comfort of the <u>scriptures</u>[^e] might have <u>hope</u>[^f].
 
 [Romans 15:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.4?lang=eng#p4)
 

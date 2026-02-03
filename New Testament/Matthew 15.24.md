@@ -1,6 +1,6 @@
 # Matthew 15:24
 
-> But he answered and said, I am not <u>sent</u>[^a] but unto the lost sheep of the house of <u>Israel</u>[^b] .
+> But he answered and said, I am not <u>sent</u>[^a] but unto the lost sheep of the house of <u>Israel</u>[^b].
 
 [Matthew 15:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.24?lang=eng#p24)
 

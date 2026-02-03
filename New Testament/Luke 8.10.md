@@ -1,6 +1,6 @@
 # Luke 8:10
 
-> And he said, Unto you it is given to know the <u>mysteries</u>[^a] of the kingdom of God: but to others in <u>parables</u>[^b]; that seeing they might not see, and hearing they might not <u>understand</u>[^c] .
+> And he said, Unto you it is given to know the <u>mysteries</u>[^a] of the kingdom of God: but to others in <u>parables</u>[^b]; that seeing they might not see, and hearing they might not <u>understand</u>[^c].
 
 [Luke 8:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.10?lang=eng#p10)
 

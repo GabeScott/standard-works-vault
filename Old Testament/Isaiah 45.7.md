@@ -1,6 +1,6 @@
 # Isaiah 45:7
 
-> I form the <u>light</u>[^a], and create darkness: I make peace, and create <u>evil</u>[^b] : I the Lord do all these things.
+> I form the <u>light</u>[^a], and create darkness: I make peace, and create <u>evil</u>[^b]: I the LORD do all these *things.*
 
 [Isaiah 45:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.7?lang=eng#p7)
 

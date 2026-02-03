@@ -1,6 +1,6 @@
 # John 21:24
 
-> This is the <u>disciple</u>[^a] which testifieth of these things, and <u>wrote</u>[^b] these things: and we know that his testimony is <u>true</u>[^c] .
+> This is the <u>disciple</u>[^a] which testifieth of these things, and <u>wrote</u>[^b] these things: and we know that his testimony is <u>true</u>[^c].
 
 [John 21:24](https://www.churchofjesuschrist.org/study/scriptures/nt/john/21.24?lang=eng#p24)
 

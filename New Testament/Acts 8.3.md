@@ -1,6 +1,6 @@
 # Acts 8:3
 
-> As for Saul, he made <u>havoc</u>[^a] of the church, entering into every house, and haling men and women committed them to <u>prison</u>[^b] .
+> As for Saul, he made <u>havoc</u>[^a] of the church, entering into every house, and haling men and women committed *them* to <u>prison</u>[^b].
 
 [Acts 8:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.3?lang=eng#p3)
 

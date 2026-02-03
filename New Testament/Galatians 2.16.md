@@ -1,6 +1,6 @@
 # Galatians 2:16
 
-> Knowing that a man is not <u>justified</u>[^a] by the works of the <u>law</u>[^b], but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the <u>faith</u>[^c] of Christ, and not by the <u>works</u>[^d] of the <u>law</u>[^e] : for by the works of the law shall no flesh be <u>justified</u>[^f] .
+> Knowing that a man is not <u>justified</u>[^a] by the works of the <u>law</u>[^b], but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the <u>faith</u>[^c] of Christ, and not by the <u>works</u>[^d] of the <u>law</u>[^e]: for by the works of the law shall no flesh be <u>justified</u>[^f].
 
 [Galatians 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Isaiah 2:5
 
-> O house of Jacob, come ye, and let us <u>walk</u>[^a] in the <u>light</u>[^b] of the Lord .
+> O house of Jacob, come ye, and let us <u>walk</u>[^a] in the <u>light</u>[^b] of the LORD.
 
 [Isaiah 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.5?lang=eng#p5)
 

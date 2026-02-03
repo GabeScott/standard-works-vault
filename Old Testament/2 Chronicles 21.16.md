@@ -1,6 +1,6 @@
 # 2 Chronicles 21:16
 
-> ¶ Moreover the Lord stirred up against Jehoram the spirit of the Philistines, and of the <u>Arabians</u>[^a], that were near the Ethiopians:
+> ¶ Moreover the LORD stirred up against Jehoram the spirit of the Philistines, and of the <u>Arabians</u>[^a], that *were* near the Ethiopians:
 
 [2 Chronicles 21:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.16?lang=eng#p16)
 

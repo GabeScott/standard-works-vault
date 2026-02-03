@@ -1,6 +1,6 @@
 # Romans 2:6
 
-> Who will <u>render</u>[^a] to every man <u>according</u>[^b] to his <u>deeds</u>[^c] :
+> Who will <u>render</u>[^a] to every man <u>according</u>[^b] to his <u>deeds</u>[^c]:
 
 [Romans 2:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.6?lang=eng#p6)
 

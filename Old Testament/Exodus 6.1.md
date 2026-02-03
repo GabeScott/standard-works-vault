@@ -1,6 +1,6 @@
 # Exodus 6:1
 
-> Then the Lord said unto Moses, Now shalt thou see what I will do to Pharaoh: for <u>with a strong hand</u>[^a] shall he let them go, and with a <u>strong</u>[^b] hand shall he <u>drive</u>[^c] them out of his land.
+> Then the LORD said unto Moses, Now shalt thou see what I will do to Pharaoh: for <u>with a strong hand</u>[^a] shall he let them go, and with a <u>strong</u>[^b] hand shall he <u>drive</u>[^c] them out of his land.
 
 [Exodus 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Judges 6:13
 
-> And Gideon said unto him, Oh my Lord, if the Lord be with us, why then is all this befallen us? and where be all his <u>miracles</u>[^a] which our fathers told us of, saying, Did not the Lord bring us up from Egypt? but now the Lord hath forsaken us, and delivered us into the hands of the Midianites.
+> And Gideon said unto him, Oh my Lord, if the LORD be with us, why then is all this befallen us? and where *be* all his <u>miracles</u>[^a] which our fathers told us of, saying, Did not the LORD bring us up from Egypt? but now the LORD hath forsaken us, and delivered us into the hands of the Midianites.
 
 [Judges 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.13?lang=eng#p13)
 

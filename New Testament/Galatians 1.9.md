@@ -1,6 +1,6 @@
 # Galatians 1:9
 
-> As we said before, so say I now again, If any man preach any other <u>gospel</u>[^a] unto you than that ye have received, let him be <u>accursed</u>[^b] .
+> As we said before, so say I now again, If any *man* preach any other <u>gospel</u>[^a] unto you than that ye have received, let him be <u>accursed</u>[^b].
 
 [Galatians 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.9?lang=eng#p9)
 

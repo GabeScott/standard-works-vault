@@ -1,6 +1,6 @@
 # Ezra 7:25
 
-> And thou, Ezra, after the wisdom of thy God, that is in thine hand, set magistrates and <u>judges</u>[^a], which may judge all the people that are <u>beyond the river</u>[^b], all such as know the <u>laws</u>[^c] of thy God; and <u>teach</u>[^d] ye them that know them not.
+> And thou, Ezra, after the wisdom of thy God, that *is* in thine hand, set magistrates and <u>judges</u>[^a], which may judge all the people that *are* <u>beyond the river</u>[^b], all such as know the <u>laws</u>[^c] of thy God; and <u>teach</u>[^d] ye them that know *them* not.
 
 [Ezra 7:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/7.25?lang=eng#p25)
 

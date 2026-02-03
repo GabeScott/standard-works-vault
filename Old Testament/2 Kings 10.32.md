@@ -1,6 +1,6 @@
 # 2 Kings 10:32
 
-> ¶ In those days the Lord began to cut Israel short: and <u>Hazael</u>[^a] smote them in all the coasts of Israel;
+> ¶ In those days the LORD began to cut Israel short: and <u>Hazael</u>[^a] smote them in all the coasts of Israel;
 
 [2 Kings 10:32](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.32?lang=eng#p32)
 

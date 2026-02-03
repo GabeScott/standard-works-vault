@@ -1,6 +1,6 @@
 # Luke 1:33
 
-> And he shall <u>reign</u>[^a] over the house of Jacob for ever; and of his kingdom there shall be no <u>end</u>[^b] .
+> And he shall <u>reign</u>[^a] over the house of Jacob for ever; and of his kingdom there shall be no <u>end</u>[^b].
 
 [Luke 1:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.33?lang=eng#p33)
 

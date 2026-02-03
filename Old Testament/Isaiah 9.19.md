@@ -1,6 +1,6 @@
 # Isaiah 9:19
 
-> Through the wrath of the Lord of hosts is the land darkened, and the people shall be as the fuel of the fire: no man shall <u>spare</u>[^a] his <u>brother</u>[^b] .
+> Through the wrath of the LORD of hosts is the land darkened, and the people shall be as the fuel of the fire: no man shall <u>spare</u>[^a] his <u>brother</u>[^b].
 
 [Isaiah 9:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.19?lang=eng#p19)
 

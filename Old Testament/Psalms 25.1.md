@@ -1,6 +1,6 @@
 # Psalms 25:1
 
-> Unto thee, O Lord , do I <u>lift up</u>[^a] my soul.
+> Unto thee, O LORD, do I <u>lift up</u>[^a] my soul.
 
 [Psalms 25:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.1?lang=eng#p1)
 

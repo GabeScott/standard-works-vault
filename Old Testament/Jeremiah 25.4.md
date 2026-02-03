@@ -1,6 +1,6 @@
 # Jeremiah 25:4
 
-> And the Lord hath sent unto you all his servants the <u>prophets</u>[^a], rising early and sending them; but ye have not hearkened, nor inclined your ear to hear.
+> And the LORD hath sent unto you all his servants the <u>prophets</u>[^a], rising early and sending *them;* but ye have not hearkened, nor inclined your ear to hear.
 
 [Jeremiah 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.4?lang=eng#p4)
 

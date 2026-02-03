@@ -1,6 +1,6 @@
 # Jude 1:23
 
-> And others save with fear, pulling them out of the <u>fire</u>[^a]; hating even the <u>garment</u>[^b] spotted by the flesh.
+> And others save with fear, pulling *them* out of the <u>fire</u>[^a]; hating even the <u>garment</u>[^b] spotted by the flesh.
 
 [Jude 1:23](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.23?lang=eng#p23)
 

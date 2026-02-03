@@ -1,6 +1,6 @@
 # Jeremiah 30:24
 
-> The fierce anger of the Lord shall not return, until he have done it, and until he have performed the intents of his heart: in the <u>latter days</u>[^a] ye shall <u>consider it</u>[^b] .
+> The fierce anger of the LORD shall not return, until he have done *it,* and until he have performed the intents of his heart: in the <u>latter days</u>[^a] ye shall <u>consider it</u>[^b].
 
 [Jeremiah 30:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.24?lang=eng#p24)
 

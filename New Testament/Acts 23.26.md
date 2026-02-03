@@ -1,6 +1,6 @@
 # Acts 23:26
 
-> Claudius <u>Lysias</u>[^a] unto the most excellent governor Felix sendeth greeting.
+> Claudius <u>Lysias</u>[^a] unto the most excellent governor Felix *sendeth* greeting.
 
 [Acts 23:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.26?lang=eng#p26)
 

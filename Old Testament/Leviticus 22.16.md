@@ -1,6 +1,6 @@
 # Leviticus 22:16
 
-> <u>Or</u>[^a] suffer them to bear the iniquity of trespass, when they eat their holy things: for I the Lord do sanctify them.
+> <u>Or</u>[^a] suffer them to bear the iniquity of trespass, when they eat their holy things: for I the LORD do sanctify them.
 
 [Leviticus 22:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.16?lang=eng#p16)
 

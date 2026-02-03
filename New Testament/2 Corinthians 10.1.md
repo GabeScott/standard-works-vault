@@ -1,6 +1,6 @@
 # 2 Corinthians 10:1
 
-> Now I Paul myself beseech you by the <u>meekness</u>[^a] and gentleness of Christ, who in presence am base among you, but being absent am bold toward you:
+> Now I Paul myself beseech you by the <u>meekness</u>[^a] and gentleness of Christ, who in presence *am* base among you, but being absent am bold toward you:
 
 [2 Corinthians 10:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.1?lang=eng#p1)
 

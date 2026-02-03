@@ -1,6 +1,6 @@
 # Psalms 110:4
 
-> The Lord hath <u>sworn</u>[^a], and will not <u>repent</u>[^b], Thou art a <u>priest</u>[^c] for ever after the order of <u>Melchizedek</u>[^d] .
+> The LORD hath <u>sworn</u>[^a], and will not <u>repent</u>[^b], Thou *art* a <u>priest</u>[^c] for ever after the order of <u>Melchizedek</u>[^d].
 
 [Psalms 110:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/110.4?lang=eng#p4)
 

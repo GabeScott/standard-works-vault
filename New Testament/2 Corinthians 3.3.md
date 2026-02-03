@@ -1,6 +1,6 @@
 # 2 Corinthians 3:3
 
-> Forasmuch as ye are manifestly declared to be the epistle of Christ ministered by us, <u>written</u>[^a] not with ink, but with the Spirit of the living God; not in <u>tables</u>[^b] of stone, but in <u>fleshy</u>[^c] tables of the <u>heart</u>[^d] .
+> *Forasmuch as ye are* manifestly declared to be the epistle of Christ ministered by us, <u>written</u>[^a] not with ink, but with the Spirit of the living God; not in <u>tables</u>[^b] of stone, but in <u>fleshy</u>[^c] tables of the <u>heart</u>[^d].
 
 [2 Corinthians 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/3.3?lang=eng#p3)
 

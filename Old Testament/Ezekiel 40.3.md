@@ -1,6 +1,6 @@
 # Ezekiel 40:3
 
-> And he brought me thither, and, behold, there was a man, whose appearance was like the appearance of <u>brass</u>[^a], with a line of flax in his hand, and a <u>measuring</u>[^b] <u>reed</u>[^c]; and he stood in the gate.
+> And he brought me thither, and, behold, *there was* a man, whose appearance *was* like the appearance of <u>brass</u>[^a], with a line of flax in his hand, and a <u>measuring</u>[^b] <u>reed</u>[^c]; and he stood in the gate.
 
 [Ezekiel 40:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 2:33
 
-> And the Lord our God delivered him before us; and we <u>smote</u>[^a] him, and his sons, and all his people.
+> And the LORD our God delivered him before us; and we <u>smote</u>[^a] him, and his sons, and all his people.
 
 [Deuteronomy 2:33](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.33?lang=eng#p33)
 

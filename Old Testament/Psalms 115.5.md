@@ -1,6 +1,6 @@
 # Psalms 115:5
 
-> They have mouths, but they <u>speak not</u>[^a] : eyes have they, but they <u>see not</u>[^b] :
+> They have mouths, but they <u>speak not</u>[^a]: eyes have they, but they <u>see not</u>[^b]:
 
 [Psalms 115:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/115.5?lang=eng#p5)
 

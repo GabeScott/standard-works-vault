@@ -1,6 +1,6 @@
 # Psalms 104:19
 
-> He appointed the <u>moon</u>[^a] <u>for seasons</u>[^b] : the sun knoweth his going down.
+> He appointed the <u>moon</u>[^a] <u>for seasons</u>[^b]: the sun knoweth his going down.
 
 [Psalms 104:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.19?lang=eng#p19)
 

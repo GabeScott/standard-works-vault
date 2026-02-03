@@ -1,6 +1,6 @@
 # Numbers 20:12
 
-> ¶ And the Lord spake unto Moses and Aaron, Because ye <u>believed me not</u>[^a], to <u>sanctify</u>[^b] me in the eyes of the children of Israel, therefore ye shall not <u>bring</u>[^c] this congregation into the <u>land</u>[^d] which I have given them.
+> ¶ And the LORD spake unto Moses and Aaron, Because ye <u>believed me not</u>[^a], to <u>sanctify</u>[^b] me in the eyes of the children of Israel, therefore ye shall not <u>bring</u>[^c] this congregation into the <u>land</u>[^d] which I have given them.
 
 [Numbers 20:12](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.12?lang=eng#p12)
 

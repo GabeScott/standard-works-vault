@@ -1,6 +1,6 @@
 # Jonah 3:10
 
-> ¶ And God <u>saw</u>[^a] their works, that they <u>turned</u>[^b] from their <u>evil</u>[^c] way; and God repented of the evil, that he had said that he would do unto them; and he did it <u>not</u>[^d] .
+> ¶ And God <u>saw</u>[^a] their works, that they <u>turned</u>[^b] from their <u>evil</u>[^c] way; and God repented of the evil, that he had said that he would do unto them; and he did *it* <u>not</u>[^d].
 
 [Jonah 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/3.10?lang=eng#p10)
 

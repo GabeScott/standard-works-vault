@@ -1,6 +1,6 @@
 # Jeremiah 52:15
 
-> Then Nebuzar-adan the captain of the guard <u>carried away</u>[^a] captive certain of the poor of the people, and the residue of the people that remained in the city, and those that <u>fell away</u>[^b], that fell to the king of Babylon, and the rest of the multitude.
+> Then Nebuzar-adan the captain of the guard <u>carried away</u>[^a] captive *certain* of the poor of the people, and the residue of the people that remained in the city, and those that <u>fell away</u>[^b], that fell to the king of Babylon, and the rest of the multitude.
 
 [Jeremiah 52:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.15?lang=eng#p15)
 

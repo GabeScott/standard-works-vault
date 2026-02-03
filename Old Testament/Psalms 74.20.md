@@ -1,6 +1,6 @@
 # Psalms 74:20
 
-> Have respect unto the <u>covenant</u>[^a] : for the dark places of the earth are full of the habitations of <u>cruelty</u>[^b] .
+> Have respect unto the <u>covenant</u>[^a]: for the dark places of the earth are full of the habitations of <u>cruelty</u>[^b].
 
 [Psalms 74:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.20?lang=eng#p20)
 

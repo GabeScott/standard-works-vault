@@ -1,6 +1,6 @@
 # Matthew 27:25
 
-> Then answered all the people, and said, His <u>blood</u>[^a] be on us, and on our children.
+> Then answered all the people, and said, His <u>blood</u>[^a] *be* on us, and on our children.
 
 [Matthew 27:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.25?lang=eng#p25)
 

@@ -1,6 +1,6 @@
 # 1 Samuel 10:6
 
-> And the Spirit of the Lord will come upon thee, and thou shalt <u>prophesy</u>[^a] with them, and shalt be <u>turned</u>[^b] into another man.
+> And the Spirit of the LORD will come upon thee, and thou shalt <u>prophesy</u>[^a] with them, and shalt be <u>turned</u>[^b] into another man.
 
 [1 Samuel 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.6?lang=eng#p6)
 

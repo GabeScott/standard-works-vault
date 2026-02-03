@@ -1,6 +1,6 @@
 # Luke 7:50
 
-> And he said to the woman, Thy <u>faith</u>[^a] hath saved thee; go in <u>peace</u>[^b] .
+> And he said to the woman, Thy <u>faith</u>[^a] hath saved thee; go in <u>peace</u>[^b].
 
 [Luke 7:50](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.50?lang=eng#p50)
 

@@ -1,6 +1,6 @@
 # Ezekiel 24:21
 
-> Speak unto the house of Israel, Thus saith the Lord God ; Behold, I will profane my <u>sanctuary</u>[^a], the excellency of your strength, the desire of your eyes, and that which your soul <u>pitieth</u>[^b]; and your <u>sons</u>[^c] and your daughters whom ye have left shall fall by the sword.
+> Speak unto the house of Israel, Thus saith the Lord GOD; Behold, I will profane my <u>sanctuary</u>[^a], the excellency of your strength, the desire of your eyes, and that which your soul <u>pitieth</u>[^b]; and your <u>sons</u>[^c] and your daughters whom ye have left shall fall by the sword.
 
 [Ezekiel 24:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.21?lang=eng#p21)
 

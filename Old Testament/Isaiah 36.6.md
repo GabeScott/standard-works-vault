@@ -1,6 +1,6 @@
 # Isaiah 36:6
 
-> Lo, thou trustest in the staff of this broken <u>reed</u>[^a], on <u>Egypt</u>[^b]; whereon if a man lean, it will go into his hand, and pierce it: so is Pharaoh king of Egypt to all that trust in him.
+> Lo, thou trustest in the staff of this broken <u>reed</u>[^a], on <u>Egypt</u>[^b]; whereon if a man lean, it will go into his hand, and pierce it: so *is* Pharaoh king of Egypt to all that trust in him.
 
 [Isaiah 36:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/36.6?lang=eng#p6)
 

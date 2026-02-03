@@ -1,6 +1,6 @@
 # Proverbs 16:2
 
-> All the ways of a man are <u>clean</u>[^a] in his <u>own eyes</u>[^b]; but the Lord weigheth the spirits.
+> All the ways of a man *are* <u>clean</u>[^a] in his <u>own eyes</u>[^b]; but the LORD weigheth the spirits.
 
 [Proverbs 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.2?lang=eng#p2)
 

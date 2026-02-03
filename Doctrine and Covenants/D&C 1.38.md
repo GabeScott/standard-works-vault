@@ -1,6 +1,6 @@
 # D&C 1:38
 
-> What I the Lord have spoken, I have spoken, and I excuse not myself; and though the heavens and the earth pass away, my <u>word</u>[^a] shall not pass away, but shall all be <u>fulfilled</u>[^b], whether by mine own <u>voice</u>[^c] or by the <u>voice</u>[^d] of my <u>servants</u>[^e], it is the <u>same</u>[^f] .
+> What I the Lord have spoken, I have spoken, and I excuse not myself; and though the heavens and the earth pass away, my <u>word</u>[^a] shall not pass away, but shall all be <u>fulfilled</u>[^b], whether by mine own <u>voice</u>[^c] or by the <u>voice</u>[^d] of my <u>servants</u>[^e], it is the <u>same</u>[^f].
 
 [D&C 1:38](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.38?lang=eng#p38)
 

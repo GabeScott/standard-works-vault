@@ -1,6 +1,6 @@
 # John 6:37
 
-> All that the Father <u>giveth</u>[^a] me shall come to me; and him that cometh to me I will in no wise <u>cast out</u>[^b] .
+> All that the Father <u>giveth</u>[^a] me shall come to me; and him that cometh to me I will in no wise <u>cast out</u>[^b].
 
 [John 6:37](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.37?lang=eng#p37)
 

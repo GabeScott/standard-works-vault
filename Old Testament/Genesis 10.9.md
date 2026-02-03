@@ -1,6 +1,6 @@
 # Genesis 10:9
 
-> He was a mighty hunter before the Lord : wherefore it is said, Even as <u>Nimrod</u>[^a] the mighty hunter before the Lord .
+> He was a mighty hunter before the LORD: wherefore it is said, Even as <u>Nimrod</u>[^a] the mighty hunter before the LORD.
 
 [Genesis 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.9?lang=eng#p9)
 

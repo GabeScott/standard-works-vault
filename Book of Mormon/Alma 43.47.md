@@ -1,6 +1,6 @@
 # Alma 43:47
 
-> And again, the Lord has said that: Ye shall <u>defend</u>[^a] your families even unto <u>bloodshed</u>[^b] . Therefore for this cause were the Nephites contending with the Lamanites, to defend themselves, and their families, and their lands, their country, and their rights, and their religion.
+> And again, the Lord has said that: Ye shall <u>defend</u>[^a] your families even unto <u>bloodshed</u>[^b]. Therefore for this cause were the Nephites contending with the Lamanites, to defend themselves, and their families, and their lands, their country, and their rights, and their religion.
 
 [Alma 43:47](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p47#p47)
 

@@ -1,6 +1,6 @@
 # 1 Corinthians 15:44
 
-> It is sown a <u>natural</u>[^a] body; it is raised a <u>spiritual body</u>[^b] . There is a natural body, and there is a spiritual body.
+> It is sown a <u>natural</u>[^a] body; it is raised a <u>spiritual body</u>[^b]. There is a natural body, and there is a spiritual body.
 
 [1 Corinthians 15:44](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.44?lang=eng#p44)
 

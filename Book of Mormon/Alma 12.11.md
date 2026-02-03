@@ -1,6 +1,6 @@
 # Alma 12:11
 
-> And they that will harden their hearts, to them is given the lesser <u>portion</u>[^a] of the word until they <u>know nothing</u>[^b] concerning his mysteries; and then they are taken captive by the devil, and led by his will down to destruction. Now this is what is meant by the <u>chains</u>[^c] of <u>hell</u>[^d] .
+> And they that will harden their hearts, to them is given the lesser <u>portion</u>[^a] of the word until they <u>know nothing</u>[^b] concerning his mysteries; and then they are taken captive by the devil, and led by his will down to destruction. Now this is what is meant by the <u>chains</u>[^c] of <u>hell</u>[^d].
 
 [Alma 12:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p11#p11)
 

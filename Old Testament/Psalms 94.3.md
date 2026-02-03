@@ -1,6 +1,6 @@
 # Psalms 94:3
 
-> Lord , how long shall the wicked, how long shall the wicked <u>triumph</u>[^a] ?
+> LORD, how long shall the wicked, how long shall the wicked <u>triumph</u>[^a]?
 
 [Psalms 94:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/94.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # 1 Kings 2:28
 
-> ¶ Then tidings came to <u>Joab</u>[^a] : for Joab had turned after <u>Adonijah</u>[^b], though he turned not after Absalom. And Joab fled unto the tabernacle of the Lord , and caught hold on the <u>horns</u>[^c] of the altar.
+> ¶ Then tidings came to <u>Joab</u>[^a]: for Joab had turned after <u>Adonijah</u>[^b], though he turned not after Absalom. And Joab fled unto the tabernacle of the LORD, and caught hold on the <u>horns</u>[^c] of the altar.
 
 [1 Kings 2:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.28?lang=eng#p28)
 

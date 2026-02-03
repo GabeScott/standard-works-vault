@@ -1,6 +1,6 @@
 # 3 Nephi 20:45
 
-> So shall he <u>sprinkle</u>[^a] many nations; the kings shall shut their mouths at him, for that which had not been told them shall they see; and that which they had not heard shall they <u>consider</u>[^b] .
+> So shall he <u>sprinkle</u>[^a] many nations; the kings shall shut their mouths at him, for that which had not been told them shall they see; and that which they had not heard shall they <u>consider</u>[^b].
 
 [3 Nephi 20:45](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p45#p45)
 

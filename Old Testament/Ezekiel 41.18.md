@@ -1,6 +1,6 @@
 # Ezekiel 41:18
 
-> And it was made with <u>cherubims</u>[^a] and <u>palm</u>[^b] trees, so that a <u>palm</u>[^c] tree was between a cherub and a cherub; and every <u>cherub</u>[^d] had two faces;
+> And *it was* made with <u>cherubims</u>[^a] and <u>palm</u>[^b] trees, so that a <u>palm</u>[^c] tree *was* between a cherub and a cherub; and *every* <u>cherub</u>[^d] had two faces;
 
 [Ezekiel 41:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.18?lang=eng#p18)
 

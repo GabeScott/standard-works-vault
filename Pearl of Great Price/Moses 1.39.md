@@ -1,6 +1,6 @@
 # Moses 1:39
 
-> For behold, this is my <u>work</u>[^a] and my <u>glory</u>[^b] —to bring to pass the <u>immortality</u>[^c] and <u>eternal</u>[^d] <u>life</u>[^e] of man.
+> For behold, this is my <u>work</u>[^a] and my <u>glory</u>[^b]—to bring to pass the <u>immortality</u>[^c] and <u>eternal</u>[^d] <u>life</u>[^e] of man.
 
 [Moses 1:39](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.39?lang=eng#p39)
 

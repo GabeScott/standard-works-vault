@@ -1,6 +1,6 @@
 # 1 Peter 4:1
 
-> Forasmuch then as Christ hath suffered for us in the flesh, arm yourselves likewise with the same <u>mind</u>[^a] : <u>for</u>[^b] he that hath suffered in the flesh hath ceased from <u>sin</u>[^c];
+> Forasmuch then as Christ hath suffered for us in the flesh, arm yourselves likewise with the same <u>mind</u>[^a]: <u>for</u>[^b] he that hath suffered in the flesh hath ceased from <u>sin</u>[^c];
 
 [1 Peter 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.1?lang=eng#p1)
 

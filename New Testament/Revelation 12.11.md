@@ -1,6 +1,6 @@
 # Revelation 12:11
 
-> And they <u>overcame</u>[^a] him by the blood of the Lamb, and by the word of their <u>testimony</u>[^b]; and they loved not their lives unto the <u>death</u>[^c] .
+> And they <u>overcame</u>[^a] him by the blood of the Lamb, and by the word of their <u>testimony</u>[^b]; and they loved not their lives unto the <u>death</u>[^c].
 
 [Revelation 12:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.11?lang=eng#p11)
 

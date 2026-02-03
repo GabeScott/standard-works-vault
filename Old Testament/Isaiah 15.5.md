@@ -1,6 +1,6 @@
 # Isaiah 15:5
 
-> My <u>heart</u>[^a] shall cry out for Moab; his fugitives shall flee unto Zoar, an <u>heifer</u>[^b] of three years old: for by <u>the</u>[^c] mounting up of Luhith with weeping shall they go it up; for in the way of <u>Horonaim</u>[^d] they shall raise up a cry of destruction.
+> My <u>heart</u>[^a] shall cry out for Moab; his fugitives *shall flee* unto Zoar, an <u>heifer</u>[^b] of three years old: for by <u>the</u>[^c] mounting up of Luhith with weeping shall they go it up; for in the way of <u>Horonaim</u>[^d] they shall raise up a cry of destruction.
 
 [Isaiah 15:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/15.5?lang=eng#p5)
 

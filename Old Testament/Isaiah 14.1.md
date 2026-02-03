@@ -1,6 +1,6 @@
 # Isaiah 14:1
 
-> <u>For</u>[^a] the Lord will have <u>mercy</u>[^b] on Jacob, and will yet <u>choose</u>[^c] Israel, and set them in their own <u>land</u>[^d] : and the <u>strangers</u>[^e] shall be joined with them, and they shall cleave to the house of Jacob.
+> <u>For</u>[^a] the LORD will have <u>mercy</u>[^b] on Jacob, and will yet <u>choose</u>[^c] Israel, and set them in their own <u>land</u>[^d]: and the <u>strangers</u>[^e] shall be joined with them, and they shall cleave to the house of Jacob.
 
 [Isaiah 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.1?lang=eng#p1)
 

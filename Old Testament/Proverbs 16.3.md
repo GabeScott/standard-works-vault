@@ -1,6 +1,6 @@
 # Proverbs 16:3
 
-> <u>Commit</u>[^a] thy works unto the Lord , and thy <u>thoughts</u>[^b] shall be established.
+> <u>Commit</u>[^a] thy works unto the LORD, and thy <u>thoughts</u>[^b] shall be established.
 
 [Proverbs 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.3?lang=eng#p3)
 

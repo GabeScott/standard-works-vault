@@ -1,6 +1,6 @@
 # Hebrews 8:6
 
-> But now hath he obtained a more excellent ministry, by how much also he is the <u>mediator</u>[^a] of a better <u>covenant</u>[^b], which was established upon better <u>promises</u>[^c] .
+> But now hath he obtained a more excellent ministry, by how much also he is the <u>mediator</u>[^a] of a better <u>covenant</u>[^b], which was established upon better <u>promises</u>[^c].
 
 [Hebrews 8:6](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/8.6?lang=eng#p6)
 

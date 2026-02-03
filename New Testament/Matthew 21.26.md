@@ -1,6 +1,6 @@
 # Matthew 21:26
 
-> But if we shall say, Of men; we fear the people; for all hold John as a <u>prophet</u>[^a] .
+> But if we shall say, Of men; we fear the people; for all hold John as a <u>prophet</u>[^a].
 
 [Matthew 21:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Leviticus 2:3
 
-> And the remnant of the <u>meat offering</u>[^a] shall be <u>Aaron’s</u>[^b] and his sons’: it is a thing most holy of the offerings of the Lord made by fire.
+> And the remnant of the <u>meat offering</u>[^a] *shall be* <u>Aaron’s</u>[^b] and his sons’: *it is* a thing most holy of the offerings of the LORD made by fire.
 
 [Leviticus 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/2.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # 2 Kings 9:7
 
-> And thou shalt <u>smite</u>[^a] the house of Ahab thy master, that I may avenge the blood of my servants the prophets, and the blood of all the servants of the Lord , at the hand of <u>Jezebel</u>[^b] .
+> And thou shalt <u>smite</u>[^a] the house of Ahab thy master, that I may avenge the blood of my servants the prophets, and the blood of all the servants of the LORD, at the hand of <u>Jezebel</u>[^b].
 
 [2 Kings 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/9.7?lang=eng#p7)
 

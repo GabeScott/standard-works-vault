@@ -1,6 +1,6 @@
 # Ezekiel 24:17
 
-> Forbear to cry, make no <u>mourning</u>[^a] for the dead, bind the <u>tire</u>[^b] of thine <u>head</u>[^c] upon thee, and put on thy shoes upon thy feet, and <u>cover</u>[^d] not thy lips, and eat not the bread of men.
+> Forbear to cry, make no <u>mourning</u>[^a] for the dead, bind the <u>tire</u>[^b] of thine <u>head</u>[^c] upon thee, and put on thy shoes upon thy feet, and <u>cover</u>[^d] not *thy* lips, and eat not the bread of men.
 
 [Ezekiel 24:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.17?lang=eng#p17)
 

@@ -1,6 +1,6 @@
 # Proverbs 24:24
 
-> He that saith unto the <u>wicked</u>[^a], Thou art righteous; him shall the people curse, nations shall abhor him:
+> He that saith unto the <u>wicked</u>[^a], Thou *art* righteous; him shall the people curse, nations shall abhor him:
 
 [Proverbs 24:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.24?lang=eng#p24)
 

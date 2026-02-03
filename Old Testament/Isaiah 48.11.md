@@ -1,6 +1,6 @@
 # Isaiah 48:11
 
-> For mine own <u>sake</u>[^a], even for mine own sake, will I do it: for how should my name be polluted? and I will not <u>give</u>[^c] my glory unto another.
+> For mine own <u>sake</u>[^a], *even* for mine own sake, will I do *it:* for how should *my *<u>name</u>[^b] be polluted? and I will not <u>give</u>[^c] my glory unto another.
 
 [Isaiah 48:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.11?lang=eng#p11)
 

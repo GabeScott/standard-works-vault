@@ -1,6 +1,6 @@
 # Exodus 40:25
 
-> And he lighted the <u>lamps</u>[^a] before the Lord ; as the Lord commanded Moses.
+> And he lighted the <u>lamps</u>[^a] before the LORD; as the LORD commanded Moses.
 
 [Exodus 40:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.25?lang=eng#p25)
 

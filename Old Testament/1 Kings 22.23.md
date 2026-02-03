@@ -1,6 +1,6 @@
 # 1 Kings 22:23
 
-> Now therefore, behold, the Lord hath put a <u>lying</u>[^a] spirit in the mouth of all these thy prophets, and the Lord hath spoken evil concerning thee.
+> Now therefore, behold, the LORD hath put a <u>lying</u>[^a] spirit in the mouth of all these thy prophets, and the LORD hath spoken evil concerning thee.
 
 [1 Kings 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.23?lang=eng#p23)
 

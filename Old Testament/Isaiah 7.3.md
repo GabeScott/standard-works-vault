@@ -1,6 +1,6 @@
 # Isaiah 7:3
 
-> Then said the Lord unto Isaiah, Go forth now to meet Ahaz, thou, and <u>Shear-jashub</u>[^a] thy son, at the end of the <u>conduit</u>[^b] of the upper pool <u>in</u>[^c] the highway of the fuller’s field;
+> Then said the LORD unto Isaiah, Go forth now to meet Ahaz, thou, and <u>Shear-jashub</u>[^a] thy son, at the end of the <u>conduit</u>[^b] of the upper pool <u>in</u>[^c] the highway of the fuller’s field;
 
 [Isaiah 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.3?lang=eng#p3)
 

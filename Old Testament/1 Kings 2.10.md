@@ -1,6 +1,6 @@
 # 1 Kings 2:10
 
-> So David slept with his fathers, and was <u>buried</u>[^a] in the <u>city of David</u>[^b] .
+> So David slept with his fathers, and was <u>buried</u>[^a] in the <u>city of David</u>[^b].
 
 [1 Kings 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.10?lang=eng#p10)
 

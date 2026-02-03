@@ -1,6 +1,6 @@
 # Hebrews 3:17
 
-> But with whom was he grieved forty years? was it not with them that had sinned, whose <u>carcases</u>[^a] fell in the wilderness?
+> But with whom was he grieved forty years? *was it* not with them that had sinned, whose <u>carcases</u>[^a] fell in the wilderness?
 
 [Hebrews 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.17?lang=eng#p17)
 

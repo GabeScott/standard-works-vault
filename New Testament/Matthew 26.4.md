@@ -1,6 +1,6 @@
 # Matthew 26:4
 
-> And <u>consulted</u>[^a] that they might take Jesus by <u>subtilty</u>[^b], and <u>kill</u>[^c] him.
+> And <u>consulted</u>[^a] that they might take Jesus by <u>subtilty</u>[^b], and <u>kill</u>[^c] *him.*
 
 [Matthew 26:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.4?lang=eng#p4)
 

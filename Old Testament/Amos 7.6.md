@@ -1,6 +1,6 @@
 # Amos 7:6
 
-> <u>The</u>[^a] Lord repented for this: This also shall not be, saith the Lord God .
+> <u>The</u>[^a] LORD repented for this: This also shall not be, saith the Lord GOD.
 
 [Amos 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.6?lang=eng#p6)
 

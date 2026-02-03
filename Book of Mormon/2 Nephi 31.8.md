@@ -1,6 +1,6 @@
 # 2 Nephi 31:8
 
-> Wherefore, after he was baptized with water the Holy Ghost descended upon him in the <u>form</u>[^a] of a <u>dove</u>[^b] .
+> Wherefore, after he was baptized with water the Holy Ghost descended upon him in the <u>form</u>[^a] of a <u>dove</u>[^b].
 
 [2 Nephi 31:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p8#p8)
 

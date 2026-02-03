@@ -1,6 +1,6 @@
 # Isaiah 41:21
 
-> Produce your cause, saith the Lord ; bring forth your <u>strong reasons</u>[^a], saith the King of Jacob.
+> Produce your cause, saith the LORD; bring forth your <u>strong reasons</u>[^a]*,* saith the King of Jacob.
 
 [Isaiah 41:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.21?lang=eng#p21)
 

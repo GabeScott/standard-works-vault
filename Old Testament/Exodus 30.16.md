@@ -1,6 +1,6 @@
 # Exodus 30:16
 
-> And thou shalt take the atonement <u>money</u>[^a] of the children of Israel, and shalt appoint it for the service of the <u>tabernacle of the congregation</u>[^b]; that it may be a memorial unto the children of Israel before the Lord , to make an atonement for your souls.
+> And thou shalt take the atonement <u>money</u>[^a] of the children of Israel, and shalt appoint it for the service of the <u>tabernacle of the congregation</u>[^b]; that it may be a memorial unto the children of Israel before the LORD, to make an atonement for your souls.
 
 [Exodus 30:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.16?lang=eng#p16)
 

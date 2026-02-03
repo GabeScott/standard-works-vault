@@ -1,6 +1,6 @@
 # Exodus 27:21
 
-> In the <u>tabernacle</u>[^a] of the <u>congregation</u>[^b] <u>without</u>[^c] the <u>veil</u>[^d], which is before the testimony, <u>Aaron</u>[^e] and his sons shall <u>order it</u>[^f] from evening to morning before the Lord : it shall be a <u>statute</u>[^g] for ever unto their <u>generations</u>[^h] on the behalf of the children of Israel.
+> In the <u>tabernacle</u>[^a] of the <u>congregation</u>[^b] <u>without</u>[^c] the <u>veil</u>[^d], which *is* before the testimony, <u>Aaron</u>[^e] and his sons shall <u>order it</u>[^f] from evening to morning before the LORD: *it shall be* a <u>statute</u>[^g] for ever unto their <u>generations</u>[^h] on the behalf of the children of Israel.
 
 [Exodus 27:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/27.21?lang=eng#p21)
 

@@ -1,6 +1,6 @@
 # Psalms 33:1
 
-> Rejoice in the Lord , O ye righteous: for <u>praise</u>[^a] is comely for the upright.
+> Rejoice in the LORD, O ye righteous: *for* <u>praise</u>[^a] is comely for the upright.
 
 [Psalms 33:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.1?lang=eng#p1)
 

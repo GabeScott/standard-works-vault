@@ -1,6 +1,6 @@
 # Ezekiel 44:15
 
-> ¶ But the <u>priests</u>[^a] the <u>Levites</u>[^b], the sons of Zadok, that kept the charge of my sanctuary when the children of Israel went astray from me, they shall <u>come</u>[^c] near to me to minister unto me, and they shall stand before me to offer unto me the fat and the blood, saith the Lord God :
+> ¶ But the <u>priests</u>[^a] the <u>Levites</u>[^b], the sons of Zadok, that kept the charge of my sanctuary when the children of Israel went astray from me, they shall <u>come</u>[^c] near to me to minister unto me, and they shall stand before me to offer unto me the fat and the blood, saith the Lord GOD:
 
 [Ezekiel 44:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # 2 Nephi 33:9
 
-> I also have charity for the Gentiles. But behold, for none of <u>these</u>[^a] can I hope except they shall be <u>reconciled</u>[^b] unto Christ, and enter into the <u>narrow</u>[^c] <u>gate</u>[^d], and <u>walk</u>[^e] in the <u>strait</u>[^f] path which leads to life, and continue in the path until the end of the day of <u>probation</u>[^g] .
+> I also have charity for the Gentiles. But behold, for none of <u>these</u>[^a] can I hope except they shall be <u>reconciled</u>[^b] unto Christ, and enter into the <u>narrow</u>[^c] <u>gate</u>[^d], and <u>walk</u>[^e] in the <u>strait</u>[^f] path which leads to life, and continue in the path until the end of the day of <u>probation</u>[^g].
 
 [2 Nephi 33:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p9#p9)
 

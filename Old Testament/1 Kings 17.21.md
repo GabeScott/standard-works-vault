@@ -1,6 +1,6 @@
 # 1 Kings 17:21
 
-> And he <u>stretched</u>[^a] himself upon the child three times, and cried unto the Lord , and said, O Lord my God, I pray thee, let this child’s <u>soul</u>[^b] come into him again.
+> And he <u>stretched</u>[^a] himself upon the child three times, and cried unto the LORD, and said, O LORD my God, I pray thee, let this child’s <u>soul</u>[^b] come into him again.
 
 [1 Kings 17:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/17.21?lang=eng#p21)
 

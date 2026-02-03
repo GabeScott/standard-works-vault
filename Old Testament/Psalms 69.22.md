@@ -1,6 +1,6 @@
 # Psalms 69:22
 
-> Let their table become a <u>snare</u>[^a] before them: and that which should have been for their welfare, let it become a trap.
+> Let their table become a <u>snare</u>[^a] before them: and *that which should have been* for *their* welfare, *let it become* a trap.
 
 [Psalms 69:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.22?lang=eng#p22)
 

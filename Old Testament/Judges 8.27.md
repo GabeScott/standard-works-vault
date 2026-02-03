@@ -1,6 +1,6 @@
 # Judges 8:27
 
-> And Gideon made an <u>ephod</u>[^a] thereof, and put it in his city, even in Ophrah: and all Israel went thither a whoring after it: which thing became a <u>snare</u>[^b] unto Gideon, and to his house.
+> And Gideon made an <u>ephod</u>[^a] thereof, and put it in his city, *even* in Ophrah: and all Israel went thither a whoring after it: which thing became a <u>snare</u>[^b] unto Gideon, and to his house.
 
 [Judges 8:27](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/8.27?lang=eng#p27)
 

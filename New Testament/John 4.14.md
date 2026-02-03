@@ -1,6 +1,6 @@
 # John 4:14
 
-> But whosoever drinketh of the water that I shall give him shall never <u>thirst</u>[^a]; but the water that I shall give him shall be in him a well of water <u>springing up</u>[^b] into <u>everlasting life</u>[^c] .
+> But whosoever drinketh of the water that I shall give him shall never <u>thirst</u>[^a]; but the water that I shall give him shall be in him a well of water <u>springing up</u>[^b] into <u>everlasting life</u>[^c].
 
 [John 4:14](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.14?lang=eng#p14)
 

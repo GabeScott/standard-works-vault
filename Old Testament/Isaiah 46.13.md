@@ -1,6 +1,6 @@
 # Isaiah 46:13
 
-> I bring near my righteousness; it shall not be far off, and my <u>salvation</u>[^a] shall not <u>tarry</u>[^b] : and I will place salvation in Zion for Israel my glory.
+> I bring near my righteousness; it shall not be far off, and my <u>salvation</u>[^a] shall not <u>tarry</u>[^b]: and I will place salvation in Zion for Israel my glory.
 
 [Isaiah 46:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.13?lang=eng#p13)
 

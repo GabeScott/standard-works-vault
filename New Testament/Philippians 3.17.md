@@ -1,6 +1,6 @@
 # Philippians 3:17
 
-> Brethren, be <u>followers</u>[^a] together of me, and mark them which walk so as ye have us for an <u>ensample</u>[^b] .
+> Brethren, be <u>followers</u>[^a] together of me, and mark them which walk so as ye have us for an <u>ensample</u>[^b].
 
 [Philippians 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.17?lang=eng#p17)
 

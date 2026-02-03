@@ -1,6 +1,6 @@
 # Psalms 130:1
 
-> Out of the <u>depths</u>[^a] have I cried unto thee, O Lord .
+> Out of the <u>depths</u>[^a] have I cried unto thee, O LORD.
 
 [Psalms 130:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/130.1?lang=eng#p1)
 

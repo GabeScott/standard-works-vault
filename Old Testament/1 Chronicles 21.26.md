@@ -1,6 +1,6 @@
 # 1 Chronicles 21:26
 
-> And David built there an <u>altar</u>[^a] unto the Lord , and offered burnt offerings and peace offerings, and called upon the Lord ; and he answered him from heaven by <u>fire</u>[^b] upon the altar of burnt offering.
+> And David built there an <u>altar</u>[^a] unto the LORD, and offered burnt offerings and peace offerings, and called upon the LORD; and he answered him from heaven by <u>fire</u>[^b] upon the altar of burnt offering.
 
 [1 Chronicles 21:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.26?lang=eng#p26)
 

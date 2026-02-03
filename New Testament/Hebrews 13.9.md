@@ -1,6 +1,6 @@
 # Hebrews 13:9
 
-> Be not <u>carried</u>[^a] about with divers and strange <u>doctrines</u>[^b] . For it is a good thing that the heart be established with grace; not with meats, which have not profited them that have been occupied therein.
+> Be not <u>carried</u>[^a] about with divers and strange <u>doctrines</u>[^b]. For *it is* a good thing that the heart be established with grace; not with meats, which have not profited them that have been occupied therein.
 
 [Hebrews 13:9](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.9?lang=eng#p9)
 

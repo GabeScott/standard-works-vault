@@ -1,6 +1,6 @@
 # Genesis 24:31
 
-> And he said, Come in, thou <u>blessed</u>[^a] of the Lord ; wherefore standest thou without? for I have prepared the house, and room for the camels.
+> And he said, Come in, thou <u>blessed</u>[^a] of the LORD; wherefore standest thou without? for I have prepared the house, and room for the camels.
 
 [Genesis 24:31](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.31?lang=eng#p31)
 

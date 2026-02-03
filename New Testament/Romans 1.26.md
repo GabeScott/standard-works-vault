@@ -1,6 +1,6 @@
 # Romans 1:26
 
-> For this cause God <u>gave</u>[^a] them up unto <u>vile</u>[^b] <u>affections</u>[^c] : for even their <u>women</u>[^d] did change the natural use into that which is against nature:
+> For this cause God <u>gave</u>[^a] them up unto <u>vile</u>[^b] <u>affections</u>[^c]: for even their <u>women</u>[^d] did change the natural use into that which is against nature:
 
 [Romans 1:26](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.26?lang=eng#p26)
 

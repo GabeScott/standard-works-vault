@@ -1,6 +1,6 @@
 # Isaiah 1:13
 
-> Bring no more <u>vain</u>[^a] <u>oblations</u>[^b]; incense is an abomination unto me; the new moons and <u>sabbaths</u>[^c], the calling of <u>assemblies</u>[^d], I cannot <u>away with</u>[^e]; it is <u>iniquity</u>[^f], even the <u>solemn meeting</u>[^g] .
+> Bring no more <u>vain</u>[^a] <u>oblations</u>[^b]; incense is an abomination unto me; the new moons and <u>sabbaths</u>[^c], the calling of <u>assemblies</u>[^d], I cannot <u>away with</u>[^e]; *it is* <u>iniquity</u>[^f], even the <u>solemn meeting</u>[^g].
 
 [Isaiah 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.13?lang=eng#p13)
 

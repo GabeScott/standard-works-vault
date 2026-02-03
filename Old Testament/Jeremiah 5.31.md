@@ -1,6 +1,6 @@
 # Jeremiah 5:31
 
-> The <u>prophets</u>[^a] prophesy <u>falsely</u>[^b], and the <u>priests</u>[^c] bear rule by their means; and my people <u>love</u>[^d] to have it so: and what will ye do in the end thereof?
+> The <u>prophets</u>[^a] prophesy <u>falsely</u>[^b], and the <u>priests</u>[^c] bear rule by their means; and my people <u>love</u>[^d] *to have it* so: and what will ye do in the end thereof?
 
 [Jeremiah 5:31](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.31?lang=eng#p31)
 

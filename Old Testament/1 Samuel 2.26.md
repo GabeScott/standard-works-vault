@@ -1,6 +1,6 @@
 # 1 Samuel 2:26
 
-> And the child Samuel <u>grew</u>[^a] on, and was in <u>favour</u>[^b] both with the Lord , and also with men.
+> And the child Samuel <u>grew</u>[^a] on, and was in <u>favour</u>[^b] both with the LORD, and also with men.
 
 [1 Samuel 2:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.26?lang=eng#p26)
 

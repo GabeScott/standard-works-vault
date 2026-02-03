@@ -1,6 +1,6 @@
 # Psalms 33:15
 
-> He fashioneth their hearts alike; he considereth all their <u>works</u>[^a] .
+> He fashioneth their hearts alike; he considereth all their <u>works</u>[^a].
 
 [Psalms 33:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.15?lang=eng#p15)
 

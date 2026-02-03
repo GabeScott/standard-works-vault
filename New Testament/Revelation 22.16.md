@@ -1,6 +1,6 @@
 # Revelation 22:16
 
-> I Jesus have sent mine <u>angel</u>[^a] to testify unto you these things in the churches. I am the <u>root</u>[^b] and the offspring of David, and the bright and morning <u>star</u>[^c] .
+> I Jesus have sent mine <u>angel</u>[^a] to testify unto you these things in the churches. I am the <u>root</u>[^b] and the offspring of David, *and* the bright and morning <u>star</u>[^c].
 
 [Revelation 22:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.16?lang=eng#p16)
 

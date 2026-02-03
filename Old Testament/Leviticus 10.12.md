@@ -1,6 +1,6 @@
 # Leviticus 10:12
 
-> ¶ And Moses spake unto Aaron, and unto Eleazar and unto Ithamar, his sons that were left, Take the meat <u>offering</u>[^a] that remaineth of the offerings of the Lord made by fire, and <u>eat it without leaven</u>[^b] beside the altar: for it is most holy:
+> ¶ And Moses spake unto Aaron, and unto Eleazar and unto Ithamar, his sons that were left, Take the meat <u>offering</u>[^a] that remaineth of the offerings of the LORD made by fire, and <u>eat it without leaven</u>[^b] beside the altar: for it *is* most holy:
 
 [Leviticus 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.12?lang=eng#p12)
 

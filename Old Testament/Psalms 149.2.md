@@ -1,6 +1,6 @@
 # Psalms 149:2
 
-> Let Israel rejoice in him that <u>made</u>[^a] him: let the children of <u>Zion</u>[^b] be joyful in their <u>King</u>[^c] .
+> Let Israel rejoice in him that <u>made</u>[^a] him: let the children of <u>Zion</u>[^b] be joyful in their <u>King</u>[^c].
 
 [Psalms 149:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/149.2?lang=eng#p2)
 

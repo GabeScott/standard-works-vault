@@ -1,6 +1,6 @@
 # Leviticus 19:26
 
-> ¶ Ye shall not eat any thing with the <u>blood</u>[^a] : <u>neither</u>[^b] shall ye use <u>enchantment</u>[^c], nor <u>observe</u>[^d] times.
+> ¶ Ye shall not eat *any thing* with the <u>blood</u>[^a]: <u>neither</u>[^b] shall ye use <u>enchantment</u>[^c], nor <u>observe</u>[^d] times.
 
 [Leviticus 19:26](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Psalms 27:14
 
-> <u>Wait</u>[^a] on the Lord : be of good <u>courage</u>[^b], and he shall strengthen thine heart: <u>wait</u>[^c], I say, on the Lord .
+> <u>Wait</u>[^a] on the LORD: be of good <u>courage</u>[^b], and he shall strengthen thine heart: <u>wait</u>[^c], I say, on the LORD.
 
 [Psalms 27:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/27.14?lang=eng#p14)
 

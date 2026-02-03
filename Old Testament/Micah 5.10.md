@@ -1,6 +1,6 @@
 # Micah 5:10
 
-> And it shall come to pass in that day, saith the Lord , that I will cut off thy <u>horses</u>[^a] out of the midst of thee, and I will destroy thy chariots:
+> And it shall come to pass in that day, saith the LORD, that I will cut off thy <u>horses</u>[^a] out of the midst of thee, and I will destroy thy chariots:
 
 [Micah 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/5.10?lang=eng#p10)
 

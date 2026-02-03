@@ -1,6 +1,6 @@
 # Jeremiah 7:3
 
-> Thus saith the Lord of hosts, the God of Israel, <u>Amend</u>[^a] your ways and your doings, and I will cause you to dwell in this place.
+> Thus saith the LORD of hosts, the God of Israel, <u>Amend</u>[^a] your ways and your doings, and I will cause you to dwell in this place.
 
 [Jeremiah 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.3?lang=eng#p3)
 

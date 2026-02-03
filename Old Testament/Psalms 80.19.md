@@ -1,6 +1,6 @@
 # Psalms 80:19
 
-> <u>Turn</u>[^a] us again, O Lord God of hosts, cause thy face to shine; and we shall be saved.
+> <u>Turn</u>[^a] us again, O LORD God of hosts, cause thy face to shine; and we shall be saved.
 
 [Psalms 80:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/80.19?lang=eng#p19)
 

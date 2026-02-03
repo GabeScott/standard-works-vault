@@ -1,6 +1,6 @@
 # Leviticus 18:21
 
-> And thou shalt not let any of thy seed pass through the fire to <u>Molech</u>[^b], neither shalt thou <u>profane</u>[^c] the <u>name</u>[^d] of thy God: I am the Lord .
+> And thou shalt not let any of thy seed pass through *the *<u>fire</u>[^a] to <u>Molech</u>[^b], neither shalt thou <u>profane</u>[^c] the <u>name</u>[^d] of thy God: I *am* the LORD.
 
 [Leviticus 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.21?lang=eng#p21)
 

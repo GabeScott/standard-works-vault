@@ -1,6 +1,6 @@
 # Genesis 19:14
 
-> And Lot went out, and spake unto his sons in law, which married his daughters, and said, Up, <u>get</u>[^a] you <u>out</u>[^b] of this place; for the Lord will destroy this city. But he seemed as one that <u>mocked</u>[^c] unto his sons in law.
+> And Lot went out, and spake unto his sons in law, which married his daughters, and said, Up, <u>get</u>[^a] you <u>out</u>[^b] of this place; for the LORD will destroy this city. But he seemed as one that <u>mocked</u>[^c] unto his sons in law.
 
 [Genesis 19:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # Exodus 25:31
 
-> ¶ And thou shalt make a <u>candlestick</u>[^a] of pure gold: of beaten work shall the candlestick be made: his shaft, and his branches, his bowls, his knops, and his flowers, shall be of <u>the same</u>[^b] .
+> ¶ And thou shalt make a <u>candlestick</u>[^a] *of* pure gold: *of* beaten work shall the candlestick be made: his shaft, and his branches, his bowls, his knops, and his flowers, shall be of <u>the same</u>[^b].
 
 [Exodus 25:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.31?lang=eng#p31)
 

@@ -1,6 +1,6 @@
 # Jeremiah 17:5
 
-> ¶ Thus saith the Lord ; <u>Cursed</u>[^a] be the man that <u>trusteth</u>[^b] in man, and maketh <u>flesh</u>[^c] his arm, and whose heart <u>departeth</u>[^d] from the Lord .
+> ¶ Thus saith the LORD; <u>Cursed</u>[^a] *be* the man that <u>trusteth</u>[^b] in man, and maketh <u>flesh</u>[^c] his arm, and whose heart <u>departeth</u>[^d] from the LORD.
 
 [Jeremiah 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Leviticus 20:26
 
-> And ye shall be <u>holy</u>[^a] unto me: for I the Lord am <u>holy</u>[^b], and have <u>severed</u>[^c] you from other people, that ye should be <u>mine</u>[^d] .
+> And ye shall be <u>holy</u>[^a] unto me: for I the LORD *am* <u>holy</u>[^b], and have <u>severed</u>[^c] you from *other* people, that ye should be <u>mine</u>[^d].
 
 [Leviticus 20:26](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.26?lang=eng#p26)
 

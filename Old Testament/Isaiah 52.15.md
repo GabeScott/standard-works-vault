@@ -1,6 +1,6 @@
 # Isaiah 52:15
 
-> So shall he <u>sprinkle</u>[^a] many nations; the kings shall shut their mouths at him: for that which had not been <u>told</u>[^b] them shall they see; and that which they had not heard shall they consider.
+> So shall he <u>sprinkle</u>[^a] many nations; the kings shall shut their mouths at him: for *that* which had not been <u>told</u>[^b] them shall they see; and *that* which they had not heard shall they consider.
 
 [Isaiah 52:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.15?lang=eng#p15)
 

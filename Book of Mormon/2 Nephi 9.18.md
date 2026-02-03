@@ -1,6 +1,6 @@
 # 2 Nephi 9:18
 
-> But, behold, the <u>righteous</u>[^a], the <u>saints</u>[^b] of the Holy One of Israel, they who have believed in the Holy One of Israel, they who have endured the <u>crosses</u>[^c] of the world, and despised the shame of it, they shall <u>inherit</u>[^d] the <u>kingdom</u>[^e] of God, which was prepared for them <u>from</u>[^f] the foundation of the world, and their <u>joy</u>[^g] shall be full <u>forever</u>[^h] .
+> But, behold, the <u>righteous</u>[^a], the <u>saints</u>[^b] of the Holy One of Israel, they who have believed in the Holy One of Israel, they who have endured the <u>crosses</u>[^c] of the world, and despised the shame of it, they shall <u>inherit</u>[^d] the <u>kingdom</u>[^e] of God, which was prepared for them <u>from</u>[^f] the foundation of the world, and their <u>joy</u>[^g] shall be full <u>forever</u>[^h].
 
 [2 Nephi 9:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p18#p18)
 

@@ -1,6 +1,6 @@
 # Genesis 26:22
 
-> And he <u>removed</u>[^a] from thence, and digged another well; and for that they <u>strove</u>[^b] not: and he called the name of it <u>Rehoboth</u>[^c]; and he said, For now the Lord hath made room for us, and we shall be <u>fruitful</u>[^d] in the land.
+> And he <u>removed</u>[^a] from thence, and digged another well; and for that they <u>strove</u>[^b] not: and he called the name of it <u>Rehoboth</u>[^c]; and he said, For now the LORD hath made room for us, and we shall be <u>fruitful</u>[^d] in the land.
 
 [Genesis 26:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.22?lang=eng#p22)
 

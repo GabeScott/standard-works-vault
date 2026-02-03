@@ -1,6 +1,6 @@
 # Joel 2:13
 
-> And <u>rend</u>[^a] your heart, and not your garments, <u>and</u>[^b] turn unto the Lord your God: for he is gracious and merciful, slow to anger, and of great <u>kindness</u>[^c], and <u>repenteth</u>[^d] him of the evil.
+> And <u>rend</u>[^a] your heart, and not your garments, <u>and</u>[^b] turn unto the LORD your God: for he *is* gracious and merciful, slow to anger, and of great <u>kindness</u>[^c], and <u>repenteth</u>[^d] him of the evil.
 
 [Joel 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.13?lang=eng#p13)
 

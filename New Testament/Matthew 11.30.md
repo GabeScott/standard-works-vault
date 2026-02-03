@@ -1,6 +1,6 @@
 # Matthew 11:30
 
-> For my yoke is <u>easy</u>[^a], and my burden is light.
+> For my yoke *is* <u>easy</u>[^a], and my burden is light.
 
 [Matthew 11:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.30?lang=eng#p30)
 

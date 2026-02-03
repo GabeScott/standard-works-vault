@@ -1,6 +1,6 @@
 # Numbers 21:25
 
-> And Israel took all these <u>cities</u>[^a] : and Israel dwelt in all the cities of the Amorites, in Heshbon, and in all the villages thereof.
+> And Israel took all these <u>cities</u>[^a]: and Israel dwelt in all the cities of the Amorites, in Heshbon, and in all the villages thereof.
 
 [Numbers 21:25](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.25?lang=eng#p25)
 

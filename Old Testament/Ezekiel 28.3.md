@@ -1,6 +1,6 @@
 # Ezekiel 28:3
 
-> Behold, thou art wiser than <u>Daniel</u>[^a]; there is no secret that they can hide from thee:
+> Behold, thou *art* wiser than <u>Daniel</u>[^a]; there is no secret that they can hide from thee:
 
 [Ezekiel 28:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.3?lang=eng#p3)
 

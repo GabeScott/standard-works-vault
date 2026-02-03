@@ -1,6 +1,6 @@
 # Psalms 34:8
 
-> O <u>taste</u>[^a] and see that the Lord is <u>good</u>[^b] : blessed is the man that trusteth in him.
+> O <u>taste</u>[^a] and see that the LORD *is* <u>good</u>[^b]: blessed *is* the man *that* trusteth in him.
 
 [Psalms 34:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.8?lang=eng#p8)
 

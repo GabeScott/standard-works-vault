@@ -1,6 +1,6 @@
 # Zechariah 12:1
 
-> The burden of the word of the Lord for Israel, saith the Lord , which stretcheth forth the heavens, and layeth the foundation of the <u>earth</u>[^a], and formeth the <u>spirit</u>[^b] of man within him.
+> The burden of the word of the LORD for Israel, saith the LORD, which stretcheth forth the heavens, and layeth the foundation of the <u>earth</u>[^a], and formeth the <u>spirit</u>[^b] of man within him.
 
 [Zechariah 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/12.1?lang=eng#p1)
 

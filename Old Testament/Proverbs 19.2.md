@@ -1,6 +1,6 @@
 # Proverbs 19:2
 
-> Also, that the soul be without <u>knowledge</u>[^a], it is not good; and he that <u>hasteth</u>[^b] with his feet sinneth.
+> Also, *that* the soul *be* without <u>knowledge</u>[^a], *it is* not good; and he that <u>hasteth</u>[^b] with *his* feet sinneth.
 
 [Proverbs 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.2?lang=eng#p2)
 

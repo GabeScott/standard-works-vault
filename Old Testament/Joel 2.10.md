@@ -1,6 +1,6 @@
 # Joel 2:10
 
-> The <u>earth</u>[^a] shall quake before them; the heavens shall <u>tremble</u>[^b] : the <u>sun</u>[^c] and the moon shall be <u>dark</u>[^d], and the stars shall withdraw their shining:
+> The <u>earth</u>[^a] shall quake before them; the heavens shall <u>tremble</u>[^b]: the <u>sun</u>[^c] and the moon shall be <u>dark</u>[^d], and the stars shall withdraw their shining:
 
 [Joel 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.10?lang=eng#p10)
 

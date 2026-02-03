@@ -1,6 +1,6 @@
 # Genesis 4:4
 
-> And Abel, he also brought of the <u>firstlings</u>[^a] of his flock and of the fat thereof. And the Lord had respect unto <u>Abel</u>[^b] and to his <u>offering</u>[^c] :
+> And Abel, he also brought of the <u>firstlings</u>[^a] of his flock and of the fat thereof. And the LORD had respect unto <u>Abel</u>[^b] and to his <u>offering</u>[^c]:
 
 [Genesis 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.4?lang=eng#p4)
 

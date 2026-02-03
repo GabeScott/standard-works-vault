@@ -1,6 +1,6 @@
 # Alma 40:26
 
-> But behold, an awful <u>death</u>[^a] cometh upon the wicked; for they die as to things pertaining to things of righteousness; for they are unclean, and <u>no unclean thing</u>[^b] can inherit the kingdom of God; but they are cast out, and consigned to partake of the fruits of their labors or their works, which have been evil; and they drink the dregs of a bitter <u>cup</u>[^c] .
+> But behold, an awful <u>death</u>[^a] cometh upon the wicked; for they die as to things pertaining to things of righteousness; for they are unclean, and <u>no unclean thing</u>[^b] can inherit the kingdom of God; but they are cast out, and consigned to partake of the fruits of their labors or their works, which have been evil; and they drink the dregs of a bitter <u>cup</u>[^c].
 
 [Alma 40:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p26#p26)
 

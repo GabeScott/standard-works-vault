@@ -1,6 +1,6 @@
 # Psalms 24:8
 
-> Who is this <u>King</u>[^a] of <u>glory</u>[^b] ? The Lord strong and mighty, the Lord mighty in battle.
+> Who *is* this <u>King</u>[^a] of <u>glory</u>[^b]? The LORD strong and mighty, the LORD mighty in battle.
 
 [Psalms 24:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/24.8?lang=eng#p8)
 

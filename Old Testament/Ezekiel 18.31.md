@@ -1,6 +1,6 @@
 # Ezekiel 18:31
 
-> ¶ <u>Cast</u>[^a] away from you all your transgressions, whereby ye have transgressed; and make you a new <u>heart</u>[^b] and a <u>new spirit</u>[^c] : for why will ye <u>die</u>[^d], O house of Israel?
+> ¶ <u>Cast</u>[^a] away from you all your transgressions, whereby ye have transgressed; and make you a new <u>heart</u>[^b] and a <u>new spirit</u>[^c]: for why will ye <u>die</u>[^d], O house of Israel?
 
 [Ezekiel 18:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.31?lang=eng#p31)
 

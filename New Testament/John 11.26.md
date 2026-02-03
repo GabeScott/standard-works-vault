@@ -1,6 +1,6 @@
 # John 11:26
 
-> And whosoever liveth and believeth in me shall never <u>die</u>[^a] . Believest thou this?
+> And whosoever liveth and believeth in me shall never <u>die</u>[^a]. Believest thou this?
 
 [John 11:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Psalms 105:10
 
-> And confirmed the same unto Jacob for a law, and to Israel for an <u>everlasting covenant</u>[^a] :
+> And confirmed the same unto Jacob for a law, *and* to Israel *for* an <u>everlasting covenant</u>[^a]:
 
 [Psalms 105:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.10?lang=eng#p10)
 

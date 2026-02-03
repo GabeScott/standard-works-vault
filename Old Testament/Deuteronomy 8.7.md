@@ -1,6 +1,6 @@
 # Deuteronomy 8:7
 
-> For the Lord thy God bringeth thee into a <u>good</u>[^a] <u>land</u>[^b], a land of brooks of water, of <u>fountains</u>[^c] and depths that spring out of valleys and hills;
+> For the LORD thy God bringeth thee into a <u>good</u>[^a] <u>land</u>[^b], a land of brooks of water, of <u>fountains</u>[^c] and depths that spring out of valleys and hills;
 
 [Deuteronomy 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.7?lang=eng#p7)
 

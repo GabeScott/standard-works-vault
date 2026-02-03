@@ -1,6 +1,6 @@
 # Exodus 16:13
 
-> And it came to pass, that at even the <u>quails</u>[^a] came up, and covered the camp: and in the morning the dew lay round about the <u>host</u>[^b] .
+> And it came to pass, that at even the <u>quails</u>[^a] came up, and covered the camp: and in the morning the dew lay round about the <u>host</u>[^b].
 
 [Exodus 16:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Psalms 78:35
 
-> And they remembered that God was their <u>rock</u>[^a], and the high God their redeemer.
+> And they remembered that God *was* their <u>rock</u>[^a], and the high God their redeemer.
 
 [Psalms 78:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.35?lang=eng#p35)
 

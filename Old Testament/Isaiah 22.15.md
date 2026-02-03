@@ -1,6 +1,6 @@
 # Isaiah 22:15
 
-> ¶ Thus saith the Lord God of hosts, Go, get thee unto this treasurer, even unto <u>Shebna</u>[^a], which is over the house, and say,
+> ¶ Thus saith the Lord GOD of hosts, Go, get thee unto this treasurer, *even* unto <u>Shebna</u>[^a], which *is* over the house, *and say,*
 
 [Isaiah 22:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.15?lang=eng#p15)
 

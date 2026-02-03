@@ -1,6 +1,6 @@
 # 1 Corinthians 3:6
 
-> I have <u>planted</u>[^a], Apollos watered; but God <u>gave</u>[^b] the <u>increase</u>[^c] .
+> I have <u>planted</u>[^a], Apollos watered; but God <u>gave</u>[^b] the <u>increase</u>[^c].
 
 [1 Corinthians 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.6?lang=eng#p6)
 

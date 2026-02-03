@@ -1,6 +1,6 @@
 # 1 Nephi 16:34
 
-> And it came to pass that <u>Ishmael</u>[^a] died, and was buried in the place which was called <u>Nahom</u>[^b] .
+> And it came to pass that <u>Ishmael</u>[^a] died, and was buried in the place which was called <u>Nahom</u>[^b].
 
 [1 Nephi 16:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p34#p34)
 

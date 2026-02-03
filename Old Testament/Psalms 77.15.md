@@ -1,6 +1,6 @@
 # Psalms 77:15
 
-> Thou hast with thine arm redeemed thy people, the sons of Jacob and <u>Joseph</u>[^a] . Selah .
+> Thou hast with *thine* arm redeemed thy people, the sons of Jacob and <u>Joseph</u>[^a]. Selah.
 
 [Psalms 77:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/77.15?lang=eng#p15)
 

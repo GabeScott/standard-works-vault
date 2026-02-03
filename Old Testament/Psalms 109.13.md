@@ -1,6 +1,6 @@
 # Psalms 109:13
 
-> Let his <u>posterity</u>[^a] be cut off; and in the generation following let their name be <u>blotted out</u>[^b] .
+> Let his <u>posterity</u>[^a] be cut off; *and* in the generation following let their name be <u>blotted out</u>[^b].
 
 [Psalms 109:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.13?lang=eng#p13)
 

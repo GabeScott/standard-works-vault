@@ -1,6 +1,6 @@
 # 1 Chronicles 13:14
 
-> And the ark of God remained with the family of Obed-edom in his house three months. And the Lord <u>blessed</u>[^a] the house of Obed-edom, and all that he had.
+> And the ark of God remained with the family of Obed-edom in his house three months. And the LORD <u>blessed</u>[^a] the house of Obed-edom, and all that he had.
 
 [1 Chronicles 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/13.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # Matthew 16:24
 
-> ¶ <u>Then</u>[^a] said Jesus unto his disciples, If any man will come after me, let him <u>deny</u>[^b] himself, and take up his <u>cross</u>[^c], and <u>follow</u>[^d] <u>me</u>[^e] .
+> ¶ <u>Then</u>[^a] said Jesus unto his disciples, If any *man* will come after me, let him <u>deny</u>[^b] himself, and take up his <u>cross</u>[^c], and <u>follow</u>[^d] <u>me</u>[^e].
 
 [Matthew 16:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.24?lang=eng#p24)
 

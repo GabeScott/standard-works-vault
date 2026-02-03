@@ -1,6 +1,6 @@
 # Psalms 28:2
 
-> Hear the voice of my supplications, when I cry unto thee, when I lift up my hands toward thy holy <u>oracle</u>[^a] .
+> Hear the voice of my supplications, when I cry unto thee, when I lift up my hands toward thy holy <u>oracle</u>[^a].
 
 [Psalms 28:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/28.2?lang=eng#p2)
 

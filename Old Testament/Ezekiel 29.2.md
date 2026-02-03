@@ -1,6 +1,6 @@
 # Ezekiel 29:2
 
-> Son of man, set thy face against Pharaoh king of Egypt, and prophesy against him, and against all <u>Egypt</u>[^a] :
+> Son of man, set thy face against Pharaoh king of Egypt, and prophesy against him, and against all <u>Egypt</u>[^a]:
 
 [Ezekiel 29:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.2?lang=eng#p2)
 

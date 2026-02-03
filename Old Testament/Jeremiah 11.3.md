@@ -1,6 +1,6 @@
 # Jeremiah 11:3
 
-> And say thou unto them, Thus saith the Lord God of Israel; <u>Cursed</u>[^a] be the man that <u>obeyeth not</u>[^b] the words of this <u>covenant</u>[^c],
+> And say thou unto them, Thus saith the LORD God of Israel; <u>Cursed</u>[^a] *be* the man that <u>obeyeth not</u>[^b] the words of this <u>covenant</u>[^c],
 
 [Jeremiah 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Isaiah 8:20
 
-> To the <u>law</u>[^a] and to the testimony: if <u>they</u>[^b] speak not according to this word, it is because there is no <u>light</u>[^c] in them.
+> To the <u>law</u>[^a] and to the testimony: if <u>they</u>[^b] speak not according to this word, *it is* because *there is* no <u>light</u>[^c] in them.
 
 [Isaiah 8:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # Psalms 119:138
 
-> Thy testimonies that thou hast commanded are <u>righteous</u>[^a] and very faithful.
+> Thy testimonies *that* thou hast commanded *are* <u>righteous</u>[^a] and very faithful.
 
 [Psalms 119:138](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.138?lang=eng#p138)
 

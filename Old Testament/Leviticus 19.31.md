@@ -1,6 +1,6 @@
 # Leviticus 19:31
 
-> ¶ <u>Regard</u>[^a] not them that have <u>familiar</u>[^b] <u>spirits</u>[^c], neither seek after <u>wizards</u>[^d], to be defiled by them: I am the Lord your God.
+> ¶ <u>Regard</u>[^a] not them that have <u>familiar</u>[^b] <u>spirits</u>[^c], neither seek after <u>wizards</u>[^d], to be defiled by them: I *am* the LORD your God.
 
 [Leviticus 19:31](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.31?lang=eng#p31)
 

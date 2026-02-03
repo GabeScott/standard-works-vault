@@ -1,6 +1,6 @@
 # Revelation 2:28
 
-> And I will give him the morning <u>star</u>[^a] .
+> And I will give him the morning <u>star</u>[^a].
 
 [Revelation 2:28](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.28?lang=eng#p28)
 

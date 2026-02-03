@@ -1,6 +1,6 @@
 # Revelation 22:5
 
-> And there shall be no night there; and they need no candle, neither light of the <u>sun</u>[^a]; for the Lord God giveth them <u>light</u>[^b] : and they shall <u>reign</u>[^c] <u>for ever</u>[^d] and ever.
+> And there shall be no night there; and they need no candle, neither light of the <u>sun</u>[^a]; for the Lord God giveth them <u>light</u>[^b]: and they shall <u>reign</u>[^c] <u>for ever</u>[^d] and ever.
 
 [Revelation 22:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.5?lang=eng#p5)
 

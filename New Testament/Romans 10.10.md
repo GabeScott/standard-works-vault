@@ -1,6 +1,6 @@
 # Romans 10:10
 
-> For with the <u>heart</u>[^a] man <u>believeth</u>[^b] unto righteousness; and with the mouth confession is made unto <u>salvation</u>[^c] .
+> For with the <u>heart</u>[^a] man <u>believeth</u>[^b] unto righteousness; and with the mouth confession is made unto <u>salvation</u>[^c].
 
 [Romans 10:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.10?lang=eng#p10)
 

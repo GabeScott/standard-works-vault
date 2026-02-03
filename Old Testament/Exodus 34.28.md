@@ -1,6 +1,6 @@
 # Exodus 34:28
 
-> And he was there with the Lord <u>forty</u>[^a] days and forty nights; he did neither <u>eat</u>[^b] bread, nor drink water. And he <u>wrote</u>[^c] upon the tables the words of the <u>covenant</u>[^d], the <u>ten</u>[^e] <u>commandments</u>[^f] .
+> And he was there with the LORD <u>forty</u>[^a] days and forty nights; he did neither <u>eat</u>[^b] bread, nor drink water. And he <u>wrote</u>[^c] upon the tables the words of the <u>covenant</u>[^d], the <u>ten</u>[^e] <u>commandments</u>[^f].
 
 [Exodus 34:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.28?lang=eng#p28)
 

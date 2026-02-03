@@ -1,6 +1,6 @@
 # Matthew 11:6
 
-> And blessed is he, whosoever shall not be <u>offended</u>[^a] in me.
+> And blessed is *he,* whosoever shall not be <u>offended</u>[^a] in me.
 
 [Matthew 11:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.6?lang=eng#p6)
 

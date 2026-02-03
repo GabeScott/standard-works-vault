@@ -1,6 +1,6 @@
 # Joshua 6:27
 
-> So the Lord was <u>with</u>[^a] <u>Joshua</u>[^b]; and his fame was noised throughout all the country.
+> So the LORD was <u>with</u>[^a] <u>Joshua</u>[^b]; and his fame was <u>noised</u>[^c] throughout all the country.
 
 [Joshua 6:27](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.27?lang=eng#p27)
 

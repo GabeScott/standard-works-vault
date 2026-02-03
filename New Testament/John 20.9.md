@@ -1,6 +1,6 @@
 # John 20:9
 
-> For as yet they knew not the scripture, that he must <u>rise</u>[^a] again from the <u>dead</u>[^b] .
+> For as yet they knew not the scripture, that he must <u>rise</u>[^a] again from the <u>dead</u>[^b].
 
 [John 20:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.9?lang=eng#p9)
 

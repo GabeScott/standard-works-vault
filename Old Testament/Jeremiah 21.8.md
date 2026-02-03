@@ -1,6 +1,6 @@
 # Jeremiah 21:8
 
-> ¶ And unto this people thou shalt say, Thus saith the Lord ; Behold, I set before you the way of <u>life</u>[^a], and the way of death.
+> ¶ And unto this people thou shalt say, Thus saith the LORD; Behold, I set before you the way of <u>life</u>[^a], and the way of death.
 
 [Jeremiah 21:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/21.8?lang=eng#p8)
 

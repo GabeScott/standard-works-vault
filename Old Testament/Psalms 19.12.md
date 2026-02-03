@@ -1,6 +1,6 @@
 # Psalms 19:12
 
-> Who can understand his errors? <u>cleanse</u>[^a] thou me from <u>secret</u>[^b] faults.
+> Who can understand *his* errors? <u>cleanse</u>[^a] thou me from <u>secret</u>[^b] *faults.*
 
 [Psalms 19:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.12?lang=eng#p12)
 

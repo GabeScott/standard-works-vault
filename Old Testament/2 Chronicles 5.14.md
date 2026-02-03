@@ -1,6 +1,6 @@
 # 2 Chronicles 5:14
 
-> So that the priests could not stand to minister by reason of the <u>cloud</u>[^a] : for the <u>glory</u>[^b] of the Lord had filled the house of God.
+> So that the priests could not stand to minister by reason of the <u>cloud</u>[^a]: for the <u>glory</u>[^b] of the LORD had filled the house of God.
 
 [2 Chronicles 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/5.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # 2 Samuel 22:47
 
-> The Lord <u>liveth</u>[^a]; and blessed be my rock; and <u>exalted</u>[^b] be the God of the <u>rock</u>[^c] of my salvation.
+> The LORD <u>liveth</u>[^a]; and blessed *be* my rock; and <u>exalted</u>[^b] be the God of the <u>rock</u>[^c] of my salvation.
 
 [2 Samuel 22:47](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.47?lang=eng#p47)
 

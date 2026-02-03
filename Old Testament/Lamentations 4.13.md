@@ -1,6 +1,6 @@
 # Lamentations 4:13
 
-> ¶ For the <u>sins</u>[^a] of her prophets, and the iniquities of her priests, that have shed the blood of the <u>just</u>[^b] in the midst of her,
+> ¶ For the <u>sins</u>[^a] of her prophets, *and* the iniquities of her priests, that have shed the blood of the <u>just</u>[^b] in the midst of her,
 
 [Lamentations 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/4.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Jeremiah 48:38
 
-> There shall be lamentation generally upon all the housetops of Moab, and in the streets thereof: for I have broken Moab like a <u>vessel</u>[^a] wherein is no pleasure, saith the Lord .
+> *There shall be* lamentation generally upon all the housetops of Moab, and in the streets thereof: for I have broken Moab like a <u>vessel</u>[^a] wherein *is* no pleasure, saith the LORD.
 
 [Jeremiah 48:38](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.38?lang=eng#p38)
 

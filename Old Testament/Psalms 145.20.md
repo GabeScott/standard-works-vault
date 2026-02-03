@@ -1,6 +1,6 @@
 # Psalms 145:20
 
-> The Lord <u>preserveth</u>[^a] all them that love him: but all the wicked will he destroy.
+> The LORD <u>preserveth</u>[^a] all them that love him: but all the wicked will he destroy.
 
 [Psalms 145:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/145.20?lang=eng#p20)
 

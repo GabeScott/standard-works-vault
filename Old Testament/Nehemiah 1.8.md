@@ -1,6 +1,6 @@
 # Nehemiah 1:8
 
-> Remember, I beseech thee, the word that thou commandedst thy servant Moses, saying, If ye transgress, I will <u>scatter</u>[^a] you abroad among the nations:
+> Remember, I beseech thee, the word that thou commandedst thy servant Moses, saying, *If* ye transgress, I will <u>scatter</u>[^a] you abroad among the nations:
 
 [Nehemiah 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/1.8?lang=eng#p8)
 

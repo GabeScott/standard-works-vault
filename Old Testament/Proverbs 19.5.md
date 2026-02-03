@@ -1,6 +1,6 @@
 # Proverbs 19:5
 
-> A false <u>witness</u>[^a] shall not be unpunished, and he that speaketh <u>lies</u>[^b] shall not escape.
+> A false <u>witness</u>[^a] shall not be unpunished, and *he that* speaketh <u>lies</u>[^b] shall not escape.
 
 [Proverbs 19:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.5?lang=eng#p5)
 

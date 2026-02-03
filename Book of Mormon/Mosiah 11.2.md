@@ -1,6 +1,6 @@
 # Mosiah 11:2
 
-> For behold, he did not keep the commandments of God, but he did walk after the desires of his own heart. And he had many wives and <u>concubines</u>[^a] . And he did <u>cause</u>[^b] his people to commit sin, and do that which was <u>abominable</u>[^c] in the sight of the Lord. Yea, and they did commit <u>whoredoms</u>[^d] and <u>all</u>[^e] manner of wickedness.
+> For behold, he did not keep the commandments of God, but he did walk after the desires of his own heart. And he had many wives and <u>concubines</u>[^a]. And he did <u>cause</u>[^b] his people to commit sin, and do that which was <u>abominable</u>[^c] in the sight of the Lord. Yea, and they did commit <u>whoredoms</u>[^d] and <u>all</u>[^e] manner of wickedness.
 
 [Mosiah 11:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p2#p2)
 

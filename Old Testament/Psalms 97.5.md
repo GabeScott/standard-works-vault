@@ -1,6 +1,6 @@
 # Psalms 97:5
 
-> The hills <u>melted</u>[^a] like <u>wax</u>[^b] at the presence of the Lord , at the presence of the Lord of the whole earth.
+> The hills <u>melted</u>[^a] like <u>wax</u>[^b] at the presence of the LORD, at the presence of the Lord of the whole earth.
 
 [Psalms 97:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/97.5?lang=eng#p5)
 

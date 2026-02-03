@@ -1,6 +1,6 @@
 # Genesis 3:13
 
-> And the Lord God said unto the woman, What is this that thou hast done? And the woman said, The serpent <u>beguiled</u>[^a] me, and I did eat.
+> And the LORD God said unto the woman, What *is* this *that* thou hast done? And the woman said, The serpent <u>beguiled</u>[^a] me, and I did eat.
 
 [Genesis 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.13?lang=eng#p13)
 

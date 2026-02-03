@@ -1,6 +1,6 @@
 # 1 Nephi 22:7
 
-> And it meaneth that the time cometh that after all the house of Israel have been scattered and confounded, that the Lord God will raise up a mighty nation among the <u>Gentiles</u>[^a], yea, even upon the face of this land; and by them shall our seed be <u>scattered</u>[^b] .
+> And it meaneth that the time cometh that after all the house of Israel have been scattered and confounded, that the Lord God will raise up a mighty nation among the <u>Gentiles</u>[^a], yea, even upon the face of this land; and by them shall our seed be <u>scattered</u>[^b].
 
 [1 Nephi 22:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p7#p7)
 

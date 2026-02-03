@@ -1,6 +1,6 @@
 # Romans 14:13
 
-> Let us not therefore judge one another any more: but judge this rather, that no man put a <u>stumblingblock</u>[^a] or an occasion to fall in his brother’s way.
+> Let us not therefore judge one another any more: but judge this rather, that no man put a <u>stumblingblock</u>[^a] or an occasion to fall in *his* brother’s way.
 
 [Romans 14:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.13?lang=eng#p13)
 

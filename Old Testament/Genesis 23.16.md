@@ -1,6 +1,6 @@
 # Genesis 23:16
 
-> And Abraham hearkened unto <u>Ephron</u>[^a]; and Abraham <u>weighed</u>[^b] to <u>Ephron</u>[^c] the silver, which he had named in the audience of the sons of Heth, four hundred shekels of silver, current money with the merchant.
+> And Abraham hearkened unto <u>Ephron</u>[^a]; and Abraham <u>weighed</u>[^b] to <u>Ephron</u>[^c] the silver, which he had named in the audience of the sons of Heth, four hundred shekels of silver, current *money* with the merchant.
 
 [Genesis 23:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.16?lang=eng#p16)
 

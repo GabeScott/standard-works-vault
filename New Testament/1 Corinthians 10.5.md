@@ -1,6 +1,6 @@
 # 1 Corinthians 10:5
 
-> But with many of them <u>God</u>[^a] was not well <u>pleased</u>[^b] : for they were <u>overthrown</u>[^c] in the <u>wilderness</u>[^d] .
+> But with many of them <u>God</u>[^a] was not well <u>pleased</u>[^b]: for they were <u>overthrown</u>[^c] in the <u>wilderness</u>[^d].
 
 [1 Corinthians 10:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.5?lang=eng#p5)
 

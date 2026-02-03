@@ -1,6 +1,6 @@
 # Numbers 3:8
 
-> And they shall keep all the <u>instruments</u>[^a] of the tabernacle of the congregation, and the charge of the children of Israel, to do the <u>service</u>[^b] of the <u>tabernacle</u>[^c] .
+> And they shall keep all the <u>instruments</u>[^a] of the tabernacle of the congregation, and the charge of the children of Israel, to do the <u>service</u>[^b] of the <u>tabernacle</u>[^c].
 
 [Numbers 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.8?lang=eng#p8)
 

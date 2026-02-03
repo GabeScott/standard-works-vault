@@ -1,6 +1,6 @@
 # Psalms 44:19
 
-> Though thou hast sore broken us in the place of <u>dragons</u>[^a], and covered us with the <u>shadow of death</u>[^b] .
+> Though thou hast sore broken us in the place of <u>dragons</u>[^a], and covered us with the <u>shadow of death</u>[^b].
 
 [Psalms 44:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/44.19?lang=eng#p19)
 

@@ -1,6 +1,6 @@
 # Revelation 16:16
 
-> And he gathered them together into a place called in the Hebrew tongue <u>Armageddon</u>[^a] .
+> And he gathered them together into a place called in the Hebrew tongue <u>Armageddon</u>[^a].
 
 [Revelation 16:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.16?lang=eng#p16)
 

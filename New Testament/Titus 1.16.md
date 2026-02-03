@@ -1,6 +1,6 @@
 # Titus 1:16
 
-> They <u>profess</u>[^a] that they <u>know</u>[^b] God; but in <u>works</u>[^c] they <u>deny</u>[^d] him, being abominable, and <u>disobedient</u>[^e], and unto every good work <u>reprobate</u>[^f] .
+> They <u>profess</u>[^a] that they <u>know</u>[^b] God; but in <u>works</u>[^c] they <u>deny</u>[^d] *him,* being abominable, and <u>disobedient</u>[^e], and unto every good work <u>reprobate</u>[^f].
 
 [Titus 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.16?lang=eng#p16)
 

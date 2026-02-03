@@ -1,6 +1,6 @@
 # Deuteronomy 11:9
 
-> And that ye may <u>prolong</u>[^a] your days in the land, which the Lord sware unto your <u>fathers</u>[^b] to give unto them and to their seed, a land that floweth with milk and honey.
+> And that ye may <u>prolong</u>[^a] *your* days in the land, which the LORD sware unto your <u>fathers</u>[^b] to give unto them and to their seed, a land that floweth with milk and honey.
 
 [Deuteronomy 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.9?lang=eng#p9)
 

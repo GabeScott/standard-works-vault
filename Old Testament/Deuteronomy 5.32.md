@@ -1,6 +1,6 @@
 # Deuteronomy 5:32
 
-> Ye shall <u>observe</u>[^a] to do therefore as the Lord your God hath commanded you: ye shall not <u>turn</u>[^b] aside to the right hand or to the left.
+> Ye shall <u>observe</u>[^a] to do therefore as the LORD your God hath commanded you: ye shall not <u>turn</u>[^b] aside to the right hand or to the left.
 
 [Deuteronomy 5:32](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.32?lang=eng#p32)
 

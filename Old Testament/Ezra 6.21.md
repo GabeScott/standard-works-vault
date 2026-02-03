@@ -1,6 +1,6 @@
 # Ezra 6:21
 
-> And the children of Israel, which were come again out of captivity, and all such as had <u>separated</u>[^a] themselves unto them from the <u>filthiness</u>[^b] of the <u>heathen</u>[^c] of the land, to seek the Lord God of Israel, did eat,
+> And the children of Israel, which were come again out of captivity, and all such as had <u>separated</u>[^a] themselves unto them from the <u>filthiness</u>[^b] of the <u>heathen</u>[^c] of the land, to seek the LORD God of Israel, did eat,
 
 [Ezra 6:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.21?lang=eng#p21)
 

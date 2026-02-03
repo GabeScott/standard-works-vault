@@ -1,6 +1,6 @@
 # Psalms 130:4
 
-> But there is <u>forgiveness</u>[^a] with thee, that thou mayest be <u>feared</u>[^b] .
+> But *there is* <u>forgiveness</u>[^a] with thee, that thou mayest be <u>feared</u>[^b].
 
 [Psalms 130:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/130.4?lang=eng#p4)
 

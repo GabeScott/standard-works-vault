@@ -1,6 +1,6 @@
 # Jeremiah 52:1
 
-> <u>Zedekiah</u>[^a] was one and twenty years old when he began to reign, and he reigned eleven years in Jerusalem. And his mother’s name was Hamutal the daughter of Jeremiah of Libnah.
+> <u>Zedekiah</u>[^a] *was* one and twenty years old when he began to reign, and he reigned eleven years in Jerusalem. And his mother’s name *was* Hamutal the daughter of Jeremiah of Libnah.
 
 [Jeremiah 52:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.1?lang=eng#p1)
 

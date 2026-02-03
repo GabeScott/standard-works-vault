@@ -1,6 +1,6 @@
 # 1 Nephi 19:12
 
-> And <u>all</u>[^a] these things must surely come, saith the prophet <u>Zenos</u>[^b] . And the <u>rocks</u>[^c] of the earth must rend; and because of the <u>groanings</u>[^d] of the earth, many of the kings of the isles of the sea shall be wrought upon by the Spirit of God, to exclaim: The God of nature suffers.
+> And <u>all</u>[^a] these things must surely come, saith the prophet <u>Zenos</u>[^b]. And the <u>rocks</u>[^c] of the earth must rend; and because of the <u>groanings</u>[^d] of the earth, many of the kings of the isles of the sea shall be wrought upon by the Spirit of God, to exclaim: The God of nature suffers.
 
 [1 Nephi 19:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p12#p12)
 

@@ -1,6 +1,6 @@
 # Isaiah 60:6
 
-> The multitude of camels shall cover thee, the dromedaries of Midian and Ephah; all they from Sheba shall come: they shall bring <u>gold</u>[^a] and incense; and they shall shew forth the praises of the Lord .
+> The multitude of camels shall cover thee, the dromedaries of Midian and Ephah; all they from Sheba shall come: they shall bring <u>gold</u>[^a] and incense; and they shall shew forth the praises of the LORD.
 
 [Isaiah 60:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.6?lang=eng#p6)
 

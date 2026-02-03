@@ -1,6 +1,6 @@
 # Alma 29:12
 
-> Yea, I have always remembered the captivity of my fathers; and that same God who <u>delivered</u>[^a] them out of the hands of the Egyptians did deliver them out of <u>bondage</u>[^b] .
+> Yea, I have always remembered the captivity of my fathers; and that same God who <u>delivered</u>[^a] them out of the hands of the Egyptians did deliver them out of <u>bondage</u>[^b].
 
 [Alma 29:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p12#p12)
 

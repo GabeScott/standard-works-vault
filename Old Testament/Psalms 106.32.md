@@ -1,6 +1,6 @@
 # Psalms 106:32
 
-> They angered him also at the waters of <u>strife</u>[^a], so that it went ill with Moses for their <u>sakes</u>[^b] :
+> They angered *him* also at the waters of <u>strife</u>[^a], so that it went ill with Moses for their <u>sakes</u>[^b]:
 
 [Psalms 106:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.32?lang=eng#p32)
 

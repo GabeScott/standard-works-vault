@@ -1,6 +1,6 @@
 # 1 Samuel 12:22
 
-> For the Lord will not forsake his people for his great <u>name’s</u>[^a] sake: because it hath pleased the Lord to make you his people.
+> For the LORD will not forsake his people for his great <u>name’s</u>[^a] sake: because it hath pleased the LORD to make you his people.
 
 [1 Samuel 12:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.22?lang=eng#p22)
 

@@ -1,6 +1,6 @@
 # 1 Kings 8:11
 
-> So that the priests could not stand to minister because of the cloud: for the <u>glory</u>[^a] of the Lord had filled the house of the Lord .
+> So that the priests could not stand to minister because of the cloud: for the <u>glory</u>[^a] of the LORD had filled the house of the LORD.
 
 [1 Kings 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.11?lang=eng#p11)
 

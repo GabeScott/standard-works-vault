@@ -1,6 +1,6 @@
 # Ezekiel 1:2
 
-> In the fifth day of the month, which was the <u>fifth</u>[^a] year of king <u>Jehoiachin’s</u>[^b] captivity,
+> In the fifth *day* of the month, which *was* the <u>fifth</u>[^a] year of king <u>Jehoiachin’s</u>[^b] captivity,
 
 [Ezekiel 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.2?lang=eng#p2)
 

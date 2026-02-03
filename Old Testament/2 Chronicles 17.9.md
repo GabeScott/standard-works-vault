@@ -1,6 +1,6 @@
 # 2 Chronicles 17:9
 
-> And they taught in Judah, and had the book of the law of the Lord with them, and went about throughout all the cities of Judah, and <u>taught</u>[^a] the people.
+> And they taught in Judah, and *had* the book of the law of the LORD with them, and went about throughout all the cities of Judah, and <u>taught</u>[^a] the people.
 
 [2 Chronicles 17:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/17.9?lang=eng#p9)
 

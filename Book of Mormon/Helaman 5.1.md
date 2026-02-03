@@ -1,6 +1,6 @@
 # Helaman 5:1
 
-> And it came to pass that in this same year, behold, <u>Nephi</u>[^a] <u>delivered up</u>[^b] the judgment-seat to a man whose name was <u>Cezoram</u>[^c] .
+> And it came to pass that in this same year, behold, <u>Nephi</u>[^a] <u>delivered up</u>[^b] the judgment-seat to a man whose name was <u>Cezoram</u>[^c].
 
 [Helaman 5:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p1#p1)
 

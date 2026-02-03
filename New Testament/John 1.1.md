@@ -1,6 +1,6 @@
 # John 1:1
 
-> <u>In</u>[^a] the <u>beginning</u>[^b] was the Word, and the <u>Word</u>[^c] was with God, and the <u>Word</u>[^d] was <u>God</u>[^e] .
+> <u>In</u>[^a] the <u>beginning</u>[^b] was the Word, and the <u>Word</u>[^c] was with God, and the <u>Word</u>[^d] was <u>God</u>[^e].
 
 [John 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.1?lang=eng#p1)
 

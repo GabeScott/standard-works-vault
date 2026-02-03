@@ -1,6 +1,6 @@
 # Moses 5:7
 
-> And then the angel spake, saying: This thing is a <u>similitude</u>[^a] of the <u>sacrifice</u>[^b] of the Only Begotten of the Father, which is full of <u>grace</u>[^c] and <u>truth</u>[^d] .
+> And then the angel spake, saying: This thing is a <u>similitude</u>[^a] of the <u>sacrifice</u>[^b] of the Only Begotten of the Father, which is full of <u>grace</u>[^c] and <u>truth</u>[^d].
 
 [Moses 5:7](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.7?lang=eng#p7)
 

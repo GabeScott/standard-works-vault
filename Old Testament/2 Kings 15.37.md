@@ -1,6 +1,6 @@
 # 2 Kings 15:37
 
-> In those days the Lord began to send against Judah <u>Rezin</u>[^a] the king of Syria, and Pekah the son of Remaliah.
+> In those days the LORD began to send against Judah <u>Rezin</u>[^a] the king of Syria, and Pekah the son of Remaliah.
 
 [2 Kings 15:37](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/15.37?lang=eng#p37)
 

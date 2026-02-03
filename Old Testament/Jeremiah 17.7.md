@@ -1,6 +1,6 @@
 # Jeremiah 17:7
 
-> Blessed is the man that <u>trusteth</u>[^a] in the Lord , and whose <u>hope</u>[^b] the Lord is.
+> Blessed *is* the man that <u>trusteth</u>[^a] in the LORD, and whose <u>hope</u>[^b] the LORD is.
 
 [Jeremiah 17:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.7?lang=eng#p7)
 

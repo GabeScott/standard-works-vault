@@ -1,6 +1,6 @@
 # Romans 10:18
 
-> But I say, Have they not heard? Yes verily, their sound went into all the earth, and their <u>words</u>[^a] unto the ends of the <u>world</u>[^b] .
+> But I say, Have they not heard? Yes verily, their sound went into all the earth, and their <u>words</u>[^a] unto the ends of the <u>world</u>[^b].
 
 [Romans 10:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.18?lang=eng#p18)
 

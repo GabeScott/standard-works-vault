@@ -1,6 +1,6 @@
 # Psalms 66:3
 
-> Say unto God, How terrible art thou in thy works! through the greatness of thy power shall thine enemies <u>submit</u>[^a] themselves unto thee.
+> Say unto God, How terrible *art thou in* thy works! through the greatness of thy power shall thine enemies <u>submit</u>[^a] themselves unto thee.
 
 [Psalms 66:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/66.3?lang=eng#p3)
 

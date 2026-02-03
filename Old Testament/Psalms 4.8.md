@@ -1,6 +1,6 @@
 # Psalms 4:8
 
-> I will both lay me down in <u>peace</u>[^a], and sleep: for thou, Lord , only makest me dwell in safety.
+> I will both lay me down in <u>peace</u>[^a], and sleep: for thou, LORD, only makest me dwell in safety.
 
 [Psalms 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/4.8?lang=eng#p8)
 

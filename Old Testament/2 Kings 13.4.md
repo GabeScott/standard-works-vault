@@ -1,6 +1,6 @@
 # 2 Kings 13:4
 
-> And Jehoahaz <u>besought</u>[^a] the Lord , and the Lord hearkened unto him: for he saw the <u>oppression</u>[^b] of Israel, because the king of Syria oppressed them.
+> And Jehoahaz <u>besought</u>[^a] the LORD, and the LORD hearkened unto him: for he saw the <u>oppression</u>[^b] of Israel, because the king of Syria oppressed them.
 
 [2 Kings 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/13.4?lang=eng#p4)
 

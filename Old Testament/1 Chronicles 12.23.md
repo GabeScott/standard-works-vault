@@ -1,6 +1,6 @@
 # 1 Chronicles 12:23
 
-> ¶ And these are the numbers of the bands that were ready armed to the war, and came to <u>David</u>[^a] to Hebron, to turn the kingdom of Saul to him, according to the word of the Lord .
+> ¶ And these *are* the numbers of the bands *that were* ready armed to the war, *and* came to <u>David</u>[^a] to Hebron, to turn the kingdom of Saul to him, according to the word of the LORD.
 
 [1 Chronicles 12:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/12.23?lang=eng#p23)
 

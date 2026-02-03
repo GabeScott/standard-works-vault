@@ -1,6 +1,6 @@
 # Numbers 20:3
 
-> And the people <u>chode</u>[^a] with Moses, and spake, saying, Would God that we had died when our brethren died before the Lord !
+> And the people <u>chode</u>[^a] with Moses, and spake, saying, Would God that we had died when our brethren died before the LORD!
 
 [Numbers 20:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.3?lang=eng#p3)
 

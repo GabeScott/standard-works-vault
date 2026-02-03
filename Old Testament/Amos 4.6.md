@@ -1,6 +1,6 @@
 # Amos 4:6
 
-> ¶ And I also have given you <u>cleanness</u>[^a] of teeth in all your cities, and want of bread in all your places: yet have ye not <u>returned</u>[^b] unto me, saith the Lord .
+> ¶ And I also have given you <u>cleanness</u>[^a] of teeth in all your cities, and want of bread in all your places: yet have ye not <u>returned</u>[^b] unto me, saith the LORD.
 
 [Amos 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/4.6?lang=eng#p6)
 

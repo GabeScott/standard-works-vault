@@ -1,6 +1,6 @@
 # Ezekiel 20:38
 
-> And I will <u>purge</u>[^a] out from among you the <u>rebels</u>[^b], and them that transgress against me: I will bring them forth out of the country where they sojourn, and they shall not <u>enter</u>[^c] into the <u>land of Israel</u>[^d] : and ye shall know that I am the Lord .
+> And I will <u>purge</u>[^a] out from among you the <u>rebels</u>[^b], and them that transgress against me: I will bring them forth out of the country where they sojourn, and they shall not <u>enter</u>[^c] into the <u>land of Israel</u>[^d]: and ye shall know that I *am* the LORD.
 
 [Ezekiel 20:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.38?lang=eng#p38)
 

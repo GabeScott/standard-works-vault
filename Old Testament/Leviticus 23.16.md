@@ -1,6 +1,6 @@
 # Leviticus 23:16
 
-> Even unto the morrow after the seventh sabbath shall ye number <u>fifty</u>[^a] days; and ye shall offer a new meat offering unto the Lord .
+> Even unto the morrow after the seventh sabbath shall ye number <u>fifty</u>[^a] days; and ye shall offer a new meat offering unto the LORD.
 
 [Leviticus 23:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.16?lang=eng#p16)
 

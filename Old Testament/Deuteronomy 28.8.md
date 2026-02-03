@@ -1,6 +1,6 @@
 # Deuteronomy 28:8
 
-> The Lord shall <u>command</u>[^a] the blessing upon thee in thy storehouses, and in <u>all</u>[^b] that thou settest thine hand unto; and he shall bless thee in the <u>land</u>[^c] which the Lord thy God giveth thee.
+> The LORD shall <u>command</u>[^a] the blessing upon thee in thy storehouses, and in <u>all</u>[^b] that thou settest thine hand unto; and he shall bless thee in the <u>land</u>[^c] which the LORD thy God giveth thee.
 
 [Deuteronomy 28:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.8?lang=eng#p8)
 

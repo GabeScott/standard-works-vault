@@ -1,6 +1,6 @@
 # Jeremiah 9:4
 
-> Take ye heed every one of his neighbour, and <u>trust</u>[^a] ye not in any brother: for every brother will <u>utterly supplant</u>[^b], and every neighbour will walk with <u>slanders</u>[^c] .
+> Take ye heed every one of his neighbour, and <u>trust</u>[^a] ye not in any brother: for every brother will <u>utterly supplant</u>[^b], and every neighbour will walk with <u>slanders</u>[^c].
 
 [Jeremiah 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.4?lang=eng#p4)
 

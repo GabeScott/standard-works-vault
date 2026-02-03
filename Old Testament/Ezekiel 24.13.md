@@ -1,6 +1,6 @@
 # Ezekiel 24:13
 
-> In thy <u>filthiness</u>[^a] is lewdness: because I have purged thee, and thou wast not purged, thou shalt not be <u>purged</u>[^b] from thy filthiness any more, till <u>I</u>[^c] have caused my fury to rest upon thee.
+> In thy <u>filthiness</u>[^a] *is* lewdness: because I have purged thee, and thou wast not purged, thou shalt not be <u>purged</u>[^b] from thy filthiness any more, till <u>I</u>[^c] have caused my fury to rest upon thee.
 
 [Ezekiel 24:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.13?lang=eng#p13)
 

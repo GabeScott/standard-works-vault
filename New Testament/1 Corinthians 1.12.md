@@ -1,6 +1,6 @@
 # 1 Corinthians 1:12
 
-> Now this I say, that every one of you saith, I am of Paul; and I of Apollos; and I of Cephas; and I of <u>Christ</u>[^a] .
+> Now this I say, that every one of you saith, I am of Paul; and I of Apollos; and I of Cephas; and I of <u>Christ</u>[^a].
 
 [1 Corinthians 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.12?lang=eng#p12)
 

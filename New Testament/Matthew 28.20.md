@@ -1,6 +1,6 @@
 # Matthew 28:20
 
-> <u>Teaching</u>[^a] them to <u>observe</u>[^b] all things whatsoever I have <u>commanded</u>[^c] you: and, lo, <u>I</u>[^d] am with you alway, even unto the <u>end</u>[^e] of the world. Amen.
+> <u>Teaching</u>[^a] them to <u>observe</u>[^b] all things whatsoever I have <u>commanded</u>[^c] you: and, lo, <u>I</u>[^d] am with you alway, *even* unto the <u>end</u>[^e] of the world. Amen.
 
 [Matthew 28:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.20?lang=eng#p20)
 

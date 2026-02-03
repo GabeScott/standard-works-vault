@@ -1,6 +1,6 @@
 # 1 Samuel 2:20
 
-> ¶ And Eli <u>blessed</u>[^a] Elkanah and his wife, and said, The Lord give thee seed of this woman for <u>the loan</u>[^b] which is <u>lent</u>[^c] to the Lord . And they went unto their own home.
+> ¶ And Eli <u>blessed</u>[^a] Elkanah and his wife, and said, The LORD give thee seed of this woman for <u>the loan</u>[^b] which is <u>lent</u>[^c] to the LORD. And they went unto their own home.
 
 [1 Samuel 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # Ezekiel 22:7
 
-> In thee have they <u>set light by</u>[^a] <u>father</u>[^b] and mother: in the midst of thee have they dealt by <u>oppression</u>[^c] with the <u>stranger</u>[^d] : in thee have they vexed the fatherless and the <u>widow</u>[^e] .
+> In thee have they <u>set light by</u>[^a] <u>father</u>[^b] and mother: in the midst of thee have they dealt by <u>oppression</u>[^c] with the <u>stranger</u>[^d]: in thee have they vexed the fatherless and the <u>widow</u>[^e].
 
 [Ezekiel 22:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.7?lang=eng#p7)
 

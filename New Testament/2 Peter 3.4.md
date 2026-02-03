@@ -1,6 +1,6 @@
 # 2 Peter 3:4
 
-> And saying, <u>Where</u>[^a] is the <u>promise</u>[^b] of his <u>coming</u>[^c] ? for since the fathers fell asleep, all things continue as they were from the beginning of the creation.
+> And saying, <u>Where</u>[^a] is the <u>promise</u>[^b] of his <u>coming</u>[^c]? for since the fathers fell asleep, all things continue as *they were* from the beginning of the creation.
 
 [2 Peter 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Helaman 13:29
 
-> O ye wicked and ye perverse generation; ye hardened and ye <u>stiffnecked</u>[^a] people, how long will ye suppose that the Lord will suffer you? Yea, how long will ye suffer yourselves to be led by <u>foolish</u>[^b] and <u>blind</u>[^c] guides? Yea, how long will ye <u>choose</u>[^d] darkness rather than <u>light</u>[^e] ?
+> O ye wicked and ye perverse generation; ye hardened and ye <u>stiffnecked</u>[^a] people, how long will ye suppose that the Lord will suffer you? Yea, how long will ye suffer yourselves to be led by <u>foolish</u>[^b] and <u>blind</u>[^c] guides? Yea, how long will ye <u>choose</u>[^d] darkness rather than <u>light</u>[^e]?
 
 [Helaman 13:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p29#p29)
 

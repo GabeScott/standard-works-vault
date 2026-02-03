@@ -1,6 +1,6 @@
 # Hosea 9:7
 
-> The days of <u>visitation</u>[^a] are come, the days of recompence are come; Israel shall know it: the prophet is a <u>fool</u>[^b], the spiritual man is mad, for the multitude of thine iniquity, and the great hatred.
+> The days of <u>visitation</u>[^a] are come, the days of recompence are come; Israel shall know *it:* the prophet *is* a <u>fool</u>[^b], the spiritual man *is* mad, for the multitude of thine iniquity, and the great hatred.
 
 [Hosea 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/9.7?lang=eng#p7)
 

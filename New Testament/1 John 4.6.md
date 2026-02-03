@@ -1,6 +1,6 @@
 # 1 John 4:6
 
-> We are of God: he that knoweth God <u>heareth</u>[^a] us; he that is not of God heareth not us. Hereby <u>know</u>[^b] we the <u>spirit</u>[^c] of truth, and the spirit of <u>error</u>[^d] .
+> We are of God: he that knoweth God <u>heareth</u>[^a] us; he that is not of God heareth not us. Hereby <u>know</u>[^b] we the <u>spirit</u>[^c] of truth, and the spirit of <u>error</u>[^d].
 
 [1 John 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.6?lang=eng#p6)
 

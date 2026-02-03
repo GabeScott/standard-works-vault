@@ -1,6 +1,6 @@
 # 1 Chronicles 23:13
 
-> The sons of <u>Amram</u>[^a]; Aaron and Moses: and <u>Aaron</u>[^b] was <u>separated</u>[^c], that he should sanctify the most holy things, he and his sons for ever, to burn <u>incense</u>[^d] before the Lord , to minister unto him, and to <u>bless</u>[^e] in his name for ever.
+> The sons of <u>Amram</u>[^a]; Aaron and Moses: and <u>Aaron</u>[^b] was <u>separated</u>[^c], that he should sanctify the most holy things, he and his sons for ever, to burn <u>incense</u>[^d] before the LORD, to minister unto him, and to <u>bless</u>[^e] in his name for ever.
 
 [1 Chronicles 23:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/23.13?lang=eng#p13)
 

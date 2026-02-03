@@ -1,6 +1,6 @@
 # John 16:14
 
-> He shall <u>glorify</u>[^a] me: for he shall receive of mine, and shall shew it unto you.
+> He shall <u>glorify</u>[^a] me: for he shall receive of mine, and shall shew *it* unto you.
 
 [John 16:14](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # Genesis 11:24
 
-> And Nahor lived nine and twenty years, and begat <u>Terah</u>[^a] :
+> And Nahor lived nine and twenty years, and begat <u>Terah</u>[^a]:
 
 [Genesis 11:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.24?lang=eng#p24)
 

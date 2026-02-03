@@ -1,6 +1,6 @@
 # Matthew 26:26
 
-> ¶ <u>And</u>[^a] as they were eating, Jesus took <u>bread</u>[^b], <u>and</u>[^c] blessed it, and brake it, and gave it to the disciples, and said, Take, eat; this is my <u>body</u>[^d] .
+> ¶ <u>And</u>[^a] as they were eating, Jesus took <u>bread</u>[^b], <u>and</u>[^c] blessed *it,* and brake *it,* and gave *it* to the disciples, and said, Take, eat; this is my <u>body</u>[^d].
 
 [Matthew 26:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.26?lang=eng#p26)
 

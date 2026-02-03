@@ -1,6 +1,6 @@
 # Psalms 78:2
 
-> I will open my mouth in a <u>parable</u>[^a] : I will utter dark sayings of old:
+> I will open my mouth in a <u>parable</u>[^a]: I will utter dark sayings of old:
 
 [Psalms 78:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.2?lang=eng#p2)
 

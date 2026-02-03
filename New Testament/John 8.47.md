@@ -1,6 +1,6 @@
 # John 8:47
 
-> <u>He</u>[^a] that is of God <u>heareth</u>[^b] God’s words: ye therefore hear them not, because ye are not of God.
+> <u>He</u>[^a] that is of God <u>heareth</u>[^b] God’s words: ye therefore hear *them* not, because ye are not of God.
 
 [John 8:47](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.47?lang=eng#p47)
 

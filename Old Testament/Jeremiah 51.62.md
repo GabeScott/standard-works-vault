@@ -1,6 +1,6 @@
 # Jeremiah 51:62
 
-> Then shalt thou say, O Lord , thou hast spoken against this place, to <u>cut</u>[^a] it off, that none shall remain in it, neither man nor beast, but that it shall be <u>desolate</u>[^b] for ever.
+> Then shalt thou say, O LORD, thou hast spoken against this place, to <u>cut</u>[^a] it off, that none shall remain in it, neither man nor beast, but that it shall be <u>desolate</u>[^b] for ever.
 
 [Jeremiah 51:62](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.62?lang=eng#p62)
 

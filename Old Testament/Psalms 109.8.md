@@ -1,6 +1,6 @@
 # Psalms 109:8
 
-> Let his days be few; and let another take his <u>office</u>[^a] .
+> Let his days be few; *and* let another take his <u>office</u>[^a].
 
 [Psalms 109:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.8?lang=eng#p8)
 

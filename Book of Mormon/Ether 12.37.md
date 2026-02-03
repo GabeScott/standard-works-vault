@@ -1,6 +1,6 @@
 # Ether 12:37
 
-> And it came to pass that the Lord said unto me: If they have not charity it mattereth not unto thee, thou hast been faithful; wherefore, thy garments shall be made <u>clean</u>[^a] . And because thou hast seen thy <u>weakness</u>[^b] thou shalt be made strong, even unto the sitting down in the place which I have prepared in the mansions of my Father.
+> And it came to pass that the Lord said unto me: If they have not charity it mattereth not unto thee, thou hast been faithful; wherefore, thy garments shall be made <u>clean</u>[^a]. And because thou hast seen thy <u>weakness</u>[^b] thou shalt be made strong, even unto the sitting down in the place which I have prepared in the mansions of my Father.
 
 [Ether 12:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p37#p37)
 

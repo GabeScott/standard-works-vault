@@ -1,6 +1,6 @@
 # Matthew 10:19
 
-> But when they deliver you up, <u>take no thought</u>[^a] how or what ye shall speak: for it shall be given you in that same hour what ye shall <u>speak</u>[^b] .
+> But when they deliver you up, <u>take no thought</u>[^a] how or what ye shall speak: for it shall be given you in that same hour what ye shall <u>speak</u>[^b].
 
 [Matthew 10:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.19?lang=eng#p19)
 

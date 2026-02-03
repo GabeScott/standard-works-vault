@@ -1,6 +1,6 @@
 # Genesis 22:14
 
-> And Abraham called the name of that place <u>Jehovah-jireh</u>[^a] : as it is said to this day, <u>In</u>[^b] the mount of the Lord it shall be seen.
+> And Abraham called the name of that place <u>Jehovah-jireh</u>[^a]: as it is said *to* this day, <u>In</u>[^b] the mount of the LORD it shall be seen.
 
 [Genesis 22:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.14?lang=eng#p14)
 

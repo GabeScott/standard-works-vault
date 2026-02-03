@@ -1,6 +1,6 @@
 # Proverbs 22:23
 
-> For the Lord will <u>plead</u>[^a] their <u>cause</u>[^b], and spoil the soul of those that spoiled them.
+> For the LORD will <u>plead</u>[^a] their <u>cause</u>[^b], and spoil the soul of those that spoiled them.
 
 [Proverbs 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.23?lang=eng#p23)
 

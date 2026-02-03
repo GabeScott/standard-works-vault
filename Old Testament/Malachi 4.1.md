@@ -1,6 +1,6 @@
 # Malachi 4:1
 
-> <u>For</u>[^a], behold, the <u>day</u>[^b] cometh, that shall <u>burn</u>[^c] as an oven; and all the <u>proud</u>[^d], yea, and all that do <u>wickedly</u>[^e], shall be <u>stubble</u>[^f] : and the day that cometh shall burn them up, saith the Lord of hosts, that it shall leave them neither root nor <u>branch</u>[^g] .
+> <u>For</u>[^a], behold, the <u>day</u>[^b] cometh, that shall <u>burn</u>[^c] as an oven; and all the <u>proud</u>[^d], yea, and all that do <u>wickedly</u>[^e], shall be <u>stubble</u>[^f]: and the day that cometh shall burn them up, saith the LORD of hosts, that it shall leave them neither root nor <u>branch</u>[^g].
 
 [Malachi 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/4.1?lang=eng#p1)
 

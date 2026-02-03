@@ -1,6 +1,6 @@
 # 2 Nephi 10:5
 
-> But because of <u>priestcrafts</u>[^a] and iniquities, they at Jerusalem will <u>stiffen</u>[^b] their necks against him, that he be <u>crucified</u>[^c] .
+> But because of <u>priestcrafts</u>[^a] and iniquities, they at Jerusalem will <u>stiffen</u>[^b] their necks against him, that he be <u>crucified</u>[^c].
 
 [2 Nephi 10:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p5#p5)
 

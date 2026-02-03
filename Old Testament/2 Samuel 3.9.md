@@ -1,6 +1,6 @@
 # 2 Samuel 3:9
 
-> So do God to Abner, and more also, except, as the Lord hath sworn to <u>David</u>[^a], even so I do to him;
+> So do God to Abner, and more also, except, as the LORD hath sworn to <u>David</u>[^a], even so I do to him;
 
 [2 Samuel 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/3.9?lang=eng#p9)
 

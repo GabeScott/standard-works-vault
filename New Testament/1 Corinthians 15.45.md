@@ -1,6 +1,6 @@
 # 1 Corinthians 15:45
 
-> And so it is written, The <u>first</u>[^a] man <u>Adam</u>[^b] was made a living soul; the last <u>Adam</u>[^c] was made a <u>quickening</u>[^d] spirit.
+> And so it is written, The <u>first</u>[^a] man <u>Adam</u>[^b] was made a living soul; the last <u>Adam</u>[^c] *was made* a <u>quickening</u>[^d] spirit.
 
 [1 Corinthians 15:45](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.45?lang=eng#p45)
 

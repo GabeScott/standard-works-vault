@@ -1,6 +1,6 @@
 # Ezekiel 44:24
 
-> And in <u>controversy</u>[^a] they shall stand in judgment; and they shall <u>judge</u>[^b] it according to my <u>judgments</u>[^c] : and they shall keep my laws and my statutes in all mine <u>assemblies</u>[^d]; and they shall hallow my <u>sabbaths</u>[^e] .
+> And in <u>controversy</u>[^a] they shall stand in judgment; *and* they shall <u>judge</u>[^b] it according to my <u>judgments</u>[^c]: and they shall keep my laws and my statutes in all mine <u>assemblies</u>[^d]; and they shall hallow my <u>sabbaths</u>[^e].
 
 [Ezekiel 44:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.24?lang=eng#p24)
 

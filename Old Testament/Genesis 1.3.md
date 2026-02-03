@@ -1,6 +1,6 @@
 # Genesis 1:3
 
-> And God <u>said</u>[^a], Let there be <u>light</u>[^b] : and there was light.
+> And God <u>said</u>[^a], Let there be <u>light</u>[^b]: and there was light.
 
 [Genesis 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.3?lang=eng#p3)
 

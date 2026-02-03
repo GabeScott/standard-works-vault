@@ -1,6 +1,6 @@
 # John 11:16
 
-> Then said Thomas, which is called Didymus, unto his fellow disciples, Let us also go, that we may die with <u>him</u>[^a] .
+> Then said Thomas, which is called Didymus, unto his fellowdisciples, Let us also go, that we may die with <u>him</u>[^a].
 
 [John 11:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Hebrews 9:2
 
-> For there was a <u>tabernacle</u>[^a] made; the first, wherein was the <u>candlestick</u>[^b], and the <u>table</u>[^c], and the <u>shewbread</u>[^d]; which is called the sanctuary.
+> For there was a <u>tabernacle</u>[^a] made; the first, wherein *was* the <u>candlestick</u>[^b], and the <u>table</u>[^c], and the <u>shewbread</u>[^d]; which is called the sanctuary.
 
 [Hebrews 9:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.2?lang=eng#p2)
 

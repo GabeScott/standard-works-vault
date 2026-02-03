@@ -1,6 +1,6 @@
 # Jeremiah 1:5
 
-> Before I <u>formed</u>[^a] thee in the belly I <u>knew</u>[^b] thee; and before thou camest forth out of the womb I <u>sanctified</u>[^c] thee, and I <u>ordained</u>[^d] thee a prophet unto the <u>nations</u>[^e] .
+> Before I <u>formed</u>[^a] thee in the belly I <u>knew</u>[^b] thee; and before thou camest forth out of the womb I <u>sanctified</u>[^c] thee, *and* I <u>ordained</u>[^d] thee a prophet unto the <u>nations</u>[^e].
 
 [Jeremiah 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.5?lang=eng#p5)
 

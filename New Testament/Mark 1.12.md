@@ -1,6 +1,6 @@
 # Mark 1:12
 
-> <u>And</u>[^a] immediately the Spirit driveth him into the <u>wilderness</u>[^b] .
+> <u>And</u>[^a] immediately the Spirit driveth him into the <u>wilderness</u>[^b].
 
 [Mark 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.12?lang=eng#p12)
 

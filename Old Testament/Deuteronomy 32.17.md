@@ -1,6 +1,6 @@
 # Deuteronomy 32:17
 
-> They <u>sacrificed</u>[^a] unto devils, <u>not to God</u>[^b]; to <u>gods</u>[^c] whom they knew not, to new gods that came newly up, whom your fathers feared not.
+> They <u>sacrificed</u>[^a] unto devils, <u>not to God</u>[^b]; to <u>gods</u>[^c] whom they knew not, to new <u>gods</u>[^d]* that* came newly up, whom your fathers feared not.
 
 [Deuteronomy 32:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.17?lang=eng#p17)
 

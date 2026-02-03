@@ -1,6 +1,6 @@
 # 2 Corinthians 3:18
 
-> But we all, with open face beholding as in a <u>glass</u>[^a] the <u>glory</u>[^b] of the Lord, are changed into the same <u>image</u>[^c] from <u>glory</u>[^d] to glory, even as by the Spirit of the Lord.
+> But we all, with open face beholding as in a <u>glass</u>[^a] the <u>glory</u>[^b] of the Lord, are changed into the same <u>image</u>[^c] from <u>glory</u>[^d] to glory, *even* as by the Spirit of the Lord.
 
 [2 Corinthians 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/3.18?lang=eng#p18)
 

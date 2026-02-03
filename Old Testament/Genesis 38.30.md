@@ -1,6 +1,6 @@
 # Genesis 38:30
 
-> And afterward came out his brother, that had the scarlet thread upon his hand: and his name was called <u>Zarah</u>[^a] .
+> And afterward came out his brother, that had the scarlet thread upon his hand: and his name was called <u>Zarah</u>[^a].
 
 [Genesis 38:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/38.30?lang=eng#p30)
 

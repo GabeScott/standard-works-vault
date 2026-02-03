@@ -1,6 +1,6 @@
 # Amos 1:8
 
-> And I will cut off the inhabitant from <u>Ashdod</u>[^a], and him that holdeth the sceptre from Ashkelon, and I will turn mine hand against Ekron: and the remnant of the <u>Philistines</u>[^b] shall perish, saith the Lord God .
+> And I will cut off the inhabitant from <u>Ashdod</u>[^a], and him that holdeth the sceptre from Ashkelon, and I will turn mine hand against Ekron: and the remnant of the <u>Philistines</u>[^b] shall perish, saith the Lord GOD.
 
 [Amos 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/1.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Psalms 99:7
 
-> He spake unto them in the <u>cloudy pillar</u>[^a] : they kept his testimonies, and the ordinance that he gave them.
+> He spake unto them in the <u>cloudy pillar</u>[^a]: they kept his testimonies, and the ordinance *that* he gave them.
 
 [Psalms 99:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/99.7?lang=eng#p7)
 

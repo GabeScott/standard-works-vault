@@ -1,6 +1,6 @@
 # Exodus 25:40
 
-> And look that thou make them after their <u>pattern</u>[^a], which was shewed thee in the mount.
+> And look that thou make *them* after their <u>pattern</u>[^a], which was shewed thee in the mount.
 
 [Exodus 25:40](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.40?lang=eng#p40)
 

@@ -1,6 +1,6 @@
 # Joshua 24:21
 
-> And the people said unto Joshua, Nay; but we will <u>serve</u>[^a] the Lord .
+> And the people said unto Joshua, Nay; but we will <u>serve</u>[^a] the LORD.
 
 [Joshua 24:21](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.21?lang=eng#p21)
 

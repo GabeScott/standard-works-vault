@@ -1,6 +1,6 @@
 # Genesis 2:9
 
-> And out of the ground made the Lord God to grow every tree that is pleasant to the <u>sight</u>[^a], and good for <u>food</u>[^b]; the <u>tree</u>[^c] of <u>life</u>[^d] also in the midst of the garden, and the tree of <u>knowledge</u>[^e] of good and evil.
+> And out of the ground made the LORD God to grow every tree that is pleasant to the <u>sight</u>[^a], and good for <u>food</u>[^b]; the <u>tree</u>[^c] of <u>life</u>[^d] also in the midst of the garden, and the tree of <u>knowledge</u>[^e] of good and evil.
 
 [Genesis 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.9?lang=eng#p9)
 

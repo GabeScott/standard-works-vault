@@ -1,6 +1,6 @@
 # Jeremiah 9:9
 
-> ¶ Shall I not <u>visit</u>[^a] them for these things? saith the Lord : shall not my soul be <u>avenged</u>[^b] on such a nation as this?
+> ¶ Shall I not <u>visit</u>[^a] them for these *things?* saith the LORD: shall not my soul be <u>avenged</u>[^b] on such a nation as this?
 
 [Jeremiah 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.9?lang=eng#p9)
 

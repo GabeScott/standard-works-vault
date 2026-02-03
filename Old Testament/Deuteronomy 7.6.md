@@ -1,6 +1,6 @@
 # Deuteronomy 7:6
 
-> For thou art <u>an</u>[^a] <u>holy</u>[^b] people unto the Lord thy God: the Lord thy God hath <u>chosen</u>[^c] thee to be a <u>special</u>[^d] people unto himself, above all people that are upon the face of the earth.
+> For thou *art* <u>an</u>[^a] <u>holy</u>[^b] people unto the LORD thy God: the LORD thy God hath <u>chosen</u>[^c] thee to be a <u>special</u>[^d] people unto himself, above all people that *are* upon the face of the earth.
 
 [Deuteronomy 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Mark 4:24
 
-> And he said unto them, Take heed what ye hear: with what measure ye mete, it shall be measured to you: <u>and</u>[^a] unto you that hear shall more be <u>given</u>[^b] .
+> And he said unto them, Take heed what ye hear: with what measure ye mete, it shall be measured to you: <u>and</u>[^a] unto you that hear shall more be <u>given</u>[^b].
 
 [Mark 4:24](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.24?lang=eng#p24)
 

@@ -1,6 +1,6 @@
 # Genesis 6:11
 
-> The earth also was <u>corrupt</u>[^a] before God, and the earth was filled with <u>violence</u>[^b] .
+> The earth also was <u>corrupt</u>[^a] before God, and the earth was filled with <u>violence</u>[^b].
 
 [Genesis 6:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.11?lang=eng#p11)
 

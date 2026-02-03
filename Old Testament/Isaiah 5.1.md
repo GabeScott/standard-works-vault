@@ -1,6 +1,6 @@
 # Isaiah 5:1
 
-> <u>Now</u>[^a] will I <u>sing</u>[^b] to my wellbeloved a song of my beloved touching his <u>vineyard</u>[^c] . My wellbeloved hath a vineyard <u>in</u>[^d] a very fruitful hill:
+> <u>Now</u>[^a] will I <u>sing</u>[^b] to my wellbeloved a song of my beloved touching his <u>vineyard</u>[^c]. My wellbeloved hath a vineyard <u>in</u>[^d] a very fruitful hill:
 
 [Isaiah 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.1?lang=eng#p1)
 

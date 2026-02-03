@@ -1,6 +1,6 @@
 # Genesis 30:24
 
-> And she called his name <u>Joseph</u>[^a]; and said, The Lord shall add to me another son.
+> And she called his name <u>Joseph</u>[^a]; and said, The LORD shall add to me another son.
 
 [Genesis 30:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.24?lang=eng#p24)
 

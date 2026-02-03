@@ -1,6 +1,6 @@
 # Ezekiel 7:5
 
-> Thus saith the Lord God ; An evil, an <u>only</u>[^a] evil, behold, is <u>come</u>[^b] .
+> Thus saith the Lord GOD; An evil, an <u>only</u>[^a] evil, behold, is <u>come</u>[^b].
 
 [Ezekiel 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.5?lang=eng#p5)
 

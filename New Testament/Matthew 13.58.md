@@ -1,6 +1,6 @@
 # Matthew 13:58
 
-> And he did not many mighty works there because of their <u>unbelief</u>[^a] .
+> And he did not many mighty works there because of their <u>unbelief</u>[^a].
 
 [Matthew 13:58](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.58?lang=eng#p58)
 

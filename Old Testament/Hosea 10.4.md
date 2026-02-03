@@ -1,6 +1,6 @@
 # Hosea 10:4
 
-> They have spoken words, swearing falsely in making a <u>covenant</u>[^a] : thus judgment springeth up as hemlock in the furrows of the field.
+> They have spoken words, swearing falsely in making a <u>covenant</u>[^a]: thus judgment springeth up as hemlock in the furrows of the field.
 
 [Hosea 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/10.4?lang=eng#p4)
 

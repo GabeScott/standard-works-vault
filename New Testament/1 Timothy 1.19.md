@@ -1,6 +1,6 @@
 # 1 Timothy 1:19
 
-> <u>Holding</u>[^a] faith, and a good conscience; which some having put away concerning faith have made <u>shipwreck</u>[^b] :
+> <u>Holding</u>[^a] faith, and a good conscience; which some having put away concerning faith have made <u>shipwreck</u>[^b]:
 
 [1 Timothy 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.19?lang=eng#p19)
 

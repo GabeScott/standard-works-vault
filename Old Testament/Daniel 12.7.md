@@ -1,6 +1,6 @@
 # Daniel 12:7
 
-> And I heard the man clothed in linen, which was upon the waters of the river, when he held up his right hand and his left hand unto heaven, and <u>sware</u>[^a] by him that liveth for ever that it shall be for a time, times, and an half; and when he shall have accomplished to <u>scatter</u>[^b] the power of the holy people, all these things shall be finished.
+> And I heard the man clothed in linen, which *was* upon the waters of the river, when he held up his right hand and his left hand unto heaven, and <u>sware</u>[^a] by him that liveth for ever that *it shall be* for a time, times, and an half; and when he shall have accomplished to <u>scatter</u>[^b] the power of the holy people, all these *things* shall be finished.
 
 [Daniel 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.7?lang=eng#p7)
 

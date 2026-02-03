@@ -1,6 +1,6 @@
 # Genesis 49:10
 
-> The sceptre shall not depart from <u>Judah</u>[^a], nor a <u>lawgiver</u>[^b] from between his feet, until <u>Shiloh</u>[^c] come; and unto him shall the <u>gathering</u>[^d] of the people be.
+> The sceptre shall not depart from <u>Judah</u>[^a], nor a <u>lawgiver</u>[^b] from between his feet, until <u>Shiloh</u>[^c] come; and unto him *shall* the <u>gathering</u>[^d] of the people *be.*
 
 [Genesis 49:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.10?lang=eng#p10)
 

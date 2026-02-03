@@ -1,6 +1,6 @@
 # Psalms 141:3
 
-> Set a watch, O Lord , before my <u>mouth</u>[^a]; keep the door of my lips.
+> Set a watch, O LORD, before my <u>mouth</u>[^a]; keep the door of my lips.
 
 [Psalms 141:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/141.3?lang=eng#p3)
 

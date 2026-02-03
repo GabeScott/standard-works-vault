@@ -1,6 +1,6 @@
 # Matthew 26:39
 
-> And he went a little further, and fell on his face, and <u>prayed</u>[^a], saying, O my <u>Father</u>[^b], if it be possible, let this <u>cup</u>[^c] pass from me: nevertheless not as I <u>will</u>[^d], but as <u>thou</u>[^e] wilt.
+> And he went a little further, and fell on his face, and <u>prayed</u>[^a], saying, O my <u>Father</u>[^b], if it be possible, let this <u>cup</u>[^c] pass from me: nevertheless not as I <u>will</u>[^d], but as <u>thou</u>[^e] *wilt.*
 
 [Matthew 26:39](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.39?lang=eng#p39)
 

@@ -1,6 +1,6 @@
 # Ezekiel 20:37
 
-> And I will cause you <u>to</u>[^a] pass under the <u>rod</u>[^b], and I will bring you into the bond of the <u>covenant</u>[^c] :
+> And I will cause you <u>to</u>[^a] pass under the <u>rod</u>[^b], and I will bring you into the bond of the <u>covenant</u>[^c]:
 
 [Ezekiel 20:37](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.37?lang=eng#p37)
 

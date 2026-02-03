@@ -1,6 +1,6 @@
 # Psalms 52:8
 
-> But I am like a <u>green olive tree</u>[^a] in the house of God: I trust in the mercy of God for ever and ever.
+> But I *am* like a <u>green olive tree</u>[^a] in the house of God: I trust in the mercy of God for ever and ever.
 
 [Psalms 52:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/52.8?lang=eng#p8)
 

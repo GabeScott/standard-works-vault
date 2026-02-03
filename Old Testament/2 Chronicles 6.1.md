@@ -1,6 +1,6 @@
 # 2 Chronicles 6:1
 
-> Then said <u>Solomon</u>[^a], The Lord hath said that he would dwell in the thick darkness.
+> Then said <u>Solomon</u>[^a], The LORD hath said that he would dwell in the thick darkness.
 
 [2 Chronicles 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/6.1?lang=eng#p1)
 

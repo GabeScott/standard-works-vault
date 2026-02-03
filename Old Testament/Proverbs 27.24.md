@@ -1,6 +1,6 @@
 # Proverbs 27:24
 
-> For <u>riches</u>[^a] are not for ever: and doth the crown endure to every generation?
+> For <u>riches</u>[^a] *are* not for ever: and doth the crown *endure* to every generation?
 
 [Proverbs 27:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.24?lang=eng#p24)
 

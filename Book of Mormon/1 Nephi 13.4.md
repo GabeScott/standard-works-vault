@@ -1,6 +1,6 @@
 # 1 Nephi 13:4
 
-> And it came to pass that I saw among the nations of the <u>Gentiles</u>[^a] the formation of a <u>great church</u>[^b] .
+> And it came to pass that I saw among the nations of the <u>Gentiles</u>[^a] the formation of a <u>great church</u>[^b].
 
 [1 Nephi 13:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p4#p4)
 

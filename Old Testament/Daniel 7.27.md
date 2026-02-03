@@ -1,6 +1,6 @@
 # Daniel 7:27
 
-> And the <u>kingdom</u>[^a] and dominion, and the greatness of the kingdom under the whole heaven, shall be <u>given</u>[^b] to the people of the saints of the most High, whose kingdom is an <u>everlasting</u>[^c] kingdom, and all dominions shall serve and obey him.
+> And the <u>kingdom</u>[^a] and dominion, and the greatness of the kingdom under the whole heaven, shall be <u>given</u>[^b] to the people of the saints of the most High, whose kingdom *is* an <u>everlasting</u>[^c] kingdom, and all dominions shall serve and obey him.
 
 [Daniel 7:27](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.27?lang=eng#p27)
 

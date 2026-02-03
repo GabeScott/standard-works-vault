@@ -1,6 +1,6 @@
 # Deuteronomy 32:16
 
-> They <u>provoked</u>[^a] him to <u>jealousy</u>[^b] with strange gods, with abominations provoked they him to anger.
+> They <u>provoked</u>[^a] him to <u>jealousy</u>[^b] with strange <u>gods</u>[^c]*,* with abominations provoked they him to anger.
 
 [Deuteronomy 32:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.16?lang=eng#p16)
 

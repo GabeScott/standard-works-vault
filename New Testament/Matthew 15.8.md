@@ -1,6 +1,6 @@
 # Matthew 15:8
 
-> This people draweth nigh unto me with their <u>mouth</u>[^a], and <u>honoureth</u>[^b] me with their lips; but their <u>heart</u>[^c] is far from me.
+> This people draweth nigh unto me with their <u>mouth</u>[^a], and <u>honoureth</u>[^b] me with *their* lips; but their <u>heart</u>[^c] is far from me.
 
 [Matthew 15:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.8?lang=eng#p8)
 

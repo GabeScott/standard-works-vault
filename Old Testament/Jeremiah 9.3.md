@@ -1,6 +1,6 @@
 # Jeremiah 9:3
 
-> And they bend their tongues like their bow for <u>lies</u>[^a] : but they are not valiant for the truth upon the earth; for they proceed from evil to evil, and they <u>know not</u>[^b] me, saith the Lord .
+> And they bend their tongues *like* their bow *for* <u>lies</u>[^a]: but they are not valiant for the truth upon the earth; for they proceed from evil to evil, and they <u>know not</u>[^b] me, saith the LORD.
 
 [Jeremiah 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.3?lang=eng#p3)
 

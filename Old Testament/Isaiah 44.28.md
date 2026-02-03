@@ -1,6 +1,6 @@
 # Isaiah 44:28
 
-> That saith of <u>Cyrus</u>[^a], He is my <u>shepherd</u>[^b], and shall perform all my <u>pleasure</u>[^c] : even saying to Jerusalem, Thou shalt be <u>built</u>[^d]; and to the <u>temple</u>[^e], Thy foundation shall be laid.
+> That saith of <u>Cyrus</u>[^a], *He is* my <u>shepherd</u>[^b], and shall perform all my <u>pleasure</u>[^c]: even saying to Jerusalem, Thou shalt be <u>built</u>[^d]; and to the <u>temple</u>[^e], Thy foundation shall be laid.
 
 [Isaiah 44:28](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.28?lang=eng#p28)
 

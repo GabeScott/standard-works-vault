@@ -1,6 +1,6 @@
 # Alma 38:1
 
-> My <u>son</u>[^a], give ear to my words, for I say unto you, even as I said unto Helaman, that <u>inasmuch</u>[^b] as ye shall keep the commandments of God ye shall prosper in the land; and inasmuch as ye will not keep the commandments of God ye shall be <u>cut off</u>[^c] from his <u>presence</u>[^d] .
+> My <u>son</u>[^a], give ear to my words, for I say unto you, even as I said unto Helaman, that <u>inasmuch</u>[^b] as ye shall keep the commandments of God ye shall prosper in the land; and inasmuch as ye will not keep the commandments of God ye shall be <u>cut off</u>[^c] from his <u>presence</u>[^d].
 
 [Alma 38:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p1#p1)
 

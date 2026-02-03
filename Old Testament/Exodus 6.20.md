@@ -1,6 +1,6 @@
 # Exodus 6:20
 
-> And <u>Amram</u>[^a] took him Jochebed his father’s sister to wife; and she bare him <u>Aaron</u>[^b] and Moses: and the years of the life of Amram were an hundred and thirty and seven years.
+> And <u>Amram</u>[^a] took him Jochebed his father’s sister to wife; and she bare him <u>Aaron</u>[^b] and Moses: and the years of the life of Amram *were* an hundred and thirty and seven years.
 
 [Exodus 6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.20?lang=eng#p20)
 

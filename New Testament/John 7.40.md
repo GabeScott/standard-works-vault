@@ -1,6 +1,6 @@
 # John 7:40
 
-> ¶ Many of the people therefore, when they heard this saying, said, Of a truth this is the <u>Prophet</u>[^a] .
+> ¶ Many of the people therefore, when they heard this saying, said, Of a truth this is the <u>Prophet</u>[^a].
 
 [John 7:40](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.40?lang=eng#p40)
 

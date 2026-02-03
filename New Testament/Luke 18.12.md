@@ -1,6 +1,6 @@
 # Luke 18:12
 
-> I <u>fast</u>[^a] twice in the week, I give <u>tithes</u>[^b] of all that I <u>possess</u>[^c] .
+> I <u>fast</u>[^a] twice in the week, I give <u>tithes</u>[^b] of all that I <u>possess</u>[^c].
 
 [Luke 18:12](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.12?lang=eng#p12)
 

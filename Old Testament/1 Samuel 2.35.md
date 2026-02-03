@@ -1,6 +1,6 @@
 # 1 Samuel 2:35
 
-> And I will <u>raise</u>[^a] me up a faithful <u>priest</u>[^b], that shall do according to that which is in mine heart and in my mind: and <u>I</u>[^c] will build him a sure house; and he shall walk before mine anointed for ever.
+> And I will <u>raise</u>[^a] me up a faithful <u>priest</u>[^b], *that* shall do according to *that* which *is* in mine heart and in my mind: and <u>I</u>[^c] will build him a sure house; and he shall walk before mine anointed for ever.
 
 [1 Samuel 2:35](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.35?lang=eng#p35)
 

@@ -1,6 +1,6 @@
 # 2 Nephi 9:21
 
-> And he cometh into the world that he may <u>save</u>[^a] all men if they will hearken unto his voice; for behold, he suffereth the pains of all men, yea, the <u>pains</u>[^b] of every living creature, both men, women, and children, who belong to the family of <u>Adam</u>[^c] .
+> And he cometh into the world that he may <u>save</u>[^a] all men if they will hearken unto his voice; for behold, he suffereth the pains of all men, yea, the <u>pains</u>[^b] of every living creature, both men, women, and children, who belong to the family of <u>Adam</u>[^c].
 
 [2 Nephi 9:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p21#p21)
 

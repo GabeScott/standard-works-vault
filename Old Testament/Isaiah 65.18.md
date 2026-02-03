@@ -1,6 +1,6 @@
 # Isaiah 65:18
 
-> But be ye glad and rejoice for ever in that which I create: for, behold, I create Jerusalem a <u>rejoicing</u>[^a], and her people a joy.
+> But be ye glad and rejoice for ever *in that* which I create: for, behold, I create Jerusalem a <u>rejoicing</u>[^a], and her people a joy.
 
 [Isaiah 65:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.18?lang=eng#p18)
 

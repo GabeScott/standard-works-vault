@@ -1,6 +1,6 @@
 # Obadiah 1:15
 
-> For the <u>day</u>[^a] of the Lord is near upon all the <u>heathen</u>[^b] : as thou hast <u>done</u>[^c], it shall be done unto thee: thy <u>reward</u>[^d] shall return upon thine own head.
+> For the <u>day</u>[^a] of the LORD *is* near upon all the <u>heathen</u>[^b]: as thou hast <u>done</u>[^c], it shall be done unto thee: thy <u>reward</u>[^d] shall return upon thine own head.
 
 [Obadiah 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/obad/1.15?lang=eng#p15)
 

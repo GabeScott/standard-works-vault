@@ -1,6 +1,6 @@
 # Job 3:20
 
-> Wherefore is <u>light</u>[^a] given to him that is in <u>misery</u>[^b], and life unto the bitter in soul;
+> Wherefore is <u>light</u>[^a] given to him that is in <u>misery</u>[^b], and life unto the bitter *in* soul;
 
 [Job 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/job/3.20?lang=eng#p20)
 

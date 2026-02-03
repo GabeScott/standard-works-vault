@@ -1,6 +1,6 @@
 # Psalms 16:5
 
-> The Lord is the <u>portion</u>[^a] of mine <u>inheritance</u>[^b] and of my cup: thou <u>maintainest my lot</u>[^c] .
+> The LORD *is* the <u>portion</u>[^a] of mine <u>inheritance</u>[^b] and of my cup: thou <u>maintainest my lot</u>[^c].
 
 [Psalms 16:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/16.5?lang=eng#p5)
 

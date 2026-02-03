@@ -1,6 +1,6 @@
 # Hosea 5:10
 
-> The princes of Judah were like them that remove the <u>bound</u>[^a] : therefore I will pour out my wrath upon them like water.
+> The princes of Judah were like them that remove the <u>bound</u>[^a]: *therefore* I will pour out my wrath upon them like water.
 
 [Hosea 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/5.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # Alma 32:34
 
-> And now, behold, is your <u>knowledge</u>[^a] <u>perfect</u>[^b] ? Yea, your knowledge is perfect in that thing, and your <u>faith</u>[^c] is dormant; and this because you know, for ye know that the word hath swelled your souls, and ye also know that it hath sprouted up, that your understanding doth begin to be enlightened, and your <u>mind</u>[^d] doth begin to expand.
+> And now, behold, is your <u>knowledge</u>[^a] <u>perfect</u>[^b]? Yea, your knowledge is perfect in that thing, and your <u>faith</u>[^c] is dormant; and this because you know, for ye know that the word hath swelled your souls, and ye also know that it hath sprouted up, that your understanding doth begin to be enlightened, and your <u>mind</u>[^d] doth begin to expand.
 
 [Alma 32:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p34#p34)
 

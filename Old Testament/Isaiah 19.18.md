@@ -1,6 +1,6 @@
 # Isaiah 19:18
 
-> ¶ In that day shall five cities in the land of Egypt speak the language of Canaan, and swear to the Lord of hosts; one shall be called, The city of <u>destruction</u>[^a] .
+> ¶ In that day shall five cities in the land of Egypt speak the language of Canaan, and swear to the LORD of hosts; one shall be called, The city of <u>destruction</u>[^a].
 
 [Isaiah 19:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.18?lang=eng#p18)
 

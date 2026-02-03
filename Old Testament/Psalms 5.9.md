@@ -1,6 +1,6 @@
 # Psalms 5:9
 
-> For there is no faithfulness in their mouth; their <u>inward</u>[^a] part is very wickedness; their <u>throat</u>[^b] is an open sepulchre; they <u>flatter</u>[^c] with their tongue.
+> For *there is* no faithfulness in their mouth; their <u>inward</u>[^a] part *is* very wickedness; their <u>throat</u>[^b] *is* an open sepulchre; they <u>flatter</u>[^c] with their tongue.
 
 [Psalms 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/5.9?lang=eng#p9)
 

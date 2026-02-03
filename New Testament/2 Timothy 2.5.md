@@ -1,6 +1,6 @@
 # 2 Timothy 2:5
 
-> And if a man also <u>strive</u>[^a] for <u>masteries</u>[^b], yet is he not <u>crowned</u>[^c], except he strive lawfully.
+> And if a man also <u>strive</u>[^a] for <u>masteries</u>[^b], *yet* is he not <u>crowned</u>[^c], except he strive lawfully.
 
 [2 Timothy 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.5?lang=eng#p5)
 

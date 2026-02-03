@@ -1,6 +1,6 @@
 # Exodus 23:13
 
-> And in all things that I have said unto you <u>be circumspect</u>[^a] : and make no mention of the name of other <u>gods</u>[^b], neither let it be heard out of thy mouth.
+> And in all *things* that I have said unto you <u>be circumspect</u>[^a]: and make no mention of the name of other <u>gods</u>[^b], neither let it be heard out of thy mouth.
 
 [Exodus 23:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.13?lang=eng#p13)
 

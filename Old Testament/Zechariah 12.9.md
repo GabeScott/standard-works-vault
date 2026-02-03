@@ -1,6 +1,6 @@
 # Zechariah 12:9
 
-> ¶ And it shall come to pass in that day, that I will seek to <u>destroy</u>[^a] all the nations that come against <u>Jerusalem</u>[^b] .
+> ¶ And it shall come to pass in that day, *that* I will seek to <u>destroy</u>[^a] all the nations that come against <u>Jerusalem</u>[^b].
 
 [Zechariah 12:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/12.9?lang=eng#p9)
 

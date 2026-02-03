@@ -1,6 +1,6 @@
 # Genesis 9:26
 
-> And he said, Blessed be the Lord God of Shem; and Canaan shall be his <u>servant</u>[^a] .
+> And he said, Blessed *be* the LORD God of Shem; and Canaan shall be his <u>servant</u>[^a].
 
 [Genesis 9:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9.26?lang=eng#p26)
 

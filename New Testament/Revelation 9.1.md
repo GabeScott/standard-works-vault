@@ -1,6 +1,6 @@
 # Revelation 9:1
 
-> And the fifth angel sounded, and I saw a star fall from heaven unto the earth: <u>and</u>[^a] to him was given the key of the <u>bottomless</u>[^b] <u>pit</u>[^c] .
+> And the fifth angel sounded, and I saw a star fall from heaven unto the earth: <u>and</u>[^a] to him was given the key of the <u>bottomless</u>[^b] <u>pit</u>[^c].
 
 [Revelation 9:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/9.1?lang=eng#p1)
 

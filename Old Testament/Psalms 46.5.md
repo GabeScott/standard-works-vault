@@ -1,6 +1,6 @@
 # Psalms 46:5
 
-> God is in the <u>midst</u>[^a] of her; she shall not be moved: God shall help her, and that right early.
+> God *is* in the <u>midst</u>[^a] of her; she shall not be moved: God shall help her, *and that* right early.
 
 [Psalms 46:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/46.5?lang=eng#p5)
 

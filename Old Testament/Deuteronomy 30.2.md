@@ -1,6 +1,6 @@
 # Deuteronomy 30:2
 
-> And shalt <u>return</u>[^a] unto the Lord thy God, and shalt obey his voice according to all that I command thee this day, thou and thy children, with all thine heart, and with all thy soul;
+> And shalt <u>return</u>[^a] unto the LORD thy God, and shalt obey his voice according to all that I command thee this day, thou and thy children, with all thine heart, and with all thy soul;
 
 [Deuteronomy 30:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Isaiah 11:9
 
-> They shall not <u>hurt</u>[^a] nor <u>destroy</u>[^b] in all my holy <u>mountain</u>[^c] : for the <u>earth</u>[^d] shall be full of the <u>knowledge</u>[^e] of the Lord , as the waters cover the sea.
+> They shall not <u>hurt</u>[^a] nor <u>destroy</u>[^b] in all my holy <u>mountain</u>[^c]: for the <u>earth</u>[^d] shall be full of the <u>knowledge</u>[^e] of the LORD, as the waters cover the sea.
 
 [Isaiah 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.9?lang=eng#p9)
 

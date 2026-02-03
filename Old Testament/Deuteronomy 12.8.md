@@ -1,6 +1,6 @@
 # Deuteronomy 12:8
 
-> Ye shall not do after all the things that we do here this day, every man whatsoever is <u>right</u>[^a] in his own eyes.
+> Ye shall not do after all *the things* that we do here this day, every man whatsoever *is* <u>right</u>[^a] in his own eyes.
 
 [Deuteronomy 12:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.8?lang=eng#p8)
 

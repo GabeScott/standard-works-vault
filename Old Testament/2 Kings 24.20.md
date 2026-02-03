@@ -1,6 +1,6 @@
 # 2 Kings 24:20
 
-> For through the anger of the Lord it came to pass in Jerusalem and Judah, until he had cast them out from his presence, that <u>Zedekiah</u>[^a] <u>rebelled</u>[^b] against the king of Babylon.
+> For through the anger of the LORD it came to pass in Jerusalem and Judah, until he had cast them out from his presence, that <u>Zedekiah</u>[^a] <u>rebelled</u>[^b] against the king of Babylon.
 
 [2 Kings 24:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.20?lang=eng#p20)
 

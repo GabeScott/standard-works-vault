@@ -1,6 +1,6 @@
 # Romans 7:4
 
-> Wherefore, my brethren, ye also are become <u>dead</u>[^a] to the <u>law</u>[^b] by the body of Christ; that ye should be married to another, even to him who is raised from the dead, that we should bring forth fruit unto God.
+> Wherefore, my brethren, ye also are become <u>dead</u>[^a] to the <u>law</u>[^b] by the body of Christ; that ye should be married to another, *even* to him who is raised from the dead, that we should bring forth fruit unto God.
 
 [Romans 7:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.4?lang=eng#p4)
 

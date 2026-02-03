@@ -1,6 +1,6 @@
 # Alma 10:4
 
-> And behold, I am also a man of no small <u>reputation</u>[^a] among all those who know me; yea, and behold, I have many kindreds and <u>friends</u>[^b], and I have also acquired much riches by the hand of my <u>industry</u>[^c] .
+> And behold, I am also a man of no small <u>reputation</u>[^a] among all those who know me; yea, and behold, I have many kindreds and <u>friends</u>[^b], and I have also acquired much riches by the hand of my <u>industry</u>[^c].
 
 [Alma 10:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p4#p4)
 

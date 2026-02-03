@@ -1,6 +1,6 @@
 # Acts 2:45
 
-> And sold their possessions and goods, and parted them to all men, as every man had <u>need</u>[^a] .
+> And sold their possessions and goods, and parted them to all *men,* as every man had <u>need</u>[^a].
 
 [Acts 2:45](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.45?lang=eng#p45)
 

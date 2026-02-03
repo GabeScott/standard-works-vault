@@ -1,6 +1,6 @@
 # Malachi 2:7
 
-> For the priest’s lips should keep <u>knowledge</u>[^a], and they should seek the <u>law</u>[^b] at his mouth: for he is the <u>messenger</u>[^c] of the Lord of hosts.
+> For the priest’s lips should keep <u>knowledge</u>[^a], and they should seek the <u>law</u>[^b] at his mouth: for he *is* the <u>messenger</u>[^c] of the LORD of hosts.
 
 [Malachi 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.7?lang=eng#p7)
 

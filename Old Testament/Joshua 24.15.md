@@ -1,6 +1,6 @@
 # Joshua 24:15
 
-> And if it seem evil unto you to serve the Lord , <u>choose</u>[^a] you <u>this day</u>[^b] whom ye will <u>serve</u>[^c]; whether the gods which your fathers served that were on the other side of the flood, or the gods of the Amorites, in whose land ye dwell: but as for me and my <u>house</u>[^d], we will <u>serve</u>[^e] the Lord .
+> And if it seem evil unto you to serve the LORD, <u>choose</u>[^a] you <u>this day</u>[^b] whom ye will <u>serve</u>[^c]; whether the gods which your fathers served that *were* on the other side of the flood, or the gods of the Amorites, in whose land ye dwell: but as for me and my <u>house</u>[^d], we will <u>serve</u>[^e] the LORD.
 
 [Joshua 24:15](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.15?lang=eng#p15)
 

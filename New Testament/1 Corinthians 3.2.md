@@ -1,6 +1,6 @@
 # 1 Corinthians 3:2
 
-> I have fed you with <u>milk</u>[^a], and not with meat: for hitherto ye were not able to bear it, neither yet now are ye able.
+> I have fed you with <u>milk</u>[^a], and not with meat: for hitherto ye were not able *to bear it,* neither yet now are ye able.
 
 [1 Corinthians 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.2?lang=eng#p2)
 

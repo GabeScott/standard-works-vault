@@ -1,6 +1,6 @@
 # 1 John 3:14
 
-> We know that we have passed from death unto <u>life</u>[^a], because we love the <u>brethren</u>[^b] . He that <u>loveth</u>[^c] not his brother abideth in <u>death</u>[^d] .
+> We know that we have passed from death unto <u>life</u>[^a], because we love the <u>brethren</u>[^b]. He that <u>loveth</u>[^c] not *his* brother abideth in <u>death</u>[^d].
 
 [1 John 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.14?lang=eng#p14)
 

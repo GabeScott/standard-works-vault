@@ -1,6 +1,6 @@
 # Genesis 47:22
 
-> Only the land of the <u>priests</u>[^a] bought he not; for the priests had a portion assigned them of Pharaoh, and did eat their portion which Pharaoh gave them: wherefore they sold not their lands.
+> Only the land of the <u>priests</u>[^a] bought he not; for the priests had a portion *assigned them* of Pharaoh, and did eat their portion which Pharaoh gave them: wherefore they sold not their lands.
 
 [Genesis 47:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.22?lang=eng#p22)
 

@@ -1,6 +1,6 @@
 # Judges 17:5
 
-> And the man Micah had an house of gods, and made an <u>ephod</u>[^a], and <u>teraphim</u>[^b], and consecrated one of his sons, who became his <u>priest</u>[^c] .
+> And the man Micah had an house of gods, and made an <u>ephod</u>[^a], and <u>teraphim</u>[^b], and consecrated one of his sons, who became his <u>priest</u>[^c].
 
 [Judges 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/17.5?lang=eng#p5)
 

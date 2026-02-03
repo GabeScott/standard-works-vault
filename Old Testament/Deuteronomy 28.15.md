@@ -1,6 +1,6 @@
 # Deuteronomy 28:15
 
-> ¶ But it shall come to pass, if thou wilt not <u>hearken</u>[^a] unto the voice of the Lord thy God, to observe to do all his commandments and his statutes which I command thee this day; that all these <u>curses</u>[^b] shall come upon thee, and overtake thee:
+> ¶ But it shall come to pass, if thou wilt not <u>hearken</u>[^a] unto the voice of the LORD thy God, to observe to do all his commandments and his statutes which I command thee this day; that all these <u>curses</u>[^b] shall come upon thee, and overtake thee:
 
 [Deuteronomy 28:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.15?lang=eng#p15)
 

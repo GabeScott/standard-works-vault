@@ -1,6 +1,6 @@
 # Genesis 4:26
 
-> And to Seth, to him also there was born a son; and he called his name Enos: then began men to <u>call</u>[^a] upon the name of the Lord .
+> And to Seth, to him also there was born a son; and he called his name Enos: then began men to <u>call</u>[^a] upon the name of the <u>Lord</u>[^b].
 
 [Genesis 4:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.26?lang=eng#p26)
 

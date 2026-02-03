@@ -1,6 +1,6 @@
 # Lamentations 1:5
 
-> Her adversaries are the chief, her enemies prosper; for the Lord hath <u>afflicted</u>[^a] her for the multitude of her <u>transgressions</u>[^b] : her children are gone into captivity before the enemy.
+> Her adversaries are the chief, her enemies prosper; for the LORD hath <u>afflicted</u>[^a] her for the multitude of her <u>transgressions</u>[^b]: her children are gone into captivity before the enemy.
 
 [Lamentations 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.5?lang=eng#p5)
 

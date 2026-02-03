@@ -1,6 +1,6 @@
 # Deuteronomy 22:30
 
-> ¶ A man shall not take his <u>father’s</u>[^a] wife, nor <u>discover his father’s skirt</u>[^b] .
+> ¶ A man shall not take his <u>father’s</u>[^a] wife, nor <u>discover his father’s skirt</u>[^b].
 
 [Deuteronomy 22:30](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.30?lang=eng#p30)
 

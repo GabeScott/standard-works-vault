@@ -1,6 +1,6 @@
 # 1 Nephi 4:13
 
-> Behold the Lord <u>slayeth</u>[^a] the <u>wicked</u>[^b] to bring forth his righteous purposes. It is <u>better</u>[^c] that one man should perish than that a nation should dwindle and perish in <u>unbelief</u>[^d] .
+> Behold the Lord <u>slayeth</u>[^a] the <u>wicked</u>[^b] to bring forth his righteous purposes. It is <u>better</u>[^c] that one man should perish than that a nation should dwindle and perish in <u>unbelief</u>[^d].
 
 [1 Nephi 4:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/4?lang=eng&id=p13#p13)
 

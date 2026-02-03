@@ -1,6 +1,6 @@
 # Exodus 32:22
 
-> And Aaron said, Let not the <u>anger</u>[^a] of my lord wax hot: thou knowest the people, that they are set on <u>mischief</u>[^c] .
+> And Aaron said, Let not the <u>anger</u>[^a] of my lord wax hot: thou knowest the people, that they *are *<u>set</u>[^b] on <u>mischief</u>[^c].
 
 [Exodus 32:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.22?lang=eng#p22)
 

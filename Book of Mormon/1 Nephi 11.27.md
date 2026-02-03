@@ -1,6 +1,6 @@
 # 1 Nephi 11:27
 
-> And I looked and <u>beheld</u>[^a] the Redeemer of the world, of whom my father had spoken; and I also beheld the <u>prophet</u>[^b] who should prepare the way before him. And the Lamb of God went forth and was <u>baptized</u>[^c] of him; and after he was baptized, I beheld the heavens open, and the Holy Ghost come down out of heaven and abide upon him in the form of a <u>dove</u>[^d] .
+> And I looked and <u>beheld</u>[^a] the Redeemer of the world, of whom my father had spoken; and I also beheld the <u>prophet</u>[^b] who should prepare the way before him. And the Lamb of God went forth and was <u>baptized</u>[^c] of him; and after he was baptized, I beheld the heavens open, and the Holy Ghost come down out of heaven and abide upon him in the form of a <u>dove</u>[^d].
 
 [1 Nephi 11:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p27#p27)
 

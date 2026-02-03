@@ -1,6 +1,6 @@
 # Psalms 79:1
 
-> O God, the <u>heathen</u>[^a] are come into thine inheritance; thy holy <u>temple</u>[^b] have they defiled; they have laid Jerusalem on <u>heaps</u>[^c] .
+> O God, the <u>heathen</u>[^a] are come into thine inheritance; thy holy <u>temple</u>[^b] have they defiled; they have laid Jerusalem on <u>heaps</u>[^c].
 
 [Psalms 79:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/79.1?lang=eng#p1)
 

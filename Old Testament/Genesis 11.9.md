@@ -1,6 +1,6 @@
 # Genesis 11:9
 
-> Therefore is the name of it called Babel; because the Lord did there <u>confound</u>[^a] the <u>language</u>[^b] of all the earth: and from thence did the Lord <u>scatter</u>[^c] them <u>abroad</u>[^d] upon the face of all the earth.
+> Therefore is the name of it called Babel; because the LORD did there <u>confound</u>[^a] the <u>language</u>[^b] of all the earth: and from thence did the LORD <u>scatter</u>[^c] them <u>abroad</u>[^d] upon the face of all the earth.
 
 [Genesis 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.9?lang=eng#p9)
 

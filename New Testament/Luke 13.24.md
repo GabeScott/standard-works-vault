@@ -1,6 +1,6 @@
 # Luke 13:24
 
-> ¶ Strive to enter in at the <u>strait</u>[^a] <u>gate</u>[^b] : for many, I say unto you, will <u>seek</u>[^c] to enter in, and shall not be able.
+> ¶ Strive to enter in at the <u>strait</u>[^a] <u>gate</u>[^b]: for many, I say unto you, will <u>seek</u>[^c] to enter in, and shall not be able.
 
 [Luke 13:24](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.24?lang=eng#p24)
 

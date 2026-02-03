@@ -1,6 +1,6 @@
 # Luke 10:5
 
-> And into whatsoever house ye enter, first say, <u>Peace</u>[^a] be to this house.
+> And into whatsoever house ye enter, first say, <u>Peace</u>[^a] *be* to this house.
 
 [Luke 10:5](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.5?lang=eng#p5)
 

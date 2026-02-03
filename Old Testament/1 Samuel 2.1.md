@@ -1,6 +1,6 @@
 # 1 Samuel 2:1
 
-> And Hannah <u>prayed</u>[^a], and said, My heart <u>rejoiceth</u>[^b] in the Lord , mine <u>horn</u>[^c] is exalted in the Lord : my mouth is enlarged over mine enemies; because I rejoice in thy <u>salvation</u>[^d] .
+> And Hannah <u>prayed</u>[^a], and said, My heart <u>rejoiceth</u>[^b] in the LORD, mine <u>horn</u>[^c] is exalted in the LORD: my mouth is enlarged over mine enemies; because I rejoice in thy <u>salvation</u>[^d].
 
 [1 Samuel 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Isaiah 62:4
 
-> Thou shalt no more be termed <u>Forsaken</u>[^a]; neither shall thy <u>land</u>[^b] any more be termed Desolate: but thou shalt be called <u>Hephzi-bah</u>[^c], and thy land <u>Beulah</u>[^d] : for the Lord delighteth in thee, and thy land shall be married.
+> Thou shalt no more be termed <u>Forsaken</u>[^a]; neither shall thy <u>land</u>[^b] any more be termed Desolate: but thou shalt be called <u>Hephzi-bah</u>[^c], and thy land <u>Beulah</u>[^d]: for the LORD delighteth in thee, and thy land shall be married.
 
 [Isaiah 62:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/62.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Daniel 8:16
 
-> And I heard a man’s voice between the banks of Ulai, which called, and said, <u>Gabriel</u>[^b], make this man to understand the vision.
+> And I heard a man’s voice between *the *<u>banks</u>[^a]* of* Ulai, which called, and said, <u>Gabriel</u>[^b], make this *man* to understand the vision.
 
 [Daniel 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.16?lang=eng#p16)
 

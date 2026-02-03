@@ -1,6 +1,6 @@
 # Psalms 40:5
 
-> Many, O Lord my God, are thy wonderful <u>works</u>[^a] which thou hast done, and thy thoughts which are to us-ward: they cannot be reckoned up in order unto thee: if I would declare and speak of them, they are more than can be numbered.
+> Many, O LORD my God, *are* thy wonderful <u>works</u>[^a] *which* thou hast done, and thy thoughts *which are* to us-ward: they cannot be reckoned up in order unto thee: *if* I would declare and speak *of them,* they are more than can be numbered.
 
 [Psalms 40:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/40.5?lang=eng#p5)
 

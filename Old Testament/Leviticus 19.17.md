@@ -1,6 +1,6 @@
 # Leviticus 19:17
 
-> ¶ <u>Thou</u>[^a] shalt not hate thy brother in thine <u>heart</u>[^b] : thou shalt in any wise rebuke thy neighbour, and not suffer sin upon him.
+> ¶ <u>Thou</u>[^a] shalt not hate thy brother in thine <u>heart</u>[^b]: thou shalt in any wise rebuke thy neighbour, and not suffer sin upon him.
 
 [Leviticus 19:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.17?lang=eng#p17)
 

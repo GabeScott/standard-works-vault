@@ -1,6 +1,6 @@
 # Exodus 2:16
 
-> Now the priest of <u>Midian</u>[^a] had seven daughters: and they came and drew water, and filled the troughs to water their father’s flock.
+> Now the priest of <u>Midian</u>[^a] had seven daughters: and they came and drew <u>water</u>[^b]*,* and filled the troughs to water their father’s flock.
 
 [Exodus 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.16?lang=eng#p16)
 

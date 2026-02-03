@@ -1,6 +1,6 @@
 # Matthew 8:12
 
-> But the <u>children</u>[^a] of the kingdom shall be cast out into <u>outer darkness</u>[^b] : there shall be <u>weeping</u>[^c] and gnashing of teeth.
+> But the <u>children</u>[^a] of the kingdom shall be cast out into <u>outer darkness</u>[^b]: there shall be <u>weeping</u>[^c] and gnashing of teeth.
 
 [Matthew 8:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.12?lang=eng#p12)
 

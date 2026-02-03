@@ -1,6 +1,6 @@
 # Mormon 8:33
 
-> O ye wicked and perverse and <u>stiffnecked</u>[^a] people, why have ye built up churches unto yourselves to get <u>gain</u>[^b] ? Why have ye <u>transfigured</u>[^c] the holy word of God, that ye might bring <u>damnation</u>[^d] upon your souls? Behold, look ye unto the <u>revelations</u>[^e] of God; for behold, the time cometh at that day when all these things must be fulfilled.
+> O ye wicked and perverse and <u>stiffnecked</u>[^a] people, why have ye built up churches unto yourselves to get <u>gain</u>[^b]? Why have ye <u>transfigured</u>[^c] the holy word of God, that ye might bring <u>damnation</u>[^d] upon your souls? Behold, look ye unto the <u>revelations</u>[^e] of God; for behold, the time cometh at that day when all these things must be fulfilled.
 
 [Mormon 8:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p33#p33)
 

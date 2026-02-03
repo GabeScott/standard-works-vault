@@ -1,6 +1,6 @@
 # Psalms 72:17
 
-> His name shall endure for ever: his name shall be continued as long as the sun: and men shall be blessed in him: all nations shall call him <u>blessed</u>[^a] .
+> His name shall endure for ever: his name shall be continued as long as the sun: and *men* shall be blessed in him: all nations shall call him <u>blessed</u>[^a].
 
 [Psalms 72:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/72.17?lang=eng#p17)
 

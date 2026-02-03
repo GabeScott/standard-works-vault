@@ -1,6 +1,6 @@
 # Genesis 30:20
 
-> And Leah said, God hath endued me with a good dowry; now will my husband <u>dwell with me</u>[^a], because I have born him six sons: and she called his name <u>Zebulun</u>[^b] .
+> And Leah said, God hath endued me *with* a good dowry; now will my husband <u>dwell with me</u>[^a], because I have born him six sons: and she called his name <u>Zebulun</u>[^b].
 
 [Genesis 30:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.20?lang=eng#p20)
 

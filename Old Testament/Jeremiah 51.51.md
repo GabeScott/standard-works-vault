@@ -1,6 +1,6 @@
 # Jeremiah 51:51
 
-> We are <u>confounded</u>[^a], because we have heard reproach: shame hath covered our faces: for strangers are come into the <u>sanctuaries</u>[^b] of the Lord ’s house.
+> We are <u>confounded</u>[^a], because we have heard reproach: shame hath covered our faces: for strangers are come into the <u>sanctuaries</u>[^b] of the LORD’s house.
 
 [Jeremiah 51:51](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.51?lang=eng#p51)
 

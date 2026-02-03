@@ -1,6 +1,6 @@
 # Ezekiel 36:18
 
-> Wherefore I poured my fury upon them for the blood that they had <u>shed</u>[^a] upon the land, and for their <u>idols</u>[^b] wherewith they had <u>polluted</u>[^c] it:
+> Wherefore I poured my fury upon them for the blood that they had <u>shed</u>[^a] upon the land, and for their <u>idols</u>[^b] *wherewith* they had <u>polluted</u>[^c] it:
 
 [Ezekiel 36:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.18?lang=eng#p18)
 

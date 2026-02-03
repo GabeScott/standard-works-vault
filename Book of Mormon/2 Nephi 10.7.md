@@ -1,6 +1,6 @@
 # 2 Nephi 10:7
 
-> But behold, thus saith the <u>Lord God</u>[^a] : <u>When</u>[^b] the day cometh that they shall believe in me, that I am Christ, then have I covenanted with their fathers that they shall be <u>restored</u>[^c] in the flesh, upon the earth, unto the <u>lands</u>[^d] of their inheritance.
+> But behold, thus saith the <u>Lord God</u>[^a]: <u>When</u>[^b] the day cometh that they shall believe in me, that I am Christ, then have I covenanted with their fathers that they shall be <u>restored</u>[^c] in the flesh, upon the earth, unto the <u>lands</u>[^d] of their inheritance.
 
 [2 Nephi 10:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p7#p7)
 

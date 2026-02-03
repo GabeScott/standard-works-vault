@@ -1,6 +1,6 @@
 # Deuteronomy 20:1
 
-> When thou goest out to <u>battle</u>[^a] against thine enemies, and seest horses, and <u>chariots</u>[^b], and a people more than thou, be not <u>afraid</u>[^c] of them: for the Lord thy God is with thee, which brought thee up out of the land of Egypt.
+> When thou goest out to <u>battle</u>[^a] against thine enemies, and seest horses, and <u>chariots</u>[^b], *and* a people more than thou, be not <u>afraid</u>[^c] of them: for the <u>Lord</u>[^d] thy God *is* with thee, which brought thee up out of the land of Egypt.
 
 [Deuteronomy 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Revelation 21:16
 
-> And the city lieth foursquare, and the <u>length</u>[^a] is as large as the breadth: and he measured the city with the reed, twelve thousand <u>furlongs</u>[^b] . The length and the breadth and the height of it are equal.
+> And the city lieth foursquare, and the <u>length</u>[^a] is as large as the breadth: and he measured the city with the reed, twelve thousand <u>furlongs</u>[^b]. The length and the breadth and the height of it are equal.
 
 [Revelation 21:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # 1 Thessalonians 2:14
 
-> For ye, brethren, became <u>followers</u>[^a] of the churches of God which in Judæa are in Christ Jesus: for ye also have <u>suffered</u>[^b] like things of your own countrymen, even as they have of the Jews:
+> For ye, brethren, became <u>followers</u>[^a] of the churches of God which in Judæa are in Christ Jesus: for ye also have <u>suffered</u>[^b] like things of your own countrymen, even as they *have* of the Jews:
 
 [1 Thessalonians 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/2.14?lang=eng#p14)
 

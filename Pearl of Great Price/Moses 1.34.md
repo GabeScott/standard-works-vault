@@ -1,6 +1,6 @@
 # Moses 1:34
 
-> And the <u>first</u>[^a] man of all men have I called <u>Adam</u>[^b], which is <u>many</u>[^c] .
+> And the <u>first</u>[^a] man of all men have I called <u>Adam</u>[^b], which is <u>many</u>[^c].
 
 [Moses 1:34](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.34?lang=eng#p34)
 

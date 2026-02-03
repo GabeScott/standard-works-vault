@@ -1,6 +1,6 @@
 # Luke 23:23
 
-> And they were <u>instant</u>[^a] with loud voices, <u>requiring</u>[^b] that he might be <u>crucified</u>[^c] . And the voices of them and of the chief priests prevailed.
+> And they were <u>instant</u>[^a] with loud voices, <u>requiring</u>[^b] that he might be <u>crucified</u>[^c]. And the voices of them and of the chief priests prevailed.
 
 [Luke 23:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.23?lang=eng#p23)
 

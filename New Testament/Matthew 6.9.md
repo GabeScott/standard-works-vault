@@ -1,6 +1,6 @@
 # Matthew 6:9
 
-> <u>After</u>[^a] this manner therefore <u>pray</u>[^b] ye: Our <u>Father</u>[^c] which art in heaven, <u>Hallowed</u>[^d] be thy <u>name</u>[^e] .
+> <u>After</u>[^a] this manner therefore <u>pray</u>[^b] ye: Our <u>Father</u>[^c] which art in heaven, <u>Hallowed</u>[^d] be thy <u>name</u>[^e].
 
 [Matthew 6:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.9?lang=eng#p9)
 

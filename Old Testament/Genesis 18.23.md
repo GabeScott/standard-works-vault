@@ -1,6 +1,6 @@
 # Genesis 18:23
 
-> ¶ And Abraham drew near, and said, Wilt thou also <u>destroy</u>[^a] the <u>righteous</u>[^b] with the <u>wicked</u>[^c] ?
+> ¶ And Abraham drew near, and said, Wilt thou also <u>destroy</u>[^a] the <u>righteous</u>[^b] with the <u>wicked</u>[^c]?
 
 [Genesis 18:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.23?lang=eng#p23)
 

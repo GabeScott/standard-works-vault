@@ -1,6 +1,6 @@
 # 3 Nephi 5:10
 
-> Therefore I have made my <u>record</u>[^a] of these things according to the record of Nephi, which was engraven on the plates which were called the <u>plates of Nephi</u>[^b] .
+> Therefore I have made my <u>record</u>[^a] of these things according to the record of Nephi, which was engraven on the plates which were called the <u>plates of Nephi</u>[^b].
 
 [3 Nephi 5:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p10#p10)
 

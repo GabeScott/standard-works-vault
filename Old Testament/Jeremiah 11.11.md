@@ -1,6 +1,6 @@
 # Jeremiah 11:11
 
-> ¶ Therefore thus saith the Lord , Behold, I will bring <u>evil</u>[^a] upon them, which they shall not be able to escape; and though they shall <u>cry</u>[^b] unto me, I will not hearken unto them.
+> ¶ Therefore thus saith the LORD, Behold, I will bring <u>evil</u>[^a] upon them, which they shall not be able to escape; and though they shall <u>cry</u>[^b] unto me, I will not hearken unto them.
 
 [Jeremiah 11:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.11?lang=eng#p11)
 

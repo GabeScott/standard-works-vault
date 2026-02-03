@@ -1,6 +1,6 @@
 # Romans 11:34
 
-> For who hath known the <u>mind</u>[^a] of the Lord? or who hath been his <u>counsellor</u>[^b] ?
+> For who hath known the <u>mind</u>[^a] of the Lord? or who hath been his <u>counsellor</u>[^b]?
 
 [Romans 11:34](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.34?lang=eng#p34)
 

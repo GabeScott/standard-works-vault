@@ -1,6 +1,6 @@
 # 2 Corinthians 6:17
 
-> Wherefore <u>come</u>[^a] out from among them, and be ye <u>separate</u>[^b], saith the Lord, and touch not the <u>unclean thing</u>[^c]; and I will receive you,
+> Wherefore <u>come</u>[^a] out from among them, and be ye <u>separate</u>[^b], saith the Lord, and touch not the <u>unclean thing</u>[^c]*;* and I will receive you,
 
 [2 Corinthians 6:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/6.17?lang=eng#p17)
 

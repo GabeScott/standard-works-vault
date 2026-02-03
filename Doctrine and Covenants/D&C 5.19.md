@@ -1,6 +1,6 @@
 # D&C 5:19
 
-> For a desolating <u>scourge</u>[^a] shall go forth among the inhabitants of the earth, and shall continue to be poured out from time to time, if they <u>repent not</u>[^b], until the earth is <u>empty</u>[^c], and the inhabitants thereof are <u>consumed</u>[^d] away and utterly destroyed by the brightness of my <u>coming</u>[^e] .
+> For a desolating <u>scourge</u>[^a] shall go forth among the inhabitants of the earth, and shall continue to be poured out from time to time, if they <u>repent not</u>[^b], until the earth is <u>empty</u>[^c], and the inhabitants thereof are <u>consumed</u>[^d] away and utterly destroyed by the brightness of my <u>coming</u>[^e].
 
 [D&C 5:19](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.19?lang=eng#p19)
 

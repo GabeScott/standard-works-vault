@@ -1,6 +1,6 @@
 # Micah 7:6
 
-> For the son dishonoureth the father, the daughter riseth up against her mother, the daughter in law against her mother in law; a man’s <u>enemies</u>[^a] are the men of his own <u>house</u>[^b] .
+> For the son dishonoureth the father, the daughter riseth up against her mother, the daughter in law against her mother in law; a man’s <u>enemies</u>[^a] *are* the men of his own <u>house</u>[^b].
 
 [Micah 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.6?lang=eng#p6)
 

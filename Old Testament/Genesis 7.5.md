@@ -1,6 +1,6 @@
 # Genesis 7:5
 
-> And Noah <u>did</u>[^a] according unto all that the Lord commanded him.
+> And Noah <u>did</u>[^a] according unto all that the LORD commanded him.
 
 [Genesis 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/7.5?lang=eng#p5)
 

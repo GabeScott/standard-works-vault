@@ -1,6 +1,6 @@
 # Hosea 13:13
 
-> The <u>sorrows</u>[^a] of a <u>travailing</u>[^b] woman shall come upon him: he is an unwise son; for he should not stay long in the place of the <u>breaking</u>[^c] forth of children.
+> The <u>sorrows</u>[^a] of a <u>travailing</u>[^b] woman shall come upon him: he *is* an unwise son; for he should not stay long in *the place of* the <u>breaking</u>[^c] forth of children.
 
 [Hosea 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.13?lang=eng#p13)
 

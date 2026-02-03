@@ -1,6 +1,6 @@
 # Genesis 37:7
 
-> For, behold, we were binding sheaves in the field, and, lo, my sheaf arose, and also stood upright; and, behold, your sheaves stood round about, and made <u>obeisance</u>[^a] to my sheaf.
+> For, behold, we *were* binding sheaves in the field, and, lo, my sheaf arose, and also stood upright; and, behold, your sheaves stood round about, and made <u>obeisance</u>[^a] to my sheaf.
 
 [Genesis 37:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.7?lang=eng#p7)
 

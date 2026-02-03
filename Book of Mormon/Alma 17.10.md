@@ -1,6 +1,6 @@
 # Alma 17:10
 
-> And it came to pass that the Lord did <u>visit</u>[^a] them with his <u>Spirit</u>[^b], and said unto them: Be <u>comforted</u>[^c] . And they were comforted.
+> And it came to pass that the Lord did <u>visit</u>[^a] them with his <u>Spirit</u>[^b], and said unto them: Be <u>comforted</u>[^c]. And they were comforted.
 
 [Alma 17:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/17?lang=eng&id=p10#p10)
 

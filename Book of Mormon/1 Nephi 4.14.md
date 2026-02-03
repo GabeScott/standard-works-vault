@@ -1,6 +1,6 @@
 # 1 Nephi 4:14
 
-> And now, when I, Nephi, had heard these words, I remembered the words of the Lord which he spake unto me in the wilderness, saying that: <u>Inasmuch</u>[^a] as thy seed shall keep my <u>commandments</u>[^b], they shall <u>prosper</u>[^c] in the <u>land of promise</u>[^d] .
+> And now, when I, Nephi, had heard these words, I remembered the words of the Lord which he spake unto me in the wilderness, saying that: <u>Inasmuch</u>[^a] as thy seed shall keep my <u>commandments</u>[^b], they shall <u>prosper</u>[^c] in the <u>land of promise</u>[^d].
 
 [1 Nephi 4:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/4?lang=eng&id=p14#p14)
 

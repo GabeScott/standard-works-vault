@@ -1,6 +1,6 @@
 # 2 Chronicles 3:1
 
-> Then Solomon began to <u>build</u>[^a] the house of the Lord at Jerusalem in mount <u>Moriah</u>[^b], where the Lord appeared unto David his father, in the place that David had prepared in the <u>threshingfloor</u>[^c] of <u>Ornan</u>[^d] the Jebusite.
+> Then Solomon began to <u>build</u>[^a] the house of the LORD at Jerusalem in mount <u>Moriah</u>[^b], where *the Lord* appeared unto David his father, in the place that David had prepared in the <u>threshingfloor</u>[^c] of <u>Ornan</u>[^d] the Jebusite.
 
 [2 Chronicles 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/3.1?lang=eng#p1)
 

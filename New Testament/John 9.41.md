@@ -1,6 +1,6 @@
 # John 9:41
 
-> Jesus said unto them, If ye were <u>blind</u>[^a], ye should have no <u>sin</u>[^b] : but now ye say, We <u>see</u>[^c]; therefore your <u>sin</u>[^d] remaineth.
+> Jesus said unto them, If ye were <u>blind</u>[^a], ye should have no <u>sin</u>[^b]: but now ye say, We <u>see</u>[^c]; therefore your <u>sin</u>[^d] remaineth.
 
 [John 9:41](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.41?lang=eng#p41)
 

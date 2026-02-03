@@ -1,6 +1,6 @@
 # Revelation 17:2
 
-> With whom the kings of the earth have committed fornication, and the <u>inhabitants</u>[^a] of the earth have been made drunk with the wine of her <u>fornication</u>[^b] .
+> With whom the kings of the earth have committed fornication, and the <u>inhabitants</u>[^a] of the earth have been made drunk with the wine of her <u>fornication</u>[^b].
 
 [Revelation 17:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.2?lang=eng#p2)
 

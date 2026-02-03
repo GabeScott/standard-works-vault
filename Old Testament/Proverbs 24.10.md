@@ -1,6 +1,6 @@
 # Proverbs 24:10
 
-> If thou <u>faint</u>[^a] in the day of adversity, thy strength is small.
+> *If* thou <u>faint</u>[^a] in the day of adversity, thy strength *is* small.
 
 [Proverbs 24:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.10?lang=eng#p10)
 

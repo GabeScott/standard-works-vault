@@ -1,6 +1,6 @@
 # Deuteronomy 9:10
 
-> And the Lord delivered unto me two tables of stone <u>written</u>[^a] with the finger of God; and on them was written according to all the words, which the Lord <u>spake</u>[^b] with you in the mount out of the midst of the fire in the <u>day</u>[^c] of the assembly.
+> And the LORD delivered unto me two tables of stone <u>written</u>[^a] with the finger of God; and on them *was written* according to all the words, which the LORD <u>spake</u>[^b] with you in the mount out of the midst of the fire in the <u>day</u>[^c] of the assembly.
 
 [Deuteronomy 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.10?lang=eng#p10)
 

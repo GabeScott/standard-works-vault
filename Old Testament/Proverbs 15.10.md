@@ -1,6 +1,6 @@
 # Proverbs 15:10
 
-> <u>Correction</u>[^a] is grievous unto him that forsaketh the way: and he that hateth <u>reproof</u>[^b] shall <u>die</u>[^c] .
+> <u>Correction</u>[^a] *is* grievous unto him that forsaketh the way: *and* he that hateth <u>reproof</u>[^b] shall <u>die</u>[^c].
 
 [Proverbs 15:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.10?lang=eng#p10)
 

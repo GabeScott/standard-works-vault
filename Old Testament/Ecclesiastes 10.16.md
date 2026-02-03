@@ -1,6 +1,6 @@
 # Ecclesiastes 10:16
 
-> ¶ Woe to thee, O land, when thy king is a <u>child</u>[^a], and thy princes eat in the morning!
+> ¶ Woe to thee, O land, when thy king *is* a <u>child</u>[^a], and thy princes eat in the morning!
 
 [Ecclesiastes 10:16](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.16?lang=eng#p16)
 

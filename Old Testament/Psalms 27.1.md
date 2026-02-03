@@ -1,6 +1,6 @@
 # Psalms 27:1
 
-> The Lord is my <u>light</u>[^a] and my <u>salvation</u>[^b]; whom shall I <u>fear</u>[^c] ? the Lord is the <u>strength</u>[^d] of my life; of whom shall I be afraid?
+> The LORD *is* my <u>light</u>[^a] and my <u>salvation</u>[^b]; whom shall I <u>fear</u>[^c]? the LORD *is* the <u>strength</u>[^d] of my life; of whom shall I be afraid?
 
 [Psalms 27:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/27.1?lang=eng#p1)
 

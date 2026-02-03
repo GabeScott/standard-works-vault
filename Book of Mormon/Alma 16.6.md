@@ -1,6 +1,6 @@
 # Alma 16:6
 
-> And it came to pass that Alma <u>inquired</u>[^a] of the Lord concerning the matter. And Alma returned and said unto them: Behold, the Lamanites will cross the river Sidon in the south wilderness, away up beyond the borders of the land of <u>Manti</u>[^b] . And behold there shall ye meet them, on the east of the river Sidon, and there the Lord will deliver unto thee thy brethren who have been taken captive by the Lamanites.
+> And it came to pass that Alma <u>inquired</u>[^a] of the Lord concerning the matter. And Alma returned and said unto them: Behold, the Lamanites will cross the river Sidon in the south wilderness, away up beyond the borders of the land of <u>Manti</u>[^b]. And behold there shall ye meet them, on the east of the river Sidon, and there the Lord will deliver unto thee thy brethren who have been taken captive by the Lamanites.
 
 [Alma 16:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/16?lang=eng&id=p6#p6)
 

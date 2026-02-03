@@ -1,6 +1,6 @@
 # 2 Samuel 7:20
 
-> And what can David say more unto thee? for thou, Lord God , <u>knowest</u>[^a] thy servant.
+> And what can David say more unto thee? for thou, Lord GOD, <u>knowest</u>[^a] thy servant.
 
 [2 Samuel 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.20?lang=eng#p20)
 

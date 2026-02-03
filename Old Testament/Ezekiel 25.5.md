@@ -1,6 +1,6 @@
 # Ezekiel 25:5
 
-> And I will make <u>Rabbah</u>[^a] a stable for camels, and the Ammonites a couchingplace for flocks: and ye shall know that I am the Lord .
+> And I will make <u>Rabbah</u>[^a] a stable for camels, and the Ammonites a couchingplace for flocks: and ye shall know that I *am* the LORD.
 
 [Ezekiel 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/25.5?lang=eng#p5)
 

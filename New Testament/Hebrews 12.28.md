@@ -1,6 +1,6 @@
 # Hebrews 12:28
 
-> Wherefore we receiving a kingdom which cannot be moved, let us have grace, whereby we may serve God acceptably with <u>reverence</u>[^a] and godly <u>fear</u>[^b] :
+> Wherefore we receiving a kingdom which cannot be moved, let us have grace, whereby we may serve God acceptably with <u>reverence</u>[^a] and godly <u>fear</u>[^b]:
 
 [Hebrews 12:28](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.28?lang=eng#p28)
 

@@ -1,6 +1,6 @@
 # Daniel 9:9
 
-> To the Lord our God belong mercies and <u>forgivenesses</u>[^a], though we have <u>rebelled</u>[^b] against him;
+> To the Lord our God *belong* mercies and <u>forgivenesses</u>[^a], though we have <u>rebelled</u>[^b] against him;
 
 [Daniel 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.9?lang=eng#p9)
 

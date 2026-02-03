@@ -1,6 +1,6 @@
 # Joshua 5:9
 
-> And the Lord said unto Joshua, This day have I rolled away the reproach of Egypt from off you. Wherefore the name of the place is called <u>Gilgal</u>[^a] unto this day.
+> And the LORD said unto Joshua, This day have I rolled away the reproach of Egypt from off you. Wherefore the name of the place is called <u>Gilgal</u>[^a] unto this day.
 
 [Joshua 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Leviticus 17:11
 
-> For the <u>life</u>[^a] of the <u>flesh</u>[^b] is in the blood: and I have given it to you upon the altar to make an atonement for your souls: for it is the <u>blood</u>[^c] that maketh an <u>atonement</u>[^d] for the soul.
+> For the <u>life</u>[^a] of the <u>flesh</u>[^b] *is* in the blood: and I have given it to you upon the altar to make an atonement for your souls: for it *is* the <u>blood</u>[^c] *that* maketh an <u>atonement</u>[^d] for the soul.
 
 [Leviticus 17:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/17.11?lang=eng#p11)
 

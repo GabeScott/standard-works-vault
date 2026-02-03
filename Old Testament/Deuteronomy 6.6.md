@@ -1,6 +1,6 @@
 # Deuteronomy 6:6
 
-> And these <u>words</u>[^a], which I command thee this day, shall be in thine <u>heart</u>[^b] :
+> And these <u>words</u>[^a], which I command thee this day, shall be in thine <u>heart</u>[^b]:
 
 [Deuteronomy 6:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Exodus 35:10
 
-> And <u>every wise hearted</u>[^a] among you shall come, and make all that the Lord hath commanded;
+> And <u>every wise hearted</u>[^a] among you shall come, and make all that the LORD hath commanded;
 
 [Exodus 35:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # Exodus 15:16
 
-> <u>Fear</u>[^a] and <u>dread</u>[^b] shall fall upon them; by the greatness of thine arm they shall be as still as a stone; till thy people pass over, O Lord , till the people pass over, which thou hast <u>purchased</u>[^c] .
+> <u>Fear</u>[^a] and <u>dread</u>[^b] shall fall upon them; by the greatness of thine arm they shall be *as* still as a stone; till thy people pass over, O LORD, till the people pass over, *which* thou hast <u>purchased</u>[^c].
 
 [Exodus 15:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.16?lang=eng#p16)
 

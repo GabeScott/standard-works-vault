@@ -1,6 +1,6 @@
 # Psalms 51:1
 
-> Have <u>mercy</u>[^a] upon me, O God, according to thy <u>lovingkindness</u>[^b] : according unto the multitude of thy tender mercies <u>blot out</u>[^c] my <u>transgressions</u>[^d] .
+> Have <u>mercy</u>[^a] upon me, O God, according to thy <u>lovingkindness</u>[^b]: according unto the multitude of thy tender mercies <u>blot out</u>[^c] my <u>transgressions</u>[^d].
 
 [Psalms 51:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.1?lang=eng#p1)
 

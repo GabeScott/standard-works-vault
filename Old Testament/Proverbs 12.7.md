@@ -1,6 +1,6 @@
 # Proverbs 12:7
 
-> The <u>wicked</u>[^a] are <u>overthrown</u>[^b], and are not: but the house of the righteous shall stand.
+> The <u>wicked</u>[^a] are <u>overthrown</u>[^b], and *are* not: but the house of the righteous shall stand.
 
 [Proverbs 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.7?lang=eng#p7)
 

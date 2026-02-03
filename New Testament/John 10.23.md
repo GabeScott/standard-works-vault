@@ -1,6 +1,6 @@
 # John 10:23
 
-> And Jesus walked in the temple in Solomon’s <u>porch</u>[^a] .
+> And Jesus walked in the temple in Solomon’s <u>porch</u>[^a].
 
 [John 10:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.23?lang=eng#p23)
 

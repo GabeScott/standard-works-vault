@@ -1,6 +1,6 @@
 # 1 Nephi 10:20
 
-> Therefore remember, O man, for all thy doings thou shalt be brought into <u>judgment</u>[^a] .
+> Therefore remember, O man, for all thy doings thou shalt be brought into <u>judgment</u>[^a].
 
 [1 Nephi 10:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p20#p20)
 

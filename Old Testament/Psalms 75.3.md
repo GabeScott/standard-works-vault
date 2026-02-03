@@ -1,6 +1,6 @@
 # Psalms 75:3
 
-> The earth and all the inhabitants thereof are dissolved: I bear up the <u>pillars</u>[^a] of it. Selah .
+> The earth and all the inhabitants thereof are dissolved: I bear up the <u>pillars</u>[^a] of it. Selah.
 
 [Psalms 75:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/75.3?lang=eng#p3)
 

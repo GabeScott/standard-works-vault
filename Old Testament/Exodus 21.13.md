@@ -1,6 +1,6 @@
 # Exodus 21:13
 
-> And if a man lie not in wait, but God deliver him into his hand; then I will appoint thee a <u>place</u>[^a] whither he shall <u>flee</u>[^b] .
+> And if a man lie not in wait, but God deliver *him* into his hand; then I will appoint thee a <u>place</u>[^a] whither he shall <u>flee</u>[^b].
 
 [Exodus 21:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.13?lang=eng#p13)
 

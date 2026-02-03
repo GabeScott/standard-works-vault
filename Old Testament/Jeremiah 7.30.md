@@ -1,6 +1,6 @@
 # Jeremiah 7:30
 
-> For the children of Judah have done evil in my sight, saith the Lord : they have set their <u>abominations</u>[^a] in the house which is called by my name, to <u>pollute</u>[^b] it.
+> For the children of Judah have done evil in my sight, saith the LORD: they have set their <u>abominations</u>[^a] in the house which is called by my name, to <u>pollute</u>[^b] it.
 
 [Jeremiah 7:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.30?lang=eng#p30)
 

@@ -1,6 +1,6 @@
 # Judges 16:16
 
-> And it came to pass, when she pressed him <u>daily</u>[^a] with her words, and urged him, so that his soul was <u>vexed</u>[^b] unto death;
+> And it came to pass, when she pressed him <u>daily</u>[^a] with her words, and urged him, *so* that his soul was <u>vexed</u>[^b] unto death;
 
 [Judges 16:16](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16.16?lang=eng#p16)
 

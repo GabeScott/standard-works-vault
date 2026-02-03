@@ -1,6 +1,6 @@
 # Malachi 4:2
 
-> ¶ But unto you that fear my name shall the <u>Sun</u>[^a] of righteousness <u>arise</u>[^b] with healing in his wings; and ye shall go forth, and grow up as calves of the <u>stall</u>[^c] .
+> ¶ But unto you that fear my name shall the <u>Sun</u>[^a] of righteousness <u>arise</u>[^b] with healing in his wings; and ye shall go forth, and grow up as calves of the <u>stall</u>[^c].
 
 [Malachi 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/4.2?lang=eng#p2)
 

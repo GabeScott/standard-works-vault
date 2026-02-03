@@ -1,6 +1,6 @@
 # 1 Kings 9:26
 
-> ¶ And king Solomon made a navy of ships in <u>Ezion-geber</u>[^a], which is beside <u>Eloth</u>[^b], on the shore of the Red sea, in the land of Edom.
+> ¶ And king Solomon made a navy of ships in <u>Ezion-geber</u>[^a], which *is* beside <u>Eloth</u>[^b], on the shore of the Red sea, in the land of Edom.
 
 [1 Kings 9:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.26?lang=eng#p26)
 

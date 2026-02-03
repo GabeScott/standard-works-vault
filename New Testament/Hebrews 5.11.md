@@ -1,6 +1,6 @@
 # Hebrews 5:11
 
-> Of whom we have many things to say, and <u>hard</u>[^a] to be <u>uttered</u>[^b], seeing ye are dull of <u>hearing</u>[^c] .
+> Of whom we have many things to say, and <u>hard</u>[^a] to be <u>uttered</u>[^b], seeing ye are dull of <u>hearing</u>[^c].
 
 [Hebrews 5:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.11?lang=eng#p11)
 

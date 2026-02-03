@@ -1,6 +1,6 @@
 # Psalms 135:13
 
-> Thy <u>name</u>[^a], O Lord , endureth for ever; and thy memorial, O Lord , throughout all generations.
+> Thy <u>name</u>[^a], O LORD, *endureth* for ever; *and* thy memorial, O LORD, throughout all generations.
 
 [Psalms 135:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/135.13?lang=eng#p13)
 

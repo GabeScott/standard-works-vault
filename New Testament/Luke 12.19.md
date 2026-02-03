@@ -1,6 +1,6 @@
 # Luke 12:19
 
-> And I will say to my soul, <u>Soul</u>[^a], thou hast much goods laid up for many years; take thine ease, <u>eat</u>[^b], drink, and be merry.
+> And I will say to my soul, <u>Soul</u>[^a], thou hast much goods laid up for many years; take thine ease, <u>eat</u>[^b], drink, *and* be merry.
 
 [Luke 12:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.19?lang=eng#p19)
 

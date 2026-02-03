@@ -1,6 +1,6 @@
 # Psalms 106:34
 
-> They did not <u>destroy</u>[^a] the nations, concerning whom the Lord commanded them:
+> They did not <u>destroy</u>[^a] the nations, concerning whom the LORD commanded them:
 
 [Psalms 106:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.34?lang=eng#p34)
 

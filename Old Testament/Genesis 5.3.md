@@ -1,6 +1,6 @@
 # Genesis 5:3
 
-> ¶ And Adam lived an hundred and thirty years, and begat a son in his own <u>likeness</u>[^a], after his image; and called his name Seth:
+> ¶ And Adam lived an hundred and thirty years, and begat *a son* in his own <u>likeness</u>[^a], after his image; and called his name Seth:
 
 [Genesis 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/5.3?lang=eng#p3)
 

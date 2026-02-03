@@ -1,6 +1,6 @@
 # Isaiah 60:1
 
-> <u>Arise</u>[^a], shine; for thy <u>light</u>[^b] is come, and the glory of the Lord is risen upon thee.
+> <u>Arise</u>[^a], shine; for thy <u>light</u>[^b] is come, and the glory of the LORD is risen upon thee.
 
 [Isaiah 60:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.1?lang=eng#p1)
 

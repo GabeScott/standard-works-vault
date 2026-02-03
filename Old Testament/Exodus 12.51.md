@@ -1,6 +1,6 @@
 # Exodus 12:51
 
-> And it came to pass the selfsame day, that the Lord did <u>bring</u>[^a] the children of Israel out of the land of Egypt by their armies.
+> And it came to pass the selfsame day, *that* the LORD did <u>bring</u>[^a] the children of Israel out of the land of Egypt by their armies.
 
 [Exodus 12:51](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.51?lang=eng#p51)
 

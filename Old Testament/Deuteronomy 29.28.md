@@ -1,6 +1,6 @@
 # Deuteronomy 29:28
 
-> And the Lord <u>rooted</u>[^a] them out of their <u>land</u>[^b] in anger, and in wrath, and in great <u>indignation</u>[^c], and cast them into another land, as it is this day.
+> And the LORD <u>rooted</u>[^a] them out of their <u>land</u>[^b] in anger, and in wrath, and in great <u>indignation</u>[^c], and cast them into another land, as *it is* this day.
 
 [Deuteronomy 29:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.28?lang=eng#p28)
 

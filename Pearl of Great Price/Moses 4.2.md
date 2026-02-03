@@ -1,6 +1,6 @@
 # Moses 4:2
 
-> But, behold, my Beloved <u>Son</u>[^a], which was my Beloved and <u>Chosen</u>[^b] from the beginning, said unto me— <u>Father</u>[^c], thy <u>will be</u>[^d] done, and the <u>glory</u>[^e] be thine forever.
+> But, behold, my Beloved <u>Son</u>[^a], which was my Beloved and <u>Chosen</u>[^b] from the beginning, said unto me—<u>Father</u>[^c], thy <u>will be</u>[^d] done, and the <u>glory</u>[^e] be thine forever.
 
 [Moses 4:2](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.2?lang=eng#p2)
 

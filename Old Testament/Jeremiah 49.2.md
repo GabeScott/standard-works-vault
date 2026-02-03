@@ -1,6 +1,6 @@
 # Jeremiah 49:2
 
-> Therefore, behold, the days come, saith the Lord , that I will cause an alarm of war to be heard in <u>Rabbah</u>[^a] of the <u>Ammonites</u>[^b]; and it shall be a desolate heap, and her <u>daughters</u>[^c] shall be burned with fire: then shall Israel be heir unto them that were his heirs, saith the Lord .
+> Therefore, behold, the days come, saith the LORD, that I will cause an alarm of war to be heard in <u>Rabbah</u>[^a] of the <u>Ammonites</u>[^b]; and it shall be a desolate heap, and her <u>daughters</u>[^c] shall be burned with fire: then shall Israel be heir unto them that were his heirs, saith the LORD.
 
 [Jeremiah 49:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.2?lang=eng#p2)
 

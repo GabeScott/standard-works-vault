@@ -1,6 +1,6 @@
 # Deuteronomy 16:21
 
-> ¶ <u>Thou</u>[^a] shalt not plant thee a grove of any trees near unto the altar of the Lord thy God, which thou shalt make thee.
+> ¶ <u>Thou</u>[^a] shalt not plant thee a grove of any trees near unto the altar of the LORD thy God, which thou shalt make thee.
 
 [Deuteronomy 16:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.21?lang=eng#p21)
 

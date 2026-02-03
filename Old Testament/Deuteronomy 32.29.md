@@ -1,6 +1,6 @@
 # Deuteronomy 32:29
 
-> O that they were <u>wise</u>[^a], that they understood this, that they would consider their latter <u>end</u>[^b] !
+> O that they were <u>wise</u>[^a], *that* they understood this, *that* they would consider their latter <u>end</u>[^b]!
 
 [Deuteronomy 32:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.29?lang=eng#p29)
 

@@ -1,6 +1,6 @@
 # Psalms 31:23
 
-> O <u>love</u>[^a] the Lord , all ye his saints: for the Lord <u>preserveth</u>[^b] the <u>faithful</u>[^c], and plentifully <u>rewardeth</u>[^d] the proud doer.
+> O <u>love</u>[^a] the LORD, all ye his saints: *for* the LORD <u>preserveth</u>[^b] the <u>faithful</u>[^c], and plentifully <u>rewardeth</u>[^d] the proud doer.
 
 [Psalms 31:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.23?lang=eng#p23)
 

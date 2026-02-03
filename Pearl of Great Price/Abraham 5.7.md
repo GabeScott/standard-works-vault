@@ -1,6 +1,6 @@
 # Abraham 5:7
 
-> And the <u>Gods</u>[^a] formed man from the <u>dust</u>[^b] of the ground, and took his <u>spirit</u>[^c] (that is, the man’s spirit), and put it into him; and breathed into his nostrils the breath of life, and man became a living <u>soul</u>[^d] .
+> And the <u>Gods</u>[^a] formed man from the <u>dust</u>[^b] of the ground, and took his <u>spirit</u>[^c] (that is, the man’s spirit), and put it into him; and breathed into his nostrils the breath of life, and man became a living <u>soul</u>[^d].
 
 [Abraham 5:7](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.7?lang=eng#p7)
 

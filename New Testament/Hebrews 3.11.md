@@ -1,6 +1,6 @@
 # Hebrews 3:11
 
-> So I sware in my wrath, They shall not <u>enter</u>[^a] into my <u>rest</u>[^b] .)
+> So I sware in my wrath, They shall not <u>enter</u>[^a] into my <u>rest</u>[^b].)
 
 [Hebrews 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.11?lang=eng#p11)
 

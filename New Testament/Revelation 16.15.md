@@ -1,6 +1,6 @@
 # Revelation 16:15
 
-> Behold, I come as a <u>thief</u>[^a] . Blessed is he that <u>watcheth</u>[^b], and keepeth his garments, lest he walk naked, and they see his shame.
+> Behold, I come as a <u>thief</u>[^a]. Blessed *is* he that <u>watcheth</u>[^b], and keepeth his garments, lest he walk naked, and they see his shame.
 
 [Revelation 16:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.15?lang=eng#p15)
 

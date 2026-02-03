@@ -1,6 +1,6 @@
 # Psalms 47:2
 
-> For the Lord most high is <u>terrible</u>[^a]; he is a great King over all the earth.
+> For the LORD most high *is* <u>terrible</u>[^a]; *he is* a great King over all the earth.
 
 [Psalms 47:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/47.2?lang=eng#p2)
 

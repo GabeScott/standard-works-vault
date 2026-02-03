@@ -1,6 +1,6 @@
 # Exodus 29:1
 
-> And this is the thing that thou shalt do unto them to <u>hallow</u>[^a] them, to minister unto me in the <u>priest’s</u>[^b] office: Take one <u>young bullock</u>[^c], and two rams without blemish,
+> And this *is* the thing that thou shalt do unto them to <u>hallow</u>[^a] them, to minister unto me in the <u>priest’s</u>[^b] office: Take one <u>young bullock</u>[^c], and two rams without blemish,
 
 [Exodus 29:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Ecclesiastes 10:12
 
-> The <u>words</u>[^a] of a wise man’s mouth are gracious; but the lips of a <u>fool</u>[^b] will swallow up himself.
+> The <u>words</u>[^a] of a wise man’s mouth *are* gracious; but the lips of a <u>fool</u>[^b] will swallow up himself.
 
 [Ecclesiastes 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Exodus 28:39
 
-> ¶ And thou shalt embroider the <u>coat</u>[^a] of fine <u>linen</u>[^b], and thou shalt make the mitre of fine linen, and thou shalt make the girdle of needlework.
+> ¶ And thou shalt embroider the <u>coat</u>[^a] of fine <u>linen</u>[^b], and thou shalt make the mitre *of* fine linen, and thou shalt make the girdle *of* needlework.
 
 [Exodus 28:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.39?lang=eng#p39)
 

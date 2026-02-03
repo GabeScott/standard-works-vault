@@ -1,6 +1,6 @@
 # Jeremiah 23:6
 
-> In his days Judah shall be saved, and Israel shall dwell <u>safely</u>[^a] : and this is his name whereby he shall be called, The Lord Our Righteousness .
+> In his days Judah shall be saved, and Israel shall dwell <u>safely</u>[^a]: and this *is* his name whereby he shall be called, THE LORD OUR <u>Righteousness</u>[^b].
 
 [Jeremiah 23:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.6?lang=eng#p6)
 

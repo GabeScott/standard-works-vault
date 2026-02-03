@@ -1,6 +1,6 @@
 # Psalms 111:3
 
-> His <u>work</u>[^a] is <u>honourable</u>[^b] and glorious: and his righteousness endureth for ever.
+> His <u>work</u>[^a] *is* <u>honourable</u>[^b] and glorious: and his righteousness endureth for ever.
 
 [Psalms 111:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/111.3?lang=eng#p3)
 

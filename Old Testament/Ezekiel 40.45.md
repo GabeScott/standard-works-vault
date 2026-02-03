@@ -1,6 +1,6 @@
 # Ezekiel 40:45
 
-> And he said unto me, This chamber, whose prospect is toward the south, is for the priests, the <u>keepers</u>[^a] of the charge of the house.
+> And he said unto me, This chamber, whose prospect *is* toward the south, *is* for the priests, the <u>keepers</u>[^a] of the charge of the house.
 
 [Ezekiel 40:45](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.45?lang=eng#p45)
 

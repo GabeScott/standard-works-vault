@@ -1,6 +1,6 @@
 # Moses 1:33
 
-> And <u>worlds</u>[^a] without number have I <u>created</u>[^b]; and I also created them for mine own purpose; and by the <u>Son</u>[^c] I <u>created</u>[^d] them, which is mine <u>Only Begotten</u>[^e] .
+> And <u>worlds</u>[^a] without number have I <u>created</u>[^b]; and I also created them for mine own purpose; and by the <u>Son</u>[^c] I <u>created</u>[^d] them, which is mine <u>Only Begotten</u>[^e].
 
 [Moses 1:33](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.33?lang=eng#p33)
 

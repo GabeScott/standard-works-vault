@@ -1,6 +1,6 @@
 # Judges 18:19
 
-> And they said unto him, Hold thy peace, lay thine <u>hand</u>[^a] upon thy mouth, and go with us, and be to us a father and a <u>priest</u>[^b] : is it better for thee to be a priest unto the house of one man, or that thou be a priest unto a tribe and a family in Israel?
+> And they said unto him, Hold thy peace, lay thine <u>hand</u>[^a] upon thy mouth, and go with us, and be to us a father and a <u>priest</u>[^b]: *is it* better for thee to be a priest unto the house of one man, or that thou be a priest unto a tribe and a family in Israel?
 
 [Judges 18:19](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/18.19?lang=eng#p19)
 

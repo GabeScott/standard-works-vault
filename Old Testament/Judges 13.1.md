@@ -1,6 +1,6 @@
 # Judges 13:1
 
-> And the children of Israel did <u>evil</u>[^a] again in the sight of the Lord ; and the Lord delivered them into the <u>hand</u>[^b] of the Philistines forty years.
+> And the children of Israel did <u>evil</u>[^a] again in the sight of the LORD; and the LORD delivered them into the <u>hand</u>[^b] of the Philistines forty years.
 
 [Judges 13:1](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/13.1?lang=eng#p1)
 

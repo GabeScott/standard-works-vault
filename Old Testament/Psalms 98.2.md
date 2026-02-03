@@ -1,6 +1,6 @@
 # Psalms 98:2
 
-> The Lord hath made <u>known</u>[^a] his salvation: his righteousness hath he openly shewed in the <u>sight</u>[^b] of the <u>heathen</u>[^c] .
+> The LORD hath made <u>known</u>[^a] his salvation: his righteousness hath he openly shewed in the <u>sight</u>[^b] of the <u>heathen</u>[^c].
 
 [Psalms 98:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/98.2?lang=eng#p2)
 

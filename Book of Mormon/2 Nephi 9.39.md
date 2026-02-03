@@ -1,6 +1,6 @@
 # 2 Nephi 9:39
 
-> O, my beloved brethren, remember the awfulness in <u>transgressing</u>[^a] against that Holy God, and also the awfulness of yielding to the enticings of that <u>cunning</u>[^b] one. Remember, to be <u>carnally-minded</u>[^c] is <u>death</u>[^d], and to be <u>spiritually-minded</u>[^e] is <u>life</u>[^f] <u>eternal</u>[^g] .
+> O, my beloved brethren, remember the awfulness in <u>transgressing</u>[^a] against that Holy God, and also the awfulness of yielding to the enticings of that <u>cunning</u>[^b] one. Remember, to be <u>carnally-minded</u>[^c] is <u>death</u>[^d], and to be <u>spiritually-minded</u>[^e] is <u>life</u>[^f] <u>eternal</u>[^g].
 
 [2 Nephi 9:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p39#p39)
 

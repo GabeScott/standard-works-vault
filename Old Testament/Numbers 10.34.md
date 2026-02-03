@@ -1,6 +1,6 @@
 # Numbers 10:34
 
-> And the <u>cloud</u>[^a] of the Lord was upon them by day, when they went out of the camp.
+> And the <u>cloud</u>[^a] of the LORD *was* upon them by day, when they went out of the camp.
 
 [Numbers 10:34](https://www.churchofjesuschrist.org/study/scriptures/ot/num/10.34?lang=eng#p34)
 

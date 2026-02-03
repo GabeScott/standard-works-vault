@@ -1,6 +1,6 @@
 # 2 Nephi 19:17
 
-> Therefore the Lord shall have no joy in their young men, neither shall have <u>mercy</u>[^a] on their fatherless and <u>widows</u>[^b]; for <u>every</u>[^c] one of them is a hypocrite and an <u>evildoer</u>[^d], and every mouth speaketh <u>folly</u>[^e] . For all this his anger is not turned away, but his <u>hand</u>[^f] is stretched out still.
+> Therefore the Lord shall have no joy in their young men, neither shall have <u>mercy</u>[^a] on their fatherless and <u>widows</u>[^b]; for <u>every</u>[^c] one of them is a hypocrite and an <u>evildoer</u>[^d], and every mouth speaketh <u>folly</u>[^e]. For all this his anger is not turned away, but his <u>hand</u>[^f] is stretched out still.
 
 [2 Nephi 19:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p17#p17)
 

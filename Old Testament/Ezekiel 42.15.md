@@ -1,6 +1,6 @@
 # Ezekiel 42:15
 
-> Now when he had made an end of measuring the inner house, he brought me forth toward the <u>gate</u>[^a] whose prospect is toward the east, and measured it round about.
+> Now when he had made an end of measuring the inner house, he brought me forth toward the <u>gate</u>[^a] whose prospect *is* toward the east, and measured it round about.
 
 [Ezekiel 42:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/42.15?lang=eng#p15)
 

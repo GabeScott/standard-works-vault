@@ -1,6 +1,6 @@
 # Hebrews 1:3
 
-> Who being the brightness of his <u>glory</u>[^a], and the express image of his <u>person</u>[^b], and upholding all things by the word of his <u>power</u>[^c], when he had by himself <u>purged</u>[^d] our sins, sat down on the <u>right hand</u>[^e] of the <u>Majesty</u>[^f] on high;
+> Who being the brightness of *his* <u>glory</u>[^a], and the express image of his <u>person</u>[^b], and upholding all things by the word of his <u>power</u>[^c], when he had by himself <u>purged</u>[^d] our sins, sat down on the <u>right hand</u>[^e] of the <u>Majesty</u>[^f] on high;
 
 [Hebrews 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.3?lang=eng#p3)
 

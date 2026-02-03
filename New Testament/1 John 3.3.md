@@ -1,6 +1,6 @@
 # 1 John 3:3
 
-> And every man that hath this <u>hope</u>[^a] in him <u>purifieth</u>[^b] himself, even as he is <u>pure</u>[^c] .
+> And every man that hath this <u>hope</u>[^a] in him <u>purifieth</u>[^b] himself, even as he is <u>pure</u>[^c].
 
 [1 John 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.3?lang=eng#p3)
 

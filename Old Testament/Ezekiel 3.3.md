@@ -1,6 +1,6 @@
 # Ezekiel 3:3
 
-> And he said unto me, Son of man, cause thy belly to eat, and fill thy bowels with this roll that I give thee. Then did I <u>eat</u>[^a] it; and it was in my mouth as honey for sweetness.
+> And he said unto me, Son of man, cause thy belly to eat, and fill thy bowels with this roll that I give thee. Then did I <u>eat</u>[^a] *it;* and it was in my mouth as honey for sweetness.
 
 [Ezekiel 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.3?lang=eng#p3)
 

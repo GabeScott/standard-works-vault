@@ -1,6 +1,6 @@
 # Proverbs 23:4
 
-> Labour not to be <u>rich</u>[^a] : cease from thine own <u>wisdom</u>[^b] .
+> Labour not to be <u>rich</u>[^a]: cease from thine own <u>wisdom</u>[^b].
 
 [Proverbs 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.4?lang=eng#p4)
 

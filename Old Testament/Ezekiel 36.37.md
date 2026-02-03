@@ -1,6 +1,6 @@
 # Ezekiel 36:37
 
-> Thus saith the Lord God ; I will yet for this be <u>inquired</u>[^a] of by the house of Israel, to do it for them; I will increase them with men like a flock.
+> Thus saith the Lord GOD; I will yet *for* this be <u>inquired</u>[^a] of by the house of Israel, to do *it* for them; I will increase them with men like a flock.
 
 [Ezekiel 36:37](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.37?lang=eng#p37)
 

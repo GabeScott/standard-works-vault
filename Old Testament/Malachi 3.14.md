@@ -1,6 +1,6 @@
 # Malachi 3:14
 
-> Ye have said, It is <u>vain</u>[^a] to serve God: and what <u>profit</u>[^b] is it that we have kept his ordinance, and that we have walked mournfully before the Lord of hosts?
+> Ye have said, It *is* <u>vain</u>[^a] to serve God: and what <u>profit</u>[^b] *is it* that we have kept his ordinance, and that we have walked mournfully before the LORD of hosts?
 
 [Malachi 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.14?lang=eng#p14)
 

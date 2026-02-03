@@ -1,6 +1,6 @@
 # Deuteronomy 28:12
 
-> The Lord shall open unto thee his good <u>treasure</u>[^a], the heaven to give the <u>rain</u>[^b] unto thy land in his season, and to bless all the work of thine hand: and thou shalt lend unto many nations, and thou shalt not <u>borrow</u>[^c] .
+> The LORD shall open unto thee his good <u>treasure</u>[^a], the heaven to give the <u>rain</u>[^b] unto thy land in his season, and to bless all the work of thine hand: and thou shalt lend unto many nations, and thou shalt not <u>borrow</u>[^c].
 
 [Deuteronomy 28:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.12?lang=eng#p12)
 

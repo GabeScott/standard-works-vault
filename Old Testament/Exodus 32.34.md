@@ -1,6 +1,6 @@
 # Exodus 32:34
 
-> Therefore now go, <u>lead</u>[^a] the people unto the place of which I have spoken unto thee: behold, mine <u>Angel</u>[^b] shall go before thee: nevertheless in the day when I visit I will visit their sin upon them.
+> Therefore now go, <u>lead</u>[^a] the people unto *the place* of which I have spoken unto thee: behold, mine <u>Angel</u>[^b] shall go before thee: nevertheless in the day when I visit I will visit their sin upon them.
 
 [Exodus 32:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.34?lang=eng#p34)
 

@@ -1,6 +1,6 @@
 # Joshua 1:6
 
-> Be strong and of a good <u>courage</u>[^a] : for unto this people shalt thou <u>divide</u>[^b] for an <u>inheritance</u>[^c] the <u>land</u>[^d], which I sware unto their fathers to give them.
+> Be strong and of a good <u>courage</u>[^a]: for unto this people shalt thou <u>divide</u>[^b] for an <u>inheritance</u>[^c] the <u>land</u>[^d], which I sware unto their fathers to give them.
 
 [Joshua 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.6?lang=eng#p6)
 

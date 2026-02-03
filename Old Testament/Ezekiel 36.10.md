@@ -1,6 +1,6 @@
 # Ezekiel 36:10
 
-> And I will multiply men upon you, all the house of Israel, even all of it: and the cities shall be <u>inhabited</u>[^a], and the <u>wastes</u>[^b] shall be <u>builded</u>[^c] :
+> And I will multiply men upon you, all the house of Israel, *even* all of it: and the cities shall be <u>inhabited</u>[^a], and the <u>wastes</u>[^b] shall be <u>builded</u>[^c]:
 
 [Ezekiel 36:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.10?lang=eng#p10)
 

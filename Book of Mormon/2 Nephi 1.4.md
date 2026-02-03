@@ -1,6 +1,6 @@
 # 2 Nephi 1:4
 
-> For, behold, said he, I have <u>seen</u>[^a] a <u>vision</u>[^b], in which I know that <u>Jerusalem</u>[^c] is <u>destroyed</u>[^d]; and had we remained in Jerusalem we should also have <u>perished</u>[^e] .
+> For, behold, said he, I have <u>seen</u>[^a] a <u>vision</u>[^b], in which I know that <u>Jerusalem</u>[^c] is <u>destroyed</u>[^d]; and had we remained in Jerusalem we should also have <u>perished</u>[^e].
 
 [2 Nephi 1:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p4#p4)
 

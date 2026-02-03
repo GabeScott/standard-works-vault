@@ -1,6 +1,6 @@
 # Luke 3:33
 
-> Which was the son of Aminadab, which was the son of Aram, which was the son of Esrom, which was the son of <u>Phares</u>[^a], which was the son of <u>Juda</u>[^b],
+> Which was *the son* of Aminadab, which was *the son* of Aram, which was *the son* of Esrom, which was *the son* of <u>Phares</u>[^a], which was *the son* of <u>Juda</u>[^b],
 
 [Luke 3:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.33?lang=eng#p33)
 

@@ -1,6 +1,6 @@
 # Isaiah 36:1
 
-> Now it came to pass in the <u>fourteenth</u>[^a] year of king Hezekiah, that Sennacherib king of <u>Assyria</u>[^b] came up against all the defenced cities of Judah, and took them.
+> Now it came to pass in the <u>fourteenth</u>[^a] year of king Hezekiah, *that* Sennacherib king of <u>Assyria</u>[^b] came up against all the defenced cities of Judah, and took them.
 
 [Isaiah 36:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/36.1?lang=eng#p1)
 

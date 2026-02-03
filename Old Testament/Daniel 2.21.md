@@ -1,6 +1,6 @@
 # Daniel 2:21
 
-> And he changeth the <u>times</u>[^a] and the <u>seasons</u>[^b] : he <u>removeth</u>[^c] kings, and setteth up kings: he giveth <u>wisdom</u>[^d] unto the wise, and <u>knowledge</u>[^e] to them that know understanding:
+> And he changeth the <u>times</u>[^a] and the <u>seasons</u>[^b]: he <u>removeth</u>[^c] kings, and setteth up kings: he giveth <u>wisdom</u>[^d] unto the wise, and <u>knowledge</u>[^e] to them that know understanding:
 
 [Daniel 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.21?lang=eng#p21)
 

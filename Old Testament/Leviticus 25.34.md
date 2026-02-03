@@ -1,6 +1,6 @@
 # Leviticus 25:34
 
-> But the <u>field</u>[^a] of the <u>suburbs</u>[^b] of their cities may not be sold; for it is their perpetual possession.
+> But the <u>field</u>[^a] of the <u>suburbs</u>[^b] of their cities may not be sold; for it *is* their perpetual possession.
 
 [Leviticus 25:34](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.34?lang=eng#p34)
 

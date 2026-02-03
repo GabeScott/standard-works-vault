@@ -1,6 +1,6 @@
 # Jeremiah 17:14
 
-> <u>Heal</u>[^a] me, O Lord , and I shall be healed; save me, and I shall be saved: for thou art my <u>praise</u>[^b] .
+> <u>Heal</u>[^a] me, O LORD, and I shall be healed; save me, and I shall be saved: for thou *art* my <u>praise</u>[^b].
 
 [Jeremiah 17:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # 2 Nephi 24:29
 
-> Rejoice not thou, whole Palestina, because the rod of him that <u>smote</u>[^a] thee is broken; for out of the serpent’s root shall come forth a cockatrice, and his <u>fruit</u>[^b] shall be a <u>fiery flying serpent</u>[^c] .
+> Rejoice not thou, whole Palestina, because the rod of him that <u>smote</u>[^a] thee is broken; for out of the serpent’s root shall come forth a cockatrice, and his <u>fruit</u>[^b] shall be a <u>fiery flying serpent</u>[^c].
 
 [2 Nephi 24:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p29#p29)
 

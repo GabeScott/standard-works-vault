@@ -1,6 +1,6 @@
 # Jude 1:19
 
-> These be they who <u>separate</u>[^a] themselves, sensual, having not the <u>Spirit</u>[^b] .
+> These be they who <u>separate</u>[^a] themselves, sensual, having not the <u>Spirit</u>[^b].
 
 [Jude 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.19?lang=eng#p19)
 

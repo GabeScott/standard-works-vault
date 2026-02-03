@@ -1,6 +1,6 @@
 # Jeremiah 15:16
 
-> Thy words were found, and I did <u>eat</u>[^a] them; and thy word was unto me the joy and rejoicing of mine heart: for I am called by thy <u>name</u>[^b], O Lord God of hosts.
+> Thy words were found, and I did <u>eat</u>[^a] them; and thy word was unto me the joy and rejoicing of mine heart: for I am called by thy <u>name</u>[^b], O LORD God of hosts.
 
 [Jeremiah 15:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/15.16?lang=eng#p16)
 

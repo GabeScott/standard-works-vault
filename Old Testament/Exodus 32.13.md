@@ -1,6 +1,6 @@
 # Exodus 32:13
 
-> Remember <u>Abraham</u>[^a], Isaac, and Israel, thy servants, to whom thou <u>swarest</u>[^b] by thine own self, and saidst unto them, I will <u>multiply</u>[^c] your <u>seed</u>[^d] as the stars of heaven, and all this <u>land</u>[^e] that I have spoken of will I give unto your seed, and they shall inherit it for ever.
+> Remember <u>Abraham</u>[^a], Isaac, and Israel, thy servants, to whom thou <u>swarest</u>[^b] by thine own self, and saidst unto them, I will <u>multiply</u>[^c] your <u>seed</u>[^d] as the stars of heaven, and all this <u>land</u>[^e] that I have spoken of will I give unto your seed, and they shall inherit *it* for ever.
 
 [Exodus 32:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.13?lang=eng#p13)
 

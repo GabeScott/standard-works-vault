@@ -1,6 +1,6 @@
 # John 10:14
 
-> I am the good <u>shepherd</u>[^a], and <u>know</u>[^b] my sheep, and am known of mine.
+> I am the good <u>shepherd</u>[^a], and <u>know</u>[^b] my *sheep,* and am known of mine.
 
 [John 10:14](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.14?lang=eng#p14)
 

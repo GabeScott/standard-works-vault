@@ -1,6 +1,6 @@
 # Deuteronomy 7:12
 
-> ¶ Wherefore it shall come to pass, if ye <u>hearken</u>[^a] to these <u>judgments</u>[^b], and keep, and do them, that the Lord thy God shall keep unto thee the <u>covenant</u>[^c] and the mercy which he sware unto thy fathers:
+> ¶ Wherefore it shall come to pass, if ye <u>hearken</u>[^a] to these <u>judgments</u>[^b], and keep, and do them, that the LORD thy God shall keep unto thee the <u>covenant</u>[^c] and the mercy which he sware unto thy fathers:
 
 [Deuteronomy 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.12?lang=eng#p12)
 

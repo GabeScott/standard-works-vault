@@ -1,6 +1,6 @@
 # 1 Kings 2:35
 
-> ¶ And the king put <u>Benaiah</u>[^a] the son of Jehoiada in his room over the <u>host</u>[^b] : and <u>Zadok</u>[^c] the <u>priest</u>[^d] did the king put in the room of Abiathar.
+> ¶ And the king put <u>Benaiah</u>[^a] the son of Jehoiada in his room over the <u>host</u>[^b]: and <u>Zadok</u>[^c] the <u>priest</u>[^d] did the king put in the room of Abiathar.
 
 [1 Kings 2:35](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.35?lang=eng#p35)
 

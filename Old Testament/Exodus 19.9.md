@@ -1,6 +1,6 @@
 # Exodus 19:9
 
-> And the Lord said unto Moses, Lo, I come unto thee in a thick <u>cloud</u>[^a], that the people may <u>hear</u>[^b] when I speak with thee, and believe thee for ever. And Moses told the words of the people unto the Lord .
+> And the LORD said unto Moses, Lo, I come unto thee in a thick <u>cloud</u>[^a], that the people may <u>hear</u>[^b] when I speak with thee, and believe thee for ever. And Moses told the words of the people unto the LORD.
 
 [Exodus 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.9?lang=eng#p9)
 

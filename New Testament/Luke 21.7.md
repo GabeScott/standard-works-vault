@@ -1,6 +1,6 @@
 # Luke 21:7
 
-> And they asked him, saying, Master, but when shall these things be? and what <u>sign</u>[^a] will there be when these things shall come to pass?
+> And they asked him, saying, Master, but when shall these things be? and what <u>sign</u>[^a] *will there be* when these things shall come to pass?
 
 [Luke 21:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.7?lang=eng#p7)
 

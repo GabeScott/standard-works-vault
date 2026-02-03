@@ -1,6 +1,6 @@
 # D&C 6:16
 
-> Yea, I tell thee, that thou mayest know that there is none else save God that <u>knowest</u>[^a] thy thoughts and the <u>intents</u>[^b] of thy <u>heart</u>[^c] .
+> Yea, I tell thee, that thou mayest know that there is none else save God that <u>knowest</u>[^a] thy thoughts and the <u>intents</u>[^b] of thy <u>heart</u>[^c].
 
 [D&C 6:16](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.16?lang=eng#p16)
 

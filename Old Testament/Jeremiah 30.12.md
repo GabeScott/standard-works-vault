@@ -1,6 +1,6 @@
 # Jeremiah 30:12
 
-> For thus saith the Lord , <u>Thy</u>[^a] bruise is incurable, and thy wound is grievous.
+> For thus saith the LORD, <u>Thy</u>[^a] bruise *is* incurable, *and* thy wound *is* grievous.
 
 [Jeremiah 30:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.12?lang=eng#p12)
 

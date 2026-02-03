@@ -1,6 +1,6 @@
 # John 1:12
 
-> But as many as <u>received</u>[^a] him, to them gave he <u>power</u>[^b] to become the <u>sons</u>[^c] of God, even to them that believe on his <u>name</u>[^d] :
+> But as many as <u>received</u>[^a] him, to them gave he <u>power</u>[^b] to become the <u>sons</u>[^c] of God, *even* to them that believe on his <u>name</u>[^d]:
 
 [John 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.12?lang=eng#p12)
 

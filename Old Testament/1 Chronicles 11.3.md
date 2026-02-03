@@ -1,6 +1,6 @@
 # 1 Chronicles 11:3
 
-> Therefore came all the elders of Israel to the king to Hebron; and David made a covenant with them in Hebron before the Lord ; and they anointed <u>David</u>[^a] <u>king</u>[^b] over Israel, according to the word of the Lord by Samuel.
+> Therefore came all the elders of Israel to the king to Hebron; and David made a covenant with them in Hebron before the LORD; and they anointed <u>David</u>[^a] <u>king</u>[^b] over Israel, according to the word of the LORD by Samuel.
 
 [1 Chronicles 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/11.3?lang=eng#p3)
 

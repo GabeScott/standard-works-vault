@@ -1,6 +1,6 @@
 # Genesis 18:2
 
-> And he lift up his eyes and looked, and, lo, three <u>men</u>[^a] stood by him: and when he saw them, he ran to meet them from the tent door, and <u>bowed</u>[^b] himself toward the ground,
+> And he lift up his eyes and looked, and, lo, three <u>men</u>[^a] stood by him: and when he saw *them,* he ran to meet them from the tent door, and <u>bowed</u>[^b] himself toward the ground,
 
 [Genesis 18:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.2?lang=eng#p2)
 

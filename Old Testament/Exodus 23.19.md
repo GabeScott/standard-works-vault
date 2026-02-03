@@ -1,6 +1,6 @@
 # Exodus 23:19
 
-> The first of the <u>firstfruits</u>[^a] of thy land thou shalt bring into the house of the Lord thy God. Thou shalt not <u>seethe</u>[^b] a kid in his mother’s milk.
+> The first of the <u>firstfruits</u>[^a] of thy land thou shalt bring into the house of the LORD thy God. Thou shalt not <u>seethe</u>[^b] a kid in his mother’s milk.
 
 [Exodus 23:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.19?lang=eng#p19)
 

@@ -1,6 +1,6 @@
 # Amos 3:8
 
-> The lion hath roared, who will not fear? the Lord God hath spoken, who can but <u>prophesy</u>[^a] ?
+> The lion hath roared, who will not fear? the Lord GOD hath spoken, who can but <u>prophesy</u>[^a]?
 
 [Amos 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.8?lang=eng#p8)
 

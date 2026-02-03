@@ -1,6 +1,6 @@
 # 1 Corinthians 9:5
 
-> Have we not power to lead about a sister, a <u>wife</u>[^a], as well as other apostles, and as the <u>brethren</u>[^b] of the Lord, and Cephas?
+> Have we not power to lead about a sister, a <u>wife</u>[^a], as well as other apostles, and *as* the <u>brethren</u>[^b] of the Lord, and Cephas?
 
 [1 Corinthians 9:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.5?lang=eng#p5)
 

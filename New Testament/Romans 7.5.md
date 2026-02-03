@@ -1,6 +1,6 @@
 # Romans 7:5
 
-> <u>For</u>[^a] when we were in the flesh, the <u>motions of sins</u>[^b], which were by the law, did work in our members to bring forth fruit unto <u>death</u>[^c] .
+> <u>For</u>[^a] when we were in the flesh, the <u>motions of sins</u>[^b], which were by the law, did work in our members to bring forth fruit unto <u>death</u>[^c].
 
 [Romans 7:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.5?lang=eng#p5)
 

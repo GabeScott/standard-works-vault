@@ -1,6 +1,6 @@
 # Psalms 136:25
 
-> Who giveth <u>food</u>[^a] to all <u>flesh</u>[^b] : for his mercy endureth for ever.
+> Who giveth <u>food</u>[^a] to all <u>flesh</u>[^b]: for his mercy *endureth* for ever.
 
 [Psalms 136:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.25?lang=eng#p25)
 

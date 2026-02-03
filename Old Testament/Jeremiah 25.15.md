@@ -1,6 +1,6 @@
 # Jeremiah 25:15
 
-> ¶ For thus saith the Lord God of Israel unto me; Take the wine <u>cup</u>[^a] of this fury at my hand, and cause all the <u>nations</u>[^b], to whom I send thee, to drink it.
+> ¶ For thus saith the LORD God of Israel unto me; Take the wine <u>cup</u>[^a] of this fury at my hand, and cause all the <u>nations</u>[^b], to whom I send thee, to drink it.
 
 [Jeremiah 25:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.15?lang=eng#p15)
 

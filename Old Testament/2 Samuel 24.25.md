@@ -1,6 +1,6 @@
 # 2 Samuel 24:25
 
-> And David built there an <u>altar</u>[^a] unto the Lord , and offered burnt offerings and peace <u>offerings</u>[^b] . So the Lord was entreated for the land, and the plague was stayed from Israel.
+> And David built there an <u>altar</u>[^a] unto the LORD, and offered burnt offerings and peace <u>offerings</u>[^b]. So the LORD was entreated for the land, and the plague was stayed from Israel.
 
 [2 Samuel 24:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/24.25?lang=eng#p25)
 

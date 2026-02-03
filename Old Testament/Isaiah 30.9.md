@@ -1,6 +1,6 @@
 # Isaiah 30:9
 
-> That <u>this</u>[^a] is a <u>rebellious</u>[^b] people, lying children, children that will not hear the law of the Lord :
+> That <u>this</u>[^a] *is* a <u>rebellious</u>[^b] people, lying children, children *that* will not hear the law of the LORD:
 
 [Isaiah 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.9?lang=eng#p9)
 

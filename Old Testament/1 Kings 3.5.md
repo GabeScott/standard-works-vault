@@ -1,6 +1,6 @@
 # 1 Kings 3:5
 
-> ¶ In <u>Gibeon</u>[^a] the Lord <u>appeared</u>[^b] to Solomon in a <u>dream</u>[^c] by night: and God said, Ask what I shall give thee.
+> ¶ In <u>Gibeon</u>[^a] the LORD <u>appeared</u>[^b] to Solomon in a <u>dream</u>[^c] by night: and God said, Ask what I shall give thee.
 
 [1 Kings 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/3.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Luke 14:27
 
-> And whosoever doth not bear his <u>cross</u>[^a], and come after me, cannot be my <u>disciple</u>[^b] .
+> And whosoever doth not bear his <u>cross</u>[^a], and come after me, cannot be my <u>disciple</u>[^b].
 
 [Luke 14:27](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.27?lang=eng#p27)
 

@@ -1,6 +1,6 @@
 # Jeremiah 50:4
 
-> ¶ In those days, and in that time, saith the Lord , the children of Israel shall <u>come</u>[^a], they and the children of Judah <u>together</u>[^b], going and <u>weeping</u>[^c] : they shall go, and seek the Lord their God.
+> ¶ In those days, and in that time, saith the LORD, the children of Israel shall <u>come</u>[^a], they and the children of Judah <u>together</u>[^b], going and <u>weeping</u>[^c]: they shall go, and seek the LORD their God.
 
 [Jeremiah 50:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.4?lang=eng#p4)
 

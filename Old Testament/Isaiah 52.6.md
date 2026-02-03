@@ -1,6 +1,6 @@
 # Isaiah 52:6
 
-> Therefore my people shall know my name: therefore they shall know in that <u>day</u>[^a] that I am he that doth speak: behold, it is I.
+> Therefore my people shall know my name: therefore *they shall know* in that <u>day</u>[^a] that I *am* he that doth speak: behold, *it is* I.
 
 [Isaiah 52:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.6?lang=eng#p6)
 

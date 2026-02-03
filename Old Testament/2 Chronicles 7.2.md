@@ -1,6 +1,6 @@
 # 2 Chronicles 7:2
 
-> And the priests could not enter into the house of the Lord , because the <u>glory</u>[^a] of the Lord had filled the Lord ’s house.
+> And the priests could not enter into the house of the LORD, because the <u>glory</u>[^a] of the LORD had filled the LORD’s house.
 
 [2 Chronicles 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.2?lang=eng#p2)
 

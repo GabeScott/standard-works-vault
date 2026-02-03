@@ -1,6 +1,6 @@
 # Deuteronomy 16:2
 
-> Thou shalt therefore sacrifice the <u>passover</u>[^a] unto the Lord thy God, of the flock and the herd, in the <u>place</u>[^b] which the Lord shall choose to place his name there.
+> Thou shalt therefore sacrifice the <u>passover</u>[^a] unto the LORD thy God, of the flock and the herd, in the <u>place</u>[^b] which the LORD shall choose to place his name there.
 
 [Deuteronomy 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.2?lang=eng#p2)
 

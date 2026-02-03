@@ -1,6 +1,6 @@
 # Genesis 22:16
 
-> And said, By myself have I <u>sworn</u>[^a], saith the Lord , for because thou hast done this thing, and hast not withheld thy son, thine only son:
+> And said, By myself have I <u>sworn</u>[^a], saith the LORD, for because thou hast done this thing, and hast not withheld thy son, thine only *son:*
 
 [Genesis 22:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.16?lang=eng#p16)
 

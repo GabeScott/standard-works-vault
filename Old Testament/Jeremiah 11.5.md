@@ -1,6 +1,6 @@
 # Jeremiah 11:5
 
-> That I may perform the <u>oath</u>[^a] which I have sworn unto your fathers, to give them a <u>land</u>[^b] <u>flowing</u>[^c] with milk and honey, as it is this day. Then answered I, and said, So be it, O Lord .
+> That I may perform the <u>oath</u>[^a] which I have sworn unto your fathers, to give them a <u>land</u>[^b] <u>flowing</u>[^c] with milk and honey, as *it is* this day. Then answered I, and said, So be it, O LORD.
 
 [Jeremiah 11:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.5?lang=eng#p5)
 

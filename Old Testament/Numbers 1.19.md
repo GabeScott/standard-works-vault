@@ -1,6 +1,6 @@
 # Numbers 1:19
 
-> As the Lord commanded Moses, so he <u>numbered</u>[^a] them in the wilderness of Sinai.
+> As the LORD commanded Moses, so he <u>numbered</u>[^a] them in the wilderness of Sinai.
 
 [Numbers 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.19?lang=eng#p19)
 

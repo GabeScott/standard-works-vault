@@ -1,6 +1,6 @@
 # Leviticus 22:2
 
-> Speak unto Aaron and to his sons, that they separate themselves from the <u>holy</u>[^a] things of the children of Israel, and that they <u>profane</u>[^b] not my holy name in those things <u>which</u>[^c] they hallow unto me: I am the Lord .
+> Speak unto Aaron and to his sons, that they separate themselves from the <u>holy</u>[^a] things of the children of Israel, and that they <u>profane</u>[^b] not my holy name *in those things* <u>which</u>[^c] they hallow unto me: I *am* the LORD.
 
 [Leviticus 22:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.2?lang=eng#p2)
 

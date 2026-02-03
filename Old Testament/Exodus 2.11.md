@@ -1,6 +1,6 @@
 # Exodus 2:11
 
-> ¶ And it came to pass in those days, when Moses was grown, that he went out unto his <u>brethren</u>[^a], and looked on their <u>burdens</u>[^b] : and he spied an Egyptian smiting an Hebrew, one of his brethren.
+> ¶ And it came to pass in those days, when Moses was grown, that he went out unto his <u>brethren</u>[^a], and looked on their <u>burdens</u>[^b]: and he spied an Egyptian smiting an Hebrew, one of his brethren.
 
 [Exodus 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.11?lang=eng#p11)
 

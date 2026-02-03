@@ -1,6 +1,6 @@
 # 2 Samuel 24:1
 
-> And again the anger of the Lord was kindled against Israel, and <u>he</u>[^a] moved David against them to say, Go, <u>number</u>[^b] Israel and Judah.
+> And again the anger of the LORD was kindled against Israel, and <u>he</u>[^a] moved David against them to say, Go, <u>number</u>[^b] Israel and Judah.
 
 [2 Samuel 24:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/24.1?lang=eng#p1)
 

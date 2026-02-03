@@ -1,6 +1,6 @@
 # Ezekiel 34:10
 
-> Thus saith the Lord God ; Behold, I am against the shepherds; and I will <u>require</u>[^a] my flock at their hand, and cause them to <u>cease</u>[^b] from feeding the flock; neither shall the shepherds feed themselves any more; for I will deliver my flock from their mouth, that they may not be meat for them.
+> Thus saith the Lord GOD; Behold, I *am* against the shepherds; and I will <u>require</u>[^a] my flock at their hand, and cause them to <u>cease</u>[^b] from feeding the flock; neither shall the shepherds feed themselves any more; for I will deliver my flock from their mouth, that they may not be meat for them.
 
 [Ezekiel 34:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.10?lang=eng#p10)
 

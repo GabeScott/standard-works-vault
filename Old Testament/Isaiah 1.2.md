@@ -1,6 +1,6 @@
 # Isaiah 1:2
 
-> <u>Hear</u>[^a], O heavens, and give ear, O earth: for the Lord hath spoken, I have nourished and brought up children, and they have <u>rebelled</u>[^b] against me.
+> <u>Hear</u>[^a], O heavens, and give ear, O earth: for the LORD hath spoken, I have nourished and brought up children, and they have <u>rebelled</u>[^b] against me.
 
 [Isaiah 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.2?lang=eng#p2)
 

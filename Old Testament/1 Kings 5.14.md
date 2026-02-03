@@ -1,6 +1,6 @@
 # 1 Kings 5:14
 
-> And he sent them to Lebanon, ten thousand a month by courses: a month they were in Lebanon, and two months at home: and <u>Adoniram</u>[^a] was over the levy.
+> And he sent them to Lebanon, ten thousand a month by courses: a month they were in Lebanon, *and* two months at home: and <u>Adoniram</u>[^a] *was* over the levy.
 
 [1 Kings 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/5.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # D&C 9:2
 
-> And then, behold, <u>other</u>[^a] <u>records</u>[^b] have I, that I will give unto you power that you may assist to <u>translate</u>[^c] .
+> And then, behold, <u>other</u>[^a] <u>records</u>[^b] have I, that I will give unto you power that you may assist to <u>translate</u>[^c].
 
 [D&C 9:2](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/9.2?lang=eng#p2)
 

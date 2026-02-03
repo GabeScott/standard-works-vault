@@ -1,6 +1,6 @@
 # Alma 42:7
 
-> And now, ye see by this that our first parents were <u>cut off</u>[^a] both temporally and spiritually from the <u>presence</u>[^b] of the Lord; and thus we see they became subjects to follow after their own <u>will</u>[^c] .
+> And now, ye see by this that our first parents were <u>cut off</u>[^a] both temporally and spiritually from the <u>presence</u>[^b] of the Lord; and thus we see they became subjects to follow after their own <u>will</u>[^c].
 
 [Alma 42:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p7#p7)
 

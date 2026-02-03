@@ -1,6 +1,6 @@
 # Genesis 24:36
 
-> And Sarah my master’s wife bare a <u>son</u>[^a] to my master when she was <u>old</u>[^b] : and unto him hath he <u>given</u>[^c] all that he hath.
+> And Sarah my master’s wife bare a <u>son</u>[^a] to my master when she was <u>old</u>[^b]: and unto him hath he <u>given</u>[^c] all that he hath.
 
 [Genesis 24:36](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.36?lang=eng#p36)
 

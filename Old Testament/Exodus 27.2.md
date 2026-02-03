@@ -1,6 +1,6 @@
 # Exodus 27:2
 
-> And thou shalt make the <u>horns</u>[^a] of it upon the four corners thereof: his horns shall be <u>of the same</u>[^b] : and thou shalt overlay it with <u>brass</u>[^c] .
+> And thou shalt make the <u>horns</u>[^a] of it upon the four corners thereof: his horns shall be <u>of the same</u>[^b]: and thou shalt overlay it with <u>brass</u>[^c].
 
 [Exodus 27:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/27.2?lang=eng#p2)
 

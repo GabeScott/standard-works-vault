@@ -1,6 +1,6 @@
 # Deuteronomy 5:5
 
-> (I stood between the Lord and you at that time, to <u>shew</u>[^a] you the word of the Lord : for ye were <u>afraid</u>[^b] by reason of the fire, and went not up into the mount;) saying,
+> (I stood between the LORD and you at that time, to <u>shew</u>[^a] you the word of the LORD: for ye were <u>afraid</u>[^b] by reason of the fire, and went not up into the mount;) saying,
 
 [Deuteronomy 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.5?lang=eng#p5)
 

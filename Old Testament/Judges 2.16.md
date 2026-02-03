@@ -1,6 +1,6 @@
 # Judges 2:16
 
-> ¶ Nevertheless the Lord raised up <u>judges</u>[^a], which <u>delivered</u>[^b] them out of the hand of those that spoiled them.
+> ¶ Nevertheless the LORD raised up <u>judges</u>[^a], which <u>delivered</u>[^b] them out of the hand of those that spoiled them.
 
 [Judges 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.16?lang=eng#p16)
 

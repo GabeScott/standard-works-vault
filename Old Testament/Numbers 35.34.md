@@ -1,6 +1,6 @@
 # Numbers 35:34
 
-> <u>Defile</u>[^a] not therefore the land which ye shall inhabit, wherein I dwell: for I the Lord dwell <u>among</u>[^b] the children of Israel.
+> <u>Defile</u>[^a] not therefore the land which ye shall inhabit, wherein I dwell: for I the LORD dwell <u>among</u>[^b] the children of Israel.
 
 [Numbers 35:34](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.34?lang=eng#p34)
 

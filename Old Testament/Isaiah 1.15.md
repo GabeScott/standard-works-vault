@@ -1,6 +1,6 @@
 # Isaiah 1:15
 
-> And when ye spread forth your hands, I will hide mine eyes from you: yea, when ye make many <u>prayers</u>[^a], I will not hear: your hands are full of <u>blood</u>[^b] .
+> And when ye spread forth your hands, I will hide mine eyes from you: yea, when ye make many <u>prayers</u>[^a], I will not hear: your hands are full of <u>blood</u>[^b].
 
 [Isaiah 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.15?lang=eng#p15)
 

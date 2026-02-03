@@ -1,6 +1,6 @@
 # 2 Kings 3:13
 
-> And Elisha said unto the king of Israel, What have I to do with <u>thee</u>[^a] ? <u>get</u>[^b] thee to the prophets of thy father, and to the prophets of thy mother. And the king of Israel said unto him, Nay: for the Lord hath called these three kings together, to deliver them into the hand of Moab.
+> And Elisha said unto the king of Israel, What have I to do with <u>thee</u>[^a]? <u>get</u>[^b] thee to the prophets of thy father, and to the prophets of thy mother. And the king of Israel said unto him, Nay: for the LORD hath called these three kings together, to deliver them into the hand of Moab.
 
 [2 Kings 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/3.13?lang=eng#p13)
 

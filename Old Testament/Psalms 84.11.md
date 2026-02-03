@@ -1,6 +1,6 @@
 # Psalms 84:11
 
-> For the Lord God is a <u>sun</u>[^a] and <u>shield</u>[^b] : the Lord will give <u>grace</u>[^c] and glory: no good thing will he <u>withhold</u>[^d] from them that <u>walk</u>[^e] uprightly.
+> For the LORD God *is* a <u>sun</u>[^a] and <u>shield</u>[^b]: the LORD will give <u>grace</u>[^c] and glory: no good *thing* will he <u>withhold</u>[^d] from them that <u>walk</u>[^e] uprightly.
 
 [Psalms 84:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/84.11?lang=eng#p11)
 

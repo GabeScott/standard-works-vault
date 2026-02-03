@@ -1,6 +1,6 @@
 # Lamentations 2:10
 
-> The elders of the daughter of Zion sit upon the <u>ground</u>[^a], and keep <u>silence</u>[^b] : they have cast up dust upon their heads; they have girded themselves with <u>sackcloth</u>[^c] : the virgins of Jerusalem hang down their heads to the ground.
+> The elders of the daughter of Zion sit upon the <u>ground</u>[^a], *and* keep <u>silence</u>[^b]: they have cast up dust upon their heads; they have girded themselves with <u>sackcloth</u>[^c]: the virgins of Jerusalem hang down their heads to the ground.
 
 [Lamentations 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.10?lang=eng#p10)
 

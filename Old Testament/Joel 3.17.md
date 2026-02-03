@@ -1,6 +1,6 @@
 # Joel 3:17
 
-> So shall ye know that I am the Lord your God <u>dwelling</u>[^a] in Zion, my holy <u>mountain</u>[^b] : then shall <u>Jerusalem</u>[^c] be holy, and there shall no <u>strangers</u>[^d] pass through her any more.
+> So shall ye know that I *am* the LORD your God <u>dwelling</u>[^a] in Zion, my holy <u>mountain</u>[^b]: then shall <u>Jerusalem</u>[^c] be holy, and there shall no <u>strangers</u>[^d] pass through her any more.
 
 [Joel 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.17?lang=eng#p17)
 

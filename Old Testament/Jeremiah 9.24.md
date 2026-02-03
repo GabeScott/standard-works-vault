@@ -1,6 +1,6 @@
 # Jeremiah 9:24
 
-> But let him that glorieth <u>glory</u>[^a] in this, that he understandeth and knoweth me, that I am the Lord which exercise lovingkindness, judgment, and righteousness, in the earth: for in these things I <u>delight</u>[^b], saith the Lord .
+> But let him that glorieth <u>glory</u>[^a] in this, that he understandeth and knoweth me, that I *am* the LORD which exercise lovingkindness, judgment, and righteousness, in the earth: for in these *things* I <u>delight</u>[^b], saith the LORD.
 
 [Jeremiah 9:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.24?lang=eng#p24)
 

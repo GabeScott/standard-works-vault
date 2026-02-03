@@ -1,6 +1,6 @@
 # John 8:11
 
-> She said, No man, Lord. And Jesus said unto her, Neither do I <u>condemn</u>[^a] thee: go, and <u>sin</u>[^b] no <u>more</u>[^c] .
+> She said, No man, Lord. And Jesus said unto her, Neither do I <u>condemn</u>[^a] thee: go, and <u>sin</u>[^b] no <u>more</u>[^c].
 
 [John 8:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Amos 7:15
 
-> And the Lord took me as I followed the flock, and the Lord said unto me, <u>Go</u>[^b], <u>prophesy</u>[^c] unto my people Israel.
+> And the LORD took me as I followed the flock, and the <u>Lord</u>[^a] said unto me, <u>Go</u>[^b], <u>prophesy</u>[^c] unto my people Israel.
 
 [Amos 7:15](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.15?lang=eng#p15)
 

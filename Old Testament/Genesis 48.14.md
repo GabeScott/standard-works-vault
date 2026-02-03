@@ -1,6 +1,6 @@
 # Genesis 48:14
 
-> And Israel stretched out his right hand, and laid it upon <u>Ephraim’s</u>[^a] head, who was the younger, and his left hand upon Manasseh’s head, <u>guiding his hands</u>[^b] wittingly; for Manasseh was the firstborn.
+> And Israel stretched out his right hand, and laid *it* upon <u>Ephraim’s</u>[^a] head, who *was* the younger, and his left hand upon Manasseh’s head, <u>guiding his hands</u>[^b] wittingly; for Manasseh *was* the firstborn.
 
 [Genesis 48:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.14?lang=eng#p14)
 

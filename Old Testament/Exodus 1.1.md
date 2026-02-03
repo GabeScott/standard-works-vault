@@ -1,6 +1,6 @@
 # Exodus 1:1
 
-> Now these are the <u>names</u>[^a] of the <u>children of Israel</u>[^b], which came <u>into</u>[^c] <u>Egypt</u>[^d]; every man and his household came with Jacob.
+> Now these *are* the <u>names</u>[^a] of the <u>children of Israel</u>[^b], which came <u>into</u>[^c] <u>Egypt</u>[^d]; every man and his household came with Jacob.
 
 [Exodus 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.1?lang=eng#p1)
 

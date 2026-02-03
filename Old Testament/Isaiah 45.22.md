@@ -1,6 +1,6 @@
 # Isaiah 45:22
 
-> <u>Look</u>[^a] unto me, and be ye <u>saved</u>[^b], all the ends of the earth: for I am God, and there is none else.
+> <u>Look</u>[^a] unto me, and be ye <u>saved</u>[^b], all the ends of the earth: for I *am* God, and *there is* none else.
 
 [Isaiah 45:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.22?lang=eng#p22)
 

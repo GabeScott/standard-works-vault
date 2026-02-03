@@ -1,6 +1,6 @@
 # 2 Samuel 6:17
 
-> ¶ And they brought in the <u>ark</u>[^a] of the Lord , and set it in his place, in the midst of the tabernacle that David had pitched for it: and David offered burnt offerings and peace offerings before the Lord .
+> ¶ And they brought in the <u>ark</u>[^a] of the LORD, and set it in his place, in the midst of the tabernacle that David had pitched for it: and David offered burnt offerings and peace offerings before the LORD.
 
 [2 Samuel 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.17?lang=eng#p17)
 

@@ -1,6 +1,6 @@
 # Acts 23:11
 
-> And the night following the <u>Lord</u>[^a] <u>stood</u>[^b] by him, and said, Be of good <u>cheer</u>[^c], Paul: for as thou hast testified of me in Jerusalem, so must thou bear witness also at <u>Rome</u>[^d] .
+> And the night following the <u>Lord</u>[^a] <u>stood</u>[^b] by him, and said, Be of good <u>cheer</u>[^c], Paul: for as thou hast testified of me in Jerusalem, so must thou bear witness also at <u>Rome</u>[^d].
 
 [Acts 23:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.11?lang=eng#p11)
 

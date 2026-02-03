@@ -1,6 +1,6 @@
 # Ezekiel 19:4
 
-> The nations also heard of him; he was taken in their pit, and they brought him with <u>chains</u>[^a] unto the land of <u>Egypt</u>[^b] .
+> The nations also heard of him; he was taken in their pit, and they brought him with <u>chains</u>[^a] unto the land of <u>Egypt</u>[^b].
 
 [Ezekiel 19:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/19.4?lang=eng#p4)
 

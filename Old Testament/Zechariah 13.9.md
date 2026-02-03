@@ -1,6 +1,6 @@
 # Zechariah 13:9
 
-> And I will bring the third part through the fire, and will <u>refine</u>[^a] them as silver is refined, and will <u>try</u>[^b] them as gold is <u>tried</u>[^c] : they shall call on my name, and I will hear them: I will say, It is my <u>people</u>[^d] : and they shall say, The Lord is my God.
+> And I will bring the third part through the fire, and will <u>refine</u>[^a] them as silver is refined, and will <u>try</u>[^b] them as gold is <u>tried</u>[^c]: they shall call on my name, and I will hear them: I will say, It *is* my <u>people</u>[^d]: and they shall say, The LORD *is* my God.
 
 [Zechariah 13:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/13.9?lang=eng#p9)
 

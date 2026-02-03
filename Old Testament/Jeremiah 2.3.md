@@ -1,6 +1,6 @@
 # Jeremiah 2:3
 
-> Israel was <u>holiness</u>[^a] unto the Lord , and the firstfruits of his increase: all that devour him shall offend; evil shall come upon them, saith the Lord .
+> Israel *was* <u>holiness</u>[^a] unto the LORD, *and* the firstfruits of his increase: all that devour him shall offend; evil shall come upon them, saith the LORD.
 
 [Jeremiah 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.3?lang=eng#p3)
 

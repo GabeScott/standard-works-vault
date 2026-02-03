@@ -1,6 +1,6 @@
 # Jonah 3:3
 
-> So Jonah arose, and went unto Nineveh, according to the word of the Lord . Now Nineveh was an <u>exceeding great city</u>[^a] of three days’ <u>journey</u>[^b] .
+> So Jonah arose, and went unto Nineveh, according to the word of the LORD. Now Nineveh was an <u>exceeding great city</u>[^a] of three days’ <u>journey</u>[^b].
 
 [Jonah 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/3.3?lang=eng#p3)
 

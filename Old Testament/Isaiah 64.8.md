@@ -1,6 +1,6 @@
 # Isaiah 64:8
 
-> But now, O Lord , thou art our <u>father</u>[^a]; we are the clay, and thou our potter; and we all are the <u>work</u>[^b] of thy hand.
+> But now, O LORD, thou *art* our <u>father</u>[^a]; we *are* the clay, and thou our potter; and we all *are* the <u>work</u>[^b] of thy hand.
 
 [Isaiah 64:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/64.8?lang=eng#p8)
 

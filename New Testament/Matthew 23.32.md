@@ -1,6 +1,6 @@
 # Matthew 23:32
 
-> Fill ye up then the <u>measure</u>[^a] of your <u>fathers</u>[^b] .
+> Fill ye up then the <u>measure</u>[^a] of your <u>fathers</u>[^b].
 
 [Matthew 23:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.32?lang=eng#p32)
 

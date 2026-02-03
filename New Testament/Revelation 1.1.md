@@ -1,6 +1,6 @@
 # Revelation 1:1
 
-> <u>The</u>[^a] <u>Revelation</u>[^b] of Jesus Christ, which God gave unto him, to shew unto his <u>servants</u>[^c] things which must <u>shortly</u>[^d] come to pass; and he sent and signified it by his <u>angel</u>[^e] unto his servant John:
+> <u>The</u>[^a] <u>Revelation</u>[^b] of Jesus Christ, which God gave unto him, to shew unto his <u>servants</u>[^c] things which must <u>shortly</u>[^d] come to pass; and he sent and signified *it* by his <u>angel</u>[^e] unto his servant John:
 
 [Revelation 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.1?lang=eng#p1)
 

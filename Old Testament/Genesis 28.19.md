@@ -1,6 +1,6 @@
 # Genesis 28:19
 
-> And he called the name of that place <u>Beth-el</u>[^a] : but the name of that city was called <u>Luz</u>[^b] at the first.
+> And he called the name of that place <u>Beth-el</u>[^a]: but the name of that city *was called* <u>Luz</u>[^b] at the first.
 
 [Genesis 28:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.19?lang=eng#p19)
 

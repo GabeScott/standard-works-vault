@@ -1,6 +1,6 @@
 # 2 Chronicles 24:19
 
-> Yet he <u>sent</u>[^a] <u>prophets</u>[^b] to them, to bring them again unto the Lord ; and they <u>testified</u>[^c] against them: but they would not give ear.
+> Yet he <u>sent</u>[^a] <u>prophets</u>[^b] to them, to bring them again unto the LORD; and they <u>testified</u>[^c] against them: but they would not give ear.
 
 [2 Chronicles 24:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/24.19?lang=eng#p19)
 

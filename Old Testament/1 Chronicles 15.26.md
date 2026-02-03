@@ -1,6 +1,6 @@
 # 1 Chronicles 15:26
 
-> And it came to pass, when God helped the Levites that bare the ark of the covenant of the Lord , that they <u>offered</u>[^a] <u>seven</u>[^b] bullocks and seven rams.
+> And it came to pass, when God helped the Levites that bare the ark of the covenant of the LORD, that they <u>offered</u>[^a] <u>seven</u>[^b] bullocks and seven rams.
 
 [1 Chronicles 15:26](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/15.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # 1 Peter 3:20
 
-> <u>Which</u>[^a] sometime were <u>disobedient</u>[^b], when once the <u>longsuffering</u>[^c] of God waited in the days of <u>Noah</u>[^d], while the ark was a preparing, wherein few, that is, eight souls were <u>saved</u>[^e] by <u>water</u>[^f] .
+> <u>Which</u>[^a] sometime were <u>disobedient</u>[^b], when once the <u>longsuffering</u>[^c] of God waited in the days of <u>Noah</u>[^d], while the ark was a preparing, wherein few, that is, eight souls were <u>saved</u>[^e] by <u>water</u>[^f].
 
 [1 Peter 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # 1 Samuel 15:11
 
-> <u>It</u>[^a] <u>repenteth</u>[^b] me that I have set up Saul to be king: for he is turned back from following me, and hath not performed my commandments. And it grieved Samuel; and he cried unto the Lord all night.
+> <u>It</u>[^a] <u>repenteth</u>[^b] me that I have set up Saul *to be* king: for he is turned back from following me, and hath not performed my commandments. And it grieved Samuel; and he cried unto the LORD all night.
 
 [1 Samuel 15:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.11?lang=eng#p11)
 

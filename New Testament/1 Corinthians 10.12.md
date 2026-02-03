@@ -1,6 +1,6 @@
 # 1 Corinthians 10:12
 
-> Wherefore let him that thinketh he <u>standeth</u>[^a] take heed lest he <u>fall</u>[^b] .
+> Wherefore let him that thinketh he <u>standeth</u>[^a] take heed lest he <u>fall</u>[^b].
 
 [1 Corinthians 10:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.12?lang=eng#p12)
 

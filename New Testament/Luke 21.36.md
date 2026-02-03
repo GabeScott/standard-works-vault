@@ -1,6 +1,6 @@
 # Luke 21:36
 
-> <u>Watch</u>[^a] ye therefore, and <u>pray</u>[^b] always, <u>that ye</u>[^c] may be accounted <u>worthy</u>[^d] to escape all these things that shall come to pass, and to stand before the <u>Son of man</u>[^e] .
+> <u>Watch</u>[^a] ye therefore, and <u>pray</u>[^b] always, <u>that ye</u>[^c] may be accounted <u>worthy</u>[^d] to escape all these things that shall come to pass, and to stand before the <u>Son of man</u>[^e].
 
 [Luke 21:36](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.36?lang=eng#p36)
 

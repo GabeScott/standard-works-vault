@@ -1,6 +1,6 @@
 # Matthew 9:18
 
-> ¶ While he spake these things unto them, behold, there came a certain <u>ruler</u>[^a], and worshipped him, saying, <u>My</u>[^b] daughter is even now dead: but come and lay thy <u>hand</u>[^c] upon her, and she shall <u>live</u>[^d] .
+> ¶ While he spake these things unto them, behold, there came a certain <u>ruler</u>[^a], and worshipped him, saying, <u>My</u>[^b] daughter is even now dead: but come and lay thy <u>hand</u>[^c] upon her, and she shall <u>live</u>[^d].
 
 [Matthew 9:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.18?lang=eng#p18)
 

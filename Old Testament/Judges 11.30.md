@@ -1,6 +1,6 @@
 # Judges 11:30
 
-> And Jephthah <u>vowed</u>[^a] a vow unto the Lord , and said, If thou shalt without fail deliver the children of Ammon into mine hands,
+> And Jephthah <u>vowed</u>[^a] a vow unto the LORD, and said, If thou shalt without fail deliver the children of Ammon into mine hands,
 
 [Judges 11:30](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.30?lang=eng#p30)
 

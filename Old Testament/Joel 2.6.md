@@ -1,6 +1,6 @@
 # Joel 2:6
 
-> Before their face the people shall be much pained: all faces shall gather <u>blackness</u>[^a] .
+> Before their face the people shall be much pained: all faces shall gather <u>blackness</u>[^a].
 
 [Joel 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Luke 16:15
 
-> And he said unto them, Ye are they which <u>justify</u>[^a] yourselves before men; but God <u>knoweth</u>[^b] your <u>hearts</u>[^c] : for that which is highly esteemed among <u>men</u>[^d] is <u>abomination</u>[^e] in the sight of God.
+> And he said unto them, Ye are they which <u>justify</u>[^a] yourselves before men; but God <u>knoweth</u>[^b] your <u>hearts</u>[^c]: for that which is highly esteemed among <u>men</u>[^d] is <u>abomination</u>[^e] in the sight of God.
 
 [Luke 16:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.15?lang=eng#p15)
 

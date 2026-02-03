@@ -1,6 +1,6 @@
 # Isaiah 33:2
 
-> O Lord , be gracious unto us; we have <u>waited</u>[^a] for thee: be thou their <u>arm</u>[^b] every morning, our salvation also in the time of trouble.
+> O LORD, be gracious unto us; we have <u>waited</u>[^a] for thee: be thou their <u>arm</u>[^b] every morning, our salvation also in the time of trouble.
 
 [Isaiah 33:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.2?lang=eng#p2)
 

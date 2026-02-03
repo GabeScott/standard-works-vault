@@ -1,6 +1,6 @@
 # Genesis 32:29
 
-> And Jacob asked him, and said, Tell me, I pray thee, thy name. And he said, Wherefore is it that thou dost ask after my <u>name</u>[^a] ? And he <u>blessed</u>[^b] him there.
+> And Jacob asked *him,* and said, Tell *me,* I pray thee, thy name. And he said, Wherefore *is* it *that* thou dost ask after my <u>name</u>[^a]? And he <u>blessed</u>[^b] him there.
 
 [Genesis 32:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.29?lang=eng#p29)
 

@@ -1,6 +1,6 @@
 # Genesis 44:18
 
-> ¶ Then Judah came near unto him, and said, Oh my <u>lord</u>[^a], let thy servant, I pray thee, speak a word in my lord’s ears, and let not thine <u>anger</u>[^b] burn against thy servant: for thou art even as Pharaoh.
+> ¶ Then Judah came near unto him, and said, Oh my <u>lord</u>[^a], let thy servant, I pray thee, speak a word in my lord’s ears, and let not thine <u>anger</u>[^b] burn against thy servant: for thou *art* even as Pharaoh.
 
 [Genesis 44:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/44.18?lang=eng#p18)
 

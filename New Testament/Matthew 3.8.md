@@ -1,6 +1,6 @@
 # Matthew 3:8
 
-> <u>Bring</u>[^a] forth therefore fruits <u>meet for</u>[^b] <u>repentance</u>[^c] :
+> <u>Bring</u>[^a] forth therefore fruits <u>meet for</u>[^b] <u>repentance</u>[^c]:
 
 [Matthew 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.8?lang=eng#p8)
 

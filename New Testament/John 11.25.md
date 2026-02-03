@@ -1,6 +1,6 @@
 # John 11:25
 
-> Jesus said unto her, I am the <u>resurrection</u>[^a], and the <u>life</u>[^b] : he that <u>believeth</u>[^c] in me, though he were <u>dead</u>[^d], yet shall he <u>live</u>[^e] :
+> Jesus said unto her, I am the <u>resurrection</u>[^a], and the <u>life</u>[^b]: he that <u>believeth</u>[^c] in me, though he were <u>dead</u>[^d], yet shall he <u>live</u>[^e]:
 
 [John 11:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.25?lang=eng#p25)
 

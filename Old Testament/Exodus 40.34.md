@@ -1,6 +1,6 @@
 # Exodus 40:34
 
-> ¶ Then a <u>cloud</u>[^a] covered the tent of the congregation, and the <u>glory</u>[^b] of the Lord <u>filled</u>[^c] the <u>tabernacle</u>[^d] .
+> ¶ Then a <u>cloud</u>[^a] covered the tent of the congregation, and the <u>glory</u>[^b] of the LORD <u>filled</u>[^c] the <u>tabernacle</u>[^d].
 
 [Exodus 40:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.34?lang=eng#p34)
 

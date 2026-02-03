@@ -1,6 +1,6 @@
 # Joshua 11:6
 
-> ¶ And the Lord said unto Joshua, Be not afraid because of them: for to morrow about this time will I <u>deliver</u>[^a] them up all slain before Israel: thou shalt <u>hough</u>[^b] their horses, and burn their chariots with fire.
+> ¶ And the LORD said unto Joshua, Be not afraid because of them: for to morrow about this time will I <u>deliver</u>[^a] them up all slain before Israel: thou shalt <u>hough</u>[^b] their horses, and burn their chariots with fire.
 
 [Joshua 11:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/11.6?lang=eng#p6)
 

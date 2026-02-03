@@ -1,6 +1,6 @@
 # Exodus 29:7
 
-> Then shalt thou take the <u>anointing oil</u>[^a], and pour it upon his head, and anoint him.
+> Then shalt thou take the <u>anointing oil</u>[^a], and pour *it* upon his head, and anoint him.
 
 [Exodus 29:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.7?lang=eng#p7)
 

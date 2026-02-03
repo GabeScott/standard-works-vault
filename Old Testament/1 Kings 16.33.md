@@ -1,6 +1,6 @@
 # 1 Kings 16:33
 
-> And <u>Ahab</u>[^a] made a <u>grove</u>[^b]; and Ahab did more to <u>provoke</u>[^c] the Lord God of Israel to anger than all the kings of Israel that were before him.
+> And <u>Ahab</u>[^a] made a <u>grove</u>[^b]; and Ahab did more to <u>provoke</u>[^c] the LORD God of Israel to anger than all the kings of Israel that were before him.
 
 [1 Kings 16:33](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.33?lang=eng#p33)
 

@@ -1,6 +1,6 @@
 # Exodus 24:16
 
-> And the <u>glory</u>[^a] of the Lord abode upon mount Sinai, and the cloud covered it six days: and the seventh day he called unto Moses out of the midst of the cloud.
+> And the <u>glory</u>[^a] of the LORD abode upon mount Sinai, and the cloud covered it six days: and the seventh day he called unto Moses out of the midst of the cloud.
 
 [Exodus 24:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Alma 15:8
 
-> And Alma said: If thou believest in the redemption of Christ thou canst be <u>healed</u>[^a] .
+> And Alma said: If thou believest in the redemption of Christ thou canst be <u>healed</u>[^a].
 
 [Alma 15:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/15?lang=eng&id=p8#p8)
 

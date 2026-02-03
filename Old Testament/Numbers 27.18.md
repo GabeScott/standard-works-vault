@@ -1,6 +1,6 @@
 # Numbers 27:18
 
-> ¶ And the Lord said unto Moses, Take thee <u>Joshua</u>[^a] the son of <u>Nun</u>[^b], a man in whom is the <u>spirit</u>[^c], and <u>lay</u>[^d] thine hand upon him;
+> ¶ And the LORD said unto Moses, Take thee <u>Joshua</u>[^a] the son of <u>Nun</u>[^b], a man in whom *is* the <u>spirit</u>[^c], and <u>lay</u>[^d] thine hand upon him;
 
 [Numbers 27:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/27.18?lang=eng#p18)
 

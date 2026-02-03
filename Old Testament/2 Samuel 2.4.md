@@ -1,6 +1,6 @@
 # 2 Samuel 2:4
 
-> And the men of Judah came, and there they anointed <u>David</u>[^a] king over the house of <u>Judah</u>[^b] . And they told David, saying, That the men of <u>Jabesh-gilead</u>[^c] were they that buried Saul.
+> And the men of Judah came, and there they anointed <u>David</u>[^a] king over the house of <u>Judah</u>[^b]. And they told David, saying, *That* the men of <u>Jabesh-gilead</u>[^c] *were they* that buried Saul.
 
 [2 Samuel 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/2.4?lang=eng#p4)
 

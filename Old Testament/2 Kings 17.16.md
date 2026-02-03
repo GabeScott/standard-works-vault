@@ -1,6 +1,6 @@
 # 2 Kings 17:16
 
-> And they left all the commandments of the Lord their God, and made them molten images, even two <u>calves</u>[^a], and made a <u>grove</u>[^b], and worshipped all the <u>host</u>[^c] of heaven, and served <u>Baal</u>[^d] .
+> And they left all the commandments of the LORD their God, and made them molten images, *even* two <u>calves</u>[^a], and made a <u>grove</u>[^b], and worshipped all the <u>host</u>[^c] of heaven, and served <u>Baal</u>[^d].
 
 [2 Kings 17:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.16?lang=eng#p16)
 

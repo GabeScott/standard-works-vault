@@ -1,6 +1,6 @@
 # Luke 14:33
 
-> So likewise, whosoever he be of you that <u>forsaketh</u>[^a] not all that he hath, he cannot be my <u>disciple</u>[^b] .
+> So likewise, whosoever he be of you that <u>forsaketh</u>[^a] not all that he hath, he cannot be my <u>disciple</u>[^b].
 
 [Luke 14:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.33?lang=eng#p33)
 

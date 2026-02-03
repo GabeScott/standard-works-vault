@@ -1,6 +1,6 @@
 # Genesis 48:19
 
-> And his father refused, and said, I know it, my son, I know it: he also shall become a people, and he also shall be <u>great</u>[^a] : but truly his younger brother shall be greater than he, and his <u>seed</u>[^b] shall become a <u>multitude</u>[^c] of <u>nations</u>[^d] .
+> And his father refused, and said, I know *it,* my son, I know *it:* he also shall become a people, and he also shall be <u>great</u>[^a]: but truly his younger brother shall be greater than he, and his <u>seed</u>[^b] shall become a <u>multitude</u>[^c] of <u>nations</u>[^d].
 
 [Genesis 48:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.19?lang=eng#p19)
 

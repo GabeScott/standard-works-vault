@@ -1,6 +1,6 @@
 # Jeremiah 31:17
 
-> And there is hope <u>in</u>[^a] thine <u>end</u>[^b], saith the Lord , that thy children shall come again to their own border.
+> And there is hope <u>in</u>[^a] thine <u>end</u>[^b], saith the LORD, that thy children shall come again to their own border.
 
 [Jeremiah 31:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.17?lang=eng#p17)
 

@@ -1,6 +1,6 @@
 # Proverbs 26:17
 
-> He that passeth by, and meddleth with strife belonging not to him, is like one that <u>taketh</u>[^a] a dog by the ears.
+> He that passeth by, *and* meddleth with strife *belonging* not to him, *is like* one that <u>taketh</u>[^a] a dog by the ears.
 
 [Proverbs 26:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.17?lang=eng#p17)
 

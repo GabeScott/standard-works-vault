@@ -1,6 +1,6 @@
 # 2 Nephi 31:20
 
-> Wherefore, ye must press forward with a <u>steadfastness</u>[^a] in Christ, having a perfect brightness of <u>hope</u>[^b], and a <u>love</u>[^c] of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and <u>endure</u>[^d] to the end, behold, thus saith the Father: Ye shall have <u>eternal life</u>[^e] .
+> Wherefore, ye must press forward with a <u>steadfastness</u>[^a] in Christ, having a perfect brightness of <u>hope</u>[^b], and a <u>love</u>[^c] of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and <u>endure</u>[^d] to the end, behold, thus saith the Father: Ye shall have <u>eternal life</u>[^e].
 
 [2 Nephi 31:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p20#p20)
 

@@ -1,6 +1,6 @@
 # Exodus 8:15
 
-> But when Pharaoh saw that there was respite, he <u>hardened</u>[^a] his heart, and hearkened not unto them; as the Lord had said.
+> But when Pharaoh saw that there was respite, he <u>hardened</u>[^a] his heart, and hearkened not unto them; as the LORD had said.
 
 [Exodus 8:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.15?lang=eng#p15)
 

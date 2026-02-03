@@ -1,6 +1,6 @@
 # 2 Nephi 20:9
 
-> Is not <u>Calno</u>[^a] as <u>Carchemish</u>[^b] ? Is not Hamath as Arpad? Is not Samaria as <u>Damascus</u>[^c] ?
+> Is not <u>Calno</u>[^a] as <u>Carchemish</u>[^b]? Is not Hamath as Arpad? Is not Samaria as <u>Damascus</u>[^c]?
 
 [2 Nephi 20:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p9#p9)
 

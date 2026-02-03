@@ -1,6 +1,6 @@
 # Psalms 25:4
 
-> Shew me thy <u>ways</u>[^a], O Lord ; teach me thy paths.
+> Shew me thy <u>ways</u>[^a], O LORD; teach me thy paths.
 
 [Psalms 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.4?lang=eng#p4)
 

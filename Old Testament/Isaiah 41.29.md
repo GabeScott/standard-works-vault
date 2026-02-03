@@ -1,6 +1,6 @@
 # Isaiah 41:29
 
-> Behold, they are all <u>vanity</u>[^a]; their works are nothing: their molten <u>images</u>[^b] are wind and confusion.
+> Behold, they *are* all <u>vanity</u>[^a]; their works *are* nothing: their molten <u>images</u>[^b] *are* wind and confusion.
 
 [Isaiah 41:29](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.29?lang=eng#p29)
 

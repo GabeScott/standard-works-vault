@@ -1,6 +1,6 @@
 # Genesis 6:7
 
-> And the Lord said, I will <u>destroy</u>[^a] man whom I have created from the face of the earth; both man, and beast, and the creeping thing, and the fowls of the air; <u>for</u>[^b] it repenteth me that I have made them.
+> And the LORD said, I will <u>destroy</u>[^a] man whom I have created from the face of the earth; both man, and beast, and the creeping thing, and the fowls of the air; <u>for</u>[^b] it repenteth me that I have made them.
 
 [Genesis 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.7?lang=eng#p7)
 

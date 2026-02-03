@@ -1,6 +1,6 @@
 # Matthew 2:6
 
-> And thou <u>Bethlehem</u>[^a], in the land of <u>Juda</u>[^b], art not the least among the princes of Juda: for out of thee shall come a <u>Governor</u>[^c], that shall <u>rule</u>[^d] my people Israel.
+> And thou <u>Bethlehem</u>[^a], *in* the land of <u>Juda</u>[^b], art not the least among the princes of Juda: for out of thee shall come a <u>Governor</u>[^c], that shall <u>rule</u>[^d] my people Israel.
 
 [Matthew 2:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.6?lang=eng#p6)
 

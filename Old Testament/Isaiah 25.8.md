@@ -1,6 +1,6 @@
 # Isaiah 25:8
 
-> He will swallow up <u>death</u>[^a] in <u>victory</u>[^b]; and the Lord God will wipe away tears from off all faces; and the <u>rebuke of his people</u>[^c] shall he take away from off all the earth: for the Lord hath spoken it.
+> He will swallow up <u>death</u>[^a] in <u>victory</u>[^b]; and the Lord GOD will wipe away tears from off all faces; and the <u>rebuke of his people</u>[^c] shall he take away from off all the earth: for the LORD hath spoken *it.*
 
 [Isaiah 25:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/25.8?lang=eng#p8)
 

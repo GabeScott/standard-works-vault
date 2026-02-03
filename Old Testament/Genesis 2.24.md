@@ -1,6 +1,6 @@
 # Genesis 2:24
 
-> Therefore shall a <u>man</u>[^a] leave his <u>father</u>[^b] and his mother, and shall <u>cleave</u>[^c] unto his <u>wife</u>[^d] : and they shall be <u>one</u>[^e] flesh.
+> Therefore shall a <u>man</u>[^a] leave his <u>father</u>[^b] and his mother, and shall <u>cleave</u>[^c] unto his <u>wife</u>[^d]: and they shall be <u>one</u>[^e] flesh.
 
 [Genesis 2:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.24?lang=eng#p24)
 

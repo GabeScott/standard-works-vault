@@ -1,6 +1,6 @@
 # Matthew 7:1
 
-> <u>Judge</u>[^a] not, that ye be not <u>judged</u>[^b] .
+> <u>Judge</u>[^a] not, that ye be not <u>judged</u>[^b].
 
 [Matthew 7:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.1?lang=eng#p1)
 

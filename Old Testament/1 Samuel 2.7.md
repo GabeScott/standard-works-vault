@@ -1,6 +1,6 @@
 # 1 Samuel 2:7
 
-> The Lord <u>maketh</u>[^a] <u>poor</u>[^b], and maketh <u>rich</u>[^c] : he bringeth low, and lifteth up.
+> The LORD <u>maketh</u>[^a] <u>poor</u>[^b], and maketh <u>rich</u>[^c]: he bringeth low, and lifteth up.
 
 [1 Samuel 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.7?lang=eng#p7)
 

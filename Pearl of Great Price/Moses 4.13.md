@@ -1,6 +1,6 @@
 # Moses 4:13
 
-> And the eyes of them both were opened, and they knew that they had been <u>naked</u>[^a] . And they sewed fig leaves together and made themselves <u>aprons</u>[^b] .
+> And the eyes of them both were opened, and they knew that they had been <u>naked</u>[^a]. And they sewed fig leaves together and made themselves <u>aprons</u>[^b].
 
 [Moses 4:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.13?lang=eng#p13)
 

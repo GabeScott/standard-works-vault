@@ -1,6 +1,6 @@
 # Matthew 7:23
 
-> <u>And</u>[^a] then will I profess unto them, I never knew you: <u>depart</u>[^b] from me, ye that work <u>iniquity</u>[^c] .
+> <u>And</u>[^a] then will I profess unto them, I never knew you: <u>depart</u>[^b] from me, ye that work <u>iniquity</u>[^c].
 
 [Matthew 7:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.23?lang=eng#p23)
 

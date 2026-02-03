@@ -1,6 +1,6 @@
 # Ether 12:27
 
-> And if men come unto me I will show unto them their <u>weakness</u>[^a] . I <u>give</u>[^b] unto men weakness that they may be humble; and my <u>grace</u>[^c] is sufficient for all men that <u>humble</u>[^d] themselves before me; for if they humble themselves before me, and have faith in me, then will I make <u>weak</u>[^e] things become strong unto them.
+> And if men come unto me I will show unto them their <u>weakness</u>[^a]. I <u>give</u>[^b] unto men weakness that they may be humble; and my <u>grace</u>[^c] is sufficient for all men that <u>humble</u>[^d] themselves before me; for if they humble themselves before me, and have faith in me, then will I make <u>weak</u>[^e] things become strong unto them.
 
 [Ether 12:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p27#p27)
 

@@ -1,6 +1,6 @@
 # 3 Nephi 24:14
 
-> Ye have <u>said</u>[^a] : It is <u>vain</u>[^b] to serve God, and what doth it profit that we have kept his <u>ordinances</u>[^c] and that we have walked mournfully before the Lord of Hosts?
+> Ye have <u>said</u>[^a]: It is <u>vain</u>[^b] to serve God, and what doth it profit that we have kept his <u>ordinances</u>[^c] and that we have walked mournfully before the Lord of Hosts?
 
 [3 Nephi 24:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/24?lang=eng&id=p14#p14)
 

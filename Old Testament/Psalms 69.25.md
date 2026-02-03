@@ -1,6 +1,6 @@
 # Psalms 69:25
 
-> Let their habitation be <u>desolate</u>[^a]; and let none dwell in their tents.
+> Let their habitation be <u>desolate</u>[^a]; *and* let none dwell in their tents.
 
 [Psalms 69:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.25?lang=eng#p25)
 

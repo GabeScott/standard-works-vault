@@ -1,6 +1,6 @@
 # Isaiah 42:5
 
-> ¶ Thus saith God the Lord , he that <u>created</u>[^a] the heavens, and stretched them out; he that spread forth the earth, and that which cometh out of it; he that giveth <u>breath</u>[^b] unto the people upon it, and <u>spirit</u>[^c] to them that <u>walk</u>[^d] therein:
+> ¶ Thus saith God the LORD, he that <u>created</u>[^a] the heavens, and stretched them out; he that spread forth the earth, and that which cometh out of it; he that giveth <u>breath</u>[^b] unto the people upon it, and <u>spirit</u>[^c] to them that <u>walk</u>[^d] therein:
 
 [Isaiah 42:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Exodus 15:2
 
-> The Lord is my <u>strength</u>[^b] and song, and he is become my <u>salvation</u>[^c] : he is my God, and I will <u>prepare him an habitation</u>[^d]; my father’s God, and I will <u>exalt</u>[^e] him.
+> The <u>Lord</u>[^a] *is* my <u>strength</u>[^b] and song, and he is become my <u>salvation</u>[^c]: he *is* my God, and I will <u>prepare him an habitation</u>[^d]; my father’s God, and I will <u>exalt</u>[^e] him.
 
 [Exodus 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Acts 26:17
 
-> Delivering thee from the people, and from the Gentiles, unto whom now I <u>send</u>[^a] thee,
+> Delivering thee from the people, and *from* the Gentiles, unto whom now I <u>send</u>[^a] thee,
 
 [Acts 26:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.17?lang=eng#p17)
 

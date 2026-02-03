@@ -1,6 +1,6 @@
 # Numbers 28:8
 
-> And the other lamb shalt thou offer at even: as the <u>meat offering</u>[^a] of the morning, and as the drink offering thereof, thou shalt offer it, a sacrifice made by fire, of a sweet savour unto the Lord .
+> And the other lamb shalt thou offer at even: as the <u>meat offering</u>[^a] of the morning, and as the drink offering thereof, thou shalt offer *it,* a sacrifice made by fire, of a sweet savour unto the LORD.
 
 [Numbers 28:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.8?lang=eng#p8)
 

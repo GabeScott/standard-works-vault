@@ -1,6 +1,6 @@
 # Isaiah 50:6
 
-> I <u>gave</u>[^a] my <u>back</u>[^b] to the <u>smiters</u>[^c], and my <u>cheeks</u>[^d] to them that plucked off the hair: I <u>hid</u>[^e] not my face from <u>shame</u>[^f] and <u>spitting</u>[^g] .
+> I <u>gave</u>[^a] my <u>back</u>[^b] to the <u>smiters</u>[^c], and my <u>cheeks</u>[^d] to them that plucked off the hair: I <u>hid</u>[^e] not my face from <u>shame</u>[^f] and <u>spitting</u>[^g].
 
 [Isaiah 50:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Leviticus 1:3
 
-> If his offering be a <u>burnt</u>[^a] <u>sacrifice</u>[^b] of the herd, let him offer a male <u>without</u>[^c] <u>blemish</u>[^d] : he shall offer it of his own <u>voluntary</u>[^e] will at the door of the tabernacle of the congregation before the Lord .
+> If his offering *be* a <u>burnt</u>[^a] <u>sacrifice</u>[^b] of the herd, let him offer a male <u>without</u>[^c] <u>blemish</u>[^d]: he shall offer it of his own <u>voluntary</u>[^e] will at the door of the tabernacle of the congregation before the LORD.
 
 [Leviticus 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/1.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Hebrews 9:12
 
-> Neither by the blood of goats and calves, but by his own <u>blood</u>[^a] he entered in once into the <u>holy place</u>[^b], having obtained eternal <u>redemption</u>[^c] for us.
+> Neither by the blood of goats and calves, but by his own <u>blood</u>[^a] he entered in once into the <u>holy place</u>[^b], having obtained eternal <u>redemption</u>[^c] *for us.*
 
 [Hebrews 9:12](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.12?lang=eng#p12)
 

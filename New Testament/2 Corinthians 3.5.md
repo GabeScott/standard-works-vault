@@ -1,6 +1,6 @@
 # 2 Corinthians 3:5
 
-> Not that we are sufficient of ourselves to think any thing as of ourselves; but our <u>sufficiency</u>[^a] is of God;
+> Not that we are sufficient of ourselves to think any thing as of ourselves; but our <u>sufficiency</u>[^a] *is* of God;
 
 [2 Corinthians 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/3.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 7:1
 
-> Now when Solomon had made an end of <u>praying</u>[^a], the <u>fire</u>[^b] came down from heaven, and consumed the burnt offering and the sacrifices; and the glory of the Lord filled the house.
+> Now when Solomon had made an end of <u>praying</u>[^a], the <u>fire</u>[^b] came down from heaven, and consumed the burnt offering and the sacrifices; and the glory of the LORD filled the house.
 
 [2 Chronicles 7:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 7:2
 
-> And when the Lord thy God shall deliver them before thee; thou shalt smite them, and utterly <u>destroy</u>[^a] them; thou shalt <u>make</u>[^b] no <u>covenant</u>[^c] with them, nor shew mercy unto them:
+> And when the LORD thy God shall deliver them before thee; thou shalt smite them, *and* utterly <u>destroy</u>[^a] them; thou shalt <u>make</u>[^b] no <u>covenant</u>[^c] with them, nor shew mercy unto them:
 
 [Deuteronomy 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.2?lang=eng#p2)
 

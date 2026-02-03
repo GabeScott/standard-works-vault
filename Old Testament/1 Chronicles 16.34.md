@@ -1,6 +1,6 @@
 # 1 Chronicles 16:34
 
-> O give <u>thanks</u>[^a] unto the Lord ; for he is <u>good</u>[^b]; for his mercy endureth for ever.
+> O give <u>thanks</u>[^a] unto the LORD; for *he is* <u>good</u>[^b]; for his mercy *endureth* for ever.
 
 [1 Chronicles 16:34](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.34?lang=eng#p34)
 

@@ -1,6 +1,6 @@
 # Psalms 33:9
 
-> For he <u>spake</u>[^a], and it was done; he commanded, and it stood fast.
+> For he <u>spake</u>[^a], and it was *done;* he commanded, and it stood fast.
 
 [Psalms 33:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Ezekiel 12:2
 
-> Son of man, thou dwellest in the midst of a <u>rebellious</u>[^a] house, which have <u>eyes</u>[^b] to see, and <u>see not</u>[^c]; they have ears to hear, and hear not: for they are a rebellious house.
+> Son of man, thou dwellest in the midst of a <u>rebellious</u>[^a] house, which have <u>eyes</u>[^b] to see, and <u>see not</u>[^c]; they have ears to hear, and hear not: for they *are* a rebellious house.
 
 [Ezekiel 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.2?lang=eng#p2)
 

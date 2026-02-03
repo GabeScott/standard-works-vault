@@ -1,6 +1,6 @@
 # Exodus 32:14
 
-> <u>And</u>[^a] the Lord <u>repented</u>[^b] of the evil which he thought to do unto his people.
+> <u>And</u>[^a] the LORD <u>repented</u>[^b] of the evil which he thought to do unto his people.
 
 [Exodus 32:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.14?lang=eng#p14)
 

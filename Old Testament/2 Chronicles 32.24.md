@@ -1,6 +1,6 @@
 # 2 Chronicles 32:24
 
-> ¶ In those days Hezekiah was sick to the death, and prayed unto the Lord : and he spake unto him, and he gave him a <u>sign</u>[^a] .
+> ¶ In those days Hezekiah was sick to the death, and prayed unto the LORD: and he spake unto him, and he gave him a <u>sign</u>[^a].
 
 [2 Chronicles 32:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.24?lang=eng#p24)
 

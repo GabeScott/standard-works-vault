@@ -1,6 +1,6 @@
 # Proverbs 3:3
 
-> Let not mercy and <u>truth</u>[^a] forsake thee: <u>bind</u>[^b] them about thy neck; write them upon the <u>table</u>[^c] of thine <u>heart</u>[^d] :
+> Let not mercy and <u>truth</u>[^a] forsake thee: <u>bind</u>[^b] them about thy neck; write them upon the <u>table</u>[^c] of thine <u>heart</u>[^d]:
 
 [Proverbs 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.3?lang=eng#p3)
 

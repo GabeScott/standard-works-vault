@@ -1,6 +1,6 @@
 # Deuteronomy 4:40
 
-> Thou shalt <u>keep</u>[^a] therefore his statutes, and his commandments, which I command thee this day, that it may go well with thee, and with thy children after thee, and that thou mayest <u>prolong</u>[^b] thy <u>days</u>[^c] upon the <u>earth</u>[^d], which the Lord thy God giveth thee, for ever.
+> Thou shalt <u>keep</u>[^a] therefore his statutes, and his commandments, which I command thee this day, that it may go well with thee, and with thy children after thee, and that thou mayest <u>prolong</u>[^b] *thy* <u>days</u>[^c] upon the <u>earth</u>[^d], which the LORD thy God giveth thee, for ever.
 
 [Deuteronomy 4:40](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.40?lang=eng#p40)
 

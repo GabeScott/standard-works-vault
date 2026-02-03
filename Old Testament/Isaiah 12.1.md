@@ -1,6 +1,6 @@
 # Isaiah 12:1
 
-> <u>And</u>[^a] <u>in that day</u>[^b] thou shalt say, <u>O</u>[^c] Lord , I will praise thee: though thou wast angry with me, thine anger is turned away, and thou comfortedst me.
+> <u>And</u>[^a] <u>in that day</u>[^b] thou shalt say, <u>O</u>[^c] LORD, I will praise thee: though thou wast angry with me, thine anger is turned away, and thou comfortedst me.
 
 [Isaiah 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/12.1?lang=eng#p1)
 

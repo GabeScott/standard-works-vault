@@ -1,6 +1,6 @@
 # Matthew 9:24
 
-> He said unto them, Give place: for the maid is not dead, but sleepeth. And they <u>laughed him to scorn</u>[^a] .
+> He said unto them, Give place: for the maid is not dead, but sleepeth. And they <u>laughed him to scorn</u>[^a].
 
 [Matthew 9:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.24?lang=eng#p24)
 

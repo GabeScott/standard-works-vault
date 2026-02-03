@@ -1,6 +1,6 @@
 # Amos 8:9
 
-> And it shall come to pass in that day, saith the Lord God , that I will cause the <u>sun</u>[^a] to go down at noon, and I will <u>darken</u>[^b] the <u>earth</u>[^c] in the clear day:
+> And it shall come to pass in that day, saith the Lord GOD, that I will cause the <u>sun</u>[^a] to go down at noon, and I will <u>darken</u>[^b] the <u>earth</u>[^c] in the clear day:
 
 [Amos 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/8.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Genesis 3:6
 
-> And when the woman saw that the tree was good for <u>food</u>[^a], and that it was <u>pleasant</u>[^b] to the eyes, and a tree <u>to</u>[^c] be desired to make one wise, she took of the <u>fruit</u>[^d] thereof, and did <u>eat</u>[^e], and gave also unto her husband with her; and he did <u>eat</u>[^f] .
+> And when the woman saw that the tree *was* good for <u>food</u>[^a], and that it *was* <u>pleasant</u>[^b] to the eyes, and a tree <u>to</u>[^c] be desired to make *one* wise, she took of the <u>fruit</u>[^d] thereof, and did <u>eat</u>[^e], and gave also unto her husband with her; and he did <u>eat</u>[^f].
 
 [Genesis 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.6?lang=eng#p6)
 

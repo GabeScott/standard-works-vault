@@ -1,6 +1,6 @@
 # Exodus 34:1
 
-> <u>And</u>[^a] the Lord said unto Moses, <u>Hew</u>[^b] thee two <u>tables</u>[^c] of stone like unto the first: and I will <u>write</u>[^d] upon these tables the words that were in the first tables, which thou <u>brakest</u>[^e] .
+> <u>And</u>[^a] the LORD said unto Moses, <u>Hew</u>[^b] thee two <u>tables</u>[^c] of stone like unto the first: and I will <u>write</u>[^d] upon *these* tables the words that were in the first tables, which thou <u>brakest</u>[^e].
 
 [Exodus 34:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.1?lang=eng#p1)
 

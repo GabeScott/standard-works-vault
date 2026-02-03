@@ -1,6 +1,6 @@
 # Alma 29:5
 
-> Yea, and I know that good and evil have come before all men; he that knoweth not good from evil is <u>blameless</u>[^a]; but he that <u>knoweth</u>[^b] good and evil, to him it is given according to his desires, whether he desireth good or evil, life or death, joy or remorse of <u>conscience</u>[^c] .
+> Yea, and I know that good and evil have come before all men; he that knoweth not good from evil is <u>blameless</u>[^a]; but he that <u>knoweth</u>[^b] good and evil, to him it is given according to his desires, whether he desireth good or evil, life or death, joy or remorse of <u>conscience</u>[^c].
 
 [Alma 29:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p5#p5)
 

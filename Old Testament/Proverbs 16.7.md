@@ -1,6 +1,6 @@
 # Proverbs 16:7
 
-> When a man’s ways please the Lord , he maketh even his <u>enemies</u>[^a] to be at <u>peace</u>[^b] with him.
+> When a man’s ways please the LORD, he maketh even his <u>enemies</u>[^a] to be at <u>peace</u>[^b] with him.
 
 [Proverbs 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.7?lang=eng#p7)
 

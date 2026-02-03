@@ -1,6 +1,6 @@
 # 1 Nephi 17:39
 
-> He ruleth high in the heavens, for it is his throne, and this earth is his <u>footstool</u>[^a] .
+> He ruleth high in the heavens, for it is his throne, and this earth is his <u>footstool</u>[^a].
 
 [1 Nephi 17:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p39#p39)
 

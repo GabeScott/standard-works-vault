@@ -1,6 +1,6 @@
 # Genesis 19:24
 
-> Then the Lord rained upon <u>Sodom</u>[^a] and upon <u>Gomorrah</u>[^b] <u>brimstone and fire</u>[^c] from the Lord out of heaven;
+> Then the LORD rained upon <u>Sodom</u>[^a] and upon <u>Gomorrah</u>[^b] <u>brimstone and fire</u>[^c] from the LORD out of heaven;
 
 [Genesis 19:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.24?lang=eng#p24)
 

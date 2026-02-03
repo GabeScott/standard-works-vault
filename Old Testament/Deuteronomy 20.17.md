@@ -1,6 +1,6 @@
 # Deuteronomy 20:17
 
-> But thou shalt utterly <u>destroy</u>[^a] them; namely, the Hittites, and the Amorites, the Canaanites, and the Perizzites, the Hivites, and the Jebusites; as the Lord thy God hath commanded thee:
+> But thou shalt utterly <u>destroy</u>[^a] them; *namely,* the Hittites, and the Amorites, the Canaanites, and the Perizzites, the Hivites, and the Jebusites; as the LORD thy God hath commanded thee:
 
 [Deuteronomy 20:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.17?lang=eng#p17)
 

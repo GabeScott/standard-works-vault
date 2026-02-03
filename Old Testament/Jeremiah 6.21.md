@@ -1,6 +1,6 @@
 # Jeremiah 6:21
 
-> Therefore thus saith the Lord , Behold, I will lay <u>stumblingblocks</u>[^a] before this people, and the fathers and the sons together shall fall upon them; the neighbour and his friend shall perish.
+> Therefore thus saith the LORD, Behold, I will lay <u>stumblingblocks</u>[^a] before this people, and the fathers and the sons together shall fall upon them; the neighbour and his friend shall perish.
 
 [Jeremiah 6:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.21?lang=eng#p21)
 

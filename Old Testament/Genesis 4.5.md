@@ -1,6 +1,6 @@
 # Genesis 4:5
 
-> But unto <u>Cain</u>[^a] and to his <u>offering</u>[^b] he had not <u>respect</u>[^c] . And Cain was very wroth, and his countenance fell.
+> But unto <u>Cain</u>[^a] and to his <u>offering</u>[^b] he had not <u>respect</u>[^c]. And Cain was very wroth, and his countenance fell.
 
 [Genesis 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.5?lang=eng#p5)
 

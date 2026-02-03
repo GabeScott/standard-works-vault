@@ -1,6 +1,6 @@
 # Galatians 5:18
 
-> But if ye be <u>led</u>[^a] of the Spirit, ye are not under the <u>law</u>[^b] .
+> But if ye be <u>led</u>[^a] of the Spirit, ye are not under the <u>law</u>[^b].
 
 [Galatians 5:18](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.18?lang=eng#p18)
 

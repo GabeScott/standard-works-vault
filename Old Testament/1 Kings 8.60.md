@@ -1,6 +1,6 @@
 # 1 Kings 8:60
 
-> That all the people of the earth may <u>know</u>[^a] that the Lord is <u>God</u>[^b], and that there is <u>none</u>[^c] else.
+> That all the people of the earth may <u>know</u>[^a] that the LORD *is* <u>God</u>[^b], *and that there is* <u>none</u>[^c] else.
 
 [1 Kings 8:60](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.60?lang=eng#p60)
 

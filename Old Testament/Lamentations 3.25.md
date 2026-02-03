@@ -1,6 +1,6 @@
 # Lamentations 3:25
 
-> The Lord is <u>good</u>[^a] unto them that <u>wait</u>[^b] for him, to the soul that <u>seeketh</u>[^c] him.
+> The LORD *is* <u>good</u>[^a] unto them that <u>wait</u>[^b] for him, to the soul *that* <u>seeketh</u>[^c] him.
 
 [Lamentations 3:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/3.25?lang=eng#p25)
 

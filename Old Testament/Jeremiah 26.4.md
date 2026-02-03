@@ -1,6 +1,6 @@
 # Jeremiah 26:4
 
-> And thou shalt say unto them, Thus saith the Lord ; If ye will not <u>hearken</u>[^a] to me, to <u>walk</u>[^b] in my <u>law</u>[^c], which I have set before you,
+> And thou shalt say unto them, Thus saith the LORD; If ye will not <u>hearken</u>[^a] to me, to <u>walk</u>[^b] in my <u>law</u>[^c], which I have set before you,
 
 [Jeremiah 26:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.4?lang=eng#p4)
 

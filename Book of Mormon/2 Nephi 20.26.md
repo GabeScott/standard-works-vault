@@ -1,6 +1,6 @@
 # 2 Nephi 20:26
 
-> And the Lord of Hosts shall <u>stir up</u>[^a] a scourge for him according to the slaughter of <u>Midian</u>[^b] at the rock of Oreb; and as his rod was upon the sea so shall he lift it up after the manner of <u>Egypt</u>[^c] .
+> And the Lord of Hosts shall <u>stir up</u>[^a] a scourge for him according to the slaughter of <u>Midian</u>[^b] at the rock of Oreb; and as his rod was upon the sea so shall he lift it up after the manner of <u>Egypt</u>[^c].
 
 [2 Nephi 20:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p26#p26)
 

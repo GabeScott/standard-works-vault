@@ -1,6 +1,6 @@
 # Numbers 6:25
 
-> The Lord make his face <u>shine</u>[^a] upon thee, and be gracious unto thee:
+> The LORD make his face <u>shine</u>[^a] upon thee, and be gracious unto thee:
 
 [Numbers 6:25](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.25?lang=eng#p25)
 

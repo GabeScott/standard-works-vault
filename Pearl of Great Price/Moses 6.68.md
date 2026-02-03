@@ -1,6 +1,6 @@
 # Moses 6:68
 
-> Behold, thou art <u>one</u>[^a] in me, a son of God; and thus may all become my <u>sons</u>[^b] . Amen.
+> Behold, thou art <u>one</u>[^a] in me, a son of God; and thus may all become my <u>sons</u>[^b]. Amen.
 
 [Moses 6:68](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.68?lang=eng#p68)
 

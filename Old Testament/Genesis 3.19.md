@@ -1,6 +1,6 @@
 # Genesis 3:19
 
-> In the <u>sweat</u>[^a] of thy face shalt thou eat <u>bread</u>[^b], till thou return unto the ground; for out of it wast thou taken: for <u>dust</u>[^c] thou art, and unto <u>dust</u>[^d] shalt thou return.
+> In the <u>sweat</u>[^a] of thy face shalt thou eat <u>bread</u>[^b], till thou return unto the ground; for out of it wast thou taken: for <u>dust</u>[^c] thou *art,* and unto <u>dust</u>[^d] shalt thou return.
 
 [Genesis 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.19?lang=eng#p19)
 

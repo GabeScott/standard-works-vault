@@ -1,6 +1,6 @@
 # Isaiah 59:20
 
-> ¶ And the <u>Redeemer</u>[^a] shall <u>come</u>[^b] to <u>Zion</u>[^c], and unto them that <u>turn</u>[^d] from transgression in Jacob, saith the Lord .
+> ¶ And the <u>Redeemer</u>[^a] shall <u>come</u>[^b] to <u>Zion</u>[^c], and unto them that <u>turn</u>[^d] from transgression in Jacob, saith the LORD.
 
 [Isaiah 59:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # Psalms 19:9
 
-> The fear of the Lord is clean, enduring for ever: the <u>judgments</u>[^a] of the Lord are <u>true</u>[^b] and righteous altogether.
+> The fear of the LORD *is* clean, enduring for ever: the <u>judgments</u>[^a] of the LORD *are* <u>true</u>[^b] *and* righteous altogether.
 
 [Psalms 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.9?lang=eng#p9)
 

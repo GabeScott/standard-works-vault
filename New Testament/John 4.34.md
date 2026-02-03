@@ -1,6 +1,6 @@
 # John 4:34
 
-> Jesus saith unto them, My meat is to do the <u>will</u>[^a] of him that sent me, and to finish his <u>work</u>[^b] .
+> Jesus saith unto them, My meat is to do the <u>will</u>[^a] of him that sent me, and to finish his <u>work</u>[^b].
 
 [John 4:34](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.34?lang=eng#p34)
 

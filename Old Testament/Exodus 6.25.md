@@ -1,6 +1,6 @@
 # Exodus 6:25
 
-> And <u>Eleazar</u>[^a] Aaron’s son took him one of the daughters of Putiel to wife; and she bare him Phinehas: these are the heads of the fathers of the Levites according to their families.
+> And <u>Eleazar</u>[^a] Aaron’s son took him *one* of the daughters of Putiel to wife; and she bare him Phinehas: these *are* the heads of the fathers of the Levites according to their families.
 
 [Exodus 6:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.25?lang=eng#p25)
 

@@ -1,6 +1,6 @@
 # Galatians 1:8
 
-> But though we, or an <u>angel</u>[^a] from heaven, preach any <u>other</u>[^b] <u>gospel</u>[^c] unto you than that which we have preached unto you, let him be <u>accursed</u>[^d] .
+> But though we, or an <u>angel</u>[^a] from heaven, preach any <u>other</u>[^b] <u>gospel</u>[^c] unto you than that which we have preached unto you, let him be <u>accursed</u>[^d].
 
 [Galatians 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.8?lang=eng#p8)
 

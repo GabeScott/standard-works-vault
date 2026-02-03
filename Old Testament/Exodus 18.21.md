@@ -1,6 +1,6 @@
 # Exodus 18:21
 
-> Moreover thou shalt provide out of all the people <u>able</u>[^a] men, such as <u>fear</u>[^b] God, <u>men of truth</u>[^c], hating <u>covetousness</u>[^d]; and place such over them, to be <u>rulers</u>[^e] of thousands, and rulers of <u>hundreds</u>[^f], rulers of fifties, and rulers of tens:
+> Moreover thou shalt provide out of all the people <u>able</u>[^a] men, such as <u>fear</u>[^b] God, <u>men of truth</u>[^c], hating <u>covetousness</u>[^d]; and place *such* over them, *to be* <u>rulers</u>[^e] of thousands, *and* rulers of <u>hundreds</u>[^f], rulers of fifties, and rulers of tens:
 
 [Exodus 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.21?lang=eng#p21)
 

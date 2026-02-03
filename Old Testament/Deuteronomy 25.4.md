@@ -1,6 +1,6 @@
 # Deuteronomy 25:4
 
-> ¶ Thou shalt not <u>muzzle</u>[^a] the ox when he treadeth out the corn.
+> ¶ Thou shalt not <u>muzzle</u>[^a] the ox when he treadeth out *the *<u>corn</u>[^b]*.*
 
 [Deuteronomy 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.4?lang=eng#p4)
 

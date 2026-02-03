@@ -1,6 +1,6 @@
 # Proverbs 8:5
 
-> O ye <u>simple</u>[^a], understand wisdom: and, ye fools, be ye of an understanding <u>heart</u>[^b] .
+> O ye <u>simple</u>[^a], understand wisdom: and, ye fools, be ye of an understanding <u>heart</u>[^b].
 
 [Proverbs 8:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.5?lang=eng#p5)
 

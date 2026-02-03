@@ -1,6 +1,6 @@
 # John 8:32
 
-> And ye shall <u>know</u>[^a] the <u>truth</u>[^b], and the <u>truth</u>[^c] shall make you <u>free</u>[^d] .
+> And ye shall <u>know</u>[^a] the <u>truth</u>[^b], and the <u>truth</u>[^c] shall make you <u>free</u>[^d].
 
 [John 8:32](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.32?lang=eng#p32)
 

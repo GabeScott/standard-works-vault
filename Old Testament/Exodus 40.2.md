@@ -1,6 +1,6 @@
 # Exodus 40:2
 
-> On the first day of the first <u>month</u>[^a] shalt thou set up the <u>tabernacle</u>[^b] of the tent of the <u>congregation</u>[^c] .
+> On the first day of the first <u>month</u>[^a] shalt thou set up the <u>tabernacle</u>[^b] of the tent of the <u>congregation</u>[^c].
 
 [Exodus 40:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.2?lang=eng#p2)
 

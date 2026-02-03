@@ -1,6 +1,6 @@
 # Deuteronomy 16:16
 
-> ¶ <u>Three</u>[^a] times in a year shall all thy males <u>appear</u>[^b] before the Lord thy God in the place which he shall choose; in the <u>feast</u>[^c] of unleavened bread, and in the feast of weeks, and in the feast of tabernacles: and they shall not appear before the Lord empty:
+> ¶ <u>Three</u>[^a] times in a year shall all thy males <u>appear</u>[^b] before the LORD thy God in the place which he shall choose; in the <u>feast</u>[^c] of unleavened bread, and in the feast of weeks, and in the feast of tabernacles: and they shall not appear before the LORD empty:
 
 [Deuteronomy 16:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.16?lang=eng#p16)
 

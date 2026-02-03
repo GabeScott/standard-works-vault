@@ -1,6 +1,6 @@
 # Psalms 29:10
 
-> The Lord sitteth upon the <u>flood</u>[^a]; yea, the Lord sitteth <u>King</u>[^b] for ever.
+> The LORD sitteth upon the <u>flood</u>[^a]; yea, the LORD sitteth <u>King</u>[^b] for ever.
 
 [Psalms 29:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/29.10?lang=eng#p10)
 

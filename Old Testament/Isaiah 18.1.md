@@ -1,6 +1,6 @@
 # Isaiah 18:1
 
-> <u>Woe</u>[^a] to the land shadowing with wings, which is <u>beyond</u>[^b] the rivers of <u>Ethiopia</u>[^c] :
+> <u>Woe</u>[^a] to the land shadowing with wings, which *is* <u>beyond</u>[^b] the rivers of <u>Ethiopia</u>[^c]:
 
 [Isaiah 18:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/18.1?lang=eng#p1)
 

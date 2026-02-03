@@ -1,6 +1,6 @@
 # 2 Corinthians 13:1
 
-> This is the third time I am coming to you. In the mouth of two or three <u>witnesses</u>[^a] shall every word be established.
+> This *is* the third *time* I am coming to you. In the mouth of two or three <u>witnesses</u>[^a] shall every word be established.
 
 [2 Corinthians 13:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/13.1?lang=eng#p1)
 

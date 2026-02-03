@@ -1,6 +1,6 @@
 # Isaiah 61:1
 
-> The <u>Spirit</u>[^a] of the Lord God is upon me; because the Lord hath <u>anointed</u>[^c] me to <u>preach</u>[^d] <u>good tidings</u>[^e] unto the <u>meek</u>[^f]; he hath sent me to <u>bind</u>[^g] up the brokenhearted, to <u>proclaim</u>[^h] <u>liberty</u>[^i] to the <u>captives</u>[^j], and the opening of the <u>prison</u>[^k] to them that are bound;
+> The <u>Spirit</u>[^a] of the Lord <u>God</u>[^b] *is* upon me; because the LORD hath <u>anointed</u>[^c] me to <u>preach</u>[^d] <u>good tidings</u>[^e] unto the <u>meek</u>[^f]; he hath sent me to <u>bind</u>[^g] up the brokenhearted, to <u>proclaim</u>[^h] <u>liberty</u>[^i] to the <u>captives</u>[^j], and the opening of the <u>prison</u>[^k] to *them that are* bound;
 
 [Isaiah 61:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.1?lang=eng#p1)
 

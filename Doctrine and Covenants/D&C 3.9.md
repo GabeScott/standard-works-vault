@@ -1,6 +1,6 @@
 # D&C 3:9
 
-> Behold, thou art Joseph, and thou wast chosen to do the work of the Lord, but because of transgression, if thou art not aware thou wilt <u>fall</u>[^a] .
+> Behold, thou art Joseph, and thou wast chosen to do the work of the Lord, but because of transgression, if thou art not aware thou wilt <u>fall</u>[^a].
 
 [D&C 3:9](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.9?lang=eng#p9)
 

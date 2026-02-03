@@ -1,6 +1,6 @@
 # Alma 42:17
 
-> Now, how could a man repent except he should <u>sin</u>[^a] ? How could he sin if there was no <u>law</u>[^b] ? How could there be a law save there was a punishment?
+> Now, how could a man repent except he should <u>sin</u>[^a]? How could he sin if there was no <u>law</u>[^b]? How could there be a law save there was a punishment?
 
 [Alma 42:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p17#p17)
 

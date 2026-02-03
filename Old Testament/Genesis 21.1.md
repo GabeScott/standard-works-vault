@@ -1,6 +1,6 @@
 # Genesis 21:1
 
-> And the Lord <u>visited</u>[^a] Sarah as he had said, and the Lord did unto <u>Sarah</u>[^b] as he had spoken.
+> And the LORD <u>visited</u>[^a] Sarah as he had said, and the LORD did unto <u>Sarah</u>[^b] as he had spoken.
 
 [Genesis 21:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # 2 Nephi 13:24
 
-> And it shall come to pass, instead of sweet smell there shall be stink; and instead of a girdle, a rent; and instead of well set hair, <u>baldness</u>[^a]; and instead of a stomacher, a girding of sackcloth; <u>burning</u>[^b] instead of <u>beauty</u>[^c] .
+> And it shall come to pass, instead of sweet smell there shall be stink; and instead of a girdle, a rent; and instead of well set hair, <u>baldness</u>[^a]; and instead of a stomacher, a girding of sackcloth; <u>burning</u>[^b] instead of <u>beauty</u>[^c].
 
 [2 Nephi 13:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/13?lang=eng&id=p24#p24)
 

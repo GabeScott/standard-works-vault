@@ -1,6 +1,6 @@
 # Ezekiel 13:3
 
-> Thus saith the Lord God ; Woe unto the <u>foolish</u>[^a] prophets, that follow their own spirit, and have seen nothing!
+> Thus saith the Lord GOD; Woe unto the <u>foolish</u>[^a] prophets, that follow their own spirit, and have seen nothing!
 
 [Ezekiel 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.3?lang=eng#p3)
 

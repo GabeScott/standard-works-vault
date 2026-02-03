@@ -1,6 +1,6 @@
 # Psalms 128:2
 
-> For thou shalt <u>eat</u>[^a] the <u>labour</u>[^b] of thine hands: <u>happy</u>[^c] shalt thou be, and it shall be <u>well</u>[^d] with thee.
+> For thou shalt <u>eat</u>[^a] the <u>labour</u>[^b] of thine hands: <u>happy</u>[^c] *shalt* thou *be,* and *it shall be* <u>well</u>[^d] with thee.
 
 [Psalms 128:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/128.2?lang=eng#p2)
 

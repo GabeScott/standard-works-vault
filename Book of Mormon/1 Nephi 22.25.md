@@ -1,6 +1,6 @@
 # 1 Nephi 22:25
 
-> And he <u>gathereth</u>[^a] his children from the four quarters of the earth; and he numbereth his <u>sheep</u>[^b], and they know him; and there shall be one fold and one shepherd; and he shall feed his sheep, and in him they shall find <u>pasture</u>[^c] .
+> And he <u>gathereth</u>[^a] his children from the four quarters of the earth; and he numbereth his <u>sheep</u>[^b], and they know him; and there shall be one fold and one shepherd; and he shall feed his sheep, and in him they shall find <u>pasture</u>[^c].
 
 [1 Nephi 22:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p25#p25)
 

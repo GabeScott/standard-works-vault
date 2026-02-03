@@ -1,6 +1,6 @@
 # Nehemiah 4:6
 
-> So built we the wall; and all the wall was joined together unto the half thereof: for the <u>people</u>[^a] had a mind to <u>work</u>[^b] .
+> So built we the wall; and all the wall was joined together unto the half thereof: for the <u>people</u>[^a] had a mind to <u>work</u>[^b].
 
 [Nehemiah 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/4.6?lang=eng#p6)
 

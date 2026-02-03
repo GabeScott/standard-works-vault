@@ -1,6 +1,6 @@
 # 1 Chronicles 29:22
 
-> And did eat and drink before the Lord on that day with great gladness. And they made <u>Solomon</u>[^a] the son of David king the second time, and <u>anointed</u>[^b] him unto the Lord to be the chief governor, and Zadok to be <u>priest</u>[^c] .
+> And did eat and drink before the LORD on that day with great gladness. And they made <u>Solomon</u>[^a] the son of David king the second time, and <u>anointed</u>[^b] *him* unto the LORD *to be* the chief governor, and Zadok *to be* <u>priest</u>[^c].
 
 [1 Chronicles 29:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.22?lang=eng#p22)
 

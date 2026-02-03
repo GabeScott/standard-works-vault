@@ -1,6 +1,6 @@
 # 3 Nephi 27:31
 
-> Behold, I would that ye should understand; for I mean them who are <u>now</u>[^a] alive of <u>this generation</u>[^b]; and none of them are lost; and in them I have fulness of <u>joy</u>[^c] .
+> Behold, I would that ye should understand; for I mean them who are <u>now</u>[^a] alive of <u>this generation</u>[^b]; and none of them are lost; and in them I have fulness of <u>joy</u>[^c].
 
 [3 Nephi 27:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p31#p31)
 

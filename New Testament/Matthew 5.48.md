@@ -1,6 +1,6 @@
 # Matthew 5:48
 
-> <u>Be</u>[^a] ye therefore <u>perfect</u>[^b], even as your <u>Father</u>[^c] which is in heaven is <u>perfect</u>[^d] .
+> <u>Be</u>[^a] ye therefore <u>perfect</u>[^b], even as your <u>Father</u>[^c] which is in heaven is <u>perfect</u>[^d].
 
 [Matthew 5:48](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.48?lang=eng#p48)
 

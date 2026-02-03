@@ -1,6 +1,6 @@
 # Proverbs 19:16
 
-> He that <u>keepeth</u>[^a] the commandment keepeth his own soul; but he that despiseth his ways shall die.
+> He that <u>keepeth</u>[^a] the commandment keepeth his own soul; *but* he that despiseth his ways shall die.
 
 [Proverbs 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.16?lang=eng#p16)
 

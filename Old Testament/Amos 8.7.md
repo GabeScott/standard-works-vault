@@ -1,6 +1,6 @@
 # Amos 8:7
 
-> The Lord hath sworn by the <u>excellency</u>[^a] of Jacob, Surely I will never <u>forget</u>[^b] any of their works.
+> The LORD hath sworn by the <u>excellency</u>[^a] of Jacob, Surely I will never <u>forget</u>[^b] any of their works.
 
 [Amos 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/8.7?lang=eng#p7)
 

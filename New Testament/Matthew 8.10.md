@@ -1,6 +1,6 @@
 # Matthew 8:10
 
-> <u>When Jesus</u>[^a] heard it, he marvelled, and said to them that followed, Verily I say unto you, I have not found so great <u>faith</u>[^b], no, not in Israel.
+> <u>When Jesus</u>[^a] heard *it,* he marvelled, and said to them that followed, Verily I say unto you, I have not found so great <u>faith</u>[^b], no, not in Israel.
 
 [Matthew 8:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.10?lang=eng#p10)
 

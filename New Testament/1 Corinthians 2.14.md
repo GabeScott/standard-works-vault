@@ -1,6 +1,6 @@
 # 1 Corinthians 2:14
 
-> But the <u>natural man</u>[^a] <u>receiveth</u>[^b] not the things of the <u>Spirit</u>[^c] of God: for they are <u>foolishness</u>[^d] unto him: neither can he <u>know</u>[^e] them, because they are <u>spiritually</u>[^f] <u>discerned</u>[^g] .
+> But the <u>natural man</u>[^a] <u>receiveth</u>[^b] not the things of the <u>Spirit</u>[^c] of God: for they are <u>foolishness</u>[^d] unto him: neither can he <u>know</u>[^e] *them,* because they are <u>spiritually</u>[^f] <u>discerned</u>[^g].
 
 [1 Corinthians 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.14?lang=eng#p14)
 

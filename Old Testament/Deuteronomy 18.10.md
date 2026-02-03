@@ -1,6 +1,6 @@
 # Deuteronomy 18:10
 
-> There shall not be found among you any one that maketh his son or his daughter <u>to</u>[^a] pass through the <u>fire</u>[^b], or that useth <u>divination</u>[^c], or an observer of times, or an <u>enchanter</u>[^d], or a witch,
+> There shall not be found among you *any one* that maketh his son or his daughter <u>to</u>[^a] pass through the <u>fire</u>[^b], *or* that useth <u>divination</u>[^c], *or* an observer of times, or an <u>enchanter</u>[^d], or a witch,
 
 [Deuteronomy 18:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.10?lang=eng#p10)
 

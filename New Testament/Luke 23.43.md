@@ -1,6 +1,6 @@
 # Luke 23:43
 
-> And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in <u>paradise</u>[^a] .
+> And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in <u>paradise</u>[^a].
 
 [Luke 23:43](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.43?lang=eng#p43)
 

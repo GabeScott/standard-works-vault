@@ -1,6 +1,6 @@
 # Luke 9:35
 
-> And there came a voice out of the cloud, saying, This is my <u>beloved Son</u>[^a] : hear him.
+> And there came a voice out of the cloud, saying, This is my <u>beloved Son</u>[^a]: hear him.
 
 [Luke 9:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.35?lang=eng#p35)
 

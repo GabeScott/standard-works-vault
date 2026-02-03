@@ -1,6 +1,6 @@
 # Genesis 2:17
 
-> But of the <u>tree</u>[^a] of the <u>knowledge</u>[^b] of good and evil, thou shalt not eat of it: for in the <u>day</u>[^c] that thou eatest thereof thou shalt surely <u>die</u>[^d] .
+> But of the <u>tree</u>[^a] of the <u>knowledge</u>[^b] of good and evil, thou shalt not eat of it: for in the <u>day</u>[^c] that thou eatest thereof thou shalt surely <u>die</u>[^d].
 
 [Genesis 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.17?lang=eng#p17)
 

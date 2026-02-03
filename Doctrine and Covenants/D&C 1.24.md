@@ -1,6 +1,6 @@
 # D&C 1:24
 
-> Behold, I am God and have spoken it; these <u>commandments</u>[^a] are of me, and were given unto my servants in their weakness, after the manner of their <u>language</u>[^b], that they might come to <u>understanding</u>[^c] .
+> Behold, I am God and have spoken it; these <u>commandments</u>[^a] are of me, and were given unto my servants in their weakness, after the manner of their <u>language</u>[^b], that they might come to <u>understanding</u>[^c].
 
 [D&C 1:24](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.24?lang=eng#p24)
 

@@ -1,6 +1,6 @@
 # Numbers 25:5
 
-> And Moses said unto the judges of Israel, <u>Slay</u>[^a] ye every one his men that were joined unto <u>Baal-peor</u>[^b] .
+> And Moses said unto the judges of Israel, <u>Slay</u>[^a] ye every one his men that were joined unto <u>Baal-peor</u>[^b].
 
 [Numbers 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/num/25.5?lang=eng#p5)
 

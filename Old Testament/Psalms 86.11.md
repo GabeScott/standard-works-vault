@@ -1,6 +1,6 @@
 # Psalms 86:11
 
-> <u>Teach</u>[^a] me thy way, O Lord ; I will walk in thy truth: unite my heart to fear thy name.
+> <u>Teach</u>[^a] me thy way, O LORD; I will walk in thy truth: unite my heart to fear thy name.
 
 [Psalms 86:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/86.11?lang=eng#p11)
 

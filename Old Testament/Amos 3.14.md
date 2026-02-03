@@ -1,6 +1,6 @@
 # Amos 3:14
 
-> That in the day that I shall visit the transgressions of Israel upon him I will also visit the altars of <u>Beth-el</u>[^a] : and the horns of the altar shall be cut off, and <u>fall</u>[^b] to the ground.
+> That in the day that I shall visit the transgressions of Israel upon him I will also visit the altars of <u>Beth-el</u>[^a]: and the horns of the altar shall be cut off, and <u>fall</u>[^b] to the ground.
 
 [Amos 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.14?lang=eng#p14)
 

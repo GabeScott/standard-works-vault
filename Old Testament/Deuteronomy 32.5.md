@@ -1,6 +1,6 @@
 # Deuteronomy 32:5
 
-> They have corrupted themselves, <u>their</u>[^a] spot is not the spot of his <u>children</u>[^b] : they are a <u>perverse</u>[^c] and crooked <u>generation</u>[^d] .
+> They have corrupted themselves, <u>their</u>[^a] spot *is* not *the spot* of his <u>children</u>[^b]: *they are* a <u>perverse</u>[^c] and crooked <u>generation</u>[^d].
 
 [Deuteronomy 32:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.5?lang=eng#p5)
 

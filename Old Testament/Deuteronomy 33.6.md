@@ -1,6 +1,6 @@
 # Deuteronomy 33:6
 
-> ¶ Let <u>Reuben</u>[^a] live, and not die; and let not his men be <u>few</u>[^b] .
+> ¶ Let <u>Reuben</u>[^a] live, and not die; and let *not* his men be <u>few</u>[^b].
 
 [Deuteronomy 33:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.6?lang=eng#p6)
 

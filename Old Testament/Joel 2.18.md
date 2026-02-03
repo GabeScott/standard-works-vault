@@ -1,6 +1,6 @@
 # Joel 2:18
 
-> ¶ Then will the Lord be <u>jealous</u>[^a] for his land, and <u>pity</u>[^b] his people.
+> ¶ Then will the LORD be <u>jealous</u>[^a] for his land, and <u>pity</u>[^b] his people.
 
 [Joel 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.18?lang=eng#p18)
 

@@ -1,6 +1,6 @@
 # Amos 5:18
 
-> Woe unto you that <u>desire</u>[^a] the <u>day</u>[^b] of the Lord ! to what end is it for you? the day of the Lord is <u>darkness</u>[^c], and not light.
+> Woe unto you that <u>desire</u>[^a] the <u>day</u>[^b] of the LORD! to what end *is* it for you? the day of the LORD *is* <u>darkness</u>[^c], and not light.
 
 [Amos 5:18](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.18?lang=eng#p18)
 

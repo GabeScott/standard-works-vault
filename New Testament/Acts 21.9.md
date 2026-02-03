@@ -1,6 +1,6 @@
 # Acts 21:9
 
-> And the same man had four daughters, virgins, which did <u>prophesy</u>[^a] .
+> And the same man had four daughters, virgins, which did <u>prophesy</u>[^a].
 
 [Acts 21:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.9?lang=eng#p9)
 

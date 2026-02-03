@@ -1,6 +1,6 @@
 # Matthew 24:35
 
-> Heaven and earth shall <u>pass</u>[^a] away, but my <u>words</u>[^b] shall not <u>pass away</u>[^c] .
+> Heaven and earth shall <u>pass</u>[^a] away, but my <u>words</u>[^b] shall not <u>pass away</u>[^c].
 
 [Matthew 24:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.35?lang=eng#p35)
 

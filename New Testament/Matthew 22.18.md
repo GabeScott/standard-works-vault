@@ -1,6 +1,6 @@
 # Matthew 22:18
 
-> But Jesus perceived their wickedness, and said, Why <u>tempt ye</u>[^a] me, ye hypocrites?
+> But Jesus perceived their wickedness, and said, Why <u>tempt ye</u>[^a] me, *ye* hypocrites?
 
 [Matthew 22:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.18?lang=eng#p18)
 

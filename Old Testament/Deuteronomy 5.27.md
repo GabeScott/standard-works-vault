@@ -1,6 +1,6 @@
 # Deuteronomy 5:27
 
-> Go thou near, and hear all that the Lord our God shall say: and <u>speak</u>[^a] thou unto us all that the Lord our God shall speak unto thee; and we will hear it, and <u>do</u>[^b] it.
+> Go thou near, and hear all that the LORD our God shall say: and <u>speak</u>[^a] thou unto us all that the LORD our God shall speak unto thee; and we will hear *it,* and <u>do</u>[^b] *it.*
 
 [Deuteronomy 5:27](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.27?lang=eng#p27)
 

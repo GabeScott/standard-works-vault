@@ -1,6 +1,6 @@
 # Genesis 18:22
 
-> <u>And</u>[^a] the men turned their faces from thence, and went toward Sodom: but Abraham <u>stood</u>[^b] yet before the Lord .
+> <u>And</u>[^a] the men turned their faces from thence, and went toward Sodom: but Abraham <u>stood</u>[^b] yet before the LORD.
 
 [Genesis 18:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.22?lang=eng#p22)
 

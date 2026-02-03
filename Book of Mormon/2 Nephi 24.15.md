@@ -1,6 +1,6 @@
 # 2 Nephi 24:15
 
-> Yet thou shalt be brought down to hell, to the sides of the <u>pit</u>[^a] .
+> Yet thou shalt be brought down to hell, to the sides of the <u>pit</u>[^a].
 
 [2 Nephi 24:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p15#p15)
 

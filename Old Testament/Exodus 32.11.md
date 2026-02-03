@@ -1,6 +1,6 @@
 # Exodus 32:11
 
-> And Moses <u>besought</u>[^a] the Lord his God, and said, Lord , why doth thy wrath wax hot against thy people, which thou hast brought forth out of the land of Egypt with great power, and with a mighty hand?
+> And Moses <u>besought</u>[^a] the LORD his God, and said, LORD, why doth thy wrath wax hot against thy people, which thou hast brought forth out of the land of Egypt with great power, and with a mighty hand?
 
 [Exodus 32:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.11?lang=eng#p11)
 

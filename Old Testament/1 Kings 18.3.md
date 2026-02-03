@@ -1,6 +1,6 @@
 # 1 Kings 18:3
 
-> And Ahab called Obadiah, which was the governor of his house. (Now Obadiah <u>feared</u>[^a] the Lord greatly:
+> And Ahab called Obadiah, which *was* the governor of *his* house. (Now Obadiah <u>feared</u>[^a] the LORD greatly:
 
 [1 Kings 18:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.3?lang=eng#p3)
 

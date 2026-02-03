@@ -1,6 +1,6 @@
 # Job 42:6
 
-> Wherefore I abhor myself, and repent in dust and <u>ashes</u>[^a] .
+> Wherefore I abhor *myself,* and repent in dust and <u>ashes</u>[^a].
 
 [Job 42:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/42.6?lang=eng#p6)
 

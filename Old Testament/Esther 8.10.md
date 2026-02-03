@@ -1,6 +1,6 @@
 # Esther 8:10
 
-> And he wrote in the king Ahasuerus’ <u>name</u>[^a], and sealed it with the king’s ring, and sent <u>letters</u>[^b] by posts on horseback, and riders on mules, camels, and young dromedaries:
+> And he wrote in the king Ahasuerus’ <u>name</u>[^a], and sealed *it* with the king’s ring, and sent <u>letters</u>[^b] by posts on horseback, *and* riders on mules, camels, *and* young dromedaries:
 
 [Esther 8:10](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/8.10?lang=eng#p10)
 

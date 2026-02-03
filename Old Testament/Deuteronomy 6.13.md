@@ -1,6 +1,6 @@
 # Deuteronomy 6:13
 
-> Thou shalt <u>fear</u>[^a] the Lord thy God, and <u>serve</u>[^b] him, and shalt <u>swear</u>[^c] by his name.
+> Thou shalt <u>fear</u>[^a] the LORD thy God, and <u>serve</u>[^b] him, and shalt <u>swear</u>[^c] by his name.
 
 [Deuteronomy 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Mosiah 24:17
 
-> And he said unto Alma: Thou shalt go before this people, and I will go <u>with thee</u>[^a] and deliver this people out of <u>bondage</u>[^b] .
+> And he said unto Alma: Thou shalt go before this people, and I will go <u>with thee</u>[^a] and deliver this people out of <u>bondage</u>[^b].
 
 [Mosiah 24:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p17#p17)
 

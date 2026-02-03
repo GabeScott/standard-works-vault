@@ -1,6 +1,6 @@
 # Isaiah 61:6
 
-> But ye shall be named the <u>Priests</u>[^a] of the Lord : men shall call you the Ministers of our God: ye shall eat the <u>riches</u>[^b] of the Gentiles, and in their glory shall ye boast yourselves.
+> But ye shall be named the <u>Priests</u>[^a] of the LORD: *men* shall call you the Ministers of our God: ye shall eat the <u>riches</u>[^b] of the Gentiles, and in their glory shall ye boast yourselves.
 
 [Isaiah 61:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.6?lang=eng#p6)
 

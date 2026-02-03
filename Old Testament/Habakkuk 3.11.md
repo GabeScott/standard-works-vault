@@ -1,6 +1,6 @@
 # Habakkuk 3:11
 
-> The <u>sun</u>[^a] and moon stood still in their habitation: at the light of thine arrows they went, and at the shining of thy glittering spear.
+> The <u>sun</u>[^a] *and* moon stood still in their habitation: at the light of thine arrows they went, *and* at the shining of thy glittering spear.
 
 [Habakkuk 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.11?lang=eng#p11)
 

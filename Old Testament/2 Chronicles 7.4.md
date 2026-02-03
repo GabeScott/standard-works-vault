@@ -1,6 +1,6 @@
 # 2 Chronicles 7:4
 
-> ¶ Then the king and all the people <u>offered</u>[^a] sacrifices before the Lord .
+> ¶ Then the king and all the people <u>offered</u>[^a] sacrifices before the LORD.
 
 [2 Chronicles 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.4?lang=eng#p4)
 

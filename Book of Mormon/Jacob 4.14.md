@@ -1,6 +1,6 @@
 # Jacob 4:14
 
-> But behold, the Jews were a <u>stiffnecked</u>[^a] people; and they <u>despised</u>[^b] the words of <u>plainness</u>[^c], and <u>killed</u>[^d] the prophets, and sought for things that they could not understand. Wherefore, because of their <u>blindness</u>[^e], which <u>blindness</u>[^f] came by looking beyond the <u>mark</u>[^g], they must needs fall; for God hath taken away his plainness from them, and delivered unto them many things which they <u>cannot</u>[^h] understand, because they desired it. And because they desired it God hath done it, that they may <u>stumble</u>[^i] .
+> But behold, the Jews were a <u>stiffnecked</u>[^a] people; and they <u>despised</u>[^b] the words of <u>plainness</u>[^c], and <u>killed</u>[^d] the prophets, and sought for things that they could not understand. Wherefore, because of their <u>blindness</u>[^e], which <u>blindness</u>[^f] came by looking beyond the <u>mark</u>[^g], they must needs fall; for God hath taken away his plainness from them, and delivered unto them many things which they <u>cannot</u>[^h] understand, because they desired it. And because they desired it God hath done it, that they may <u>stumble</u>[^i].
 
 [Jacob 4:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/4?lang=eng&id=p14#p14)
 

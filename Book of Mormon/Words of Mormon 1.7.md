@@ -1,6 +1,6 @@
 # Words of Mormon 1:7
 
-> And I do this for a <u>wise</u>[^a] <u>purpose</u>[^b]; for thus it whispereth me, according to the workings of the Spirit of the Lord which is in me. And now, I do not know all things; but the Lord <u>knoweth</u>[^c] all things which are to come; wherefore, he <u>worketh</u>[^d] in me to do according to his <u>will</u>[^e] .
+> And I do this for a <u>wise</u>[^a] <u>purpose</u>[^b]; for thus it whispereth me, according to the workings of the Spirit of the Lord which is in me. And now, I do not know all things; but the Lord <u>knoweth</u>[^c] all things which are to come; wherefore, he <u>worketh</u>[^d] in me to do according to his <u>will</u>[^e].
 
 [Words of Mormon 1:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/w-of-m/1?lang=eng&id=p7#p7)
 

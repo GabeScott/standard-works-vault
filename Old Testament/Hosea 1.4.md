@@ -1,6 +1,6 @@
 # Hosea 1:4
 
-> And the Lord said unto him, Call his name Jezreel; for yet a little while, and I will avenge the blood of Jezreel upon the house of <u>Jehu</u>[^a], and will cause to <u>cease</u>[^b] the kingdom of the house of Israel.
+> And the LORD said unto him, Call his name Jezreel; for yet a little *while,* and I will avenge the blood of Jezreel upon the house of <u>Jehu</u>[^a], and will cause to <u>cease</u>[^b] the kingdom of the house of Israel.
 
 [Hosea 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/1.4?lang=eng#p4)
 

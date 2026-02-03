@@ -1,6 +1,6 @@
 # Ephesians 5:2
 
-> And <u>walk</u>[^a] in love, as Christ also hath loved us, and hath given himself for us an <u>offering</u>[^b] and a <u>sacrifice</u>[^c] to God for a sweetsmelling <u>savour</u>[^d] .
+> And <u>walk</u>[^a] in love, as Christ also hath loved us, and hath given himself for us an <u>offering</u>[^b] and a <u>sacrifice</u>[^c] to God for a sweetsmelling <u>savour</u>[^d].
 
 [Ephesians 5:2](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.2?lang=eng#p2)
 

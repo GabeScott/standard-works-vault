@@ -1,6 +1,6 @@
 # Jude 1:5
 
-> I will therefore put you in remembrance, though ye once knew this, how that the Lord, having <u>saved</u>[^a] the people out of the land of Egypt, afterward <u>destroyed</u>[^b] them that <u>believed not</u>[^c] .
+> I will therefore put you in remembrance, though ye once knew this, how that the Lord, having <u>saved</u>[^a] the people out of the land of Egypt, afterward <u>destroyed</u>[^b] them that <u>believed not</u>[^c].
 
 [Jude 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.5?lang=eng#p5)
 

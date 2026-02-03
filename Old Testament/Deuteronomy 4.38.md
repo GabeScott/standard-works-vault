@@ -1,6 +1,6 @@
 # Deuteronomy 4:38
 
-> To <u>drive</u>[^a] out nations from before thee greater and mightier than thou art, to bring thee in, to give thee their land for an <u>inheritance</u>[^b], as it is this day.
+> To <u>drive</u>[^a] out nations from before thee greater and mightier than thou *art,* to bring thee in, to give thee their land *for* an <u>inheritance</u>[^b], as *it is* this day.
 
 [Deuteronomy 4:38](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.38?lang=eng#p38)
 

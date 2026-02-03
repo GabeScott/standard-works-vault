@@ -1,6 +1,6 @@
 # 2 Nephi 5:33
 
-> And if my people desire to know the more particular part of the history of my people they must search mine <u>other</u>[^a] <u>plates</u>[^b] .
+> And if my people desire to know the more particular part of the history of my people they must search mine <u>other</u>[^a] <u>plates</u>[^b].
 
 [2 Nephi 5:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p33#p33)
 

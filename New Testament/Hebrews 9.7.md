@@ -1,6 +1,6 @@
 # Hebrews 9:7
 
-> But into the second went the <u>high priest</u>[^a] alone <u>once</u>[^b] every year, not without blood, which he offered for himself, and for the errors of the people:
+> But into the second *went* the <u>high priest</u>[^a] alone <u>once</u>[^b] every year, not without blood, which he offered for himself, and *for* the errors of the people:
 
 [Hebrews 9:7](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.7?lang=eng#p7)
 

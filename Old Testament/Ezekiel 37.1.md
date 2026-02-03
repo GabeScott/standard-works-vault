@@ -1,6 +1,6 @@
 # Ezekiel 37:1
 
-> The <u>hand</u>[^a] of the Lord was upon me, and <u>carried</u>[^b] me out in the <u>spirit</u>[^c] of the Lord , and set me down in the midst of the valley which was full of bones,
+> The <u>hand</u>[^a] of the LORD was upon me, and <u>carried</u>[^b] me out in the <u>spirit</u>[^c] of the LORD, and set me down in the midst of the valley which *was* full of bones,
 
 [Ezekiel 37:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.1?lang=eng#p1)
 

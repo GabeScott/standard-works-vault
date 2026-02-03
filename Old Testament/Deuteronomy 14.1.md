@@ -1,6 +1,6 @@
 # Deuteronomy 14:1
 
-> Ye are the <u>children</u>[^a] of the Lord your God: ye shall <u>not</u>[^b] <u>cut</u>[^c] yourselves, nor make any baldness <u>between your eyes</u>[^d] for the dead.
+> Ye *are* the <u>children</u>[^a] of the LORD your God: ye shall <u>not</u>[^b] <u>cut</u>[^c] yourselves, nor make any baldness <u>between your eyes</u>[^d] for the dead.
 
 [Deuteronomy 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.1?lang=eng#p1)
 

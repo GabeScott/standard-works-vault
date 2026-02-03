@@ -1,6 +1,6 @@
 # Exodus 20:7
 
-> Thou shalt not take the <u>name</u>[^a] of the Lord thy God in <u>vain</u>[^b]; for the Lord will not hold him <u>guiltless</u>[^c] that <u>taketh</u>[^d] his name in vain.
+> Thou shalt not take the <u>name</u>[^a] of the LORD thy God in <u>vain</u>[^b]; for the LORD will not hold him <u>guiltless</u>[^c] that <u>taketh</u>[^d] his name in vain.
 
 [Exodus 20:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.7?lang=eng#p7)
 

@@ -1,6 +1,6 @@
 # Isaiah 31:5
 
-> As birds <u>flying</u>[^a], so will the Lord of hosts <u>defend</u>[^b] Jerusalem; defending also he will deliver it; and passing over he will preserve it.
+> As birds <u>flying</u>[^a], so will the LORD of hosts <u>defend</u>[^b] Jerusalem; defending also he will deliver *it; and* passing over he will preserve *it.*
 
 [Isaiah 31:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/31.5?lang=eng#p5)
 

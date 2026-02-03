@@ -1,6 +1,6 @@
 # Leviticus 17:8
 
-> ¶ And thou shalt say unto them, Whatsoever man there be of the house of Israel, or of the strangers which sojourn among you, that <u>offereth</u>[^a] a burnt offering or sacrifice,
+> ¶ And thou shalt say unto them, Whatsoever man *there be* of the house of Israel, or of the strangers which sojourn among you, that <u>offereth</u>[^a] a burnt offering or sacrifice,
 
 [Leviticus 17:8](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/17.8?lang=eng#p8)
 

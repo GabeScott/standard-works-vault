@@ -1,6 +1,6 @@
 # Job 1:21
 
-> And said, <u>Naked</u>[^a] came I out of my mother’s womb, and naked shall I return thither: the Lord gave, and the Lord hath <u>taken</u>[^b] away; <u>blessed</u>[^c] be the name of the Lord .
+> And said, <u>Naked</u>[^a] came I out of my mother’s womb, and naked shall I return thither: the LORD gave, and the LORD hath <u>taken</u>[^b] away; <u>blessed</u>[^c] be the name of the LORD.
 
 [Job 1:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.21?lang=eng#p21)
 

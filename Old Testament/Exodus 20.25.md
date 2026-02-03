@@ -1,6 +1,6 @@
 # Exodus 20:25
 
-> And if thou wilt make me an altar of stone, thou shalt not build it of hewn <u>stone</u>[^a] : for if thou lift up thy <u>tool</u>[^b] upon it, thou hast polluted it.
+> And if thou wilt make me an altar of stone, thou shalt not build it of hewn <u>stone</u>[^a]: for if thou lift up thy <u>tool</u>[^b] upon it, thou hast polluted it.
 
 [Exodus 20:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.25?lang=eng#p25)
 

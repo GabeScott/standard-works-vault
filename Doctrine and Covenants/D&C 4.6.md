@@ -1,6 +1,6 @@
 # D&C 4:6
 
-> Remember faith, <u>virtue</u>[^a], knowledge, <u>temperance</u>[^b], <u>patience</u>[^c], <u>brotherly</u>[^d] <u>kindness</u>[^e], <u>godliness</u>[^f], charity, <u>humility</u>[^g], <u>diligence</u>[^h] .
+> Remember faith, <u>virtue</u>[^a], knowledge, <u>temperance</u>[^b], <u>patience</u>[^c], <u>brotherly</u>[^d] <u>kindness</u>[^e], <u>godliness</u>[^f], charity, <u>humility</u>[^g], <u>diligence</u>[^h].
 
 [D&C 4:6](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/4.6?lang=eng#p6)
 

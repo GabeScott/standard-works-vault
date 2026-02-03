@@ -1,6 +1,6 @@
 # Proverbs 27:20
 
-> <u>Hell</u>[^a] and destruction are never full; so the eyes of man are never <u>satisfied</u>[^b] .
+> <u>Hell</u>[^a] and destruction are never full; so the eyes of man are never <u>satisfied</u>[^b].
 
 [Proverbs 27:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # Job 15:14
 
-> What is man, that he should be <u>clean</u>[^a] ? and he which is born of a woman, that he should be righteous?
+> What *is* man, that he should be <u>clean</u>[^a]? and *he which is* born of a woman, that he should be righteous?
 
 [Job 15:14](https://www.churchofjesuschrist.org/study/scriptures/ot/job/15.14?lang=eng#p14)
 

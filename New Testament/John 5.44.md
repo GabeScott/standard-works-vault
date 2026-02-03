@@ -1,6 +1,6 @@
 # John 5:44
 
-> How can ye believe, which receive <u>honour</u>[^a] one of another, and seek not the <u>honour</u>[^b] that cometh from God only?
+> How can ye believe, which receive <u>honour</u>[^a] one of another, and seek not the <u>honour</u>[^b] that *cometh* from God only?
 
 [John 5:44](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.44?lang=eng#p44)
 

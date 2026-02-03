@@ -1,6 +1,6 @@
 # 1 Kings 2:3
 
-> And keep the charge of the Lord thy God, to <u>walk</u>[^a] in his ways, to keep his statutes, and his <u>commandments</u>[^b], and his judgments, and his testimonies, as it is written in the law of Moses, that thou mayest <u>prosper</u>[^c] in all that thou doest, and whithersoever thou turnest thyself:
+> And keep the charge of the LORD thy God, to <u>walk</u>[^a] in his ways, to keep his statutes, and his <u>commandments</u>[^b], and his judgments, and his testimonies, as it is written in the law of Moses, that thou mayest <u>prosper</u>[^c] in all that thou doest, and whithersoever thou turnest thyself:
 
 [1 Kings 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.3?lang=eng#p3)
 

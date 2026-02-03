@@ -1,6 +1,6 @@
 # Joshua 1:5
 
-> There shall not any man be able to stand before thee all the days of thy life: as I was with <u>Moses</u>[^a], so I will be <u>with thee</u>[^b] : I will not fail thee, nor <u>forsake</u>[^c] thee.
+> There shall not any man be able to stand before thee all the days of thy life: as I was with <u>Moses</u>[^a], *so* I will be <u>with thee</u>[^b]: I will not fail thee, nor <u>forsake</u>[^c] thee.
 
 [Joshua 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.5?lang=eng#p5)
 

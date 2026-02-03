@@ -1,6 +1,6 @@
 # Hosea 12:13
 
-> And by a <u>prophet</u>[^a] the Lord brought Israel out of Egypt, and by a prophet was he preserved.
+> And by a <u>prophet</u>[^a] the <u>Lord</u>[^b] brought Israel out of Egypt, and by a prophet was he preserved.
 
 [Hosea 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.13?lang=eng#p13)
 

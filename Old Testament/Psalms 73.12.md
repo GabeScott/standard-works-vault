@@ -1,6 +1,6 @@
 # Psalms 73:12
 
-> Behold, these are the ungodly, who <u>prosper</u>[^a] in the <u>world</u>[^b]; they increase in riches.
+> Behold, these *are* the ungodly, who <u>prosper</u>[^a] in the <u>world</u>[^b]; they increase *in* riches.
 
 [Psalms 73:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.12?lang=eng#p12)
 

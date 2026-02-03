@@ -1,6 +1,6 @@
 # 2 Chronicles 36:10
 
-> And when the year was expired, king Nebuchadnezzar sent, and brought him to <u>Babylon</u>[^a], with the goodly vessels of the house of the Lord , and made <u>Zedekiah</u>[^b] his brother king over Judah and Jerusalem.
+> And when the year was expired, king Nebuchadnezzar sent, and brought him to <u>Babylon</u>[^a], with the goodly vessels of the house of the LORD, and made <u>Zedekiah</u>[^b] his brother king over Judah and Jerusalem.
 
 [2 Chronicles 36:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.10?lang=eng#p10)
 

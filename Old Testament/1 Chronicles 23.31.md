@@ -1,6 +1,6 @@
 # 1 Chronicles 23:31
 
-> And to offer all burnt <u>sacrifices</u>[^a] unto the Lord in the sabbaths, in the new moons, and on the set <u>feasts</u>[^b], by number, according to the order commanded unto them, continually before the Lord :
+> And to offer all burnt <u>sacrifices</u>[^a] unto the LORD in the sabbaths, in the new moons, and on the set <u>feasts</u>[^b], by number, according to the order commanded unto them, continually before the LORD:
 
 [1 Chronicles 23:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/23.31?lang=eng#p31)
 

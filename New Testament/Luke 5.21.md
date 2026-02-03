@@ -1,6 +1,6 @@
 # Luke 5:21
 
-> And the scribes and the Pharisees began to reason, saying, Who is this which speaketh <u>blasphemies</u>[^a] ? Who can <u>forgive</u>[^b] sins, but God alone?
+> And the scribes and the Pharisees began to reason, saying, Who is this which speaketh <u>blasphemies</u>[^a]? Who can <u>forgive</u>[^b] sins, but God alone?
 
 [Luke 5:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.21?lang=eng#p21)
 

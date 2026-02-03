@@ -1,6 +1,6 @@
 # Genesis 36:9
 
-> ¶ And these are the <u>generations</u>[^a] of <u>Esau</u>[^b] the father of the Edomites in mount Seir:
+> ¶ And these *are* the <u>generations</u>[^a] of <u>Esau</u>[^b] the father of the Edomites in mount Seir:
 
 [Genesis 36:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/36.9?lang=eng#p9)
 

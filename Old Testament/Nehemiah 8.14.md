@@ -1,6 +1,6 @@
 # Nehemiah 8:14
 
-> And they found written in the law which the Lord had commanded by Moses, that <u>the</u>[^a] children of Israel should dwell in booths in the <u>feast</u>[^b] of the seventh month:
+> And they found written in the law which the LORD had commanded by Moses, that <u>the</u>[^a] children of Israel should dwell in booths in the <u>feast</u>[^b] of the seventh month:
 
 [Nehemiah 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.14?lang=eng#p14)
 

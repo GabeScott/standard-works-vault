@@ -1,6 +1,6 @@
 # Proverbs 24:23
 
-> These things also belong to the wise. It is not good to have <u>respect</u>[^a] of persons in judgment.
+> These *things* also *belong* to the wise. *It is* not good to have <u>respect</u>[^a] of persons in judgment.
 
 [Proverbs 24:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.23?lang=eng#p23)
 

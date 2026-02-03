@@ -1,6 +1,6 @@
 # Genesis 15:1
 
-> After these things the word of the Lord came unto Abram in a <u>vision</u>[^a], saying, <u>Fear not</u>[^b], Abram: I am thy <u>shield</u>[^c], and thy exceeding great reward.
+> After these things the word of the LORD came unto Abram in a <u>vision</u>[^a], saying, <u>Fear not</u>[^b], Abram: I *am* thy <u>shield</u>[^c], *and* thy exceeding great reward.
 
 [Genesis 15:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.1?lang=eng#p1)
 

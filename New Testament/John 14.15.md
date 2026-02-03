@@ -1,6 +1,6 @@
 # John 14:15
 
-> ¶ If ye <u>love</u>[^a] me, <u>keep</u>[^b] my <u>commandments</u>[^c] .
+> ¶ If ye <u>love</u>[^a] me, <u>keep</u>[^b] my <u>commandments</u>[^c].
 
 [John 14:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.15?lang=eng#p15)
 

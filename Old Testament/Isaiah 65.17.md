@@ -1,6 +1,6 @@
 # Isaiah 65:17
 
-> ¶ For, behold, I <u>create</u>[^a] new <u>heavens</u>[^b] and a <u>new</u>[^c] <u>earth</u>[^d] : and the <u>former</u>[^e] shall not be remembered, nor come into mind.
+> ¶ For, behold, I <u>create</u>[^a] new <u>heavens</u>[^b] and a <u>new</u>[^c] <u>earth</u>[^d]: and the <u>former</u>[^e] shall not be remembered, nor come into mind.
 
 [Isaiah 65:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.17?lang=eng#p17)
 

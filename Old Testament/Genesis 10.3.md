@@ -1,6 +1,6 @@
 # Genesis 10:3
 
-> And the sons of Gomer; Ashkenaz, and Riphath, and <u>Togarmah</u>[^a] .
+> And the sons of Gomer; Ashkenaz, and Riphath, and <u>Togarmah</u>[^a].
 
 [Genesis 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.3?lang=eng#p3)
 

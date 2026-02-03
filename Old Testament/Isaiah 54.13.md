@@ -1,6 +1,6 @@
 # Isaiah 54:13
 
-> And all thy <u>children</u>[^a] shall be <u>taught</u>[^b] of the Lord ; and great shall be the <u>peace</u>[^c] of thy children.
+> And all thy <u>children</u>[^a] *shall be* <u>taught</u>[^b] of the LORD; and great *shall be* the <u>peace</u>[^c] of thy children.
 
 [Isaiah 54:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # 1 Chronicles 15:2
 
-> Then David said, None ought to <u>carry</u>[^a] the <u>ark</u>[^b] of God but the <u>Levites</u>[^c] : for them hath the Lord chosen to carry the ark of God, and to minister unto him for ever.
+> Then David said, None ought to <u>carry</u>[^a] the <u>ark</u>[^b] of God but the <u>Levites</u>[^c]: for them hath the LORD chosen to carry the ark of God, and to minister unto him for ever.
 
 [1 Chronicles 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/15.2?lang=eng#p2)
 

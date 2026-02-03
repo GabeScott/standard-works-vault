@@ -1,6 +1,6 @@
 # Ezekiel 38:22
 
-> And I will <u>plead</u>[^a] against him with <u>pestilence</u>[^b] and with blood; and I will rain upon him, and upon his bands, and upon the many people that are with him, an overflowing rain, and great <u>hailstones</u>[^c], <u>fire</u>[^d], and brimstone.
+> And I will <u>plead</u>[^a] against him with <u>pestilence</u>[^b] and with blood; and I will rain upon him, and upon his bands, and upon the many people that *are* with him, an overflowing rain, and great <u>hailstones</u>[^c], <u>fire</u>[^d], and brimstone.
 
 [Ezekiel 38:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.22?lang=eng#p22)
 

@@ -1,6 +1,6 @@
 # Revelation 14:15
 
-> And another angel came out of the temple, crying with a loud voice to him that sat on the cloud, <u>Thrust</u>[^a] in thy sickle, and <u>reap</u>[^b] : for the time is come for thee to reap; for the <u>harvest</u>[^c] of the earth is <u>ripe</u>[^d] .
+> And another angel came out of the temple, crying with a loud voice to him that sat on the cloud, <u>Thrust</u>[^a] in thy sickle, and <u>reap</u>[^b]: for the time is come for thee to reap; for the <u>harvest</u>[^c] of the earth is <u>ripe</u>[^d].
 
 [Revelation 14:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.15?lang=eng#p15)
 

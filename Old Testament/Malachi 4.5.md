@@ -1,6 +1,6 @@
 # Malachi 4:5
 
-> ¶ Behold, I will <u>send</u>[^a] you <u>Elijah</u>[^b] the prophet <u>before</u>[^c] the coming of the <u>great</u>[^d] and dreadful <u>day</u>[^e] of the Lord :
+> ¶ Behold, I will <u>send</u>[^a] you <u>Elijah</u>[^b] the prophet <u>before</u>[^c] the coming of the <u>great</u>[^d] and dreadful <u>day</u>[^e] of the LORD:
 
 [Malachi 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/4.5?lang=eng#p5)
 

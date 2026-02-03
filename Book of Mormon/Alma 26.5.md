@@ -1,6 +1,6 @@
 # Alma 26:5
 
-> Behold, the <u>field</u>[^a] was ripe, and blessed are ye, for ye did thrust in the <u>sickle</u>[^b], and did reap with your might, yea, all the day long did ye labor; and behold the number of your <u>sheaves</u>[^c] ! And they shall be gathered into the garners, that they are not wasted.
+> Behold, the <u>field</u>[^a] was ripe, and blessed are ye, for ye did thrust in the <u>sickle</u>[^b], and did reap with your might, yea, all the day long did ye labor; and behold the number of your <u>sheaves</u>[^c]! And they shall be gathered into the garners, that they are not wasted.
 
 [Alma 26:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p5#p5)
 

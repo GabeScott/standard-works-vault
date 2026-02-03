@@ -1,6 +1,6 @@
 # John 5:24
 
-> Verily, verily, I say unto you, He that heareth my word, and <u>believeth</u>[^a] on him that sent me, hath everlasting <u>life</u>[^b], and shall not come into <u>condemnation</u>[^c]; but is passed from <u>death</u>[^d] unto <u>life</u>[^e] .
+> Verily, verily, I say unto you, He that heareth my word, and <u>believeth</u>[^a] on him that sent me, hath everlasting <u>life</u>[^b], and shall not come into <u>condemnation</u>[^c]; but is passed from <u>death</u>[^d] unto <u>life</u>[^e].
 
 [John 5:24](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.24?lang=eng#p24)
 

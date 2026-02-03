@@ -1,6 +1,6 @@
 # Luke 13:3
 
-> I tell you, Nay: but, except ye <u>repent</u>[^a], ye shall all likewise <u>perish</u>[^b] .
+> I tell you, Nay: but, except ye <u>repent</u>[^a], ye shall all likewise <u>perish</u>[^b].
 
 [Luke 13:3](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.3?lang=eng#p3)
 

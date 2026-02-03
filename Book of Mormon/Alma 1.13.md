@@ -1,6 +1,6 @@
 # Alma 1:13
 
-> And thou hast shed the <u>blood</u>[^a] of a righteous man, yea, a man who has done much good among this people; and were we to spare thee his blood would come upon us for <u>vengeance</u>[^b] .
+> And thou hast shed the <u>blood</u>[^a] of a righteous man, yea, a man who has done much good among this people; and were we to spare thee his blood would come upon us for <u>vengeance</u>[^b].
 
 [Alma 1:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p13#p13)
 

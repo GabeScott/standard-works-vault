@@ -1,6 +1,6 @@
 # Ezekiel 35:10
 
-> Because thou hast said, These two nations and these two countries shall be mine, and we will <u>possess</u>[^a] it; whereas the Lord was there:
+> Because thou hast said, These two nations and these two countries shall be mine, and we will <u>possess</u>[^a] it; whereas the LORD was there:
 
 [Ezekiel 35:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/35.10?lang=eng#p10)
 

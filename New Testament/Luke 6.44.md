@@ -1,6 +1,6 @@
 # Luke 6:44
 
-> For every tree is known by his own <u>fruit</u>[^a] . For of thorns men do not gather figs, nor of a bramble bush gather they grapes.
+> For every tree is known by his own <u>fruit</u>[^a]. For of thorns men do not gather figs, nor of a bramble bush gather they grapes.
 
 [Luke 6:44](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.44?lang=eng#p44)
 

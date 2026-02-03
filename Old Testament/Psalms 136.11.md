@@ -1,6 +1,6 @@
 # Psalms 136:11
 
-> And brought out <u>Israel</u>[^a] from among them: for his mercy endureth for ever:
+> And brought out <u>Israel</u>[^a] from among them: for his mercy *endureth* for ever:
 
 [Psalms 136:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.11?lang=eng#p11)
 

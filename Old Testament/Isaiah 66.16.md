@@ -1,6 +1,6 @@
 # Isaiah 66:16
 
-> For by fire and by his <u>sword</u>[^a] will <u>the</u>[^b] Lord <u>plead</u>[^c] with all flesh: and the <u>slain</u>[^d] of the Lord shall be many.
+> For by fire and by his <u>sword</u>[^a] will <u>the</u>[^b] LORD <u>plead</u>[^c] with all flesh: and the <u>slain</u>[^d] of the LORD shall be many.
 
 [Isaiah 66:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.16?lang=eng#p16)
 

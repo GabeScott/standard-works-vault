@@ -1,6 +1,6 @@
 # 2 Nephi 8:9
 
-> <u>Awake</u>[^a], awake! Put on <u>strength</u>[^b], O arm of the Lord; awake as in the ancient days. Art thou not he that hath cut <u>Rahab</u>[^c], and wounded the <u>dragon</u>[^d] ?
+> <u>Awake</u>[^a], awake! Put on <u>strength</u>[^b], O arm of the Lord; awake as in the ancient days. Art thou not he that hath cut <u>Rahab</u>[^c], and wounded the <u>dragon</u>[^d]?
 
 [2 Nephi 8:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p9#p9)
 

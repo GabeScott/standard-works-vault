@@ -1,6 +1,6 @@
 # Acts 5:29
 
-> ¶ Then Peter and the other apostles answered and said, We ought to <u>obey</u>[^a] God rather than men.
+> ¶ Then Peter and the *other* apostles answered and said, We ought to <u>obey</u>[^a] God rather than men.
 
 [Acts 5:29](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.29?lang=eng#p29)
 

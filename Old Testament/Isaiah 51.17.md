@@ -1,6 +1,6 @@
 # Isaiah 51:17
 
-> ¶ Awake, awake, stand up, O Jerusalem, which hast drunk at the hand of the Lord the <u>cup</u>[^a] of his <u>fury</u>[^b]; thou hast drunken the dregs of the <u>cup</u>[^c] of trembling, and wrung them out.
+> ¶ Awake, awake, stand up, O Jerusalem, which hast drunk at the hand of the LORD the <u>cup</u>[^a] of his <u>fury</u>[^b]; thou hast drunken the dregs of the <u>cup</u>[^c] of trembling, *and* wrung *them* out.
 
 [Isaiah 51:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.17?lang=eng#p17)
 

@@ -1,6 +1,6 @@
 # 3 Nephi 11:35
 
-> Verily, verily, I say unto you, that this is my doctrine, and I bear record of it from the Father; and whoso <u>believeth</u>[^a] in me believeth in the Father also; and unto him will the Father bear record of me, for he will visit him <u>with</u>[^b] fire and with the <u>Holy Ghost</u>[^c] .
+> Verily, verily, I say unto you, that this is my doctrine, and I bear record of it from the Father; and whoso <u>believeth</u>[^a] in me believeth in the Father also; and unto him will the Father bear record of me, for he will visit him <u>with</u>[^b] fire and with the <u>Holy Ghost</u>[^c].
 
 [3 Nephi 11:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p35#p35)
 

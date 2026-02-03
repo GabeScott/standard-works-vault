@@ -1,6 +1,6 @@
 # 1 Chronicles 3:5
 
-> And these were born unto him in Jerusalem; Shimea, and Shobab, and Nathan, and <u>Solomon</u>[^a], four, of <u>Bath-shua</u>[^b] the daughter of <u>Ammiel</u>[^c] :
+> And these were born unto him in Jerusalem; Shimea, and Shobab, and Nathan, and <u>Solomon</u>[^a], four, of <u>Bath-shua</u>[^b] the daughter of <u>Ammiel</u>[^c]:
 
 [1 Chronicles 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/3.5?lang=eng#p5)
 

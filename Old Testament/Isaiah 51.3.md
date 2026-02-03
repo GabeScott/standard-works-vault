@@ -1,6 +1,6 @@
 # Isaiah 51:3
 
-> For the Lord shall <u>comfort</u>[^a] <u>Zion</u>[^b] : he will comfort all her waste places; and he will make her wilderness like <u>Eden</u>[^c], and her desert like the <u>garden</u>[^d] of the Lord ; joy and gladness shall be found therein, thanksgiving, and the voice of melody.
+> For the LORD shall <u>comfort</u>[^a] <u>Zion</u>[^b]: he will comfort all her waste places; and he will make her wilderness like <u>Eden</u>[^c], and her desert like the <u>garden</u>[^d] of the LORD; joy and gladness shall be found therein, thanksgiving, and the voice of melody.
 
 [Isaiah 51:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.3?lang=eng#p3)
 

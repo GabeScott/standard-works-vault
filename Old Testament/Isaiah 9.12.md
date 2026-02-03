@@ -1,6 +1,6 @@
 # Isaiah 9:12
 
-> The Syrians <u>before</u>[^a], and the Philistines <u>behind</u>[^b]; and they shall devour Israel with open mouth. For all this his <u>anger</u>[^c] is not turned away, but <u>his</u>[^d] hand is <u>stretched</u>[^e] out still.
+> The Syrians <u>before</u>[^a], and the Philistines <u>behind</u>[^b]; and they shall devour Israel with open mouth. For all this his <u>anger</u>[^c] is not turned away, but <u>his</u>[^d] hand *is* <u>stretched</u>[^e] out still.
 
 [Isaiah 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.12?lang=eng#p12)
 

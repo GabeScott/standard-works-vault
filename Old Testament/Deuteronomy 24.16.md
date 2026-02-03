@@ -1,6 +1,6 @@
 # Deuteronomy 24:16
 
-> The <u>fathers</u>[^a] shall not be put to <u>death</u>[^b] for the children, neither shall the <u>children</u>[^c] be put to death for the fathers: every man shall be put to death for his <u>own</u>[^d] <u>sin</u>[^e] .
+> The <u>fathers</u>[^a] shall not be put to <u>death</u>[^b] for the children, neither shall the <u>children</u>[^c] be put to death for the fathers: every man shall be put to death for his <u>own</u>[^d] <u>sin</u>[^e].
 
 [Deuteronomy 24:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.16?lang=eng#p16)
 

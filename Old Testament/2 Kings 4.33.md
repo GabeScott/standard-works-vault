@@ -1,6 +1,6 @@
 # 2 Kings 4:33
 
-> He went in therefore, and <u>shut</u>[^a] the door upon them twain, and prayed unto the Lord .
+> He went in therefore, and <u>shut</u>[^a] the door upon them twain, and prayed unto the LORD.
 
 [2 Kings 4:33](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.33?lang=eng#p33)
 

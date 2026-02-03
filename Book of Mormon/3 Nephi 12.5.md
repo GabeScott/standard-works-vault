@@ -1,6 +1,6 @@
 # 3 Nephi 12:5
 
-> And blessed are the <u>meek</u>[^a], for they shall inherit the <u>earth</u>[^b] .
+> And blessed are the <u>meek</u>[^a], for they shall inherit the <u>earth</u>[^b].
 
 [3 Nephi 12:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p5#p5)
 

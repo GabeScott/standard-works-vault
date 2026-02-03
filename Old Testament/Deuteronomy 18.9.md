@@ -1,6 +1,6 @@
 # Deuteronomy 18:9
 
-> ¶ When thou art come into the <u>land</u>[^a] which the Lord thy God giveth thee, thou shalt not learn to do after the <u>abominations</u>[^b] of those nations.
+> ¶ When thou art come into the <u>land</u>[^a] which the LORD thy God giveth thee, thou shalt not learn to do after the <u>abominations</u>[^b] of those nations.
 
 [Deuteronomy 18:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Hosea 2:13
 
-> And I will visit upon her the days of <u>Baalim</u>[^a], wherein she burned incense to them, and she decked herself with her <u>earrings</u>[^b] and her jewels, and she went after her lovers, and forgat me, saith the Lord .
+> And I will visit upon her the days of <u>Baalim</u>[^a], wherein she burned incense to them, and she decked herself with her <u>earrings</u>[^b] and her jewels, and she went after her lovers, and forgat me, saith the LORD.
 
 [Hosea 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.13?lang=eng#p13)
 

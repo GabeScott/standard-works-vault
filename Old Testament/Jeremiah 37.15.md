@@ -1,6 +1,6 @@
 # Jeremiah 37:15
 
-> Wherefore the princes were wroth with <u>Jeremiah</u>[^a], and smote him, and put him in prison in the house of Jonathan the scribe: for they had made that the <u>prison</u>[^b] .
+> Wherefore the princes were wroth with <u>Jeremiah</u>[^a], and smote him, and put him in prison in the house of Jonathan the scribe: for they had made that the <u>prison</u>[^b].
 
 [Jeremiah 37:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/37.15?lang=eng#p15)
 

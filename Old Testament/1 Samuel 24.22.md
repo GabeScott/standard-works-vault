@@ -1,6 +1,6 @@
 # 1 Samuel 24:22
 
-> And David sware unto Saul. And Saul went home; but David and his men gat them up unto the <u>hold</u>[^a] .
+> And David sware unto Saul. And Saul went home; but David and his men gat them up unto the <u>hold</u>[^a].
 
 [1 Samuel 24:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/24.22?lang=eng#p22)
 

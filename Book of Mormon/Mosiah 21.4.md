@@ -1,6 +1,6 @@
 # Mosiah 21:4
 
-> Yea, all this was done that the <u>word</u>[^a] of the Lord might be <u>fulfilled</u>[^b] .
+> Yea, all this was done that the <u>word</u>[^a] of the Lord might be <u>fulfilled</u>[^b].
 
 [Mosiah 21:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p4#p4)
 

@@ -1,6 +1,6 @@
 # John 16:33
 
-> These things I have spoken unto you, that in me ye might have <u>peace</u>[^a] . In the <u>world</u>[^b] ye shall have <u>tribulation</u>[^c] : but be of good <u>cheer</u>[^d]; I have <u>overcome</u>[^e] the world.
+> These things I have spoken unto you, that in me ye might have <u>peace</u>[^a]. In the <u>world</u>[^b] ye shall have <u>tribulation</u>[^c]: but be of good <u>cheer</u>[^d]; I have <u>overcome</u>[^e] the world.
 
 [John 16:33](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.33?lang=eng#p33)
 

@@ -1,6 +1,6 @@
 # Jeremiah 27:19
 
-> ¶ For thus saith the Lord of hosts concerning the <u>pillars</u>[^a], and concerning the <u>sea</u>[^b], and concerning the <u>bases</u>[^c], and concerning the residue of the vessels that remain in this city,
+> ¶ For thus saith the LORD of hosts concerning the <u>pillars</u>[^a], and concerning the <u>sea</u>[^b], and concerning the <u>bases</u>[^c], and concerning the residue of the vessels that remain in this city,
 
 [Jeremiah 27:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.19?lang=eng#p19)
 

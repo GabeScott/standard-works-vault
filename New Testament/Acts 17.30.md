@@ -1,6 +1,6 @@
 # Acts 17:30
 
-> And the times of this <u>ignorance</u>[^a] God <u>winked at</u>[^b]; but now <u>commandeth</u>[^c] all men every where to <u>repent</u>[^d] :
+> And the times of this <u>ignorance</u>[^a] God <u>winked at</u>[^b]; but now <u>commandeth</u>[^c] all men every where to <u>repent</u>[^d]:
 
 [Acts 17:30](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.30?lang=eng#p30)
 

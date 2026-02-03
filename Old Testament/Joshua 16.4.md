@@ -1,6 +1,6 @@
 # Joshua 16:4
 
-> So the children of Joseph, Manasseh and Ephraim, took their <u>inheritance</u>[^a] .
+> So the children of Joseph, Manasseh and Ephraim, took their <u>inheritance</u>[^a].
 
 [Joshua 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/16.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 33:12
 
-> And when he was in <u>affliction</u>[^a], he <u>besought</u>[^b] the Lord his God, and <u>humbled</u>[^c] himself greatly before the God of his fathers,
+> And when he was in <u>affliction</u>[^a], he <u>besought</u>[^b] the LORD his God, and <u>humbled</u>[^c] himself greatly before the God of his fathers,
 
 [2 Chronicles 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.12?lang=eng#p12)
 

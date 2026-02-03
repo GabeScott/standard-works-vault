@@ -1,6 +1,6 @@
 # 1 Nephi 12:16
 
-> And the angel spake unto me, saying: Behold the fountain of <u>filthy</u>[^a] water which thy father saw; yea, even the <u>river</u>[^b] of which he spake; and the depths thereof are the depths of <u>hell</u>[^c] .
+> And the angel spake unto me, saying: Behold the fountain of <u>filthy</u>[^a] water which thy father saw; yea, even the <u>river</u>[^b] of which he spake; and the depths thereof are the depths of <u>hell</u>[^c].
 
 [1 Nephi 12:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/12?lang=eng&id=p16#p16)
 

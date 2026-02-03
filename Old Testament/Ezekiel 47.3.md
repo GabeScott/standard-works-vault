@@ -1,6 +1,6 @@
 # Ezekiel 47:3
 
-> And when the man that had the <u>line</u>[^a] in his hand went forth eastward, he measured a thousand cubits, and he brought me through the waters; the waters were to the ankles.
+> And when the man that had the <u>line</u>[^a] in his hand went forth eastward, he measured a thousand cubits, and he brought me through the waters; the waters *were* to the ankles.
 
 [Ezekiel 47:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.3?lang=eng#p3)
 

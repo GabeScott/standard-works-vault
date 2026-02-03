@@ -1,6 +1,6 @@
 # Romans 10:4
 
-> For Christ is the <u>end</u>[^a] of the law for righteousness to every one that believeth.
+> For Christ *is* the <u>end</u>[^a] of the law for righteousness to every one that believeth.
 
 [Romans 10:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.4?lang=eng#p4)
 

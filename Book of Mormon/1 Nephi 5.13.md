@@ -1,6 +1,6 @@
 # 1 Nephi 5:13
 
-> And also the prophecies of the holy prophets, from the beginning, even down to the commencement of the reign of <u>Zedekiah</u>[^a]; and also many prophecies which have been spoken by the mouth of <u>Jeremiah</u>[^b] .
+> And also the prophecies of the holy prophets, from the beginning, even down to the commencement of the reign of <u>Zedekiah</u>[^a]; and also many prophecies which have been spoken by the mouth of <u>Jeremiah</u>[^b].
 
 [1 Nephi 5:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p13#p13)
 

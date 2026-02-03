@@ -1,6 +1,6 @@
 # Acts 13:37
 
-> But he, whom God <u>raised</u>[^a] again, saw no <u>corruption</u>[^b] .
+> But he, whom God <u>raised</u>[^a] again, saw no <u>corruption</u>[^b].
 
 [Acts 13:37](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.37?lang=eng#p37)
 

@@ -1,6 +1,6 @@
 # Jeremiah 10:24
 
-> O Lord , <u>correct</u>[^a] me, but with <u>judgment</u>[^b]; not in thine anger, lest thou bring me to nothing.
+> O LORD, <u>correct</u>[^a] me, but with <u>judgment</u>[^b]; not in thine anger, lest thou bring me to nothing.
 
 [Jeremiah 10:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.24?lang=eng#p24)
 

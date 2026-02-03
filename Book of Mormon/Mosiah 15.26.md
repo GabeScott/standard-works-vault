@@ -1,6 +1,6 @@
 # Mosiah 15:26
 
-> But behold, and <u>fear</u>[^a], and tremble before God, for ye ought to tremble; for the Lord redeemeth none such that <u>rebel</u>[^b] against him and <u>die</u>[^c] in their sins; yea, even all those that have perished in their sins ever since the world began, that have wilfully rebelled against God, that have known the commandments of God, and would not keep them; <u>these</u>[^d] are they that have <u>no</u>[^e] part in the first <u>resurrection</u>[^f] .
+> But behold, and <u>fear</u>[^a], and tremble before God, for ye ought to tremble; for the Lord redeemeth none such that <u>rebel</u>[^b] against him and <u>die</u>[^c] in their sins; yea, even all those that have perished in their sins ever since the world began, that have wilfully rebelled against God, that have known the commandments of God, and would not keep them; <u>these</u>[^d] are they that have <u>no</u>[^e] part in the first <u>resurrection</u>[^f].
 
 [Mosiah 15:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p26#p26)
 

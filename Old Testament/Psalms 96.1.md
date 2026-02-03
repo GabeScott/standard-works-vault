@@ -1,6 +1,6 @@
 # Psalms 96:1
 
-> O <u>sing</u>[^a] unto the Lord a new <u>song</u>[^b] : sing unto the Lord , all the earth.
+> O <u>sing</u>[^a] unto the LORD a new <u>song</u>[^b]: sing unto the LORD, all the earth.
 
 [Psalms 96:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/96.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Exodus 23:17
 
-> Three times in the year all thy <u>males</u>[^a] shall appear before the Lord God .
+> Three times in the year all thy <u>males</u>[^a] shall appear before the Lord GOD.
 
 [Exodus 23:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.17?lang=eng#p17)
 

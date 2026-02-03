@@ -1,6 +1,6 @@
 # Revelation 20:14
 
-> And <u>death</u>[^a] and <u>hell</u>[^b] were cast into the lake of fire. This is the <u>second death</u>[^c] .
+> And <u>death</u>[^a] and <u>hell</u>[^b] were cast into the lake of fire. This is the <u>second death</u>[^c].
 
 [Revelation 20:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/20.14?lang=eng#p14)
 

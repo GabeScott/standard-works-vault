@@ -1,6 +1,6 @@
 # Deuteronomy 11:1
 
-> Therefore thou shalt <u>love</u>[^a] the Lord thy God, and keep his <u>charge</u>[^b], and his statutes, and his <u>judgments</u>[^c], and his commandments, alway.
+> Therefore thou shalt <u>love</u>[^a] the LORD thy God, and keep his <u>charge</u>[^b], and his statutes, and his <u>judgments</u>[^c], and his commandments, alway.
 
 [Deuteronomy 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.1?lang=eng#p1)
 

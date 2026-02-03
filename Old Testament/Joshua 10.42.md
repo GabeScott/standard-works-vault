@@ -1,6 +1,6 @@
 # Joshua 10:42
 
-> And all these kings and their land did Joshua take at one time, because the Lord God of Israel <u>fought</u>[^a] for Israel.
+> And all these kings and their land did Joshua take at one time, because the LORD God of Israel <u>fought</u>[^a] for Israel.
 
 [Joshua 10:42](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.42?lang=eng#p42)
 

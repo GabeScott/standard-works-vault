@@ -1,6 +1,6 @@
 # Zechariah 9:16
 
-> And the Lord their God shall <u>save</u>[^a] them in that <u>day</u>[^b] as the flock of his people: for they shall be as the <u>stones</u>[^c] of a <u>crown</u>[^d], lifted up as an <u>ensign</u>[^e] upon his land.
+> And the LORD their God shall <u>save</u>[^a] them in that <u>day</u>[^b] as the flock of his people: for *they shall be as* the <u>stones</u>[^c] of a <u>crown</u>[^d], lifted up as an <u>ensign</u>[^e] upon his land.
 
 [Zechariah 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/9.16?lang=eng#p16)
 

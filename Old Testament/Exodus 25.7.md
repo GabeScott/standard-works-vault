@@ -1,6 +1,6 @@
 # Exodus 25:7
 
-> <u>Onyx stones</u>[^a], and stones to be set in the ephod, and in the <u>breastplate</u>[^b] .
+> <u>Onyx stones</u>[^a], and stones to be set in the ephod, and in the <u>breastplate</u>[^b].
 
 [Exodus 25:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.7?lang=eng#p7)
 

@@ -1,6 +1,6 @@
 # Zechariah 9:9
 
-> ¶ Rejoice greatly, O <u>daughter</u>[^a] of Zion; shout, O daughter of Jerusalem: behold, thy <u>King</u>[^b] cometh unto thee: he is <u>just</u>[^c], and having salvation; lowly, and <u>riding</u>[^d] upon an <u>ass</u>[^e], and upon a <u>colt</u>[^f] the foal of an ass.
+> ¶ Rejoice greatly, O <u>daughter</u>[^a] of Zion; shout, O daughter of Jerusalem: behold, thy <u>King</u>[^b] cometh unto thee: he *is* <u>just</u>[^c], and having salvation; lowly, and <u>riding</u>[^d] upon an <u>ass</u>[^e], and upon a <u>colt</u>[^f] the foal of an ass.
 
 [Zechariah 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/9.9?lang=eng#p9)
 

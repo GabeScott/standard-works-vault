@@ -1,6 +1,6 @@
 # 2 Peter 3:8
 
-> But, beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand <u>years</u>[^a], and a thousand years as one day.
+> But, beloved, be not ignorant of this one thing, that one day *is* with the Lord as a thousand <u>years</u>[^a], and a thousand years as one day.
 
 [2 Peter 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.8?lang=eng#p8)
 

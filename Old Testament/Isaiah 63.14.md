@@ -1,6 +1,6 @@
 # Isaiah 63:14
 
-> <u>As a beast goeth</u>[^a] down into the valley, the <u>Spirit</u>[^b] of the Lord caused <u>him</u>[^c] to rest: so didst thou lead thy people, to make thyself a glorious <u>name</u>[^d] .
+> <u>As a beast goeth</u>[^a] down into the valley, the <u>Spirit</u>[^b] of the LORD caused <u>him</u>[^c] to rest: so didst thou lead thy people, to make thyself a glorious <u>name</u>[^d].
 
 [Isaiah 63:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.14?lang=eng#p14)
 

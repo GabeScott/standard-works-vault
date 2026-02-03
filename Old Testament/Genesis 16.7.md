@@ -1,6 +1,6 @@
 # Genesis 16:7
 
-> ¶ And the angel of the Lord found her by a fountain of water in the wilderness, by the fountain in the way to <u>Shur</u>[^a] .
+> ¶ And the angel of the LORD found her by a fountain of water in the wilderness, by the fountain in the way to <u>Shur</u>[^a].
 
 [Genesis 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.7?lang=eng#p7)
 

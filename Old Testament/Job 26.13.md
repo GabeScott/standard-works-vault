@@ -1,6 +1,6 @@
 # Job 26:13
 
-> By his <u>spirit</u>[^a] he hath <u>garnished</u>[^b] the <u>heavens</u>[^c]; his hand hath formed the crooked <u>serpent</u>[^d] .
+> By his <u>spirit</u>[^a] he hath <u>garnished</u>[^b] the <u>heavens</u>[^c]; his hand hath formed the crooked <u>serpent</u>[^d].
 
 [Job 26:13](https://www.churchofjesuschrist.org/study/scriptures/ot/job/26.13?lang=eng#p13)
 

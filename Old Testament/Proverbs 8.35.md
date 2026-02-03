@@ -1,6 +1,6 @@
 # Proverbs 8:35
 
-> For whoso findeth me findeth <u>life</u>[^a], and shall obtain favour of the Lord .
+> For whoso findeth me findeth <u>life</u>[^a], and shall obtain favour of the LORD.
 
 [Proverbs 8:35](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.35?lang=eng#p35)
 

@@ -1,6 +1,6 @@
 # Luke 18:42
 
-> And Jesus said unto him, Receive thy <u>sight</u>[^a] : thy <u>faith</u>[^b] hath saved thee.
+> And Jesus said unto him, Receive thy <u>sight</u>[^a]: thy <u>faith</u>[^b] hath saved thee.
 
 [Luke 18:42](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.42?lang=eng#p42)
 

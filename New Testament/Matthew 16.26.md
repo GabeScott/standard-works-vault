@@ -1,6 +1,6 @@
 # Matthew 16:26
 
-> For what is a man <u>profited</u>[^a], if he shall <u>gain</u>[^b] the whole <u>world</u>[^c], and <u>lose</u>[^d] his own <u>soul</u>[^e] ? or what shall a man give in exchange for his soul?
+> For what is a man <u>profited</u>[^a], if he shall <u>gain</u>[^b] the whole <u>world</u>[^c], and <u>lose</u>[^d] his own <u>soul</u>[^e]? or what shall a man give in exchange for his soul?
 
 [Matthew 16:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.26?lang=eng#p26)
 

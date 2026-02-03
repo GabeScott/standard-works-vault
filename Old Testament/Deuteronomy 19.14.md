@@ -1,6 +1,6 @@
 # Deuteronomy 19:14
 
-> ¶ Thou shalt not remove thy neighbour’s <u>landmark</u>[^a], which they of old time have set in thine inheritance, which thou shalt inherit in the land that the Lord thy God giveth thee to possess it.
+> ¶ Thou shalt not remove thy neighbour’s <u>landmark</u>[^a], which they of old time have set in thine inheritance, which thou shalt inherit in the land that the LORD thy God giveth thee to possess it.
 
 [Deuteronomy 19:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.14?lang=eng#p14)
 

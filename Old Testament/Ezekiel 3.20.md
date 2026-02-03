@@ -1,6 +1,6 @@
 # Ezekiel 3:20
 
-> Again, When a <u>righteous</u>[^a] man doth <u>turn</u>[^b] from his <u>righteousness</u>[^c], and commit iniquity, and I lay a <u>stumblingblock</u>[^d] before him, he shall die: because thou hast not given him warning, he shall die in his sin, and his righteousness which he hath done shall not be remembered; but his blood will I require at thine hand.
+> Again, When a <u>righteous</u>[^a] *man* doth <u>turn</u>[^b] from his <u>righteousness</u>[^c], and commit iniquity, and I lay a <u>stumblingblock</u>[^d] before him, he shall die: because thou hast not given him warning, he shall die in his sin, and his righteousness which he hath done shall not be remembered; but his blood will I require at thine hand.
 
 [Ezekiel 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.20?lang=eng#p20)
 

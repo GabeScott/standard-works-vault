@@ -1,6 +1,6 @@
 # 1 Samuel 13:14
 
-> But now thy <u>kingdom</u>[^a] shall not continue: the Lord hath <u>sought</u>[^b] him a <u>man</u>[^c] after his own <u>heart</u>[^d], and the Lord hath commanded him to be captain over his people, because thou hast not kept that which the Lord commanded thee.
+> But now thy <u>kingdom</u>[^a] shall not continue: the LORD hath <u>sought</u>[^b] him a <u>man</u>[^c] after his own <u>heart</u>[^d], and the LORD hath commanded him *to be* captain over his people, because thou hast not kept *that* which the LORD commanded thee.
 
 [1 Samuel 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/13.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # 2 Kings 11:4
 
-> ¶ And the seventh year Jehoiada sent and fetched the rulers over hundreds, with the captains and the guard, and brought them to him into the house of the Lord , and made a <u>covenant</u>[^a] with them, and took an oath of them in the house of the Lord , and shewed them the king’s son.
+> ¶ And the seventh year Jehoiada sent and fetched the rulers over hundreds, with the captains and the guard, and brought them to him into the house of the LORD, and made a <u>covenant</u>[^a] with them, and took an oath of them in the house of the LORD, and shewed them the king’s son.
 
 [2 Kings 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/11.4?lang=eng#p4)
 

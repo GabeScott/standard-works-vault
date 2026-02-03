@@ -1,6 +1,6 @@
 # Genesis 49:28
 
-> ¶ All these are the <u>twelve tribes</u>[^a] of Israel: and this is it that their father spake unto them, and <u>blessed</u>[^b] them; every one according to his <u>blessing</u>[^c] he blessed them.
+> ¶ All these *are* the <u>twelve tribes</u>[^a] of Israel: and this *is it* that their father spake unto them, and <u>blessed</u>[^b] them; every one according to his <u>blessing</u>[^c] he blessed them.
 
 [Genesis 49:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.28?lang=eng#p28)
 

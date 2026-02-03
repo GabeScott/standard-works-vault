@@ -1,6 +1,6 @@
 # Psalms 64:5
 
-> They encourage themselves in an evil matter: they commune of laying snares <u>privily</u>[^a]; they say, Who shall <u>see</u>[^b] them?
+> They encourage themselves *in* an evil matter: they commune of laying snares <u>privily</u>[^a]; they say, Who shall <u>see</u>[^b] them?
 
 [Psalms 64:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/64.5?lang=eng#p5)
 

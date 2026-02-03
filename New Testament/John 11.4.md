@@ -1,6 +1,6 @@
 # John 11:4
 
-> When Jesus heard that, he said, This sickness is not unto death, but for the <u>glory</u>[^a] of God, that the Son of God might be <u>glorified</u>[^b] thereby.
+> When Jesus heard *that,* he said, This sickness is not unto death, but for the <u>glory</u>[^a] of God, that the Son of God might be <u>glorified</u>[^b] thereby.
 
 [John 11:4](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.4?lang=eng#p4)
 

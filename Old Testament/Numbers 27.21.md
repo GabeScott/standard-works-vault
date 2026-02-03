@@ -1,6 +1,6 @@
 # Numbers 27:21
 
-> And he shall stand before Eleazar the <u>priest</u>[^a], who shall ask counsel for him <u>after</u>[^c] the judgment of <u>Urim</u>[^d] before the Lord : at his word shall they go out, and at his word they shall come in, both he, and all the children of Israel with him, even all the congregation.
+> And he shall stand before Eleazar the <u>priest</u>[^a], who shall ask <u>counsel</u>[^b] for him <u>after</u>[^c] the judgment of <u>Urim</u>[^d] before the LORD: at his word shall they go out, and at his word they shall come in, *both* he, and all the children of Israel with him, even all the congregation.
 
 [Numbers 27:21](https://www.churchofjesuschrist.org/study/scriptures/ot/num/27.21?lang=eng#p21)
 

@@ -1,6 +1,6 @@
 # 2 Timothy 2:12
 
-> If we <u>suffer</u>[^a], we shall also <u>reign</u>[^b] with him: if we <u>deny</u>[^c] him, he also will deny us:
+> If we <u>suffer</u>[^a], we shall also <u>reign</u>[^b] with *him:* if we <u>deny</u>[^c] *him,* he also will deny us:
 
 [2 Timothy 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Genesis 24:26
 
-> And the man <u>bowed</u>[^a] down his head, and worshipped the Lord .
+> And the man <u>bowed</u>[^a] down his head, and worshipped the LORD.
 
 [Genesis 24:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.26?lang=eng#p26)
 

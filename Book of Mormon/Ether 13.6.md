@@ -1,6 +1,6 @@
 # Ether 13:6
 
-> And that a <u>New Jerusalem</u>[^a] should be built up upon this land, unto the remnant of the seed of <u>Joseph</u>[^b], for which things there has been a <u>type</u>[^c] .
+> And that a <u>New Jerusalem</u>[^a] should be built up upon this land, unto the remnant of the seed of <u>Joseph</u>[^b], for which things there has been a <u>type</u>[^c].
 
 [Ether 13:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p6#p6)
 

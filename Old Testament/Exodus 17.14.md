@@ -1,6 +1,6 @@
 # Exodus 17:14
 
-> And the Lord said unto Moses, Write this for a memorial in a <u>book</u>[^a], and rehearse it in the ears of Joshua: for I will utterly put out the remembrance of <u>Amalek</u>[^b] from under heaven.
+> And the LORD said unto Moses, Write this *for* a memorial in a <u>book</u>[^a], and rehearse *it* in the ears of Joshua: for I will utterly put out the remembrance of <u>Amalek</u>[^b] from under heaven.
 
 [Exodus 17:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.14?lang=eng#p14)
 

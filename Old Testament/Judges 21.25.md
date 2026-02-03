@@ -1,6 +1,6 @@
 # Judges 21:25
 
-> In those days there was no <u>king</u>[^a] in Israel: every man did that which was <u>right</u>[^b] in his own eyes.
+> In those days *there was* no <u>king</u>[^a] in Israel: every man did *that which was* <u>right</u>[^b] in his own eyes.
 
 [Judges 21:25](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/21.25?lang=eng#p25)
 

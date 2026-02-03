@@ -1,6 +1,6 @@
 # John 3:36
 
-> <u>He</u>[^a] that believeth on the Son hath <u>everlasting life</u>[^b] : and he that <u>believeth not</u>[^c] the Son shall not see life; but the <u>wrath</u>[^d] of God abideth on him.
+> <u>He</u>[^a] that believeth on the Son hath <u>everlasting life</u>[^b]: and he that <u>believeth not</u>[^c] the Son shall not see life; but the <u>wrath</u>[^d] of God abideth on him.
 
 [John 3:36](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.36?lang=eng#p36)
 

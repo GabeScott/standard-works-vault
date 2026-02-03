@@ -1,6 +1,6 @@
 # Genesis 27:27
 
-> And he came <u>near</u>[^a], and kissed him: and he smelled the smell of his raiment, and <u>blessed</u>[^b] him, and said, See, the smell of my son is as the smell of a field which the Lord hath blessed:
+> And he came <u>near</u>[^a], and kissed him: and he smelled the smell of his raiment, and <u>blessed</u>[^b] him, and said, See, the smell of my son *is* as the smell of a field which the LORD hath blessed:
 
 [Genesis 27:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.27?lang=eng#p27)
 

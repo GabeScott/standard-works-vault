@@ -1,6 +1,6 @@
 # Hebrews 10:3
 
-> But in those sacrifices there is a <u>remembrance</u>[^b] again made of sins every year.
+> But in those *sacrifices there is* a <u>remembrance</u>[^b] again *made* of sins every year.
 
 [Hebrews 10:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.3?lang=eng#p3)
 

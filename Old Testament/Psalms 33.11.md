@@ -1,6 +1,6 @@
 # Psalms 33:11
 
-> The <u>counsel</u>[^a] of the Lord standeth for ever, the thoughts of his heart to all generations.
+> The <u>counsel</u>[^a] of the LORD standeth for ever, the thoughts of his heart to all generations.
 
 [Psalms 33:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.11?lang=eng#p11)
 

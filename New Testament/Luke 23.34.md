@@ -1,6 +1,6 @@
 # Luke 23:34
 
-> ¶ Then <u>said</u>[^a] Jesus, Father, <u>forgive</u>[^b] them; for they know not what <u>they do</u>[^c] . And they parted his <u>raiment</u>[^d], and cast lots.
+> ¶ Then <u>said</u>[^a] Jesus, Father, <u>forgive</u>[^b] them; for they know not what <u>they do</u>[^c]. And they parted his <u>raiment</u>[^d], and cast lots.
 
 [Luke 23:34](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.34?lang=eng#p34)
 

@@ -1,6 +1,6 @@
 # Exodus 12:12
 
-> For I will pass through the land of Egypt this night, and will smite all the <u>firstborn</u>[^a] in the land of Egypt, both man and beast; and against all the <u>gods</u>[^b] of Egypt I will execute <u>judgment</u>[^c] : I am the Lord .
+> For I will pass through the land of Egypt this night, and will smite all the <u>firstborn</u>[^a] in the land of Egypt, both man and beast; and against all the <u>gods</u>[^b] of Egypt I will execute <u>judgment</u>[^c]: I *am* the LORD.
 
 [Exodus 12:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.12?lang=eng#p12)
 

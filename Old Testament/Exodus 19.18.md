@@ -1,6 +1,6 @@
 # Exodus 19:18
 
-> And mount <u>Sinai</u>[^a] was <u>altogether</u>[^b] on a <u>smoke</u>[^c], because the Lord <u>descended</u>[^d] upon it in <u>fire</u>[^e] : and the smoke thereof ascended as the smoke of a furnace, and the whole <u>mount</u>[^f] quaked greatly.
+> And mount <u>Sinai</u>[^a] was <u>altogether</u>[^b] on a <u>smoke</u>[^c], because the LORD <u>descended</u>[^d] upon it in <u>fire</u>[^e]: and the smoke thereof ascended as the smoke of a furnace, and the whole <u>mount</u>[^f] quaked greatly.
 
 [Exodus 19:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.18?lang=eng#p18)
 

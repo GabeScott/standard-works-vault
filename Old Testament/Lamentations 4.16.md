@@ -1,6 +1,6 @@
 # Lamentations 4:16
 
-> The anger of the Lord hath divided them; he will no more regard them: they respected not the persons of the priests, they favoured not the <u>elders</u>[^a] .
+> The anger of the LORD hath divided them; he will no more regard them: they respected not the persons of the priests, they favoured not the <u>elders</u>[^a].
 
 [Lamentations 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/4.16?lang=eng#p16)
 

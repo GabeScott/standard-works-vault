@@ -1,6 +1,6 @@
 # Leviticus 22:8
 
-> That which <u>dieth</u>[^a] of itself, or is torn with beasts, he shall not eat to defile himself therewith: I am the Lord .
+> That which <u>dieth</u>[^a] of itself, or is torn *with beasts,* he shall not eat to defile himself therewith: I *am* the LORD.
 
 [Leviticus 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.8?lang=eng#p8)
 

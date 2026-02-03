@@ -1,6 +1,6 @@
 # 1 Nephi 21:13
 
-> <u>Sing</u>[^a], O heavens; and be joyful, O earth; for the feet of those who are in the east shall be established; and <u>break forth</u>[^b] into singing, O mountains; for they shall be smitten no more; for the Lord hath comforted his people, and will have mercy upon his <u>afflicted</u>[^c] .
+> <u>Sing</u>[^a], O heavens; and be joyful, O earth; for the feet of those who are in the east shall be established; and <u>break forth</u>[^b] into singing, O mountains; for they shall be smitten no more; for the Lord hath comforted his people, and will have mercy upon his <u>afflicted</u>[^c].
 
 [1 Nephi 21:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/21?lang=eng&id=p13#p13)
 

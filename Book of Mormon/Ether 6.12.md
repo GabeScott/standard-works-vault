@@ -1,6 +1,6 @@
 # Ether 6:12
 
-> And they did <u>land</u>[^a] upon the shore of the <u>promised land</u>[^b] . And when they had set their feet upon the shores of the promised land they bowed themselves down upon the face of the land, and did humble themselves before the Lord, and did shed tears of joy before the Lord, because of the multitude of his <u>tender mercies</u>[^c] over them.
+> And they did <u>land</u>[^a] upon the shore of the <u>promised land</u>[^b]. And when they had set their feet upon the shores of the promised land they bowed themselves down upon the face of the land, and did humble themselves before the Lord, and did shed tears of joy before the Lord, because of the multitude of his <u>tender mercies</u>[^c] over them.
 
 [Ether 6:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/6?lang=eng&id=p12#p12)
 

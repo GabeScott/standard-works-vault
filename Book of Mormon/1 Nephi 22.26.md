@@ -1,6 +1,6 @@
 # 1 Nephi 22:26
 
-> And because of the <u>righteousness</u>[^a] of his people, <u>Satan</u>[^b] has no power; wherefore, he cannot be loosed for the space of <u>many years</u>[^c]; for he hath no power over the hearts of the people, for they dwell in righteousness, and the Holy One of Israel <u>reigneth</u>[^d] .
+> And because of the <u>righteousness</u>[^a] of his people, <u>Satan</u>[^b] has no power; wherefore, he cannot be loosed for the space of <u>many years</u>[^c]; for he hath no power over the hearts of the people, for they dwell in righteousness, and the Holy One of Israel <u>reigneth</u>[^d].
 
 [1 Nephi 22:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p26#p26)
 

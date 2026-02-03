@@ -1,6 +1,6 @@
 # Leviticus 19:16
 
-> ¶ Thou shalt not go up and down as a <u>talebearer</u>[^a] among thy people: neither shalt thou stand against the blood of thy neighbour: I am the Lord .
+> ¶ Thou shalt not go up and down *as* a <u>talebearer</u>[^a] among thy people: neither shalt thou stand against the blood of thy neighbour: I *am* the LORD.
 
 [Leviticus 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Isaiah 9:4
 
-> For thou hast broken the <u>yoke</u>[^a] of his <u>burden</u>[^b], and the staff of his shoulder, the <u>rod</u>[^c] of his oppressor, as <u>in</u>[^d] the day of <u>Midian</u>[^e] .
+> For thou hast broken the <u>yoke</u>[^a] of his <u>burden</u>[^b], and the staff of his shoulder, the <u>rod</u>[^c] of his oppressor, as <u>in</u>[^d] the day of <u>Midian</u>[^e].
 
 [Isaiah 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.4?lang=eng#p4)
 

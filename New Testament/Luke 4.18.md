@@ -1,6 +1,6 @@
 # Luke 4:18
 
-> The <u>Spirit</u>[^a] of the Lord is upon me, because he hath <u>anointed</u>[^b] me to <u>preach</u>[^c] the <u>gospel</u>[^d] to the <u>poor</u>[^e]; he hath sent me to heal the brokenhearted, to <u>preach</u>[^f] <u>deliverance</u>[^g] to the <u>captives</u>[^h], and recovering of sight to the blind, to set at <u>liberty</u>[^i] them that are bruised,
+> The <u>Spirit</u>[^a] of the Lord *is* upon me, because he hath <u>anointed</u>[^b] me to <u>preach</u>[^c] the <u>gospel</u>[^d] to the <u>poor</u>[^e]; he hath sent me to heal the brokenhearted, to <u>preach</u>[^f] <u>deliverance</u>[^g] to the <u>captives</u>[^h], and recovering of sight to the blind, to set at <u>liberty</u>[^i] them that are bruised,
 
 [Luke 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.18?lang=eng#p18)
 

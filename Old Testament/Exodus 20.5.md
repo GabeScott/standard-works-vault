@@ -1,6 +1,6 @@
 # Exodus 20:5
 
-> Thou shalt not <u>bow</u>[^a] down thyself to them, nor serve them: for I the Lord thy God am a <u>jealous</u>[^b] God, <u>visiting</u>[^c] the <u>iniquity</u>[^d] of the <u>fathers</u>[^e] upon the <u>children</u>[^f] unto the third and fourth generation of them that <u>hate</u>[^g] me;
+> Thou shalt not <u>bow</u>[^a] down thyself to them, nor serve them: for I the LORD thy God *am* a <u>jealous</u>[^b] God, <u>visiting</u>[^c] the <u>iniquity</u>[^d] of the <u>fathers</u>[^e] upon the <u>children</u>[^f] unto the third and fourth *generation* of them that <u>hate</u>[^g] me;
 
 [Exodus 20:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.5?lang=eng#p5)
 

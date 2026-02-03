@@ -1,6 +1,6 @@
 # Genesis 5:24
 
-> And <u>Enoch</u>[^a] <u>walked</u>[^b] with God: and he was not; for God <u>took</u>[^c] him.
+> And <u>Enoch</u>[^a] <u>walked</u>[^b] with God: and he *was* not; for God <u>took</u>[^c] him.
 
 [Genesis 5:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/5.24?lang=eng#p24)
 

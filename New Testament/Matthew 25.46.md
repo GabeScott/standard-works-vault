@@ -1,6 +1,6 @@
 # Matthew 25:46
 
-> And these shall go away into <u>everlasting</u>[^a] <u>punishment</u>[^b] : but the <u>righteous</u>[^c] into <u>life</u>[^d] <u>eternal</u>[^e] .
+> And these shall go away into <u>everlasting</u>[^a] <u>punishment</u>[^b]: but the <u>righteous</u>[^c] into <u>life</u>[^d] <u>eternal</u>[^e].
 
 [Matthew 25:46](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.46?lang=eng#p46)
 

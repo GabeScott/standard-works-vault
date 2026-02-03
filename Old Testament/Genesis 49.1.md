@@ -1,6 +1,6 @@
 # Genesis 49:1
 
-> And <u>Jacob</u>[^a] called unto his <u>sons</u>[^b], and said, Gather yourselves together, that I may tell you that which shall befall you in the <u>last days</u>[^c] .
+> And <u>Jacob</u>[^a] called unto his <u>sons</u>[^b], and said, Gather yourselves together, that I may tell you *that* which shall befall you in the <u>last days</u>[^c].
 
 [Genesis 49:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.1?lang=eng#p1)
 

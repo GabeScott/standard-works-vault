@@ -1,6 +1,6 @@
 # Acts 7:31
 
-> When Moses saw it, he wondered at the <u>sight</u>[^a] : and as he drew near to behold it, the <u>voice</u>[^b] of the Lord came unto him,
+> When Moses saw *it,* he wondered at the <u>sight</u>[^a]: and as he drew near to behold *it,* the <u>voice</u>[^b] of the Lord came unto him,
 
 [Acts 7:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.31?lang=eng#p31)
 

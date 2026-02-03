@@ -1,6 +1,6 @@
 # 2 Samuel 5:25
 
-> And David did so, as the Lord had commanded him; and smote the <u>Philistines</u>[^a] from Geba until thou come to Gazer.
+> And David did so, as the LORD had commanded him; and smote the <u>Philistines</u>[^a] from Geba until thou come to Gazer.
 
 [2 Samuel 5:25](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.25?lang=eng#p25)
 

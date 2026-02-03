@@ -1,6 +1,6 @@
 # Jeremiah 2:14
 
-> ¶ Is Israel a <u>servant</u>[^a] ? is he a homeborn slave? why is he spoiled?
+> ¶ *Is* Israel a <u>servant</u>[^a]? *is* he a homeborn *slave?* why is he spoiled?
 
 [Jeremiah 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.14?lang=eng#p14)
 

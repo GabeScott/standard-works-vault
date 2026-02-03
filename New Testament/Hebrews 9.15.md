@@ -1,6 +1,6 @@
 # Hebrews 9:15
 
-> And for this cause he is the <u>mediator</u>[^a] of the <u>new</u>[^b] <u>testament</u>[^c], that by means of <u>death</u>[^d], for the redemption of the <u>transgressions</u>[^e] that were under the first <u>testament</u>[^f], they which are called might receive the <u>promise</u>[^g] of eternal <u>inheritance</u>[^h] .
+> And for this cause he is the <u>mediator</u>[^a] of the <u>new</u>[^b] <u>testament</u>[^c], that by means of <u>death</u>[^d], for the redemption of the <u>transgressions</u>[^e] *that were* under the first <u>testament</u>[^f], they which are called might receive the <u>promise</u>[^g] of eternal <u>inheritance</u>[^h].
 
 [Hebrews 9:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.15?lang=eng#p15)
 

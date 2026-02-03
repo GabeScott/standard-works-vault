@@ -1,6 +1,6 @@
 # Deuteronomy 27:6
 
-> Thou shalt build the <u>altar</u>[^a] of the Lord thy God of whole stones: and thou shalt offer burnt offerings thereon unto the Lord thy God:
+> Thou shalt build the <u>altar</u>[^a] of the LORD thy God of whole stones: and thou shalt offer burnt offerings thereon unto the LORD thy God:
 
 [Deuteronomy 27:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.6?lang=eng#p6)
 

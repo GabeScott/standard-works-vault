@@ -1,6 +1,6 @@
 # Micah 5:2
 
-> But thou, <u>Beth-lehem</u>[^a] Ephratah, though thou be little among the thousands of <u>Judah</u>[^b], yet out of thee shall he come forth unto me that is to be <u>ruler</u>[^c] in Israel; whose goings forth have been from of old, from <u>everlasting</u>[^d] .
+> But thou, <u>Beth-lehem</u>[^a] Ephratah, *though* thou be little among the thousands of <u>Judah</u>[^b], *yet* out of thee shall he come forth unto me *that is* to be <u>ruler</u>[^c] in Israel; whose goings forth *have been* from of old, from <u>everlasting</u>[^d].
 
 [Micah 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/5.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # 4 Nephi 1:3
 
-> And they had <u>all</u>[^a] things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly <u>gift</u>[^b] .
+> And they had <u>all</u>[^a] things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly <u>gift</u>[^b].
 
 [4 Nephi 1:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p3#p3)
 

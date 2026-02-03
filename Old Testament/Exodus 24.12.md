@@ -1,6 +1,6 @@
 # Exodus 24:12
 
-> ¶ And the Lord said unto Moses, Come up to me into the mount, and be there: and I will give thee <u>tables</u>[^a] of stone, and a <u>law</u>[^b], and commandments which I have <u>written</u>[^c]; that thou mayest teach them.
+> ¶ And the LORD said unto Moses, Come up to me into the mount, and be there: and I will give thee <u>tables</u>[^a] of stone, and a <u>law</u>[^b], and commandments which I have <u>written</u>[^c]; that thou mayest teach them.
 
 [Exodus 24:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.12?lang=eng#p12)
 

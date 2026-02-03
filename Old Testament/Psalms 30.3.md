@@ -1,6 +1,6 @@
 # Psalms 30:3
 
-> O Lord , thou hast <u>brought up</u>[^a] my <u>soul</u>[^b] from the grave: thou hast kept me alive, that I should not go down to the pit.
+> O LORD, thou hast <u>brought up</u>[^a] my <u>soul</u>[^b] from the grave: thou hast kept me alive, that I should not go down to the pit.
 
 [Psalms 30:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/30.3?lang=eng#p3)
 

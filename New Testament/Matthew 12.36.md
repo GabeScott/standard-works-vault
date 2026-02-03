@@ -1,6 +1,6 @@
 # Matthew 12:36
 
-> But I say unto you, That every <u>idle</u>[^a] <u>word</u>[^b] that men shall <u>speak</u>[^c], they shall give <u>account</u>[^d] thereof in the day of <u>judgment</u>[^e] .
+> But I say unto you, That every <u>idle</u>[^a] <u>word</u>[^b] that men shall <u>speak</u>[^c], they shall give <u>account</u>[^d] thereof in the day of <u>judgment</u>[^e].
 
 [Matthew 12:36](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.36?lang=eng#p36)
 

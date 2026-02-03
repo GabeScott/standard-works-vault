@@ -1,6 +1,6 @@
 # Isaiah 1:14
 
-> Your new <u>moons</u>[^a] and your appointed <u>feasts</u>[^b] my soul hateth: they are a trouble unto me; I am <u>weary</u>[^c] to bear them.
+> Your new <u>moons</u>[^a] and your appointed <u>feasts</u>[^b] my soul hateth: they are a trouble unto me; I am <u>weary</u>[^c] to bear *them.*
 
 [Isaiah 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.14?lang=eng#p14)
 

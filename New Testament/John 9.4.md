@@ -1,6 +1,6 @@
 # John 9:4
 
-> I must <u>work</u>[^a] the <u>works</u>[^b] of him that sent me, <u>while</u>[^c] it is <u>day</u>[^d] : the <u>night</u>[^e] cometh, when no man can work.
+> I must <u>work</u>[^a] the <u>works</u>[^b] of him that sent me, <u>while</u>[^c] it is <u>day</u>[^d]: the <u>night</u>[^e] cometh, when no man can work.
 
 [John 9:4](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.4?lang=eng#p4)
 

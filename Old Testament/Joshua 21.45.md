@@ -1,6 +1,6 @@
 # Joshua 21:45
 
-> There <u>failed</u>[^a] not ought of any good thing which the Lord had <u>spoken</u>[^b] unto the house of Israel; all came to pass.
+> There <u>failed</u>[^a] not ought of any good thing which the LORD had <u>spoken</u>[^b] unto the house of Israel; all came to pass.
 
 [Joshua 21:45](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.45?lang=eng#p45)
 

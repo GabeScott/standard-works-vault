@@ -1,6 +1,6 @@
 # Zechariah 14:18
 
-> And if the family of Egypt go not up, and come not, that have no rain; there shall be the plague, wherewith the Lord will smite the <u>heathen</u>[^a] that come not up to keep the feast of tabernacles.
+> And if the family of Egypt go not up, and come not, that *have* no *rain;* there shall be the plague, wherewith the LORD will smite the <u>heathen</u>[^a] that come not up to keep the feast of tabernacles.
 
 [Zechariah 14:18](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.18?lang=eng#p18)
 

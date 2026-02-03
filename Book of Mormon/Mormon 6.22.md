@@ -1,6 +1,6 @@
 # Mormon 6:22
 
-> O that ye had repented before this great <u>destruction</u>[^a] had come upon you. But behold, ye are gone, and the Father, yea, the Eternal Father of heaven, <u>knoweth</u>[^b] your state; and he doeth with you according to his <u>justice</u>[^c] and <u>mercy</u>[^d] .
+> O that ye had repented before this great <u>destruction</u>[^a] had come upon you. But behold, ye are gone, and the Father, yea, the Eternal Father of heaven, <u>knoweth</u>[^b] your state; and he doeth with you according to his <u>justice</u>[^c] and <u>mercy</u>[^d].
 
 [Mormon 6:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p22#p22)
 

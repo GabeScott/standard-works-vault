@@ -1,6 +1,6 @@
 # Isaiah 32:1
 
-> Behold, a <u>king</u>[^a] shall reign in righteousness, and princes shall rule in <u>judgment</u>[^b] .
+> Behold, a <u>king</u>[^a] shall reign in righteousness, and princes shall rule in <u>judgment</u>[^b].
 
 [Isaiah 32:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/32.1?lang=eng#p1)
 

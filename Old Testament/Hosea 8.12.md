@@ -1,6 +1,6 @@
 # Hosea 8:12
 
-> I have <u>written</u>[^a] to him the great things of my <u>law</u>[^b], but they were counted as a strange thing.
+> I have <u>written</u>[^a] to him the great things of my <u>law</u>[^b], *but* they were counted as a strange thing.
 
 [Hosea 8:12](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/8.12?lang=eng#p12)
 

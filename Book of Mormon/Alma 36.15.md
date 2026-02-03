@@ -1,6 +1,6 @@
 # Alma 36:15
 
-> Oh, thought I, that I <u>could</u>[^a] be banished and become extinct both soul and body, that I might not be brought to stand in the presence of my God, to be judged of my <u>deeds</u>[^b] .
+> Oh, thought I, that I <u>could</u>[^a] be banished and become extinct both soul and body, that I might not be brought to stand in the presence of my God, to be judged of my <u>deeds</u>[^b].
 
 [Alma 36:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p15#p15)
 

@@ -1,6 +1,6 @@
 # Exodus 3:21
 
-> And I will give this people favour in the sight of the Egyptians: and it shall come to pass, that, when ye go, ye shall not go <u>empty</u>[^a] :
+> And I will give this people favour in the sight of the Egyptians: and it shall come to pass, that, when ye go, ye shall not go <u>empty</u>[^a]:
 
 [Exodus 3:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.21?lang=eng#p21)
 

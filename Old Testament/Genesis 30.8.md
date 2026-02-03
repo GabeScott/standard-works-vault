@@ -1,6 +1,6 @@
 # Genesis 30:8
 
-> And Rachel said, <u>With</u>[^a] great wrestlings have I wrestled with my sister, and I have prevailed: and she called his name <u>Naphtali</u>[^b] .
+> And Rachel said, <u>With</u>[^a] great wrestlings have I wrestled with my sister, and I have prevailed: and she called his name <u>Naphtali</u>[^b].
 
 [Genesis 30:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.8?lang=eng#p8)
 

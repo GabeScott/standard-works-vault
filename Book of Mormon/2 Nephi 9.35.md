@@ -1,6 +1,6 @@
 # 2 Nephi 9:35
 
-> Wo unto the <u>murderer</u>[^a] who deliberately <u>killeth</u>[^b], for he shall <u>die</u>[^c] .
+> Wo unto the <u>murderer</u>[^a] who deliberately <u>killeth</u>[^b], for he shall <u>die</u>[^c].
 
 [2 Nephi 9:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p35#p35)
 

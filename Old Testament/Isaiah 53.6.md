@@ -1,6 +1,6 @@
 # Isaiah 53:6
 
-> All we like <u>sheep</u>[^a] have gone <u>astray</u>[^b]; we have turned every one to his <u>own</u>[^c] way; and the Lord hath laid on him the <u>iniquity</u>[^d] of us all.
+> All we like <u>sheep</u>[^a] have gone <u>astray</u>[^b]; we have turned every one to his <u>own</u>[^c] way; and the LORD hath laid on him the <u>iniquity</u>[^d] of us all.
 
 [Isaiah 53:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.6?lang=eng#p6)
 

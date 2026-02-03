@@ -1,6 +1,6 @@
 # Alma 32:21
 
-> And now as I said concerning faith— <u>faith</u>[^a] is not to have a perfect knowledge of things; therefore if ye have faith ye <u>hope</u>[^b] for things which are <u>not</u>[^c] seen, which are true.
+> And now as I said concerning faith—<u>faith</u>[^a] is not to have a perfect knowledge of things; therefore if ye have faith ye <u>hope</u>[^b] for things which are <u>not</u>[^c] seen, which are true.
 
 [Alma 32:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p21#p21)
 

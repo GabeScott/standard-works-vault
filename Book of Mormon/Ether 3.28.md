@@ -1,6 +1,6 @@
 # Ether 3:28
 
-> And it came to pass that the Lord commanded him that he should seal up the two <u>stones</u>[^a] which he had received, and show them not, until the Lord should show them unto the children of <u>men</u>[^b] .
+> And it came to pass that the Lord commanded him that he should seal up the two <u>stones</u>[^a] which he had received, and show them not, until the Lord should show them unto the children of <u>men</u>[^b].
 
 [Ether 3:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p28#p28)
 

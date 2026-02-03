@@ -1,6 +1,6 @@
 # 1 Kings 5:12
 
-> And the Lord gave Solomon <u>wisdom</u>[^a], as he promised him: and there was peace between Hiram and Solomon; and they two made a <u>league</u>[^b] together.
+> And the LORD gave Solomon <u>wisdom</u>[^a], as he promised him: and there was peace between Hiram and Solomon; and they two made a <u>league</u>[^b] together.
 
 [1 Kings 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/5.12?lang=eng#p12)
 

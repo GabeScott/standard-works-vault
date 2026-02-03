@@ -1,6 +1,6 @@
 # Isaiah 49:13
 
-> ¶ <u>Sing</u>[^a], O heavens; and be joyful, O earth; and break forth into <u>singing</u>[^b], O mountains: for the Lord hath <u>comforted</u>[^c] his people, and will have <u>mercy</u>[^d] upon his <u>afflicted</u>[^e] .
+> ¶ <u>Sing</u>[^a], O heavens; and be joyful, O earth; and break forth into <u>singing</u>[^b], O mountains: for the LORD hath <u>comforted</u>[^c] his people, and will have <u>mercy</u>[^d] upon his <u>afflicted</u>[^e].
 
 [Isaiah 49:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.13?lang=eng#p13)
 

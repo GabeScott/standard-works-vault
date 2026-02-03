@@ -1,6 +1,6 @@
 # Micah 6:8
 
-> He hath shewed thee, O man, what is good; and what doth the Lord <u>require</u>[^a] of thee, but to do <u>justly</u>[^b], and to love <u>mercy</u>[^c], and to <u>walk</u>[^d] <u>humbly</u>[^e] with thy God?
+> He hath shewed thee, O man, what *is* good; and what doth the LORD <u>require</u>[^a] of thee, but to do <u>justly</u>[^b], and to love <u>mercy</u>[^c], and to <u>walk</u>[^d] <u>humbly</u>[^e] with thy God?
 
 [Micah 6:8](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.8?lang=eng#p8)
 

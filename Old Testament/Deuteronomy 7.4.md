@@ -1,6 +1,6 @@
 # Deuteronomy 7:4
 
-> For they will <u>turn away</u>[^a] thy son from following me, that they may <u>serve</u>[^b] other gods: so will the <u>anger</u>[^c] of the Lord be kindled against you, and destroy thee suddenly.
+> For they will <u>turn away</u>[^a] thy son from following me, that they may <u>serve</u>[^b] other gods: so will the <u>anger</u>[^c] of the LORD be kindled against you, and destroy thee suddenly.
 
 [Deuteronomy 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.4?lang=eng#p4)
 

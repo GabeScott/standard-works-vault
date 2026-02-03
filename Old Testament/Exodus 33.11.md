@@ -1,6 +1,6 @@
 # Exodus 33:11
 
-> And the Lord <u>spake</u>[^a] unto Moses <u>face to face</u>[^b], as a man <u>speaketh</u>[^c] unto his <u>friend</u>[^d] . And he turned again into the camp: but his servant <u>Joshua</u>[^e], the son of <u>Nun</u>[^f], a young man, departed not out of the tabernacle.
+> And the LORD <u>spake</u>[^a] unto Moses <u>face to face</u>[^b], as a man <u>speaketh</u>[^c] unto his <u>friend</u>[^d]. And he turned again into the camp: but his servant <u>Joshua</u>[^e], the son of <u>Nun</u>[^f], a young man, departed not out of the tabernacle.
 
 [Exodus 33:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.11?lang=eng#p11)
 

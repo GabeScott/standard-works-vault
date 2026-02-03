@@ -1,6 +1,6 @@
 # Matthew 24:44
 
-> Therefore be ye also <u>ready</u>[^a] : for in such an <u>hour</u>[^b] <u>as ye think not</u>[^c] the Son of man cometh.
+> Therefore be ye also <u>ready</u>[^a]: for in such an <u>hour</u>[^b] <u>as ye think not</u>[^c] the Son of man cometh.
 
 [Matthew 24:44](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.44?lang=eng#p44)
 

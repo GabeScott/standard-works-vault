@@ -1,6 +1,6 @@
 # Exodus 13:18
 
-> But God <u>led</u>[^a] the people about, through the way of the wilderness of the Red sea: and the children of <u>Israel</u>[^b] went up <u>harnessed</u>[^c] out of the land of Egypt.
+> But God <u>led</u>[^a] the people about, *through* the way of the wilderness of the Red sea: and the children of <u>Israel</u>[^b] went up <u>harnessed</u>[^c] out of the land of Egypt.
 
 [Exodus 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.18?lang=eng#p18)
 

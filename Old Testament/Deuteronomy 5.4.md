@@ -1,6 +1,6 @@
 # Deuteronomy 5:4
 
-> The Lord talked with you <u>face to face</u>[^a] in the mount out of the midst of the <u>fire</u>[^b],
+> The LORD talked with you <u>face to face</u>[^a] in the mount out of the midst of the <u>fire</u>[^b],
 
 [Deuteronomy 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.4?lang=eng#p4)
 

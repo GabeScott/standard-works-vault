@@ -1,6 +1,6 @@
 # 1 Timothy 6:3
 
-> If any man <u>teach</u>[^a] otherwise, and consent not to <u>wholesome</u>[^b] words, even the words of our Lord Jesus Christ, and to the doctrine which is according to godliness;
+> If any man <u>teach</u>[^a] otherwise, and consent not to <u>wholesome</u>[^b] words, *even* the words of our Lord Jesus Christ, and to the doctrine which is according to godliness;
 
 [1 Timothy 6:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.3?lang=eng#p3)
 

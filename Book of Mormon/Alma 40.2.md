@@ -1,6 +1,6 @@
 # Alma 40:2
 
-> Behold, I say unto you, that there is no resurrection—or, I would say, in other words, that this mortal does not put on <u>immortality</u>[^a], this corruption does not <u>put</u>[^b] on incorruption— <u>until</u>[^c] after the coming of Christ.
+> Behold, I say unto you, that there is no resurrection—or, I would say, in other words, that this mortal does not put on <u>immortality</u>[^a], this corruption does not <u>put</u>[^b] on incorruption—<u>until</u>[^c] after the coming of Christ.
 
 [Alma 40:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p2#p2)
 

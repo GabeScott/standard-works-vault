@@ -1,6 +1,6 @@
 # Revelation 22:2
 
-> In the midst of the street of it, and on either side of the river, was there the <u>tree</u>[^a] of <u>life</u>[^b], which bare twelve manner of fruits, and yielded her fruit every month: and the <u>leaves</u>[^c] of the tree were for the healing of the nations.
+> In the midst of the street of it, and on either side of the river, *was there* the <u>tree</u>[^a] of <u>life</u>[^b], which bare twelve *manner of* fruits, *and* yielded her fruit every month: and the <u>leaves</u>[^c] of the tree *were* for the healing of the nations.
 
 [Revelation 22:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.2?lang=eng#p2)
 

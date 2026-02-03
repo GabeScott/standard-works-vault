@@ -1,6 +1,6 @@
 # Deuteronomy 9:1
 
-> Hear, O Israel: Thou art to pass over Jordan this day, to go in to <u>possess</u>[^a] nations greater and mightier than thyself, cities great and <u>fenced</u>[^b] up to heaven,
+> Hear, O Israel: Thou *art* to pass over Jordan this day, to go in to <u>possess</u>[^a] nations greater and mightier than thyself, cities great and <u>fenced</u>[^b] up to heaven,
 
 [Deuteronomy 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.1?lang=eng#p1)
 

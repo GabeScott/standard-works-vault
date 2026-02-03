@@ -1,6 +1,6 @@
 # Deuteronomy 9:16
 
-> And I <u>looked</u>[^a], and, behold, ye had <u>sinned</u>[^b] against the Lord your God, and had made you a molten calf: ye had turned aside quickly out of the way which the Lord had commanded you.
+> And I <u>looked</u>[^a], and, behold, ye had <u>sinned</u>[^b] against the LORD your God, *and* had made you a molten calf: ye had turned aside quickly out of the way which the LORD had commanded you.
 
 [Deuteronomy 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.16?lang=eng#p16)
 

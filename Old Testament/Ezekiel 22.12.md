@@ -1,6 +1,6 @@
 # Ezekiel 22:12
 
-> In thee have they taken <u>gifts</u>[^a] to shed blood; thou hast taken <u>usury</u>[^b] and increase, and thou hast greedily gained of thy neighbours by extortion, and hast forgotten me, saith the Lord God .
+> In thee have they taken <u>gifts</u>[^a] to shed blood; thou hast taken <u>usury</u>[^b] and increase, and thou hast greedily gained of thy neighbours by extortion, and hast forgotten me, saith the Lord GOD.
 
 [Ezekiel 22:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.12?lang=eng#p12)
 

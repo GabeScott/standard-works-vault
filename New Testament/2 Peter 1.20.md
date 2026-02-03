@@ -1,6 +1,6 @@
 # 2 Peter 1:20
 
-> Knowing this first, that <u>no</u>[^a] <u>prophecy</u>[^b] of the <u>scripture</u>[^c] is of any private <u>interpretation</u>[^d] .
+> Knowing this first, that <u>no</u>[^a] <u>prophecy</u>[^b] of the <u>scripture</u>[^c] is of any private <u>interpretation</u>[^d].
 
 [2 Peter 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.20?lang=eng#p20)
 

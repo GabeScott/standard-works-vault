@@ -1,6 +1,6 @@
 # Zechariah 12:10
 
-> And I will <u>pour</u>[^a] upon the house of David, and upon the inhabitants of Jerusalem, the spirit of <u>grace</u>[^b] and of supplications: and they shall <u>look</u>[^c] upon me whom they have <u>pierced</u>[^d], and they shall <u>mourn</u>[^e] for him, as one mourneth for his <u>only</u>[^f] son, and shall be in bitterness for him, as one that is in bitterness for his firstborn.
+> And I will <u>pour</u>[^a] upon the house of David, and upon the inhabitants of Jerusalem, the spirit of <u>grace</u>[^b] and of supplications: and they shall <u>look</u>[^c] upon me whom they have <u>pierced</u>[^d], and they shall <u>mourn</u>[^e] for him, as one mourneth for *his* <u>only</u>[^f] *son,* and shall be in bitterness for him, as one that is in bitterness for *his* firstborn.
 
 [Zechariah 12:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/12.10?lang=eng#p10)
 

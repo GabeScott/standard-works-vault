@@ -1,6 +1,6 @@
 # Psalms 37:28
 
-> For the Lord loveth <u>judgment</u>[^a], and forsaketh not his saints; they are preserved for ever: but the <u>seed</u>[^b] of the wicked shall be cut off.
+> For the LORD loveth <u>judgment</u>[^a], and forsaketh not his saints; they are preserved for ever: but the <u>seed</u>[^b] of the wicked shall be cut off.
 
 [Psalms 37:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.28?lang=eng#p28)
 

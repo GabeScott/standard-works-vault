@@ -1,6 +1,6 @@
 # Isaiah 23:18
 
-> And <u>her</u>[^a] merchandise and her <u>hire</u>[^b] shall be <u>holiness</u>[^c] to the Lord : it shall not be treasured nor laid up; for her merchandise shall be for them that dwell before the Lord , to eat sufficiently, and for durable clothing.
+> And <u>her</u>[^a] merchandise and her <u>hire</u>[^b] shall be <u>holiness</u>[^c] to the LORD: it shall not be treasured nor laid up; for her merchandise shall be for them that dwell before the LORD, to eat sufficiently, and for durable clothing.
 
 [Isaiah 23:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/23.18?lang=eng#p18)
 

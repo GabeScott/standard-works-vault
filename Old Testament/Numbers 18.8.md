@@ -1,6 +1,6 @@
 # Numbers 18:8
 
-> ¶ And the Lord spake unto Aaron, Behold, I also have given thee the charge of mine heave <u>offerings</u>[^a] of all the hallowed things of the children of Israel; unto thee have I <u>given</u>[^b] them by reason of the <u>anointing</u>[^c], and to thy sons, by an ordinance for ever.
+> ¶ And the LORD spake unto Aaron, Behold, I also have given thee the charge of mine heave <u>offerings</u>[^a] of all the hallowed things of the children of Israel; unto thee have I <u>given</u>[^b] them by reason of the <u>anointing</u>[^c], and to thy sons, by an ordinance for ever.
 
 [Numbers 18:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.8?lang=eng#p8)
 

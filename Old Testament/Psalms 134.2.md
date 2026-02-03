@@ -1,6 +1,6 @@
 # Psalms 134:2
 
-> Lift up your <u>hands</u>[^a] in the sanctuary, and bless the Lord .
+> Lift up your <u>hands</u>[^a] *in* the sanctuary, and bless the LORD.
 
 [Psalms 134:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/134.2?lang=eng#p2)
 

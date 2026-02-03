@@ -1,6 +1,6 @@
 # Psalms 32:10
 
-> Many <u>sorrows</u>[^a] shall be to the wicked: but he that <u>trusteth</u>[^b] in the Lord , mercy shall compass him about.
+> Many <u>sorrows</u>[^a] *shall be* to the wicked: but he that <u>trusteth</u>[^b] in the LORD, mercy shall compass him about.
 
 [Psalms 32:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/32.10?lang=eng#p10)
 

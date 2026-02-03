@@ -1,6 +1,6 @@
 # Mosiah 21:36
 
-> And now all the study of Ammon and <u>his</u>[^a] people, and king Limhi and his people, was to deliver themselves out of the hands of the Lamanites and from <u>bondage</u>[^b] .
+> And now all the study of Ammon and <u>his</u>[^a] people, and king Limhi and his people, was to deliver themselves out of the hands of the Lamanites and from <u>bondage</u>[^b].
 
 [Mosiah 21:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p36#p36)
 

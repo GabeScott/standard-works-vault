@@ -1,6 +1,6 @@
 # Job 27:14
 
-> If his <u>children</u>[^a] be multiplied, it is for the sword: and his offspring shall not be satisfied with bread.
+> If his <u>children</u>[^a] be multiplied, *it is* for the sword: and his offspring shall not be satisfied with bread.
 
 [Job 27:14](https://www.churchofjesuschrist.org/study/scriptures/ot/job/27.14?lang=eng#p14)
 

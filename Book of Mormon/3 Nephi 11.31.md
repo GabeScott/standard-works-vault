@@ -1,6 +1,6 @@
 # 3 Nephi 11:31
 
-> Behold, verily, verily, I say unto you, I will declare unto you my <u>doctrine</u>[^a] .
+> Behold, verily, verily, I say unto you, I will declare unto you my <u>doctrine</u>[^a].
 
 [3 Nephi 11:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p31#p31)
 

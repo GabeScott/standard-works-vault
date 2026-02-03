@@ -1,6 +1,6 @@
 # Deuteronomy 33:28
 
-> <u>Israel</u>[^a] then shall dwell in <u>safety</u>[^b] alone: the <u>fountain</u>[^c] of Jacob shall be upon a land of corn and wine; also his <u>heavens</u>[^d] shall drop down dew.
+> <u>Israel</u>[^a] then shall dwell in <u>safety</u>[^b] alone: the <u>fountain</u>[^c] of Jacob *shall be* upon a land of corn and wine; also his <u>heavens</u>[^d] shall drop down dew.
 
 [Deuteronomy 33:28](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.28?lang=eng#p28)
 

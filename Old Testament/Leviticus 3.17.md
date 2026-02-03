@@ -1,6 +1,6 @@
 # Leviticus 3:17
 
-> It shall be a perpetual statute for your generations throughout all your dwellings, that ye eat neither <u>fat</u>[^a] nor <u>blood</u>[^b] .
+> *It shall be* a perpetual statute for your generations throughout all your dwellings, that ye eat neither <u>fat</u>[^a] nor <u>blood</u>[^b].
 
 [Leviticus 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/3.17?lang=eng#p17)
 

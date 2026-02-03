@@ -1,6 +1,6 @@
 # Exodus 27:1
 
-> And thou shalt make an <u>altar</u>[^a] of <u>shittim</u>[^b] wood, five cubits long, and five cubits broad; the altar shall be foursquare: and the height thereof shall be three cubits.
+> And thou shalt make an <u>altar</u>[^a] *of* <u>shittim</u>[^b] wood, five cubits long, and five cubits broad; the altar shall be foursquare: and the height thereof *shall be* three cubits.
 
 [Exodus 27:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/27.1?lang=eng#p1)
 

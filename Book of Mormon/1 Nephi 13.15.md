@@ -1,6 +1,6 @@
 # 1 Nephi 13:15
 
-> And I beheld the Spirit of the Lord, that it was upon the Gentiles, and they did prosper and <u>obtain</u>[^a] the <u>land</u>[^b] for their inheritance; and I beheld that they were white, and exceedingly fair and <u>beautiful</u>[^c], like unto my people before they were <u>slain</u>[^d] .
+> And I beheld the Spirit of the Lord, that it was upon the Gentiles, and they did prosper and <u>obtain</u>[^a] the <u>land</u>[^b] for their inheritance; and I beheld that they were white, and exceedingly fair and <u>beautiful</u>[^c], like unto my people before they were <u>slain</u>[^d].
 
 [1 Nephi 13:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p15#p15)
 

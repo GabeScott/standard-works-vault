@@ -1,6 +1,6 @@
 # Proverbs 11:20
 
-> They that are <u>of</u>[^a] a <u>froward</u>[^b] heart are abomination to the Lord : but such as are upright in their way are his delight.
+> They that are <u>of</u>[^a] a <u>froward</u>[^b] heart *are* abomination to the LORD: but *such as are* upright in *their* way *are* his delight.
 
 [Proverbs 11:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.20?lang=eng#p20)
 

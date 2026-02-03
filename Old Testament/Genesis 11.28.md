@@ -1,6 +1,6 @@
 # Genesis 11:28
 
-> And Haran died before his father Terah in the land of his nativity, in Ur of the <u>Chaldees</u>[^a] .
+> And Haran died before his father Terah in the land of his nativity, in Ur of the <u>Chaldees</u>[^a].
 
 [Genesis 11:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.28?lang=eng#p28)
 

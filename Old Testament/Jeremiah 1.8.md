@@ -1,6 +1,6 @@
 # Jeremiah 1:8
 
-> Be not <u>afraid</u>[^a] of their faces: for I am with thee to deliver thee, saith the Lord .
+> Be not <u>afraid</u>[^a] of their faces: for I *am* with thee to deliver thee, saith the LORD.
 
 [Jeremiah 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.8?lang=eng#p8)
 

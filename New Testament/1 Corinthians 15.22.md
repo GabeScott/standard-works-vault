@@ -1,6 +1,6 @@
 # 1 Corinthians 15:22
 
-> For as in <u>Adam</u>[^a] all <u>die</u>[^b], even so in <u>Christ</u>[^c] shall all be made <u>alive</u>[^d] .
+> For as in <u>Adam</u>[^a] all <u>die</u>[^b], even so in <u>Christ</u>[^c] shall all be made <u>alive</u>[^d].
 
 [1 Corinthians 15:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.22?lang=eng#p22)
 

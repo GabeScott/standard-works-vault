@@ -1,6 +1,6 @@
 # Zechariah 2:5
 
-> For I, saith the Lord , will be unto her a wall of <u>fire</u>[^a] round about, and will be the <u>glory</u>[^b] in the midst of her.
+> For I, saith the LORD, will be unto her a wall of <u>fire</u>[^a] round about, and will be the <u>glory</u>[^b] in the midst of her.
 
 [Zechariah 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/2.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Genesis 21:6
 
-> ¶ And Sarah said, God hath made me to <u>laugh</u>[^a], so that all that hear will laugh with me.
+> ¶ And Sarah said, God hath made me to <u>laugh</u>[^a], *so that* all that hear will laugh with me.
 
 [Genesis 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.6?lang=eng#p6)
 

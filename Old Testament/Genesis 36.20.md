@@ -1,6 +1,6 @@
 # Genesis 36:20
 
-> ¶ These are the sons of <u>Seir</u>[^a] the Horite, who inhabited the land; Lotan, and Shobal, and Zibeon, and Anah,
+> ¶ These *are* the sons of <u>Seir</u>[^a] the Horite, who inhabited the land; Lotan, and Shobal, and Zibeon, and Anah,
 
 [Genesis 36:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/36.20?lang=eng#p20)
 

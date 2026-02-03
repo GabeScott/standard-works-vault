@@ -1,6 +1,6 @@
 # 1 Kings 11:33
 
-> Because that they have <u>forsaken</u>[^a] me, and have worshipped Ashtoreth the goddess of the Zidonians, Chemosh the god of the Moabites, and <u>Milcom</u>[^b] the god of the children of Ammon, and have not walked in my ways, to do that which is right in mine eyes, and to keep my statutes and my judgments, <u>as</u>[^c] did David his father.
+> Because that they have <u>forsaken</u>[^a] me, and have worshipped Ashtoreth the goddess of the Zidonians, Chemosh the god of the Moabites, and <u>Milcom</u>[^b] the god of the children of Ammon, and have not walked in my ways, to do *that which is* right in mine eyes, and *to keep* my statutes and my judgments, <u>as</u>[^c] *did* David his father.
 
 [1 Kings 11:33](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.33?lang=eng#p33)
 

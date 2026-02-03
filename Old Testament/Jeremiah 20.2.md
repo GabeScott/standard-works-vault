@@ -1,6 +1,6 @@
 # Jeremiah 20:2
 
-> Then Pashur <u>smote</u>[^a] Jeremiah the prophet, and put him in the stocks that were in the high gate of Benjamin, which was by the house of the Lord .
+> Then Pashur <u>smote</u>[^a] Jeremiah the prophet, and put him in the stocks that *were* in the high gate of Benjamin, which *was* by the house of the LORD.
 
 [Jeremiah 20:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.2?lang=eng#p2)
 

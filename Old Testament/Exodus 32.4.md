@@ -1,6 +1,6 @@
 # Exodus 32:4
 
-> And he received them at their hand, and fashioned it with a graving tool, after he had made it a <u>molten</u>[^a] calf: and they said, <u>These</u>[^b] be thy <u>gods</u>[^c], O Israel, which brought thee up out of the land of Egypt.
+> And he received *them* at their hand, and fashioned it with a graving tool, after he had made it a <u>molten</u>[^a] calf: and they said, <u>These</u>[^b] *be* thy <u>gods</u>[^c], O Israel, which brought thee up out of the land of Egypt.
 
 [Exodus 32:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.4?lang=eng#p4)
 

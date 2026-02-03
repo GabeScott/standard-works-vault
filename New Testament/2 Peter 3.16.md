@@ -1,6 +1,6 @@
 # 2 Peter 3:16
 
-> As also in all his epistles, speaking in them of these things; in which are some things hard to be understood, which they that are unlearned and unstable <u>wrest</u>[^a], as they do also the other <u>scriptures</u>[^b], unto their own destruction.
+> As also in all *his* epistles, speaking in them of these things; in which are some things hard to be understood, which they that are unlearned and unstable <u>wrest</u>[^a], as *they do* also the other <u>scriptures</u>[^b], unto their own destruction.
 
 [2 Peter 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.16?lang=eng#p16)
 

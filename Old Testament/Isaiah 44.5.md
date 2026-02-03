@@ -1,6 +1,6 @@
 # Isaiah 44:5
 
-> One shall say, I am the <u>Lord’s</u>[^a]; and another shall call himself by the <u>name</u>[^b] of Jacob; and another shall subscribe with his hand unto the Lord , and surname himself by the name of Israel.
+> One shall say, I *am* the <u>Lord’s</u>[^a]; and another shall call *himself* by the <u>name</u>[^b] of Jacob; and another shall subscribe *with* his hand unto the LORD, and surname *himself* by the name of Israel.
 
 [Isaiah 44:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.5?lang=eng#p5)
 

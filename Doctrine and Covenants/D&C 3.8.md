@@ -1,6 +1,6 @@
 # D&C 3:8
 
-> Yet you should have been faithful; and he would have extended his arm and <u>supported</u>[^a] you against all the fiery <u>darts</u>[^b] of the <u>adversary</u>[^c]; and he would have been with you in every time of <u>trouble</u>[^d] .
+> Yet you should have been faithful; and he would have extended his arm and <u>supported</u>[^a] you against all the fiery <u>darts</u>[^b] of the <u>adversary</u>[^c]; and he would have been with you in every time of <u>trouble</u>[^d].
 
 [D&C 3:8](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.8?lang=eng#p8)
 

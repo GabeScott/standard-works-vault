@@ -1,6 +1,6 @@
 # Joshua 14:4
 
-> For the children of <u>Joseph</u>[^a] were two tribes, Manasseh and Ephraim: therefore they gave no part unto the Levites in the land, save cities to dwell in, with their <u>suburbs</u>[^b] for their cattle and for their substance.
+> For the children of <u>Joseph</u>[^a] were two tribes, Manasseh and Ephraim: therefore they gave no part unto the Levites in the land, save cities to dwell *in,* with their <u>suburbs</u>[^b] for their cattle and for their substance.
 
 [Joshua 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/14.4?lang=eng#p4)
 

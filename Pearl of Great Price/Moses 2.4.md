@@ -1,6 +1,6 @@
 # Moses 2:4
 
-> And I, God, saw the light; and that light was <u>good</u>[^a] . And I, God, divided the <u>light</u>[^b] from the darkness.
+> And I, God, saw the light; and that light was <u>good</u>[^a]. And I, God, divided the <u>light</u>[^b] from the darkness.
 
 [Moses 2:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.4?lang=eng#p4)
 

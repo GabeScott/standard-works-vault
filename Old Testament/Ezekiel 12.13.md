@@ -1,6 +1,6 @@
 # Ezekiel 12:13
 
-> My <u>net</u>[^a] also will I spread upon him, and he shall be taken in my snare: and I will bring him to <u>Babylon</u>[^b] to the land of the Chaldeans; yet shall he not <u>see</u>[^c] it, though he shall die there.
+> My <u>net</u>[^a] also will I spread upon him, and he shall be taken in my snare: and I will bring him to <u>Babylon</u>[^b] *to* the land of the Chaldeans; yet shall he not <u>see</u>[^c] it, though he shall die there.
 
 [Ezekiel 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.13?lang=eng#p13)
 

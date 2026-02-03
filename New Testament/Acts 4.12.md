@@ -1,6 +1,6 @@
 # Acts 4:12
 
-> Neither is there <u>salvation</u>[^a] in any other: for there is none other <u>name</u>[^b] under heaven given among men, whereby we must be <u>saved</u>[^c] .
+> Neither is there <u>salvation</u>[^a] in any other: for there is none other <u>name</u>[^b] under heaven given among men, whereby we must be <u>saved</u>[^c].
 
 [Acts 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.12?lang=eng#p12)
 

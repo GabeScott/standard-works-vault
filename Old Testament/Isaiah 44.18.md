@@ -1,6 +1,6 @@
 # Isaiah 44:18
 
-> They have not <u>known</u>[^a] nor understood: for he hath <u>shut</u>[^b] their eyes, that they cannot see; and their <u>hearts</u>[^c], that they cannot understand.
+> They have not <u>known</u>[^a] nor understood: for he hath <u>shut</u>[^b] their eyes, that they cannot see; *and* their <u>hearts</u>[^c], that they cannot understand.
 
 [Isaiah 44:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.18?lang=eng#p18)
 

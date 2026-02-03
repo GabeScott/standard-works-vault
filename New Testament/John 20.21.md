@@ -1,6 +1,6 @@
 # John 20:21
 
-> Then said Jesus to them again, Peace be unto you: as my <u>Father</u>[^a] hath <u>sent</u>[^b] me, even so <u>send</u>[^c] I you.
+> Then said Jesus to them again, Peace *be* unto you: as *my* <u>Father</u>[^a] hath <u>sent</u>[^b] me, even so <u>send</u>[^c] I you.
 
 [John 20:21](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.21?lang=eng#p21)
 

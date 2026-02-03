@@ -1,6 +1,6 @@
 # Isaiah 55:1
 
-> Ho, every one that <u>thirsteth</u>[^a], come ye to the <u>waters</u>[^b], and he that hath no money; come ye, buy, and eat; yea, come, <u>buy</u>[^c] wine and milk without money and without <u>price</u>[^d] .
+> Ho, every one that <u>thirsteth</u>[^a], come ye to the <u>waters</u>[^b], and he that hath no money; come ye, buy, and eat; yea, come, <u>buy</u>[^c] wine and milk without money and without <u>price</u>[^d].
 
 [Isaiah 55:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Matthew 19:17
 
-> And he said unto him, Why callest thou me good? there is none <u>good</u>[^a] but one, that is, God: but if thou wilt enter into <u>life</u>[^b], keep the <u>commandments</u>[^c] .
+> And he said unto him, Why callest thou me good? *there is* none <u>good</u>[^a] but one, *that is,* God: but if thou wilt enter into <u>life</u>[^b], keep the <u>commandments</u>[^c].
 
 [Matthew 19:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.17?lang=eng#p17)
 

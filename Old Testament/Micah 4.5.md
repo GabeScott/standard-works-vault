@@ -1,6 +1,6 @@
 # Micah 4:5
 
-> For all people will walk every one in the <u>name</u>[^a] of his god, and we will walk in the <u>name</u>[^b] of the Lord our God for ever and ever.
+> For all people will walk every one in the <u>name</u>[^a] of his god, and we will walk in the <u>name</u>[^b] of the LORD our God for ever and ever.
 
 [Micah 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/4.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Psalms 49:15
 
-> But God will <u>redeem</u>[^a] my soul from the power of the grave: for he shall <u>receive</u>[^b] me. Selah .
+> But God will <u>redeem</u>[^a] my soul from the power of the grave: for he shall <u>receive</u>[^b] me. Selah.
 
 [Psalms 49:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/49.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # Exodus 2:10
 
-> And the child grew, and she brought him unto Pharaoh’s daughter, and he became her <u>son</u>[^a] . And she called his name <u>Moses</u>[^b] : and she said, Because I drew him out of the water.
+> And the child grew, and she brought him unto Pharaoh’s daughter, and he became her <u>son</u>[^a]. And she called his name <u>Moses</u>[^b]: and she said, Because I drew him out of the water.
 
 [Exodus 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.10?lang=eng#p10)
 

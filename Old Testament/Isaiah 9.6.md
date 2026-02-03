@@ -1,6 +1,6 @@
 # Isaiah 9:6
 
-> For unto us a <u>child</u>[^a] is <u>born</u>[^b], unto us a <u>son</u>[^c] is given: and the <u>government</u>[^d] shall be upon his shoulder: and his name shall be called Wonderful, <u>Counsellor</u>[^e], The <u>mighty</u>[^f] <u>God</u>[^g], The <u>everlasting</u>[^h] Father, The Prince of <u>Peace</u>[^i] .
+> For unto us a <u>child</u>[^a] is <u>born</u>[^b], unto us a <u>son</u>[^c] is given: and the <u>government</u>[^d] shall be upon his shoulder: and his name shall be called Wonderful, <u>Counsellor</u>[^e], The <u>mighty</u>[^f] <u>God</u>[^g], The <u>everlasting</u>[^h] Father, The Prince of <u>Peace</u>[^i].
 
 [Isaiah 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.6?lang=eng#p6)
 

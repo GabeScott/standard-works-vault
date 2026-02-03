@@ -1,6 +1,6 @@
 # Isaiah 9:16
 
-> For the <u>leaders</u>[^a] of this people cause them to err; and they that are led of them are <u>destroyed</u>[^b] .
+> For the <u>leaders</u>[^a] of this people cause *them* to err; and *they that are* led of them *are* <u>destroyed</u>[^b].
 
 [Isaiah 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.16?lang=eng#p16)
 

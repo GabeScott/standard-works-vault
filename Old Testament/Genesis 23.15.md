@@ -1,6 +1,6 @@
 # Genesis 23:15
 
-> My lord, hearken unto me: the land is worth four hundred <u>shekels</u>[^a] of silver; what is that betwixt me and thee? bury therefore thy dead.
+> My lord, hearken unto me: the land *is worth* four hundred <u>shekels</u>[^a] of silver; what *is* that betwixt me and thee? bury therefore thy dead.
 
 [Genesis 23:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # Leviticus 24:6
 
-> And thou shalt <u>set</u>[^a] them in two rows, six on a row, upon the pure <u>table</u>[^b] before the Lord .
+> And thou shalt <u>set</u>[^a] them in two rows, six on a row, upon the pure <u>table</u>[^b] before the LORD.
 
 [Leviticus 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.6?lang=eng#p6)
 

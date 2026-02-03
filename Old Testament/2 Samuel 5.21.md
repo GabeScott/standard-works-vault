@@ -1,6 +1,6 @@
 # 2 Samuel 5:21
 
-> And there they left their <u>images</u>[^a], and David and his men <u>burned them</u>[^b] .
+> And there they left their <u>images</u>[^a], and David and his men <u>burned them</u>[^b].
 
 [2 Samuel 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.21?lang=eng#p21)
 

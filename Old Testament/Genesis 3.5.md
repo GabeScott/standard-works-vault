@@ -1,6 +1,6 @@
 # Genesis 3:5
 
-> For God doth know that in the day ye eat thereof, then your <u>eyes</u>[^a] shall be opened, and ye shall be as gods, <u>knowing</u>[^b] good and <u>evil</u>[^c] .
+> For God doth know that in the day ye eat thereof, then your <u>eyes</u>[^a] shall be opened, and ye shall be as gods, <u>knowing</u>[^b] good and <u>evil</u>[^c].
 
 [Genesis 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.5?lang=eng#p5)
 

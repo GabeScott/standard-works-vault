@@ -1,6 +1,6 @@
 # Exodus 12:14
 
-> And this <u>day</u>[^a] shall be unto you for a <u>memorial</u>[^b]; and ye shall keep it a <u>feast</u>[^c] to the Lord throughout your generations; ye shall keep it a <u>feast</u>[^d] by an ordinance <u>for ever</u>[^e] .
+> And this <u>day</u>[^a] shall be unto you for a <u>memorial</u>[^b]; and ye shall keep it a <u>feast</u>[^c] to the LORD throughout your generations; ye shall keep it a <u>feast</u>[^d] by an ordinance <u>for ever</u>[^e].
 
 [Exodus 12:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.14?lang=eng#p14)
 

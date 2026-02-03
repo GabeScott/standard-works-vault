@@ -1,6 +1,6 @@
 # Numbers 17:13
 
-> Whosoever cometh <u>any thing</u>[^a] near unto the tabernacle of the Lord shall <u>die</u>[^b] : <u>shall</u>[^c] we be consumed with dying?
+> Whosoever cometh <u>any thing</u>[^a] near unto the tabernacle of the LORD shall <u>die</u>[^b]: <u>shall</u>[^c] we be consumed with dying?
 
 [Numbers 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/17.13?lang=eng#p13)
 

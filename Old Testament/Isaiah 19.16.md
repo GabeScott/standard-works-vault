@@ -1,6 +1,6 @@
 # Isaiah 19:16
 
-> In that day shall <u>Egypt</u>[^a] be like unto women: and it shall be afraid and fear because of the shaking of the hand of the Lord of hosts, which he shaketh over it.
+> In that day shall <u>Egypt</u>[^a] be like unto women: and it shall be afraid and fear because of the shaking of the hand of the LORD of hosts, which he shaketh over it.
 
 [Isaiah 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.16?lang=eng#p16)
 

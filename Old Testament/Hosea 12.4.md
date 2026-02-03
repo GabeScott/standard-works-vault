@@ -1,6 +1,6 @@
 # Hosea 12:4
 
-> Yea, he had power over the <u>angel</u>[^a], and <u>prevailed</u>[^b] : he wept, and made supplication unto him: he found him in <u>Beth-el</u>[^c], and there he spake with <u>us</u>[^d];
+> Yea, he had power over the <u>angel</u>[^a], and <u>prevailed</u>[^b]: he wept, and made supplication unto him: he found him *in* <u>Beth-el</u>[^c], and there he spake with <u>us</u>[^d];
 
 [Hosea 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.4?lang=eng#p4)
 

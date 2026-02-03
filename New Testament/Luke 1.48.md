@@ -1,6 +1,6 @@
 # Luke 1:48
 
-> For he hath regarded the low estate of his <u>handmaiden</u>[^a] : for, behold, from henceforth all generations shall call me <u>blessed</u>[^b] .
+> For he hath regarded the low estate of his <u>handmaiden</u>[^a]: for, behold, from henceforth all generations shall call me <u>blessed</u>[^b].
 
 [Luke 1:48](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.48?lang=eng#p48)
 

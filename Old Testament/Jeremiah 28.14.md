@@ -1,6 +1,6 @@
 # Jeremiah 28:14
 
-> For thus saith the Lord of hosts, the God of Israel; I have put a <u>yoke</u>[^a] of iron upon the neck of all these nations, that they may serve <u>Nebuchadnezzar</u>[^b] king of Babylon; and they shall serve him: and I have given him the <u>beasts</u>[^c] of the field also.
+> For thus saith the LORD of hosts, the God of Israel; I have put a <u>yoke</u>[^a] of iron upon the neck of all these nations, that they may serve <u>Nebuchadnezzar</u>[^b] king of Babylon; and they shall serve him: and I have given him the <u>beasts</u>[^c] of the field also.
 
 [Jeremiah 28:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/28.14?lang=eng#p14)
 

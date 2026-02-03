@@ -1,6 +1,6 @@
 # Joshua 10:14
 
-> And there was no day like that before it or after it, that the Lord hearkened unto the voice of a man: for the Lord <u>fought</u>[^a] for Israel.
+> And there was no day like that before it or after it, that the LORD hearkened unto the voice of a man: for the LORD <u>fought</u>[^a] for Israel.
 
 [Joshua 10:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.14?lang=eng#p14)
 

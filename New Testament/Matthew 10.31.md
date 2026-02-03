@@ -1,6 +1,6 @@
 # Matthew 10:31
 
-> Fear ye not therefore, ye are of more <u>value</u>[^a] than many <u>sparrows</u>[^b] .
+> Fear ye not therefore, ye are of more <u>value</u>[^a] than many <u>sparrows</u>[^b].
 
 [Matthew 10:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.31?lang=eng#p31)
 

@@ -1,6 +1,6 @@
 # Isaiah 4:1
 
-> And in that day <u>seven</u>[^a] women shall take hold of one <u>man</u>[^b], saying, We will eat our own bread, and wear our own apparel: only let us be called by thy <u>name</u>[^c], to take away our <u>reproach</u>[^d] .
+> And in that day <u>seven</u>[^a] women shall take hold of one <u>man</u>[^b], saying, We will eat our own bread, and wear our own apparel: only let us be called by thy <u>name</u>[^c], to take away our <u>reproach</u>[^d].
 
 [Isaiah 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/4.1?lang=eng#p1)
 

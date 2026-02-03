@@ -1,6 +1,6 @@
 # Genesis 18:14
 
-> Is any thing too <u>hard</u>[^a] for the Lord ? At the time appointed I will return unto thee, according to the <u>time</u>[^b] of life, and Sarah shall have a son.
+> Is any thing too <u>hard</u>[^a] for the LORD? At the time appointed I will return unto thee, according to the <u>time</u>[^b] of life, and Sarah shall have a son.
 
 [Genesis 18:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.14?lang=eng#p14)
 

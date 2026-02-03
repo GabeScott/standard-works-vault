@@ -1,6 +1,6 @@
 # Isaiah 59:17
 
-> For he put on <u>righteousness</u>[^a] as a <u>breastplate</u>[^b], and an helmet of salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloak.
+> For he put on <u>righteousness</u>[^a] as a <u>breastplate</u>[^b], and an helmet of salvation upon his head; and he put on the garments of vengeance *for* clothing, and was clad with zeal as a cloak.
 
 [Isaiah 59:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.17?lang=eng#p17)
 

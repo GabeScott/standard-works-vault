@@ -1,6 +1,6 @@
 # 2 Samuel 7:14
 
-> I will be his <u>father</u>[^a], and he shall be my <u>son</u>[^b] . If he commit iniquity, I will <u>chasten</u>[^c] him with the rod of men, and with the stripes of the children of men:
+> I will be his <u>father</u>[^a], and he shall be my <u>son</u>[^b]. If he commit iniquity, I will <u>chasten</u>[^c] him with the rod of men, and with the stripes of the children of men:
 
 [2 Samuel 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.14?lang=eng#p14)
 

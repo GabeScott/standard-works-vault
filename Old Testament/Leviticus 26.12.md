@@ -1,6 +1,6 @@
 # Leviticus 26:12
 
-> And I will <u>walk</u>[^a] <u>among</u>[^b] you, and will be your <u>God</u>[^c], and ye shall be my <u>people</u>[^d] .
+> And I will <u>walk</u>[^a] <u>among</u>[^b] you, and will be your <u>God</u>[^c], and ye shall be my <u>people</u>[^d].
 
 [Leviticus 26:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.12?lang=eng#p12)
 

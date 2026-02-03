@@ -1,6 +1,6 @@
 # 2 Nephi 25:19
 
-> For according to the words of the prophets, the <u>Messiah</u>[^a] cometh in <u>six hundred</u>[^b] years from the time that my father left Jerusalem; and according to the words of the prophets, and also the word of the <u>angel</u>[^c] of God, his <u>name</u>[^d] shall be Jesus Christ, the <u>Son of God</u>[^e] .
+> For according to the words of the prophets, the <u>Messiah</u>[^a] cometh in <u>six hundred</u>[^b] years from the time that my father left Jerusalem; and according to the words of the prophets, and also the word of the <u>angel</u>[^c] of God, his <u>name</u>[^d] shall be Jesus Christ, the <u>Son of God</u>[^e].
 
 [2 Nephi 25:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p19#p19)
 

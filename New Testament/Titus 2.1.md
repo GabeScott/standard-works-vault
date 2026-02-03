@@ -1,6 +1,6 @@
 # Titus 2:1
 
-> But <u>speak</u>[^a] thou the things which become sound <u>doctrine</u>[^b] :
+> But <u>speak</u>[^a] thou the things which become sound <u>doctrine</u>[^b]:
 
 [Titus 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.1?lang=eng#p1)
 

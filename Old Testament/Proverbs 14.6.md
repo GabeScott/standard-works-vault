@@ -1,6 +1,6 @@
 # Proverbs 14:6
 
-> A scorner seeketh wisdom, and findeth it not: but <u>knowledge</u>[^a] is easy unto him that understandeth.
+> A scorner seeketh wisdom, and *findeth it* not: but <u>knowledge</u>[^a] *is* easy unto him that understandeth.
 
 [Proverbs 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.6?lang=eng#p6)
 

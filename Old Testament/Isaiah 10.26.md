@@ -1,6 +1,6 @@
 # Isaiah 10:26
 
-> And the Lord of hosts shall stir up a scourge for him according to the slaughter of <u>Midian</u>[^a] at the rock of <u>Oreb</u>[^b] : and as his <u>rod</u>[^c] was upon the sea, so shall he lift it up after the manner of <u>Egypt</u>[^d] .
+> And the LORD of hosts shall stir up a scourge for him according to the slaughter of <u>Midian</u>[^a] at the rock of <u>Oreb</u>[^b]: and *as* his <u>rod</u>[^c] *was* upon the sea, so shall he lift it up after the manner of <u>Egypt</u>[^d].
 
 [Isaiah 10:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.26?lang=eng#p26)
 

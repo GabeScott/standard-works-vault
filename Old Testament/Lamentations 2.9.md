@@ -1,6 +1,6 @@
 # Lamentations 2:9
 
-> Her <u>gates</u>[^a] are sunk into the ground; he hath destroyed and broken her bars: her king and her princes are <u>among</u>[^b] the Gentiles: the law is no more; her <u>prophets</u>[^c] also find no <u>vision</u>[^d] from the Lord .
+> Her <u>gates</u>[^a] are sunk into the ground; he hath destroyed and broken her bars: her king and her princes *are* <u>among</u>[^b] the Gentiles: the law *is* no *more;* her <u>prophets</u>[^c] also find no <u>vision</u>[^d] from the LORD.
 
 [Lamentations 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.9?lang=eng#p9)
 

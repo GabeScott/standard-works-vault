@@ -1,6 +1,6 @@
 # Luke 21:15
 
-> For I will give you a mouth and <u>wisdom</u>[^a], which all your adversaries shall not be able to <u>gainsay nor resist</u>[^b] .
+> For I will give you a mouth and <u>wisdom</u>[^a], which all your adversaries shall not be able to <u>gainsay nor resist</u>[^b].
 
 [Luke 21:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.15?lang=eng#p15)
 

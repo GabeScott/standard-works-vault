@@ -1,6 +1,6 @@
 # Psalms 4:1
 
-> <u>Hear</u>[^a] me when I call, O God of my <u>righteousness</u>[^b] : thou hast enlarged me when I was in <u>distress</u>[^c]; have mercy upon me, and hear my prayer.
+> <u>Hear</u>[^a] me when I call, O God of my <u>righteousness</u>[^b]: thou hast enlarged me *when I was* in <u>distress</u>[^c]; have mercy upon me, and hear my prayer.
 
 [Psalms 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/4.1?lang=eng#p1)
 

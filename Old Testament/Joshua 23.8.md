@@ -1,6 +1,6 @@
 # Joshua 23:8
 
-> But <u>cleave</u>[^a] unto the Lord your God, as ye have done unto this day.
+> But <u>cleave</u>[^a] unto the LORD your God, as ye have done unto this day.
 
 [Joshua 23:8](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.8?lang=eng#p8)
 

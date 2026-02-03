@@ -1,6 +1,6 @@
 # Joshua 6:3
 
-> And ye shall <u>compass</u>[^a] the city, all ye men of war, and go round about the city once. Thus shalt thou do six days.
+> And ye shall <u>compass</u>[^a] the city, all *ye* men of war, *and* go round about the city once. Thus shalt thou do six days.
 
 [Joshua 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.3?lang=eng#p3)
 

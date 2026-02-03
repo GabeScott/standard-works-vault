@@ -1,6 +1,6 @@
 # Acts 18:25
 
-> This man was <u>instructed</u>[^a] in the way of the Lord; and being <u>fervent</u>[^b] in the spirit, he spake and taught <u>diligently</u>[^c] the things of the Lord, knowing only the baptism of <u>John</u>[^d] .
+> This man was <u>instructed</u>[^a] in the way of the Lord; and being <u>fervent</u>[^b] in the spirit, he spake and taught <u>diligently</u>[^c] the things of the Lord, knowing only the baptism of <u>John</u>[^d].
 
 [Acts 18:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.25?lang=eng#p25)
 

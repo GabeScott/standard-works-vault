@@ -1,6 +1,6 @@
 # Job 2:10
 
-> But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive <u>good</u>[^a] at the hand of God, and shall we not receive <u>evil</u>[^b] ? In all this did not Job <u>sin</u>[^c] with his lips.
+> But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive <u>good</u>[^a] at the hand of God, and shall we not receive <u>evil</u>[^b]? In all this did not Job <u>sin</u>[^c] with his lips.
 
 [Job 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/job/2.10?lang=eng#p10)
 

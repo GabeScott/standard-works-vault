@@ -1,6 +1,6 @@
 # Helaman 13:3
 
-> But behold, the <u>voice</u>[^a] of the Lord came unto him, that he should return again, and prophesy unto the people whatsoever things should come into his <u>heart</u>[^b] .
+> But behold, the <u>voice</u>[^a] of the Lord came unto him, that he should return again, and prophesy unto the people whatsoever things should come into his <u>heart</u>[^b].
 
 [Helaman 13:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p3#p3)
 

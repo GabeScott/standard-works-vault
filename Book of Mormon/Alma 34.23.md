@@ -1,6 +1,6 @@
 # Alma 34:23
 
-> Yea, <u>cry</u>[^a] unto him against the <u>devil</u>[^b], who is an enemy to all <u>righteousness</u>[^c] .
+> Yea, <u>cry</u>[^a] unto him against the <u>devil</u>[^b], who is an enemy to all <u>righteousness</u>[^c].
 
 [Alma 34:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p23#p23)
 

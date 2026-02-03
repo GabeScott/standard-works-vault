@@ -1,6 +1,6 @@
 # Leviticus 7:20
 
-> But the soul that eateth of the flesh of the sacrifice of peace offerings, that pertain unto the Lord , having his uncleanness upon him, even that soul shall be <u>cut off</u>[^a] from his people.
+> But the soul that eateth *of* the flesh of the sacrifice of peace offerings, that *pertain* unto the LORD, having his uncleanness upon him, even that soul shall be <u>cut off</u>[^a] from his people.
 
 [Leviticus 7:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.20?lang=eng#p20)
 

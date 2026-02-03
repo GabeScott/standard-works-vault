@@ -1,6 +1,6 @@
 # Numbers 13:16
 
-> These are the names of the men which Moses sent to spy out the <u>land</u>[^a] . And Moses called <u>Oshea</u>[^b] the son of <u>Nun</u>[^c] <u>Jehoshua</u>[^d] .
+> These *are* the names of the men which Moses sent to spy out the <u>land</u>[^a]. And Moses called <u>Oshea</u>[^b] the son of <u>Nun</u>[^c] <u>Jehoshua</u>[^d].
 
 [Numbers 13:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.16?lang=eng#p16)
 

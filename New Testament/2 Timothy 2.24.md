@@ -1,6 +1,6 @@
 # 2 Timothy 2:24
 
-> And the servant of the Lord must not <u>strive</u>[^a]; but be gentle unto all men, apt to <u>teach</u>[^b], patient,
+> And the servant of the Lord must not <u>strive</u>[^a]; but be gentle unto all *men,* apt to <u>teach</u>[^b], patient,
 
 [2 Timothy 2:24](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.24?lang=eng#p24)
 

@@ -1,6 +1,6 @@
 # 1 Corinthians 10:11
 
-> Now all these things happened unto them for <u>ensamples</u>[^a] : <u>and</u>[^b] they are <u>written</u>[^c] for our <u>admonition</u>[^d], upon whom the ends of the world are come.
+> Now all these things happened unto them for <u>ensamples</u>[^a]: <u>and</u>[^b] they are <u>written</u>[^c] for our <u>admonition</u>[^d], upon whom the ends of the world are come.
 
 [1 Corinthians 10:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.11?lang=eng#p11)
 

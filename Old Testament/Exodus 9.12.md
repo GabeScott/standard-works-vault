@@ -1,6 +1,6 @@
 # Exodus 9:12
 
-> <u>And</u>[^a] the Lord hardened the heart of Pharaoh, and he hearkened not unto them; as the Lord had spoken unto Moses.
+> <u>And</u>[^a] the LORD hardened the heart of Pharaoh, and he hearkened not unto them; as the LORD had spoken unto Moses.
 
 [Exodus 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.12?lang=eng#p12)
 

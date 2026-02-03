@@ -1,6 +1,6 @@
 # Ether 12:14
 
-> Behold, it was the faith of Nephi and Lehi that wrought the <u>change</u>[^a] upon the Lamanites, that they were baptized with fire and with the <u>Holy Ghost</u>[^b] .
+> Behold, it was the faith of Nephi and Lehi that wrought the <u>change</u>[^a] upon the Lamanites, that they were baptized with fire and with the <u>Holy Ghost</u>[^b].
 
 [Ether 12:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p14#p14)
 

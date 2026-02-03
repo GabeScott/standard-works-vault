@@ -1,6 +1,6 @@
 # Jacob 5:17
 
-> And it came to pass that the Lord of the vineyard looked and beheld the tree in the which the wild olive branches had been grafted; and it had sprung forth and begun to bear <u>fruit</u>[^a] . And he beheld that it was good; and the fruit thereof was like unto the natural fruit.
+> And it came to pass that the Lord of the vineyard looked and beheld the tree in the which the wild olive branches had been grafted; and it had sprung forth and begun to bear <u>fruit</u>[^a]. And he beheld that it was good; and the fruit thereof was like unto the natural fruit.
 
 [Jacob 5:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p17#p17)
 

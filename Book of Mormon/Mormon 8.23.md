@@ -1,6 +1,6 @@
 # Mormon 8:23
 
-> Search the prophecies of <u>Isaiah</u>[^a] . Behold, I cannot write them. Yea, behold I say unto you, that those saints who have gone before me, who have possessed this land, shall <u>cry</u>[^b], yea, even from the dust will they cry unto the Lord; and as the Lord liveth he will remember the covenant which he hath made with them.
+> Search the prophecies of <u>Isaiah</u>[^a]. Behold, I cannot write them. Yea, behold I say unto you, that those saints who have gone before me, who have possessed this land, shall <u>cry</u>[^b], yea, even from the dust will they cry unto the Lord; and as the Lord liveth he will remember the covenant which he hath made with them.
 
 [Mormon 8:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p23#p23)
 

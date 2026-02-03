@@ -1,6 +1,6 @@
 # Exodus 22:29
 
-> ¶ Thou shalt not delay to offer the <u>first</u>[^a] of thy ripe fruits, and of thy <u>liquors</u>[^b] : the <u>firstborn</u>[^c] of thy sons shalt thou give unto me.
+> ¶ Thou shalt not delay *to offer* the <u>first</u>[^a] of thy ripe fruits, and of thy <u>liquors</u>[^b]: the <u>firstborn</u>[^c] of thy sons shalt thou give unto me.
 
 [Exodus 22:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.29?lang=eng#p29)
 

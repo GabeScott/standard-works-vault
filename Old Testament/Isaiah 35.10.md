@@ -1,6 +1,6 @@
 # Isaiah 35:10
 
-> And the ransomed of the Lord shall <u>return</u>[^a], and come to <u>Zion</u>[^b] with <u>songs</u>[^c] and everlasting <u>joy</u>[^d] upon their heads: they shall obtain joy and gladness, and <u>sorrow</u>[^e] and sighing shall flee away.
+> And the ransomed of the LORD shall <u>return</u>[^a], and come to <u>Zion</u>[^b] with <u>songs</u>[^c] and everlasting <u>joy</u>[^d] upon their heads: they shall obtain joy and gladness, and <u>sorrow</u>[^e] and sighing shall flee away.
 
 [Isaiah 35:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/35.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # Romans 5:12
 
-> Wherefore, as by one man <u>sin</u>[^a] entered into the world, and <u>death</u>[^b] by sin; and so <u>death</u>[^c] passed upon all men, for that all have <u>sinned</u>[^d] :
+> Wherefore, as by one man <u>sin</u>[^a] entered into the world, and <u>death</u>[^b] by sin; and so <u>death</u>[^c] passed upon all men, for that all have <u>sinned</u>[^d]:
 
 [Romans 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.12?lang=eng#p12)
 

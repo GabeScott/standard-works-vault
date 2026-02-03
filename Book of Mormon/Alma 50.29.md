@@ -1,6 +1,6 @@
 # Alma 50:29
 
-> Therefore, Morianton put it into their hearts that they should flee to the land which was northward, which was covered with <u>large</u>[^a] bodies of water, and take possession of the land which was <u>northward</u>[^b] .
+> Therefore, Morianton put it into their hearts that they should flee to the land which was northward, which was covered with <u>large</u>[^a] bodies of water, and take possession of the land which was <u>northward</u>[^b].
 
 [Alma 50:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p29#p29)
 

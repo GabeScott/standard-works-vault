@@ -1,6 +1,6 @@
 # 1 Samuel 8:18
 
-> And ye shall cry out in that day because of your <u>king</u>[^a] which ye shall have <u>chosen</u>[^b] you; and the Lord will not <u>hear</u>[^c] you in that day.
+> And ye shall cry out in that day because of your <u>king</u>[^a] which ye shall have <u>chosen</u>[^b] you; and the LORD will not <u>hear</u>[^c] you in that day.
 
 [1 Samuel 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/8.18?lang=eng#p18)
 

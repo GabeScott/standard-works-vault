@@ -1,6 +1,6 @@
 # Isaiah 60:7
 
-> All the flocks of <u>Kedar</u>[^a] shall be gathered together unto thee, the rams of Nebaioth shall minister unto thee: they shall come up with <u>acceptance</u>[^b] on mine <u>altar</u>[^c], and I will glorify the house of my <u>glory</u>[^d] .
+> All the flocks of <u>Kedar</u>[^a] shall be gathered together unto thee, the rams of Nebaioth shall minister unto thee: they shall come up with <u>acceptance</u>[^b] on mine <u>altar</u>[^c], and I will glorify the house of my <u>glory</u>[^d].
 
 [Isaiah 60:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.7?lang=eng#p7)
 

@@ -1,6 +1,6 @@
 # Leviticus 24:4
 
-> He shall order the <u>lamps</u>[^a] upon the pure candlestick before the Lord continually.
+> He shall order the <u>lamps</u>[^a] upon the pure candlestick before the LORD continually.
 
 [Leviticus 24:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.4?lang=eng#p4)
 

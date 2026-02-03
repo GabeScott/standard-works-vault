@@ -1,6 +1,6 @@
 # Psalms 103:8
 
-> The Lord is <u>merciful</u>[^b] and gracious, slow to <u>anger</u>[^c], and plenteous in mercy.
+> The <u>Lord</u>[^a] *is* <u>merciful</u>[^b] and gracious, slow to <u>anger</u>[^c], and plenteous in mercy.
 
 [Psalms 103:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/103.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 11:2
 
-> And know ye this day: for I speak not with your children which have not known, and which have not seen the <u>chastisement</u>[^a] of the Lord your God, his greatness, his mighty hand, and his stretched out arm,
+> And know ye this day: for *I speak* not with your children which have not known, and which have not seen the <u>chastisement</u>[^a] of the LORD your God, his greatness, his mighty hand, and his stretched out arm,
 
 [Deuteronomy 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.2?lang=eng#p2)
 

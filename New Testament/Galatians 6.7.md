@@ -1,6 +1,6 @@
 # Galatians 6:7
 
-> Be not <u>deceived</u>[^a]; God is not <u>mocked</u>[^b] : for whatsoever a man <u>soweth</u>[^c], that shall he also <u>reap</u>[^d] .
+> Be not <u>deceived</u>[^a]; God is not <u>mocked</u>[^b]: for whatsoever a man <u>soweth</u>[^c], that shall he also <u>reap</u>[^d].
 
 [Galatians 6:7](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/6.7?lang=eng#p7)
 

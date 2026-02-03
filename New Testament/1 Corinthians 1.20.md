@@ -1,6 +1,6 @@
 # 1 Corinthians 1:20
 
-> Where is the wise? where is the <u>scribe</u>[^a] ? where is the <u>disputer</u>[^b] of this <u>world</u>[^c] ? hath not God made foolish the <u>wisdom</u>[^d] of this <u>world</u>[^e] ?
+> Where *is* the wise? where *is* the <u>scribe</u>[^a]? where *is* the <u>disputer</u>[^b] of this <u>world</u>[^c]? hath not God made foolish the <u>wisdom</u>[^d] of this <u>world</u>[^e]?
 
 [1 Corinthians 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # Ezekiel 5:13
 
-> Thus shall mine anger be accomplished, and <u>I</u>[^a] will cause my <u>fury</u>[^b] to rest upon them, and I will be comforted: and they shall know that I the Lord have <u>spoken</u>[^c] it in my zeal, when I have accomplished my fury in them.
+> Thus shall mine anger be accomplished, and <u>I</u>[^a] will cause my <u>fury</u>[^b] to rest upon them, and I will be comforted: and they shall know that I the LORD have <u>spoken</u>[^c] *it* in my zeal, when I have accomplished my fury in them.
 
 [Ezekiel 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/5.13?lang=eng#p13)
 

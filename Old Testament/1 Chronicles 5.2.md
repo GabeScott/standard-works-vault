@@ -1,6 +1,6 @@
 # 1 Chronicles 5:2
 
-> For <u>Judah</u>[^a] prevailed above his brethren, and of him came the chief <u>ruler</u>[^b]; but the <u>birthright</u>[^c] was Joseph’s:)
+> For <u>Judah</u>[^a] prevailed above his brethren, and of him *came* the chief <u>ruler</u>[^b]; but the <u>birthright</u>[^c] *was* Joseph’s:)
 
 [1 Chronicles 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/5.2?lang=eng#p2)
 

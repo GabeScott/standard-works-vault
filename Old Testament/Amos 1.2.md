@@ -1,6 +1,6 @@
 # Amos 1:2
 
-> And he said, The Lord will <u>roar</u>[^a] from Zion, and utter his voice from Jerusalem; and the <u>habitations</u>[^b] of the shepherds shall mourn, and the top of Carmel shall wither.
+> And he said, The LORD will <u>roar</u>[^a] from Zion, and utter his voice from Jerusalem; and the <u>habitations</u>[^b] of the shepherds shall mourn, and the top of Carmel shall wither.
 
 [Amos 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/1.2?lang=eng#p2)
 

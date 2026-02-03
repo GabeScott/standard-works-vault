@@ -1,6 +1,6 @@
 # Exodus 6:3
 
-> And I <u>appeared</u>[^a] unto <u>Abraham</u>[^b], unto Isaac, <u>and</u>[^c] unto Jacob, by the name of God Almighty, but by my <u>name</u>[^d] Jehovah was I not known to them.
+> And I <u>appeared</u>[^a] unto <u>Abraham</u>[^b], unto Isaac, <u>and</u>[^c] unto Jacob, by *the name of* God Almighty, but by my <u>name</u>[^d] JEHOVAH was I not known to them.
 
 [Exodus 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.3?lang=eng#p3)
 

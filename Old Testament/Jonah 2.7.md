@@ -1,6 +1,6 @@
 # Jonah 2:7
 
-> When my soul fainted within me I <u>remembered</u>[^a] the Lord : and my <u>prayer</u>[^b] came in unto thee, into thine holy <u>temple</u>[^c] .
+> When my soul fainted within me I <u>remembered</u>[^a] the LORD: and my <u>prayer</u>[^b] came in unto thee, into thine holy <u>temple</u>[^c].
 
 [Jonah 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/2.7?lang=eng#p7)
 

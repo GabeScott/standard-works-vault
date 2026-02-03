@@ -1,6 +1,6 @@
 # Isaiah 9:3
 
-> Thou hast <u>multiplied</u>[^a] the <u>nation</u>[^b], and not increased the joy: they joy before thee according to the joy in harvest, and as men <u>rejoice</u>[^d] when they divide the spoil.
+> Thou hast <u>multiplied</u>[^a] the <u>nation</u>[^b], <u>and</u>[^c] not increased the joy: they joy before thee according to the joy in harvest, *and* as *men* <u>rejoice</u>[^d] when they divide the spoil.
 
 [Isaiah 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.3?lang=eng#p3)
 

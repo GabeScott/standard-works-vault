@@ -1,6 +1,6 @@
 # Deuteronomy 34:5
 
-> ¶ So <u>Moses</u>[^a] the servant of the Lord <u>died</u>[^b] there in the land of Moab, according to the word of the Lord .
+> ¶ So <u>Moses</u>[^a] the servant of the LORD <u>died</u>[^b] there in the land of Moab, according to the word of the LORD.
 
 [Deuteronomy 34:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.5?lang=eng#p5)
 

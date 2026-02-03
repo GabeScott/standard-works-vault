@@ -1,6 +1,6 @@
 # 1 Kings 19:12
 
-> And after the earthquake a fire; but the Lord was not in the fire: and after the fire a <u>still</u>[^a] small <u>voice</u>[^b] .
+> And after the earthquake a fire; *but* the LORD *was* not in the fire: and after the fire a <u>still</u>[^a] small <u>voice</u>[^b].
 
 [1 Kings 19:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/19.12?lang=eng#p12)
 

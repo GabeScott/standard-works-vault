@@ -1,6 +1,6 @@
 # Micah 3:5
 
-> ¶ Thus saith the Lord concerning the <u>prophets</u>[^a] that make my people err, that bite with their teeth, and cry, <u>Peace</u>[^b]; and he that putteth not into their mouths, they even prepare <u>war</u>[^c] against him.
+> ¶ Thus saith the LORD concerning the <u>prophets</u>[^a] that make my people err, that bite with their teeth, and cry, <u>Peace</u>[^b]; and he that putteth not into their mouths, they even prepare <u>war</u>[^c] against him.
 
 [Micah 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/3.5?lang=eng#p5)
 

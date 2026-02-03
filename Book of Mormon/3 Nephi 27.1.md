@@ -1,6 +1,6 @@
 # 3 Nephi 27:1
 
-> And it came to pass that as the disciples of Jesus were journeying and were preaching the things which they had both heard and seen, and were baptizing in the name of Jesus, it came to pass that the disciples were gathered together and were <u>united</u>[^a] in <u>mighty prayer</u>[^b] and <u>fasting</u>[^c] .
+> And it came to pass that as the disciples of Jesus were journeying and were preaching the things which they had both heard and seen, and were baptizing in the name of Jesus, it came to pass that the disciples were gathered together and were <u>united</u>[^a] in <u>mighty prayer</u>[^b] and <u>fasting</u>[^c].
 
 [3 Nephi 27:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p1#p1)
 

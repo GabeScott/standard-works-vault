@@ -1,6 +1,6 @@
 # 3 Nephi 15:9
 
-> Behold, I am the <u>law</u>[^a], and the <u>light</u>[^b] . Look unto me, and endure to the end, and ye shall <u>live</u>[^c]; for unto him that <u>endureth</u>[^d] to the end will I give eternal life.
+> Behold, I am the <u>law</u>[^a], and the <u>light</u>[^b]. Look unto me, and endure to the end, and ye shall <u>live</u>[^c]; for unto him that <u>endureth</u>[^d] to the end will I give eternal life.
 
 [3 Nephi 15:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/15?lang=eng&id=p9#p9)
 

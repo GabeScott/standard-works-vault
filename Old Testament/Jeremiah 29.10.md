@@ -1,6 +1,6 @@
 # Jeremiah 29:10
 
-> ¶ For thus saith the Lord , That after <u>seventy</u>[^a] years be accomplished at Babylon I will visit you, and <u>perform</u>[^b] my good word toward you, in causing you to <u>return</u>[^c] to this place.
+> ¶ For thus saith the LORD, That after <u>seventy</u>[^a] years be accomplished at Babylon I will visit you, and <u>perform</u>[^b] my good word toward you, in causing you to <u>return</u>[^c] to this place.
 
 [Jeremiah 29:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.10?lang=eng#p10)
 

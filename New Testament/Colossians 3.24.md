@@ -1,6 +1,6 @@
 # Colossians 3:24
 
-> Knowing that of the Lord ye shall <u>receive</u>[^a] the <u>reward</u>[^b] of the <u>inheritance</u>[^c] : for ye <u>serve</u>[^d] the Lord Christ.
+> Knowing that of the Lord ye shall <u>receive</u>[^a] the <u>reward</u>[^b] of the <u>inheritance</u>[^c]: for ye <u>serve</u>[^d] the Lord Christ.
 
 [Colossians 3:24](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.24?lang=eng#p24)
 

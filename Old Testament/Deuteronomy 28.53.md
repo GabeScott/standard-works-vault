@@ -1,6 +1,6 @@
 # Deuteronomy 28:53
 
-> And thou shalt <u>eat</u>[^a] the fruit of thine own body, the <u>flesh</u>[^b] of thy sons and of thy daughters, which the Lord thy God hath given thee, in the siege, and in the <u>straitness</u>[^c], wherewith thine enemies shall distress thee:
+> And thou shalt <u>eat</u>[^a] the fruit of thine own body, the <u>flesh</u>[^b] of thy sons and of thy daughters, which the LORD thy God hath given thee, in the siege, and in the <u>straitness</u>[^c], wherewith thine enemies shall distress thee:
 
 [Deuteronomy 28:53](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.53?lang=eng#p53)
 

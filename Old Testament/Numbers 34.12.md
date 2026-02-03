@@ -1,6 +1,6 @@
 # Numbers 34:12
 
-> And the border shall go down to Jordan, and the goings out of it shall be at the <u>salt</u>[^a] <u>sea</u>[^b] : this shall be your land with the coasts thereof round about.
+> And the border shall go down to Jordan, and the goings out of it shall be at the <u>salt</u>[^a] <u>sea</u>[^b]: this shall be your land with the coasts thereof round about.
 
 [Numbers 34:12](https://www.churchofjesuschrist.org/study/scriptures/ot/num/34.12?lang=eng#p12)
 

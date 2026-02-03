@@ -1,6 +1,6 @@
 # Numbers 21:24
 
-> And Israel <u>smote</u>[^a] him with the edge of the sword, and possessed his land from <u>Arnon</u>[^b] unto Jabbok, even unto the children of Ammon: for the border of the children of Ammon was strong.
+> And Israel <u>smote</u>[^a] him with the edge of the sword, and possessed his land from <u>Arnon</u>[^b] unto Jabbok, even unto the children of Ammon: for the border of the children of Ammon *was* strong.
 
 [Numbers 21:24](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.24?lang=eng#p24)
 

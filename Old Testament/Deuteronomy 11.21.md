@@ -1,6 +1,6 @@
 # Deuteronomy 11:21
 
-> That your days may be multiplied, and the days of your <u>children</u>[^a], in the land which the Lord sware unto your fathers to give them, <u>as</u>[^b] the days of heaven upon the earth.
+> That your days may be multiplied, and the days of your <u>children</u>[^a], in the land which the LORD sware unto your fathers to give them, <u>as</u>[^b] the days of heaven upon the earth.
 
 [Deuteronomy 11:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.21?lang=eng#p21)
 

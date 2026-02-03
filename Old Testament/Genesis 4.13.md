@@ -1,6 +1,6 @@
 # Genesis 4:13
 
-> And Cain said unto the Lord , <u>My</u>[^a] punishment is greater than I can bear.
+> And Cain said unto the LORD, <u>My</u>[^a] punishment *is* greater than I can bear.
 
 [Genesis 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.13?lang=eng#p13)
 

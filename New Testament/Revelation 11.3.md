@@ -1,6 +1,6 @@
 # Revelation 11:3
 
-> And I will give power unto my two <u>witnesses</u>[^b], and they shall prophesy a thousand two hundred and threescore days, clothed in sackcloth.
+> And I will give *power* unto my two <u>witnesses</u>[^b], and they shall prophesy a thousand two hundred *and* threescore days, clothed in sackcloth.
 
 [Revelation 11:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/11.3?lang=eng#p3)
 

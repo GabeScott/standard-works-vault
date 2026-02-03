@@ -1,6 +1,6 @@
 # Exodus 3:18
 
-> And they shall <u>hearken</u>[^a] to thy voice: and thou shalt come, thou and the elders of Israel, unto the king of Egypt, and ye shall say unto him, The Lord <u>God</u>[^b] of the Hebrews hath met with us: and now <u>let</u>[^c] us go, we beseech thee, three days’ journey into the wilderness, that we may <u>sacrifice</u>[^d] to the Lord our God.
+> And they shall <u>hearken</u>[^a] to thy voice: and thou shalt come, thou and the elders of Israel, unto the king of Egypt, and ye shall say unto him, The LORD <u>God</u>[^b] of the Hebrews hath met with us: and now <u>let</u>[^c] us go, we beseech thee, three days’ journey into the wilderness, that we may <u>sacrifice</u>[^d] to the LORD our God.
 
 [Exodus 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.18?lang=eng#p18)
 

@@ -1,6 +1,6 @@
 # Romans 9:32
 
-> <u>Wherefore</u>[^a] ? Because they sought it not by faith, but as it were by the works of the law. For they <u>stumbled</u>[^b] at that stumblingstone;
+> <u>Wherefore</u>[^a]? Because *they sought it* not by faith, but as it were by the works of the law. For they <u>stumbled</u>[^b] at that stumblingstone;
 
 [Romans 9:32](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.32?lang=eng#p32)
 

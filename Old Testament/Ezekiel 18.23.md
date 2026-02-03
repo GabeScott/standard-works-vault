@@ -1,6 +1,6 @@
 # Ezekiel 18:23
 
-> Have I any <u>pleasure</u>[^a] at all that the wicked should die? saith the Lord God : and not that he should return from his ways, and live?
+> Have I any <u>pleasure</u>[^a] at all that the wicked should die? saith the Lord GOD: *and* not that he should return from his ways, and live?
 
 [Ezekiel 18:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.23?lang=eng#p23)
 

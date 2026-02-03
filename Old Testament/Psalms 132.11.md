@@ -1,6 +1,6 @@
 # Psalms 132:11
 
-> The Lord hath sworn in truth unto <u>David</u>[^a]; he will not turn from it; Of the <u>fruit</u>[^b] of thy body will I set upon thy <u>throne</u>[^c] .
+> The LORD hath sworn *in* truth unto <u>David</u>[^a]; he will not turn from it; Of the <u>fruit</u>[^b] of thy body will I set upon thy <u>throne</u>[^c].
 
 [Psalms 132:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/132.11?lang=eng#p11)
 

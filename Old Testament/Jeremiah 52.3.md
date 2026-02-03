@@ -1,6 +1,6 @@
 # Jeremiah 52:3
 
-> For through the anger of the Lord it came to pass in Jerusalem and Judah, till he had cast them out from his presence, that <u>Zedekiah</u>[^a] rebelled against the king of Babylon.
+> For through the anger of the LORD it came to pass in Jerusalem and Judah, till he had cast them out from his presence, that <u>Zedekiah</u>[^a] rebelled against the king of Babylon.
 
 [Jeremiah 52:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.3?lang=eng#p3)
 

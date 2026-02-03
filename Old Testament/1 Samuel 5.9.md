@@ -1,6 +1,6 @@
 # 1 Samuel 5:9
 
-> And it was so, that, after they had carried it about, the <u>hand</u>[^a] of the Lord was against the city with a very great destruction: and he smote the men of the city, both small and great, and they had emerods in their secret parts.
+> And it was *so,* that, after they had carried it about, the <u>hand</u>[^a] of the LORD was against the city with a very great destruction: and he smote the men of the city, both small and great, and they had emerods in their secret parts.
 
 [1 Samuel 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/5.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # 2 Samuel 12:13
 
-> And David said unto Nathan, I have <u>sinned</u>[^a] against the Lord . And Nathan said unto David, The Lord also <u>hath put away</u>[^b] thy sin; thou shalt not die.
+> And David said unto Nathan, I have <u>sinned</u>[^a] against the LORD. And Nathan said unto David, The LORD also <u>hath put away</u>[^b] thy sin; thou shalt not die.
 
 [2 Samuel 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.13?lang=eng#p13)
 

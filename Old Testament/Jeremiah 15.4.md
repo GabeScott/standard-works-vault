@@ -1,6 +1,6 @@
 # Jeremiah 15:4
 
-> And I will cause them to be removed into all kingdoms of the earth, because of <u>Manasseh</u>[^a] the son of Hezekiah king of Judah, for that which he did in Jerusalem.
+> And I will cause them to be removed into all kingdoms of the earth, because of <u>Manasseh</u>[^a] the son of Hezekiah king of Judah, for *that* which he did in Jerusalem.
 
 [Jeremiah 15:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/15.4?lang=eng#p4)
 

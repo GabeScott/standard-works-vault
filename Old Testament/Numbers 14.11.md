@@ -1,6 +1,6 @@
 # Numbers 14:11
 
-> ¶ And the Lord said unto Moses, How long will this people <u>provoke</u>[^a] me? and how long will it be ere they <u>believe</u>[^b] me, for all the signs which I have shewed among them?
+> ¶ And the LORD said unto Moses, How long will this people <u>provoke</u>[^a] me? and how long will it be ere they <u>believe</u>[^b] me, for all the signs which I have shewed among them?
 
 [Numbers 14:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.11?lang=eng#p11)
 

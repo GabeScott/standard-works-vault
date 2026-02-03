@@ -1,6 +1,6 @@
 # 2 Corinthians 11:23
 
-> Are they <u>ministers</u>[^a] of Christ? (I speak as a fool) <u>I</u>[^b] am more; in <u>labours</u>[^c] more abundant, in <u>stripes</u>[^d] above measure, in <u>prisons</u>[^e] more frequent, in deaths oft.
+> Are they <u>ministers</u>[^a] of Christ? (I speak as a fool) <u>I</u>[^b] *am* more; in <u>labours</u>[^c] more abundant, in <u>stripes</u>[^d] above measure, in <u>prisons</u>[^e] more frequent, in deaths oft.
 
 [2 Corinthians 11:23](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.23?lang=eng#p23)
 

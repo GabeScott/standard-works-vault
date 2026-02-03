@@ -1,6 +1,6 @@
 # Genesis 10:4
 
-> And the sons of <u>Javan</u>[^a]; <u>Elishah</u>[^b], and Tarshish, Kittim, and <u>Dodanim</u>[^c] .
+> And the sons of <u>Javan</u>[^a]; <u>Elishah</u>[^b], and Tarshish, Kittim, and <u>Dodanim</u>[^c].
 
 [Genesis 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.4?lang=eng#p4)
 

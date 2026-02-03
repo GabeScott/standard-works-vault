@@ -1,6 +1,6 @@
 # Ezra 2:43
 
-> ¶ The <u>Nethinims</u>[^a] : the children of Ziha, the children of Hasupha, the children of Tabbaoth,
+> ¶ The <u>Nethinims</u>[^a]: the children of Ziha, the children of Hasupha, the children of Tabbaoth,
 
 [Ezra 2:43](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/2.43?lang=eng#p43)
 

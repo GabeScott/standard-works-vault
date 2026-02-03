@@ -1,6 +1,6 @@
 # Isaiah 14:22
 
-> For I will rise up against them, saith the Lord of hosts, and <u>cut off</u>[^a] from Babylon the name, and remnant, and son, and nephew, saith the Lord .
+> For I will rise up against them, saith the LORD of hosts, and <u>cut off</u>[^a] from Babylon the name, and remnant, and son, and nephew, saith the LORD.
 
 [Isaiah 14:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.22?lang=eng#p22)
 

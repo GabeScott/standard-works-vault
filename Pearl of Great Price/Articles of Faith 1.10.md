@@ -1,6 +1,6 @@
 # Articles of Faith 1:10
 
-> We believe in the literal <u>gathering</u>[^a] of Israel and in the restoration of the <u>Ten Tribes</u>[^b]; that <u>Zion</u>[^c] (the New Jerusalem) will be built upon the American continent; that Christ will <u>reign</u>[^d] personally upon the earth; and, that the earth will be <u>renewed</u>[^e] and receive its <u>paradisiacal</u>[^f] <u>glory</u>[^g] .
+> We believe in the literal <u>gathering</u>[^a] of Israel and in the restoration of the <u>Ten Tribes</u>[^b]; that <u>Zion</u>[^c] (the New Jerusalem) will be built upon the American continent; that Christ will <u>reign</u>[^d] personally upon the earth; and, that the earth will be <u>renewed</u>[^e] and receive its <u>paradisiacal</u>[^f] <u>glory</u>[^g].
 
 [Articles of Faith 1:10](https://www.churchofjesuschrist.org/study/scriptures/pgp/a-of-f/1.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # Ezekiel 23:12
 
-> She doted upon the <u>Assyrians</u>[^a] her neighbours, captains and rulers clothed most gorgeously, horsemen riding upon horses, all of them desirable young men.
+> She doted upon the <u>Assyrians</u>[^a] *her* neighbours, captains and rulers clothed most gorgeously, horsemen riding upon horses, all of them desirable young men.
 
 [Ezekiel 23:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.12?lang=eng#p12)
 

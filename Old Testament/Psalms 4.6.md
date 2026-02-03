@@ -1,6 +1,6 @@
 # Psalms 4:6
 
-> There be many that say, Who will shew us any good? Lord , lift thou up the light of thy <u>countenance</u>[^a] upon us.
+> *There be* many that say, Who will shew us *any* good? LORD, lift thou up the light of thy <u>countenance</u>[^a] upon us.
 
 [Psalms 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/4.6?lang=eng#p6)
 

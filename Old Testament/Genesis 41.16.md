@@ -1,6 +1,6 @@
 # Genesis 41:16
 
-> And Joseph answered Pharaoh, saying, It is not in me: <u>God</u>[^a] shall give Pharaoh an answer of <u>peace</u>[^b] .
+> And Joseph answered Pharaoh, saying, *It is* not in me: <u>God</u>[^a] shall give Pharaoh an answer of <u>peace</u>[^b].
 
 [Genesis 41:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Numbers 12:8
 
-> With him will I <u>speak</u>[^a] <u>mouth</u>[^b] to mouth, even apparently, and not in dark speeches; and the similitude of the Lord shall he <u>behold</u>[^c] : wherefore then were ye not afraid to speak against my servant Moses?
+> With him will I <u>speak</u>[^a] <u>mouth</u>[^b] to mouth, even apparently, and not in dark speeches; and the similitude of the LORD shall he <u>behold</u>[^c]: wherefore then were ye not afraid to speak against my servant Moses?
 
 [Numbers 12:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/12.8?lang=eng#p8)
 

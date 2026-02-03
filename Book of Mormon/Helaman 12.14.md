@@ -1,6 +1,6 @@
 # Helaman 12:14
 
-> Yea, if he say unto the <u>earth</u>[^a] —Thou shalt <u>go back</u>[^b], that it <u>lengthen</u>[^c] out the day for many hours—it is done;
+> Yea, if he say unto the <u>earth</u>[^a]—Thou shalt <u>go back</u>[^b], that it <u>lengthen</u>[^c] out the day for many hours—it is done;
 
 [Helaman 12:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p14#p14)
 

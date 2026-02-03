@@ -1,6 +1,6 @@
 # 2 Kings 25:11
 
-> Now the rest of the people that were left in the city, and the fugitives that fell away to the king of Babylon, with the remnant of the multitude, did Nebuzar-adan the captain of the guard <u>carry</u>[^a] away.
+> Now the rest of the people *that were* left in the city, and the fugitives that fell away to the king of Babylon, with the remnant of the multitude, did Nebuzar-adan the captain of the guard <u>carry</u>[^a] away.
 
 [2 Kings 25:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.11?lang=eng#p11)
 

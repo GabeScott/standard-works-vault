@@ -1,6 +1,6 @@
 # Moses 1:26
 
-> And lo, I am <u>with thee</u>[^a], even unto the end of thy days; for thou shalt <u>deliver</u>[^b] my people from <u>bondage</u>[^c], even <u>Israel</u>[^d] my <u>chosen</u>[^e] .
+> And lo, I am <u>with thee</u>[^a], even unto the end of thy days; for thou shalt <u>deliver</u>[^b] my people from <u>bondage</u>[^c], even <u>Israel</u>[^d] my <u>chosen</u>[^e].
 
 [Moses 1:26](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.26?lang=eng#p26)
 

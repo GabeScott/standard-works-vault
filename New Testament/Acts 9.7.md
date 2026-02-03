@@ -1,6 +1,6 @@
 # Acts 9:7
 
-> <u>And</u>[^a] the men which journeyed with him stood speechless, hearing a <u>voice</u>[^b], but seeing <u>no man</u>[^c] .
+> <u>And</u>[^a] the men which journeyed with him stood speechless, hearing a <u>voice</u>[^b], but seeing <u>no man</u>[^c].
 
 [Acts 9:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.7?lang=eng#p7)
 

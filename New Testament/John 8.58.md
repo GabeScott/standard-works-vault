@@ -1,6 +1,6 @@
 # John 8:58
 
-> Jesus said unto them, Verily, verily, I say unto you, <u>Before</u>[^a] Abraham was, <u>I am</u>[^b] .
+> Jesus said unto them, Verily, verily, I say unto you, <u>Before</u>[^a] Abraham was, <u>I am</u>[^b].
 
 [John 8:58](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.58?lang=eng#p58)
 

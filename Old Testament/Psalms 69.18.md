@@ -1,6 +1,6 @@
 # Psalms 69:18
 
-> Draw <u>nigh</u>[^a] unto my soul, and redeem it: deliver me because of mine enemies.
+> Draw <u>nigh</u>[^a] unto my soul, *and* redeem it: deliver me because of mine enemies.
 
 [Psalms 69:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.18?lang=eng#p18)
 

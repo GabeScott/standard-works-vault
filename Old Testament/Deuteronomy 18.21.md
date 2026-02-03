@@ -1,6 +1,6 @@
 # Deuteronomy 18:21
 
-> And if thou say in thine heart, How shall we <u>know</u>[^a] the word which the Lord hath not spoken?
+> And if thou say in thine heart, How shall we <u>know</u>[^a] the word which the LORD hath not spoken?
 
 [Deuteronomy 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.21?lang=eng#p21)
 

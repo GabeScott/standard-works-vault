@@ -1,6 +1,6 @@
 # Psalms 20:6
 
-> Now know I that the Lord saveth his <u>anointed</u>[^a]; he will hear him from his holy heaven with the saving strength of his right hand.
+> Now know I that the LORD saveth his <u>anointed</u>[^a]; he will hear him from his holy heaven with the saving strength of his right hand.
 
 [Psalms 20:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/20.6?lang=eng#p6)
 

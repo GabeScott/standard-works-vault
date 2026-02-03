@@ -1,6 +1,6 @@
 # Isaiah 2:3
 
-> And many people shall go and say, Come ye, and let us <u>go</u>[^a] up to the <u>mountain</u>[^b] of the Lord , to the <u>house</u>[^c] of the God of Jacob; and he will <u>teach</u>[^d] us of his ways, and we will walk in his paths: for out of <u>Zion</u>[^e] shall go forth the <u>law</u>[^f], and the word of the Lord from Jerusalem.
+> And many people shall go and say, Come ye, and let us <u>go</u>[^a] up to the <u>mountain</u>[^b] of the LORD, to the <u>house</u>[^c] of the God of Jacob; and he will <u>teach</u>[^d] us of his ways, and we will walk in his paths: for out of <u>Zion</u>[^e] shall go forth the <u>law</u>[^f], and the word of the LORD from Jerusalem.
 
 [Isaiah 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.3?lang=eng#p3)
 

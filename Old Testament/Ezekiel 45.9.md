@@ -1,6 +1,6 @@
 # Ezekiel 45:9
 
-> ¶ Thus saith the Lord God ; Let it suffice you, O princes of Israel: remove violence and spoil, and execute judgment and <u>justice</u>[^a], take away your <u>exactions</u>[^b] from my people, saith the Lord God .
+> ¶ Thus saith the Lord GOD; Let it suffice you, O princes of Israel: remove violence and spoil, and execute judgment and <u>justice</u>[^a], take away your <u>exactions</u>[^b] from my people, saith the Lord GOD.
 
 [Ezekiel 45:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.9?lang=eng#p9)
 

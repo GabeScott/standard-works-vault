@@ -1,6 +1,6 @@
 # Jeremiah 46:9
 
-> Come up, ye horses; and rage, ye chariots; and let the mighty men come forth; the Ethiopians and the Libyans, that handle the shield; and the <u>Lydians</u>[^a], that handle and bend the bow.
+> Come up, ye horses; and rage, ye chariots; and let the mighty men come forth; the Ethiopians and the Libyans, that handle the shield; and the <u>Lydians</u>[^a], that handle *and* bend the bow.
 
 [Jeremiah 46:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.9?lang=eng#p9)
 

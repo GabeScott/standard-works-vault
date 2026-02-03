@@ -1,6 +1,6 @@
 # Psalms 104:29
 
-> Thou hidest thy <u>face</u>[^a], they are troubled: thou takest away their <u>breath</u>[^b], they die, and return to their <u>dust</u>[^c] .
+> Thou hidest thy <u>face</u>[^a], they are troubled: thou takest away their <u>breath</u>[^b], they die, and return to their <u>dust</u>[^c].
 
 [Psalms 104:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.29?lang=eng#p29)
 

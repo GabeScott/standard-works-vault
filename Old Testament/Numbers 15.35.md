@@ -1,6 +1,6 @@
 # Numbers 15:35
 
-> And the Lord said unto Moses, The man shall be surely put to <u>death</u>[^a] : all the congregation shall stone him with stones without the camp.
+> And the LORD said unto Moses, The man shall be surely put to <u>death</u>[^a]: all the congregation shall stone him with stones without the camp.
 
 [Numbers 15:35](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.35?lang=eng#p35)
 

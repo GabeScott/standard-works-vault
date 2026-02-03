@@ -1,6 +1,6 @@
 # 2 Peter 2:5
 
-> And spared not the old world, but saved <u>Noah</u>[^a] the eighth person, a preacher of <u>righteousness</u>[^b], bringing in the <u>flood</u>[^c] upon the world of the ungodly;
+> And spared not the old world, but saved <u>Noah</u>[^a] the eighth *person,* a preacher of <u>righteousness</u>[^b], bringing in the <u>flood</u>[^c] upon the world of the ungodly;
 
 [2 Peter 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.5?lang=eng#p5)
 

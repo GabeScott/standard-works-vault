@@ -1,6 +1,6 @@
 # Psalms 73:26
 
-> My <u>flesh</u>[^a] and my heart <u>faileth</u>[^b] : but God is the <u>strength</u>[^c] of my heart, and my <u>portion</u>[^d] for ever.
+> My <u>flesh</u>[^a] and my heart <u>faileth</u>[^b]: *but* God *is* the <u>strength</u>[^c] of my heart, and my <u>portion</u>[^d] for ever.
 
 [Psalms 73:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Matthew 1:21
 
-> And she shall bring forth a son, and thou shalt call his <u>name</u>[^a] Jesus : for he shall <u>save</u>[^c] his people from their sins.
+> And she shall bring forth a son, and thou shalt call his <u>name</u>[^a] JESUS: for he shall <u>save</u>[^c] his people from their sins.
 
 [Matthew 1:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.21?lang=eng#p21)
 

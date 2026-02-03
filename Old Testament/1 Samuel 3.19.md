@@ -1,6 +1,6 @@
 # 1 Samuel 3:19
 
-> ¶ And Samuel <u>grew</u>[^a], and the Lord was <u>with</u>[^c] him, and did let none of his words <u>fall</u>[^d] to the ground.
+> ¶ And Samuel <u>grew</u>[^a], and the <u>Lord</u>[^b] was <u>with</u>[^c] him, and did let none of his words <u>fall</u>[^d] to the ground.
 
 [1 Samuel 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/3.19?lang=eng#p19)
 

@@ -1,6 +1,6 @@
 # Isaiah 45:20
 
-> ¶ Assemble yourselves and come; draw near together, ye that are <u>escaped</u>[^a] of the <u>nations</u>[^b] : they have no <u>knowledge</u>[^c] that set up the wood of their graven image, and <u>pray</u>[^d] unto a god that cannot save.
+> ¶ Assemble yourselves and come; draw near together, ye *that are* <u>escaped</u>[^a] of the <u>nations</u>[^b]: they have no <u>knowledge</u>[^c] that set up the wood of their graven image, and <u>pray</u>[^d] unto a god *that* cannot save.
 
 [Isaiah 45:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.20?lang=eng#p20)
 

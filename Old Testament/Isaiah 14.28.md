@@ -1,6 +1,6 @@
 # Isaiah 14:28
 
-> In the <u>year</u>[^a] that king <u>Ahaz</u>[^b] died was this <u>burden</u>[^c] .
+> In the <u>year</u>[^a] that king <u>Ahaz</u>[^b] died was this <u>burden</u>[^c].
 
 [Isaiah 14:28](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.28?lang=eng#p28)
 

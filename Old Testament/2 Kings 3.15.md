@@ -1,6 +1,6 @@
 # 2 Kings 3:15
 
-> But now bring me a <u>minstrel</u>[^a] . And it came to pass, when the minstrel played, that the <u>hand</u>[^b] of the Lord came upon him.
+> But now bring me a <u>minstrel</u>[^a]. And it came to pass, when the minstrel played, that the <u>hand</u>[^b] of the LORD came upon him.
 
 [2 Kings 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/3.15?lang=eng#p15)
 

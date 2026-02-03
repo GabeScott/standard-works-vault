@@ -1,6 +1,6 @@
 # Isaiah 18:7
 
-> ¶ In that time shall the present be brought unto the Lord of hosts of a people <u>scattered</u>[^a] and peeled, and from a people terrible from their beginning hitherto; a nation meted out and trodden under foot, whose land the rivers have spoiled, to the place of the name of the Lord of hosts, the <u>mount Zion</u>[^b] .
+> ¶ In that time shall the present be brought unto the LORD of hosts of a people <u>scattered</u>[^a] and peeled, and from a people terrible from their beginning hitherto; a nation meted out and trodden under foot, whose land the rivers have spoiled, to the place of the name of the LORD of hosts, the <u>mount Zion</u>[^b].
 
 [Isaiah 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/18.7?lang=eng#p7)
 

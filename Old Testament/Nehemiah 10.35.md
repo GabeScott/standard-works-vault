@@ -1,6 +1,6 @@
 # Nehemiah 10:35
 
-> And to bring the <u>firstfruits</u>[^a] of our ground, and the firstfruits of all fruit of all trees, year by year, unto the house of the Lord :
+> And to bring the <u>firstfruits</u>[^a] of our ground, and the firstfruits of all fruit of all trees, year by year, unto the house of the LORD:
 
 [Nehemiah 10:35](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.35?lang=eng#p35)
 

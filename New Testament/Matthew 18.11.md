@@ -1,6 +1,6 @@
 # Matthew 18:11
 
-> For the <u>Son of man</u>[^a] is come to <u>save</u>[^b] that which was <u>lost</u>[^c] .
+> For the <u>Son of man</u>[^a] is come to <u>save</u>[^b] that which was <u>lost</u>[^c].
 
 [Matthew 18:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Matthew 14:5
 
-> And <u>when</u>[^a] he would have put him to death, he feared the multitude, because they counted him as a <u>prophet</u>[^b] .
+> And <u>when</u>[^a] he would have put him to death, he feared the multitude, because they counted him as a <u>prophet</u>[^b].
 
 [Matthew 14:5](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.5?lang=eng#p5)
 

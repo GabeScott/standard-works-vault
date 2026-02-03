@@ -1,6 +1,6 @@
 # Psalms 36:5
 
-> Thy <u>mercy</u>[^a], O Lord , is in the <u>heavens</u>[^b]; and thy faithfulness reacheth unto the clouds.
+> Thy <u>mercy</u>[^a], O LORD, *is* in the <u>heavens</u>[^b]; *and* thy faithfulness *reacheth* unto the clouds.
 
 [Psalms 36:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/36.5?lang=eng#p5)
 

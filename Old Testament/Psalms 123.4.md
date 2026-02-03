@@ -1,6 +1,6 @@
 # Psalms 123:4
 
-> Our soul is exceedingly filled with the <u>scorning</u>[^a] of those that are at ease, and with the contempt of the proud.
+> Our soul is exceedingly filled with the <u>scorning</u>[^a] of those that are at ease, *and* with the contempt of the proud.
 
 [Psalms 123:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/123.4?lang=eng#p4)
 

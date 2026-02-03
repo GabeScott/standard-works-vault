@@ -1,6 +1,6 @@
 # 1 Chronicles 3:16
 
-> And the sons of <u>Jehoiakim</u>[^a] : Jeconiah his son, Zedekiah his son.
+> And the sons of <u>Jehoiakim</u>[^a]: Jeconiah his son, Zedekiah his son.
 
 [1 Chronicles 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/3.16?lang=eng#p16)
 

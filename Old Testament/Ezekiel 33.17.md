@@ -1,6 +1,6 @@
 # Ezekiel 33:17
 
-> ¶ Yet the children of thy people say, The <u>way</u>[^a] of the Lord is not <u>equal</u>[^b] : but as for them, their way is not <u>equal</u>[^c] .
+> ¶ Yet the children of thy people say, The <u>way</u>[^a] of the Lord is not <u>equal</u>[^b]: but as for them, their way is not <u>equal</u>[^c].
 
 [Ezekiel 33:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.17?lang=eng#p17)
 

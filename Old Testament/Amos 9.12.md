@@ -1,6 +1,6 @@
 # Amos 9:12
 
-> That they may <u>possess</u>[^a] the remnant of <u>Edom</u>[^b], and of all the <u>heathen</u>[^c], which are called by my name, saith the Lord that doeth this.
+> That they may <u>possess</u>[^a] the remnant of <u>Edom</u>[^b], and of all the <u>heathen</u>[^c], which are called by my name, saith the LORD that doeth this.
 
 [Amos 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.12?lang=eng#p12)
 

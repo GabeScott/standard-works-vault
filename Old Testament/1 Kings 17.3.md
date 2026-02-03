@@ -1,6 +1,6 @@
 # 1 Kings 17:3
 
-> Get thee hence, and turn thee eastward, and <u>hide</u>[^a] thyself by the brook Cherith, that is <u>before</u>[^b] Jordan.
+> Get thee hence, and turn thee eastward, and <u>hide</u>[^a] thyself by the brook Cherith, that *is* <u>before</u>[^b] Jordan.
 
 [1 Kings 17:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/17.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Exodus 4:22
 
-> And thou shalt say unto Pharaoh, Thus saith the Lord , <u>Israel</u>[^a] is my <u>son</u>[^b], even my <u>firstborn</u>[^c] :
+> And thou shalt say unto Pharaoh, Thus saith the LORD, <u>Israel</u>[^a] *is* my <u>son</u>[^b], *even* my <u>firstborn</u>[^c]:
 
 [Exodus 4:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.22?lang=eng#p22)
 

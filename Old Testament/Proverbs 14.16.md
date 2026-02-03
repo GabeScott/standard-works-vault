@@ -1,6 +1,6 @@
 # Proverbs 14:16
 
-> A wise man feareth, and departeth from evil: but the fool rageth, and is <u>confident</u>[^a] .
+> A wise *man* feareth, and departeth from evil: but the fool rageth, and is <u>confident</u>[^a].
 
 [Proverbs 14:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.16?lang=eng#p16)
 

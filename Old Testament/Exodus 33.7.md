@@ -1,6 +1,6 @@
 # Exodus 33:7
 
-> And Moses took the tabernacle, and pitched it without the camp, afar off from the camp, and called it the <u>Tabernacle</u>[^a] of the congregation. And it came to pass, that every one which sought the Lord went out unto the <u>tabernacle of the congregation</u>[^b], which was without the camp.
+> And Moses took the tabernacle, and pitched it without the camp, afar off from the camp, and called it the <u>Tabernacle</u>[^a] of the congregation. And it came to pass, *that* every one which sought the LORD went out unto the <u>tabernacle of the congregation</u>[^b], which *was* without the camp.
 
 [Exodus 33:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.7?lang=eng#p7)
 

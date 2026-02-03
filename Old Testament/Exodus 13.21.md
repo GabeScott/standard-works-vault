@@ -1,6 +1,6 @@
 # Exodus 13:21
 
-> And the Lord went before them by day in a pillar of a <u>cloud</u>[^b], to <u>lead</u>[^c] them the way; and by night in a <u>pillar</u>[^d] of fire, to give them light; to go by day and night:
+> And the <u>Lord</u>[^a] went before them by day in a pillar of a <u>cloud</u>[^b], to <u>lead</u>[^c] them the way; and by night in a <u>pillar</u>[^d] of fire, to give them light; to go by day and night:
 
 [Exodus 13:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.21?lang=eng#p21)
 

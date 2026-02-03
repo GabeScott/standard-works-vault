@@ -1,6 +1,6 @@
 # Deuteronomy 8:19
 
-> And it shall be, if thou do at all forget the Lord thy God, and <u>walk</u>[^a] after other <u>gods</u>[^b], and serve them, and worship them, I testify against you this day that ye shall surely <u>perish</u>[^c] .
+> And it shall be, if thou do at all forget the LORD thy God, and <u>walk</u>[^a] after other <u>gods</u>[^b], and serve them, and worship them, I testify against you this day that ye shall surely <u>perish</u>[^c].
 
 [Deuteronomy 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.19?lang=eng#p19)
 

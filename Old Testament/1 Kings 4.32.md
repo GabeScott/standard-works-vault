@@ -1,6 +1,6 @@
 # 1 Kings 4:32
 
-> And he spake three thousand <u>proverbs</u>[^a] : and his <u>songs</u>[^b] were a thousand and five.
+> And he spake three thousand <u>proverbs</u>[^a]: and his <u>songs</u>[^b] were a thousand and five.
 
 [1 Kings 4:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.32?lang=eng#p32)
 

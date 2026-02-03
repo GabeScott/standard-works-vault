@@ -1,6 +1,6 @@
 # Mark 10:31
 
-> <u>But</u>[^a] many that are <u>first</u>[^b] shall be last; and the last first.
+> <u>But</u>[^a] many *that are* <u>first</u>[^b] shall be last; and the last first.
 
 [Mark 10:31](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.31?lang=eng#p31)
 

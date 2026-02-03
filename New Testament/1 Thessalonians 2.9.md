@@ -1,6 +1,6 @@
 # 1 Thessalonians 2:9
 
-> For ye remember, brethren, our labour and <u>travail</u>[^a] : for <u>labouring</u>[^b] night and day, because we would not be <u>chargeable</u>[^c] unto any of you, we preached unto you the gospel of God.
+> For ye remember, brethren, our labour and <u>travail</u>[^a]: for <u>labouring</u>[^b] night and day, because we would not be <u>chargeable</u>[^c] unto any of you, we preached unto you the gospel of God.
 
 [1 Thessalonians 2:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/2.9?lang=eng#p9)
 

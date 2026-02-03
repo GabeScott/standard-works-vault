@@ -1,6 +1,6 @@
 # 1 Corinthians 9:25
 
-> And every man that striveth for the <u>mastery</u>[^a] is <u>temperate</u>[^b] in all things. Now they do it to obtain a corruptible <u>crown</u>[^c]; but we an <u>incorruptible</u>[^d] .
+> And every man that striveth for the <u>mastery</u>[^a] is <u>temperate</u>[^b] in all things. Now they *do it* to obtain a corruptible <u>crown</u>[^c]; but we an <u>incorruptible</u>[^d].
 
 [1 Corinthians 9:25](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.25?lang=eng#p25)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 15:21
 
-> And if there be any <u>blemish</u>[^a] therein, as if it be lame, or blind, or have any <u>ill</u>[^b] blemish, thou shalt not <u>sacrifice</u>[^c] it unto the Lord thy God.
+> And if there be *any* <u>blemish</u>[^a] therein, *as if it be* lame, or blind, *or have* any <u>ill</u>[^b] blemish, thou shalt not <u>sacrifice</u>[^c] it unto the LORD thy God.
 
 [Deuteronomy 15:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.21?lang=eng#p21)
 

@@ -1,6 +1,6 @@
 # 1 Samuel 1:6
 
-> And her adversary also <u>provoked</u>[^a] her sore, for to make her fret, because the Lord had shut up her womb.
+> And her adversary also <u>provoked</u>[^a] her sore, for to make her fret, because the LORD had shut up her womb.
 
 [1 Samuel 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/1.6?lang=eng#p6)
 

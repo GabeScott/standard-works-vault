@@ -1,6 +1,6 @@
 # Psalms 130:3
 
-> If thou, Lord , shouldest mark <u>iniquities</u>[^a], O Lord, who shall <u>stand</u>[^b] ?
+> If thou, LORD, shouldest mark <u>iniquities</u>[^a], O Lord, who shall <u>stand</u>[^b]?
 
 [Psalms 130:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/130.3?lang=eng#p3)
 

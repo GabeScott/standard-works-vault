@@ -1,6 +1,6 @@
 # 2 Kings 22:4
 
-> Go up to <u>Hilkiah</u>[^a] the high priest, that he may sum the <u>silver</u>[^b] which is brought into the house of the Lord , which the keepers of the door have gathered of the people:
+> Go up to <u>Hilkiah</u>[^a] the high priest, that he may sum the <u>silver</u>[^b] which is brought into the house of the LORD, which the keepers of the door have gathered of the people:
 
 [2 Kings 22:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/22.4?lang=eng#p4)
 

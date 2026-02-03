@@ -1,6 +1,6 @@
 # James 3:6
 
-> And the <u>tongue</u>[^a] is a fire, a world of iniquity: so is the tongue among our members, that it defileth the whole body, and setteth on fire the course of nature; and it is set on fire of hell.
+> And the <u>tongue</u>[^a] *is* a fire, a world of iniquity: so is the tongue among our members, that it defileth the whole body, and setteth on fire the course of nature; and it is set on fire of hell.
 
 [James 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.6?lang=eng#p6)
 

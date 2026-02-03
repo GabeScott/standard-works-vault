@@ -1,6 +1,6 @@
 # Romans 8:1
 
-> There is therefore now no condemnation to them which are in Christ Jesus, who <u>walk</u>[^a] not after the <u>flesh</u>[^b], but after the <u>Spirit</u>[^c] .
+> *There is* therefore now no condemnation to them which are in Christ Jesus, who <u>walk</u>[^a] not after the <u>flesh</u>[^b], but after the <u>Spirit</u>[^c].
 
 [Romans 8:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.1?lang=eng#p1)
 

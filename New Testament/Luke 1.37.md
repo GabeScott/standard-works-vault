@@ -1,6 +1,6 @@
 # Luke 1:37
 
-> For with God nothing shall be <u>impossible</u>[^a] .
+> For with God nothing shall be <u>impossible</u>[^a].
 
 [Luke 1:37](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.37?lang=eng#p37)
 

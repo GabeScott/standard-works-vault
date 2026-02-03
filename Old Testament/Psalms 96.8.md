@@ -1,6 +1,6 @@
 # Psalms 96:8
 
-> Give unto the Lord the <u>glory</u>[^a] due unto his name: bring an offering, and come into his <u>courts</u>[^b] .
+> Give unto the LORD the <u>glory</u>[^a] *due unto* his name: bring an offering, and come into his <u>courts</u>[^b].
 
 [Psalms 96:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/96.8?lang=eng#p8)
 

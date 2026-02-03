@@ -1,6 +1,6 @@
 # 1 Chronicles 15:13
 
-> For because ye did it not at the first, the Lord our God made a <u>breach</u>[^a] upon us, for that we sought him not after the due <u>order</u>[^b] .
+> For because ye *did it* not at the first, the LORD our God made a <u>breach</u>[^a] upon us, for that we sought him not after the due <u>order</u>[^b].
 
 [1 Chronicles 15:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/15.13?lang=eng#p13)
 

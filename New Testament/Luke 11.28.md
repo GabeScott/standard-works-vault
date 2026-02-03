@@ -1,6 +1,6 @@
 # Luke 11:28
 
-> But he said, Yea rather, <u>blessed</u>[^a] are they that hear the word of God, and <u>keep</u>[^b] it.
+> But he said, Yea rather, <u>blessed</u>[^a] *are* they that hear the word of God, and <u>keep</u>[^b] it.
 
 [Luke 11:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.28?lang=eng#p28)
 

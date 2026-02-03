@@ -1,6 +1,6 @@
 # 2 Chronicles 26:5
 
-> And he sought God in the days of Zechariah, who had understanding in the <u>visions</u>[^a] of God: and as long as he sought the Lord , God made him to <u>prosper</u>[^b] .
+> And he sought God in the days of Zechariah, who had understanding in the <u>visions</u>[^a] of God: and as long as he sought the LORD, God made him to <u>prosper</u>[^b].
 
 [2 Chronicles 26:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.5?lang=eng#p5)
 

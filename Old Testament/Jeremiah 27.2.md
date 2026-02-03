@@ -1,6 +1,6 @@
 # Jeremiah 27:2
 
-> Thus saith the Lord to me; Make thee bonds and <u>yokes</u>[^a], and put them upon thy neck,
+> Thus saith the LORD to me; Make thee bonds and <u>yokes</u>[^a], and put them upon thy neck,
 
 [Jeremiah 27:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/27.2?lang=eng#p2)
 

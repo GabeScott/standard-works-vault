@@ -1,6 +1,6 @@
 # Genesis 25:27
 
-> And the boys grew: and Esau was a cunning <u>hunter</u>[^a], a man of the field; and Jacob was a <u>plain</u>[^b] man, dwelling in <u>tents</u>[^c] .
+> And the boys grew: and Esau was a cunning <u>hunter</u>[^a], a man of the field; and Jacob *was* a <u>plain</u>[^b] man, dwelling in <u>tents</u>[^c].
 
 [Genesis 25:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.27?lang=eng#p27)
 

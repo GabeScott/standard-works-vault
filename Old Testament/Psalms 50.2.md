@@ -1,6 +1,6 @@
 # Psalms 50:2
 
-> Out of Zion, the <u>perfection</u>[^a] of <u>beauty</u>[^b], God hath <u>shined</u>[^c] .
+> Out of Zion, the <u>perfection</u>[^a] of <u>beauty</u>[^b], God hath <u>shined</u>[^c].
 
 [Psalms 50:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.2?lang=eng#p2)
 

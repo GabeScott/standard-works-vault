@@ -1,6 +1,6 @@
 # Genesis 18:20
 
-> And the Lord said, Because the <u>cry</u>[^a] of Sodom and Gomorrah is great, and because their <u>sin</u>[^b] is very grievous;
+> And the LORD said, Because the <u>cry</u>[^a] of Sodom and Gomorrah is great, and because their <u>sin</u>[^b] is very grievous;
 
 [Genesis 18:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.20?lang=eng#p20)
 

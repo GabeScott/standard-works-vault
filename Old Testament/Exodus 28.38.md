@@ -1,6 +1,6 @@
 # Exodus 28:38
 
-> And it shall be upon Aaron’s forehead, that Aaron may <u>bear</u>[^a] the iniquity of the holy things, which the children of Israel shall hallow in all their holy gifts; and it shall be always upon his forehead, that they may be <u>accepted</u>[^b] before the Lord .
+> And it shall be upon Aaron’s forehead, that Aaron may <u>bear</u>[^a] the iniquity of the holy things, which the children of Israel shall hallow in all their holy gifts; and it shall be always upon his forehead, that they may be <u>accepted</u>[^b] before the LORD.
 
 [Exodus 28:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.38?lang=eng#p38)
 

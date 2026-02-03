@@ -1,6 +1,6 @@
 # 3 Nephi 19:11
 
-> And it came to pass that Nephi went down <u>into</u>[^a] the water and was <u>baptized</u>[^b] .
+> And it came to pass that Nephi went down <u>into</u>[^a] the water and was <u>baptized</u>[^b].
 
 [3 Nephi 19:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p11#p11)
 

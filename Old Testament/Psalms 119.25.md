@@ -1,6 +1,6 @@
 # Psalms 119:25
 
-> My soul cleaveth unto the <u>dust</u>[^a] : <u>quicken</u>[^b] thou me according to thy word.
+> My soul cleaveth unto the <u>dust</u>[^a]: <u>quicken</u>[^b] thou me according to thy word.
 
 [Psalms 119:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.25?lang=eng#p25)
 

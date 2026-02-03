@@ -1,6 +1,6 @@
 # Matthew 6:20
 
-> But lay up for yourselves <u>treasures</u>[^a] in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor <u>steal</u>[^b] :
+> But lay up for yourselves <u>treasures</u>[^a] in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor <u>steal</u>[^b]:
 
 [Matthew 6:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.20?lang=eng#p20)
 

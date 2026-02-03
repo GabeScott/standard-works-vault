@@ -1,6 +1,6 @@
 # 1 Nephi 8:10
 
-> And it came to pass that I beheld a <u>tree</u>[^a], whose <u>fruit</u>[^b] was desirable to make one <u>happy</u>[^c] .
+> And it came to pass that I beheld a <u>tree</u>[^a], whose <u>fruit</u>[^b] was desirable to make one <u>happy</u>[^c].
 
 [1 Nephi 8:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p10#p10)
 

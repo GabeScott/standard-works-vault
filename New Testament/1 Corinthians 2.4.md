@@ -1,6 +1,6 @@
 # 1 Corinthians 2:4
 
-> And my <u>speech</u>[^a] and my preaching was not with <u>enticing</u>[^b] words of man’s wisdom, but in demonstration of the <u>Spirit</u>[^c] and of <u>power</u>[^d] :
+> And my <u>speech</u>[^a] and my preaching *was* not with <u>enticing</u>[^b] words of man’s wisdom, but in demonstration of the <u>Spirit</u>[^c] and of <u>power</u>[^d]:
 
 [1 Corinthians 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.4?lang=eng#p4)
 

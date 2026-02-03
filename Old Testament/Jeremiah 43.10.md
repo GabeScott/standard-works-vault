@@ -1,6 +1,6 @@
 # Jeremiah 43:10
 
-> And say unto them, Thus saith the Lord of hosts, the God of Israel; Behold, I will send and take <u>Nebuchadrezzar</u>[^a] the king of Babylon, my servant, and will set his throne upon these stones that I have hid; and he shall spread his royal pavilion over them.
+> And say unto them, Thus saith the LORD of hosts, the God of Israel; Behold, I will send and take <u>Nebuchadrezzar</u>[^a] the king of Babylon, my servant, and will set his throne upon these stones that I have hid; and he shall spread his royal pavilion over them.
 
 [Jeremiah 43:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/43.10?lang=eng#p10)
 

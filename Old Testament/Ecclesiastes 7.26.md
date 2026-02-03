@@ -1,6 +1,6 @@
 # Ecclesiastes 7:26
 
-> And I find more <u>bitter</u>[^a] than death the <u>woman</u>[^b], whose heart is snares and nets, and her hands as bands: whoso pleaseth God shall escape from her; but the <u>sinner</u>[^c] shall be <u>taken</u>[^d] by her.
+> And I find more <u>bitter</u>[^a] than death the <u>woman</u>[^b], whose heart *is* snares and nets, *and* her hands *as* bands: whoso pleaseth God shall escape from her; but the <u>sinner</u>[^c] shall be <u>taken</u>[^d] by her.
 
 [Ecclesiastes 7:26](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Acts 18:3
 
-> And because he was of the same craft, he abode with them, and <u>wrought</u>[^a] : for by their occupation they were <u>tentmakers</u>[^b] .
+> And because he was of the same craft, he abode with them, and <u>wrought</u>[^a]: for by their occupation they were <u>tentmakers</u>[^b].
 
 [Acts 18:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.3?lang=eng#p3)
 

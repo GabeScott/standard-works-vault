@@ -1,6 +1,6 @@
 # Exodus 4:31
 
-> And the people <u>believed</u>[^a] : and when they heard that the Lord had <u>visited</u>[^b] the children of Israel, and that he had looked upon their <u>affliction</u>[^c], then they <u>bowed</u>[^d] their heads and worshipped.
+> And the people <u>believed</u>[^a]: and when they heard that the LORD had <u>visited</u>[^b] the children of Israel, and that he had looked upon their <u>affliction</u>[^c], then they <u>bowed</u>[^d] their heads and worshipped.
 
 [Exodus 4:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.31?lang=eng#p31)
 

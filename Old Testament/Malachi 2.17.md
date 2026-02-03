@@ -1,6 +1,6 @@
 # Malachi 2:17
 
-> ¶ Ye have wearied the Lord with your words. Yet ye say, Wherein have we wearied him? When ye say, Every one that doeth <u>evil</u>[^a] is good in the sight of the Lord , and he delighteth in them; or, Where is the God of <u>judgment</u>[^b] ?
+> ¶ Ye have wearied the LORD with your words. Yet ye say, Wherein have we wearied *him?* When ye say, Every one that doeth <u>evil</u>[^a] *is* good in the sight of the LORD, and he delighteth in them; or, Where *is* the God of <u>judgment</u>[^b]?
 
 [Malachi 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.17?lang=eng#p17)
 

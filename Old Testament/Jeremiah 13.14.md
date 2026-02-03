@@ -1,6 +1,6 @@
 # Jeremiah 13:14
 
-> And I will dash them one against another, even the fathers and the sons together, saith the Lord : I will not pity, nor spare, nor have mercy, but <u>destroy</u>[^a] them.
+> And I will dash them one against another, even the fathers and the sons together, saith the LORD: I will not pity, nor spare, nor have mercy, but <u>destroy</u>[^a] them.
 
 [Jeremiah 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.14?lang=eng#p14)
 

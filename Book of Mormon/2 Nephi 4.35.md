@@ -1,6 +1,6 @@
 # 2 Nephi 4:35
 
-> Yea, I know that God will give <u>liberally</u>[^a] to him that asketh. Yea, my God will give me, if I <u>ask</u>[^b] <u>not</u>[^c] amiss; therefore I will lift up my voice unto thee; yea, I will cry unto thee, my God, the <u>rock</u>[^d] of my <u>righteousness</u>[^e] . Behold, my voice shall forever ascend up unto thee, my rock and mine everlasting God. Amen.
+> Yea, I know that God will give <u>liberally</u>[^a] to him that asketh. Yea, my God will give me, if I <u>ask</u>[^b] <u>not</u>[^c] amiss; therefore I will lift up my voice unto thee; yea, I will cry unto thee, my God, the <u>rock</u>[^d] of my <u>righteousness</u>[^e]. Behold, my voice shall forever ascend up unto thee, my rock and mine everlasting God. Amen.
 
 [2 Nephi 4:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p35#p35)
 

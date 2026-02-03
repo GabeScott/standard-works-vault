@@ -1,6 +1,6 @@
 # Genesis 12:13
 
-> Say, I pray thee, thou art my <u>sister</u>[^a] : that it may be well with me for thy sake; and my soul shall live because of thee.
+> Say, I pray thee, thou *art* my <u>sister</u>[^a]: that it may be well with me for thy sake; and my soul shall live because of thee.
 
 [Genesis 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.13?lang=eng#p13)
 

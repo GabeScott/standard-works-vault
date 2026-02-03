@@ -1,6 +1,6 @@
 # Genesis 13:13
 
-> But the men of <u>Sodom</u>[^a] were <u>wicked</u>[^b] and sinners before the Lord exceedingly.
+> But the men of <u>Sodom</u>[^a] *were* <u>wicked</u>[^b] and sinners before the LORD exceedingly.
 
 [Genesis 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/13.13?lang=eng#p13)
 

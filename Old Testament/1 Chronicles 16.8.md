@@ -1,6 +1,6 @@
 # 1 Chronicles 16:8
 
-> Give <u>thanks</u>[^a] unto the Lord , <u>call</u>[^b] upon his name, make known his <u>deeds</u>[^c] among the people.
+> Give <u>thanks</u>[^a] unto the LORD, <u>call</u>[^b] upon his name, make known his <u>deeds</u>[^c] among the people.
 
 [1 Chronicles 16:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.8?lang=eng#p8)
 

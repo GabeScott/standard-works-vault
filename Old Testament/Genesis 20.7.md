@@ -1,6 +1,6 @@
 # Genesis 20:7
 
-> Now therefore restore the man his wife; for he is a prophet, and he shall <u>pray</u>[^a] for thee, and thou shalt live: and if thou restore her not, know thou that thou shalt surely die, thou, and all that are thine.
+> Now therefore restore the man *his* wife; for he *is* a prophet, and he shall <u>pray</u>[^a] for thee, and thou shalt live: and if thou restore *her* not, know thou that thou shalt surely die, thou, and all that *are* thine.
 
 [Genesis 20:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.7?lang=eng#p7)
 

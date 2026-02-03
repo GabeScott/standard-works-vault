@@ -1,6 +1,6 @@
 # Exodus 35:34
 
-> And he hath put in his heart that he may <u>teach</u>[^a], both he, and Aholiab, the son of Ahisamach, of the tribe of Dan.
+> And he hath put in his heart that he may <u>teach</u>[^a], *both* he, and Aholiab, the son of Ahisamach, of the tribe of Dan.
 
 [Exodus 35:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.34?lang=eng#p34)
 

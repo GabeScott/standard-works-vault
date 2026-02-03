@@ -1,6 +1,6 @@
 # John 18:10
 
-> Then Simon Peter having a sword drew it, and smote the high priest’s servant, and <u>cut off</u>[^a] his right ear. The servant’s name was <u>Malchus</u>[^b] .
+> Then Simon Peter having a sword drew it, and smote the high priest’s servant, and <u>cut off</u>[^a] his right ear. The servant’s name was <u>Malchus</u>[^b].
 
 [John 18:10](https://www.churchofjesuschrist.org/study/scriptures/nt/john/18.10?lang=eng#p10)
 

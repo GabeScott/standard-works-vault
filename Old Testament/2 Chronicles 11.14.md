@@ -1,6 +1,6 @@
 # 2 Chronicles 11:14
 
-> For the Levites left their <u>suburbs</u>[^a] and their <u>possession</u>[^b], and came to Judah and Jerusalem: for Jeroboam and his sons had <u>cast</u>[^c] them off from executing the priest’s office unto the Lord :
+> For the Levites left their <u>suburbs</u>[^a] and their <u>possession</u>[^b], and came to Judah and Jerusalem: for Jeroboam and his sons had <u>cast</u>[^c] them off from executing the priest’s office unto the LORD:
 
 [2 Chronicles 11:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/11.14?lang=eng#p14)
 

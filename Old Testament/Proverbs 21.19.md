@@ -1,6 +1,6 @@
 # Proverbs 21:19
 
-> It is better to <u>dwell</u>[^a] in the wilderness, than with a <u>contentious</u>[^b] and an angry woman.
+> *It is* better to <u>dwell</u>[^a] in the wilderness, than with a <u>contentious</u>[^b] and an angry woman.
 
 [Proverbs 21:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.19?lang=eng#p19)
 

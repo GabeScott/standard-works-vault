@@ -1,6 +1,6 @@
 # Isaiah 38:1
 
-> In those days was <u>Hezekiah</u>[^a] sick unto death. And Isaiah the prophet the son of Amoz came unto him, and said unto him, Thus saith the Lord , Set thine house in order: for thou shalt die, and not live.
+> In those days was <u>Hezekiah</u>[^a] sick unto death. And Isaiah the prophet the son of Amoz came unto him, and said unto him, Thus saith the LORD, Set thine house in order: for thou shalt die, and not live.
 
 [Isaiah 38:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.1?lang=eng#p1)
 

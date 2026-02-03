@@ -1,6 +1,6 @@
 # Psalms 9:10
 
-> And they that know thy <u>name</u>[^a] will put their <u>trust</u>[^b] in thee: for thou, Lord , hast not forsaken them that seek thee.
+> And they that know thy <u>name</u>[^a] will put their <u>trust</u>[^b] in thee: for thou, LORD, hast not forsaken them that seek thee.
 
 [Psalms 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/9.10?lang=eng#p10)
 

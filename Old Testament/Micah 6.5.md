@@ -1,6 +1,6 @@
 # Micah 6:5
 
-> O my people, remember now what <u>Balak</u>[^a] king of Moab consulted, and what Balaam the son of Beor answered him from Shittim unto Gilgal; that ye may know the righteousness of the Lord .
+> O my people, remember now what <u>Balak</u>[^a] king of Moab consulted, and what Balaam the son of Beor answered him from Shittim unto Gilgal; that ye may know the righteousness of the LORD.
 
 [Micah 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.5?lang=eng#p5)
 

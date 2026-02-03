@@ -1,6 +1,6 @@
 # Ecclesiastes 8:13
 
-> But it shall not be well with the wicked, neither shall he prolong his days, which are as a shadow; because he <u>feareth not before God</u>[^a] .
+> But it shall not be well with the wicked, neither shall he prolong *his* days, *which are* as a shadow; because he <u>feareth not before God</u>[^a].
 
 [Ecclesiastes 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/8.13?lang=eng#p13)
 

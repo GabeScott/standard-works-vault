@@ -1,6 +1,6 @@
 # Jeremiah 21:1
 
-> The word which came unto <u>Jeremiah</u>[^a] from the Lord , when king Zedekiah sent unto him <u>Pashur</u>[^b] the son of Melchiah, and Zephaniah the son of Maaseiah the priest, saying,
+> The word which came unto <u>Jeremiah</u>[^a] from the LORD, when king Zedekiah sent unto him <u>Pashur</u>[^b] the son of Melchiah, and Zephaniah the son of Maaseiah the priest, saying,
 
 [Jeremiah 21:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/21.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Genesis 29:35
 
-> And she conceived again, and bare a son: and she said, Now will I <u>praise</u>[^a] the Lord : therefore she called his name <u>Judah</u>[^b]; and left bearing.
+> And she conceived again, and bare a son: and she said, Now will I <u>praise</u>[^a] the LORD: therefore she called his name <u>Judah</u>[^b]; and left bearing.
 
 [Genesis 29:35](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.35?lang=eng#p35)
 

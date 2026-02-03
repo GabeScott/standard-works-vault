@@ -1,6 +1,6 @@
 # Alma 33:22
 
-> If so, wo shall come upon you; but if not so, then cast about your eyes and <u>begin</u>[^a] to believe in the Son of God, that he will come to redeem his people, and that he shall suffer and die to <u>atone</u>[^b] for their sins; and that he shall <u>rise</u>[^c] again from the dead, which shall bring to pass the <u>resurrection</u>[^d], that all men shall stand before him, to be <u>judged</u>[^e] at the last and judgment day, according to their <u>works</u>[^f] .
+> If so, wo shall come upon you; but if not so, then cast about your eyes and <u>begin</u>[^a] to believe in the Son of God, that he will come to redeem his people, and that he shall suffer and die to <u>atone</u>[^b] for their sins; and that he shall <u>rise</u>[^c] again from the dead, which shall bring to pass the <u>resurrection</u>[^d], that all men shall stand before him, to be <u>judged</u>[^e] at the last and judgment day, according to their <u>works</u>[^f].
 
 [Alma 33:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p22#p22)
 

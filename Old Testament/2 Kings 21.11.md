@@ -1,6 +1,6 @@
 # 2 Kings 21:11
 
-> Because <u>Manasseh</u>[^a] king of Judah hath done these <u>abominations</u>[^b], and hath done <u>wickedly</u>[^c] above all that the Amorites did, which were before him, and hath made Judah also to sin with his idols:
+> Because <u>Manasseh</u>[^a] king of Judah hath done these <u>abominations</u>[^b], *and* hath done <u>wickedly</u>[^c] above all that the Amorites did, which *were* before him, and hath made Judah also to sin with his idols:
 
 [2 Kings 21:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.11?lang=eng#p11)
 

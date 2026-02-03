@@ -1,6 +1,6 @@
 # Exodus 15:6
 
-> Thy <u>right</u>[^a] <u>hand</u>[^b], O Lord , is become glorious in power: thy right hand, O Lord , hath dashed in pieces the enemy.
+> Thy <u>right</u>[^a] <u>hand</u>[^b], O LORD, is become glorious in power: thy right hand, O LORD, hath dashed in pieces the enemy.
 
 [Exodus 15:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.6?lang=eng#p6)
 

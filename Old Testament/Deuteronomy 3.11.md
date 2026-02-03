@@ -1,6 +1,6 @@
 # Deuteronomy 3:11
 
-> For only <u>Og</u>[^a] king of Bashan remained of the remnant of <u>giants</u>[^b]; behold, his bedstead was a bedstead of iron; is it not in Rabbath of the children of Ammon? nine <u>cubits</u>[^c] was the length thereof, and four cubits the breadth of it, after the <u>cubit</u>[^d] of a man.
+> For only <u>Og</u>[^a] king of Bashan remained of the remnant of <u>giants</u>[^b]; behold, his bedstead *was* a bedstead of iron; *is* it not in Rabbath of the children of Ammon? nine <u>cubits</u>[^c] *was* the length thereof, and four cubits the breadth of it, after the <u>cubit</u>[^d] of a man.
 
 [Deuteronomy 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.11?lang=eng#p11)
 

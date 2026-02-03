@@ -1,6 +1,6 @@
 # Psalms 134:1
 
-> Behold, bless ye the Lord , all ye servants of the Lord , which by <u>night</u>[^a] stand in the house of the Lord .
+> Behold, bless ye the LORD, all *ye* servants of the LORD, which by <u>night</u>[^a] stand in the house of the LORD.
 
 [Psalms 134:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/134.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # 2 Timothy 3:9
 
-> But they shall proceed no further: for their <u>folly</u>[^a] shall be manifest unto all men, as theirs also was.
+> But they shall proceed no further: for their <u>folly</u>[^a] shall be manifest unto all *men,* as theirs also was.
 
 [2 Timothy 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Genesis 3:1
 
-> Now the <u>serpent</u>[^a] was more <u>subtil</u>[^b] than any beast of the field which the Lord God had made. And he said unto the woman, <u>Yea, hath God said</u>[^c], Ye shall not eat of every tree of the garden?
+> Now the <u>serpent</u>[^a] was more <u>subtil</u>[^b] than any beast of the field which the LORD God had made. And he said unto the woman, <u>Yea, hath God said</u>[^c], Ye shall not eat of every tree of the garden?
 
 [Genesis 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.1?lang=eng#p1)
 

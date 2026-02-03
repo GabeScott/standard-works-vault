@@ -1,6 +1,6 @@
 # Proverbs 28:13
 
-> He that <u>covereth</u>[^a] his sins shall not prosper: but whoso <u>confesseth</u>[^b] and <u>forsaketh</u>[^c] them shall have mercy.
+> He that <u>covereth</u>[^a] his sins shall not prosper: but whoso <u>confesseth</u>[^b] and <u>forsaketh</u>[^c] *them* shall have mercy.
 
 [Proverbs 28:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Moses 2:29
 
-> And I, God, said unto man: Behold, I have given you every herb bearing seed, which is upon the face of all the earth, and every tree in the which shall be the fruit of a tree yielding seed; to you it shall be for <u>meat</u>[^a] .
+> And I, God, said unto man: Behold, I have given you every herb bearing seed, which is upon the face of all the earth, and every tree in the which shall be the fruit of a tree yielding seed; to you it shall be for <u>meat</u>[^a].
 
 [Moses 2:29](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.29?lang=eng#p29)
 

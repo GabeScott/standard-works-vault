@@ -1,6 +1,6 @@
 # Psalms 34:4
 
-> I <u>sought</u>[^a] the Lord , and he <u>heard</u>[^b] me, and delivered me from all my fears.
+> I <u>sought</u>[^a] the LORD, and he <u>heard</u>[^b] me, and delivered me from all my fears.
 
 [Psalms 34:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.4?lang=eng#p4)
 

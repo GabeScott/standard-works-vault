@@ -1,6 +1,6 @@
 # Judges 4:1
 
-> And the children of Israel again did <u>evil</u>[^a] in the sight of the Lord , when Ehud was dead.
+> And the children of Israel again did <u>evil</u>[^a] in the sight of the LORD, when Ehud was dead.
 
 [Judges 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.1?lang=eng#p1)
 

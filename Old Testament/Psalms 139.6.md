@@ -1,6 +1,6 @@
 # Psalms 139:6
 
-> Such <u>knowledge</u>[^a] is too <u>wonderful</u>[^b] for me; it is high, I cannot attain unto it.
+> *Such* <u>knowledge</u>[^a] *is* too <u>wonderful</u>[^b] for me; it is high, I cannot *attain* unto it.
 
 [Psalms 139:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/139.6?lang=eng#p6)
 

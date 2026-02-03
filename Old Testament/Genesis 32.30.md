@@ -1,6 +1,6 @@
 # Genesis 32:30
 
-> And Jacob called the name of the place <u>Peniel</u>[^a] : for I have <u>seen</u>[^b] God <u>face to face</u>[^c], and my life is preserved.
+> And Jacob called the name of the place <u>Peniel</u>[^a]: for I have <u>seen</u>[^b] God <u>face to face</u>[^c], and my life is preserved.
 
 [Genesis 32:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.30?lang=eng#p30)
 

@@ -1,6 +1,6 @@
 # Matthew 14:31
 
-> And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little <u>faith</u>[^a], wherefore didst thou <u>doubt</u>[^b] ?
+> And immediately Jesus stretched forth *his* hand, and caught him, and said unto him, O thou of little <u>faith</u>[^a], wherefore didst thou <u>doubt</u>[^b]?
 
 [Matthew 14:31](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.31?lang=eng#p31)
 

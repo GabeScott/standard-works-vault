@@ -1,6 +1,6 @@
 # Exodus 12:35
 
-> And the children of Israel did according to the word of Moses; and they <u>borrowed</u>[^a] of the Egyptians jewels of <u>silver</u>[^b], and jewels of gold, and <u>raiment</u>[^c] :
+> And the children of Israel did according to the word of Moses; and they <u>borrowed</u>[^a] of the Egyptians jewels of <u>silver</u>[^b], and jewels of gold, and <u>raiment</u>[^c]:
 
 [Exodus 12:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.35?lang=eng#p35)
 

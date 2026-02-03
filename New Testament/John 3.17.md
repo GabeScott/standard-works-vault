@@ -1,6 +1,6 @@
 # John 3:17
 
-> For God <u>sent</u>[^a] not his Son into the world to <u>condemn</u>[^b] the world; but that the world through him might be <u>saved</u>[^c] .
+> For God <u>sent</u>[^a] not his Son into the world to <u>condemn</u>[^b] the world; but that the world through him might be <u>saved</u>[^c].
 
 [John 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.17?lang=eng#p17)
 

@@ -1,6 +1,6 @@
 # Jacob 7:20
 
-> And it came to pass that when he had said these words he could say no more, and he <u>gave</u>[^a] up the <u>ghost</u>[^b] .
+> And it came to pass that when he had said these words he could say no more, and he <u>gave</u>[^a] up the <u>ghost</u>[^b].
 
 [Jacob 7:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p20#p20)
 

@@ -1,6 +1,6 @@
 # Psalms 79:3
 
-> Their blood have they <u>shed</u>[^a] like water round about Jerusalem; and there was none to <u>bury</u>[^b] them.
+> Their blood have they <u>shed</u>[^a] like water round about Jerusalem; and *there was* none to <u>bury</u>[^b] *them.*
 
 [Psalms 79:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/79.3?lang=eng#p3)
 

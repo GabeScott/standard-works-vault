@@ -1,6 +1,6 @@
 # Exodus 16:9
 
-> ¶ And Moses <u>spake</u>[^a] unto Aaron, Say unto all the congregation of the children of Israel, Come near before the Lord : for he hath heard your murmurings.
+> ¶ And Moses <u>spake</u>[^a] unto Aaron, Say unto all the congregation of the children of Israel, Come near before the LORD: for he hath heard your murmurings.
 
 [Exodus 16:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.9?lang=eng#p9)
 

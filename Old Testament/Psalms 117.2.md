@@ -1,6 +1,6 @@
 # Psalms 117:2
 
-> For his merciful kindness is great toward us: and the <u>truth</u>[^a] of the Lord endureth for ever. Praise ye the Lord .
+> For his merciful kindness is great toward us: and the <u>truth</u>[^a] of the LORD *endureth* for ever. Praise ye the LORD.
 
 [Psalms 117:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/117.2?lang=eng#p2)
 

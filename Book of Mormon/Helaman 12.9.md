@@ -1,6 +1,6 @@
 # Helaman 12:9
 
-> Yea, behold at his <u>voice</u>[^a] do the hills and the mountains tremble and <u>quake</u>[^b] .
+> Yea, behold at his <u>voice</u>[^a] do the hills and the mountains tremble and <u>quake</u>[^b].
 
 [Helaman 12:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p9#p9)
 

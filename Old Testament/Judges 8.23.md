@@ -1,6 +1,6 @@
 # Judges 8:23
 
-> And Gideon said unto them, I will not <u>rule</u>[^a] over you, neither shall my son rule over you: the Lord shall <u>rule</u>[^b] over you.
+> And Gideon said unto them, I will not <u>rule</u>[^a] over you, neither shall my son rule over you: the LORD shall <u>rule</u>[^b] over you.
 
 [Judges 8:23](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/8.23?lang=eng#p23)
 

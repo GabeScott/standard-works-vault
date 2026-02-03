@@ -1,6 +1,6 @@
 # Daniel 12:10
 
-> Many shall be <u>purified</u>[^a], and made white, and <u>tried</u>[^b]; but the <u>wicked</u>[^c] shall do wickedly: and none of the wicked shall understand; but the wise shall <u>understand</u>[^d] .
+> Many shall be <u>purified</u>[^a], and made white, and <u>tried</u>[^b]; but the <u>wicked</u>[^c] shall do wickedly: and none of the wicked shall understand; but the wise shall <u>understand</u>[^d].
 
 [Daniel 12:10](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.10?lang=eng#p10)
 

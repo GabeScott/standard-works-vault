@@ -1,6 +1,6 @@
 # Psalms 10:1
 
-> Why standest thou <u>afar</u>[^a] off, O Lord ? why <u>hidest</u>[^b] thou thyself in times of trouble?
+> Why standest thou <u>afar</u>[^a] off, O LORD? *why* <u>hidest</u>[^b] thou *thyself* in times of trouble?
 
 [Psalms 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Genesis 41:38
 
-> And Pharaoh said unto his servants, Can we find such a one as this is, a man in whom the <u>Spirit</u>[^a] of God is?
+> And Pharaoh said unto his servants, Can we find *such a one* as this *is,* a man in whom the <u>Spirit</u>[^a] of God *is?*
 
 [Genesis 41:38](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.38?lang=eng#p38)
 

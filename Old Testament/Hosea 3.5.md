@@ -1,6 +1,6 @@
 # Hosea 3:5
 
-> Afterward shall the children of Israel return, and <u>seek</u>[^a] the Lord their God, and <u>David</u>[^b] their king; and shall fear the Lord and his goodness in the <u>latter days</u>[^c] .
+> Afterward shall the children of Israel return, and <u>seek</u>[^a] the LORD their God, and <u>David</u>[^b] their king; and shall fear the LORD and his goodness in the <u>latter days</u>[^c].
 
 [Hosea 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/3.5?lang=eng#p5)
 

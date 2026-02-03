@@ -1,6 +1,6 @@
 # Mark 4:40
 
-> And he said unto them, Why are ye so <u>fearful</u>[^a] ? how is it that ye have no <u>faith</u>[^b] ?
+> And he said unto them, Why are ye so <u>fearful</u>[^a]? how is it that ye have no <u>faith</u>[^b]?
 
 [Mark 4:40](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.40?lang=eng#p40)
 

@@ -1,6 +1,6 @@
 # Numbers 8:4
 
-> And this work of the candlestick was of beaten gold, unto the shaft thereof, unto the flowers thereof, was beaten work: according unto the <u>pattern</u>[^a] which the Lord had shewed Moses, so he made the candlestick.
+> And this work of the candlestick *was of* beaten gold, unto the shaft thereof, unto the flowers thereof, *was* beaten work: according unto the <u>pattern</u>[^a] which the LORD had shewed Moses, so he made the candlestick.
 
 [Numbers 8:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/8.4?lang=eng#p4)
 

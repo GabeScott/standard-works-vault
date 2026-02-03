@@ -1,6 +1,6 @@
 # Isaiah 38:19
 
-> The living, the living, he shall praise thee, as I do this day: the <u>father</u>[^a] to the children shall make known thy <u>truth</u>[^b] .
+> The living, the living, he shall praise thee, as I *do* this day: the <u>father</u>[^a] to the children shall make known thy <u>truth</u>[^b].
 
 [Isaiah 38:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.19?lang=eng#p19)
 

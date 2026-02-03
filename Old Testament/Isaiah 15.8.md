@@ -1,6 +1,6 @@
 # Isaiah 15:8
 
-> For the cry is gone round about the borders of Moab; the howling thereof unto Eglaim, and the howling thereof unto <u>Beer-elim</u>[^a] .
+> For the cry is gone round about the borders of Moab; the howling thereof unto Eglaim, and the howling thereof unto <u>Beer-elim</u>[^a].
 
 [Isaiah 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/15.8?lang=eng#p8)
 

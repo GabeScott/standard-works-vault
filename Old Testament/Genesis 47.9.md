@@ -1,6 +1,6 @@
 # Genesis 47:9
 
-> And Jacob said unto Pharaoh, The days of the years of my <u>pilgrimage</u>[^a] are an hundred and thirty years: few and <u>evil</u>[^b] have the days of the years of my life been, and have not attained unto the <u>days</u>[^c] of the years of the life of my fathers in the days of their pilgrimage.
+> And Jacob said unto Pharaoh, The days of the years of my <u>pilgrimage</u>[^a] *are* an hundred and thirty years: few and <u>evil</u>[^b] have the days of the years of my life been, and have not attained unto the <u>days</u>[^c] of the years of the life of my fathers in the days of their pilgrimage.
 
 [Genesis 47:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.9?lang=eng#p9)
 

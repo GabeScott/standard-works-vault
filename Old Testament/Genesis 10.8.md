@@ -1,6 +1,6 @@
 # Genesis 10:8
 
-> And Cush begat <u>Nimrod</u>[^a] : he began to be a mighty one in the earth.
+> And Cush begat <u>Nimrod</u>[^a]: he began to be a mighty one in the earth.
 
 [Genesis 10:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.8?lang=eng#p8)
 

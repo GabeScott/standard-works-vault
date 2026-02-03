@@ -1,6 +1,6 @@
 # Isaiah 3:1
 
-> <u>For</u>[^a], behold, the Lord, the Lord of hosts, doth take away from <u>Jerusalem</u>[^b] and from Judah the stay and the staff, the whole stay of <u>bread</u>[^c], and the whole stay of water,
+> <u>For</u>[^a], behold, the Lord, the LORD of hosts, doth take away from <u>Jerusalem</u>[^b] and from Judah the stay and the staff, the whole stay of <u>bread</u>[^c], and the whole stay of water,
 
 [Isaiah 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.1?lang=eng#p1)
 

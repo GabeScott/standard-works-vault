@@ -1,6 +1,6 @@
 # Deuteronomy 1:36
 
-> Save <u>Caleb</u>[^a] the son of Jephunneh; he shall see it, and to him will I give the land that he hath trodden upon, and to his children, because he hath wholly followed the Lord .
+> Save <u>Caleb</u>[^a] the son of Jephunneh; he shall see it, and to him will I give the land that he hath trodden upon, and to his children, because he hath wholly followed the LORD.
 
 [Deuteronomy 1:36](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.36?lang=eng#p36)
 

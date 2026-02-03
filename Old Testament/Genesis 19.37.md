@@ -1,6 +1,6 @@
 # Genesis 19:37
 
-> And the firstborn bare a son, and called his name <u>Moab</u>[^a] : the same is the father of the <u>Moabites</u>[^b] unto this day.
+> And the firstborn bare a son, and called his name <u>Moab</u>[^a]: the same *is* the father of the <u>Moabites</u>[^b] unto this day.
 
 [Genesis 19:37](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.37?lang=eng#p37)
 

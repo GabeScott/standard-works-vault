@@ -1,6 +1,6 @@
 # Amos 3:10
 
-> For they know not to do right, saith the Lord , who store up <u>violence</u>[^a] and robbery in their palaces.
+> For they know not to do right, saith the LORD, who store up <u>violence</u>[^a] and robbery in their palaces.
 
 [Amos 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.10?lang=eng#p10)
 

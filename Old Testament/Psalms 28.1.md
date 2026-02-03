@@ -1,6 +1,6 @@
 # Psalms 28:1
 
-> Unto thee will I cry, O Lord my rock; be not silent to me: lest, if thou be <u>silent</u>[^a] to me, I become like them that go down into the <u>pit</u>[^b] .
+> Unto thee will I cry, O LORD my rock; be not silent to me: lest, *if* thou be <u>silent</u>[^a] to me, I become like them that go down into the <u>pit</u>[^b].
 
 [Psalms 28:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/28.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # 2 Kings 4:44
 
-> So he set it before them, and they did eat, and <u>left</u>[^a] thereof, according to the word of the Lord .
+> So he set *it* before them, and they did eat, and <u>left</u>[^a] *thereof,* according to the word of the LORD.
 
 [2 Kings 4:44](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.44?lang=eng#p44)
 

@@ -1,6 +1,6 @@
 # Matthew 11:27
 
-> All <u>things</u>[^a] are delivered unto me of my Father: and no man knoweth the Son, but the Father; neither <u>knoweth</u>[^b] any man the Father, save the Son, <u>and</u>[^c] he to whomsoever the Son will <u>reveal</u>[^d] him.
+> All <u>things</u>[^a] are delivered unto me of my Father: and no man knoweth the Son, but the Father; neither <u>knoweth</u>[^b] any man the Father, save the Son, <u>and</u>[^c] *he* to whomsoever the Son will <u>reveal</u>[^d] *him.*
 
 [Matthew 11:27](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.27?lang=eng#p27)
 

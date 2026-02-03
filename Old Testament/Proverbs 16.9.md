@@ -1,6 +1,6 @@
 # Proverbs 16:9
 
-> A man’s heart <u>deviseth</u>[^a] his way: but the Lord directeth his steps.
+> A man’s heart <u>deviseth</u>[^a] his way: but the LORD directeth his steps.
 
 [Proverbs 16:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.9?lang=eng#p9)
 

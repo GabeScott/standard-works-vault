@@ -1,6 +1,6 @@
 # Proverbs 20:20
 
-> Whoso curseth his <u>father</u>[^a] or his mother, his <u>lamp</u>[^b] shall be put out in obscure <u>darkness</u>[^c] .
+> Whoso curseth his <u>father</u>[^a] or his mother, his <u>lamp</u>[^b] shall be put out in obscure <u>darkness</u>[^c].
 
 [Proverbs 20:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.20?lang=eng#p20)
 

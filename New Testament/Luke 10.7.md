@@ -1,6 +1,6 @@
 # Luke 10:7
 
-> And in the same house remain, eating and drinking such things as they give: for the <u>labourer</u>[^a] is worthy of his <u>hire</u>[^b] . Go not from house to house.
+> And in the same house remain, eating and drinking such things as they give: for the <u>labourer</u>[^a] is worthy of his <u>hire</u>[^b]. Go not from house to house.
 
 [Luke 10:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.7?lang=eng#p7)
 

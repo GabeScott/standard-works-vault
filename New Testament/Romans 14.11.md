@@ -1,6 +1,6 @@
 # Romans 14:11
 
-> For it is written, As I live, saith the Lord, every <u>knee</u>[^a] shall bow to me, and every tongue shall <u>confess</u>[^b] to God.
+> For it is written, *As* I live, saith the Lord, every <u>knee</u>[^a] shall bow to me, and every tongue shall <u>confess</u>[^b] to God.
 
 [Romans 14:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.11?lang=eng#p11)
 

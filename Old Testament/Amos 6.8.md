@@ -1,6 +1,6 @@
 # Amos 6:8
 
-> The Lord God hath <u>sworn</u>[^a] by himself, saith the Lord the God of hosts, I abhor the <u>excellency</u>[^b] of Jacob, and hate his palaces: therefore will I deliver up the city with all that is therein.
+> The Lord GOD hath <u>sworn</u>[^a] by himself, saith the LORD the God of hosts, I abhor the <u>excellency</u>[^b] of Jacob, and hate his palaces: therefore will I deliver up the city with all that is therein.
 
 [Amos 6:8](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/6.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Isaiah 54:6
 
-> For the Lord hath called thee as a <u>woman</u>[^a] <u>forsaken</u>[^b] and grieved in spirit, and a <u>wife</u>[^c] of youth, <u>when thou wast refused</u>[^d], saith thy God.
+> For the LORD hath called thee as a <u>woman</u>[^a] <u>forsaken</u>[^b] and grieved in spirit, and a <u>wife</u>[^c] of youth, <u>when thou wast refused</u>[^d], saith thy God.
 
 [Isaiah 54:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.6?lang=eng#p6)
 

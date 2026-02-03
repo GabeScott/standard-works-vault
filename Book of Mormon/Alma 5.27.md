@@ -1,6 +1,6 @@
 # Alma 5:27
 
-> Have ye walked, keeping yourselves <u>blameless</u>[^a] before God? Could ye say, if ye were called to die at this time, within yourselves, that ye have been sufficiently <u>humble</u>[^b] ? That your garments have been <u>cleansed</u>[^c] and made white through the blood of Christ, who will come to <u>redeem</u>[^d] his people from their sins?
+> Have ye walked, keeping yourselves <u>blameless</u>[^a] before God? Could ye say, if ye were called to die at this time, within yourselves, that ye have been sufficiently <u>humble</u>[^b]? That your garments have been <u>cleansed</u>[^c] and made white through the blood of Christ, who will come to <u>redeem</u>[^d] his people from their sins?
 
 [Alma 5:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p27#p27)
 

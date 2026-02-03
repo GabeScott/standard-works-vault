@@ -1,6 +1,6 @@
 # John 2:25
 
-> And needed not that any should testify of man: for he <u>knew</u>[^a] what was in <u>man</u>[^b] .
+> And needed not that any should testify of man: for he <u>knew</u>[^a] what was in <u>man</u>[^b].
 
 [John 2:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/2.25?lang=eng#p25)
 

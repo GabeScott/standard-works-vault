@@ -1,6 +1,6 @@
 # Exodus 19:21
 
-> And the Lord said unto Moses, Go down, charge the people, lest they break through unto the Lord to <u>gaze</u>[^a], and many of them <u>perish</u>[^b] .
+> And the LORD said unto Moses, Go down, charge the people, lest they break through unto the LORD to <u>gaze</u>[^a], and many of them <u>perish</u>[^b].
 
 [Exodus 19:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.21?lang=eng#p21)
 

@@ -1,6 +1,6 @@
 # Genesis 29:31
 
-> ¶ And when the Lord saw that Leah was hated, he opened her womb: but Rachel was <u>barren</u>[^a] .
+> ¶ And when the LORD saw that Leah *was* hated, he opened her womb: but Rachel *was* <u>barren</u>[^a].
 
 [Genesis 29:31](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.31?lang=eng#p31)
 

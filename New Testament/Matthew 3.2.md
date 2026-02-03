@@ -1,6 +1,6 @@
 # Matthew 3:2
 
-> And saying, <u>Repent</u>[^a] ye: for the <u>kingdom</u>[^b] of heaven <u>is at hand</u>[^c] .
+> And saying, <u>Repent</u>[^a] ye: for the <u>kingdom</u>[^b] of heaven <u>is at hand</u>[^c].
 
 [Matthew 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.2?lang=eng#p2)
 

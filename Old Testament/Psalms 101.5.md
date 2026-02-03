@@ -1,6 +1,6 @@
 # Psalms 101:5
 
-> Whoso privily <u>slandereth</u>[^a] his neighbour, him will I cut off: him that hath an high look and a proud heart will not I <u>suffer</u>[^b] .
+> Whoso privily <u>slandereth</u>[^a] his neighbour, him will I cut off: him that hath an high look and a proud heart will not I <u>suffer</u>[^b].
 
 [Psalms 101:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/101.5?lang=eng#p5)
 

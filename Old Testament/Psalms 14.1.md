@@ -1,6 +1,6 @@
 # Psalms 14:1
 
-> <u>The</u>[^a] <u>fool</u>[^b] hath said in his heart, There is <u>no</u>[^c] <u>God</u>[^d] . They are <u>corrupt</u>[^e], they have done abominable works, there is <u>none</u>[^f] that doeth good.
+> <u>The</u>[^a] <u>fool</u>[^b] hath said in his heart, *There is* <u>no</u>[^c] <u>God</u>[^d]. They are <u>corrupt</u>[^e], they have done abominable works, *there is* <u>none</u>[^f] that doeth good.
 
 [Psalms 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/14.1?lang=eng#p1)
 

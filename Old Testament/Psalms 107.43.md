@@ -1,6 +1,6 @@
 # Psalms 107:43
 
-> Whoso is <u>wise</u>[^a], and will observe these things, even they shall understand the lovingkindness of the Lord .
+> Whoso *is* <u>wise</u>[^a], and will observe these *things,* even they shall understand the lovingkindness of the LORD.
 
 [Psalms 107:43](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.43?lang=eng#p43)
 

@@ -1,6 +1,6 @@
 # Alma 43:6
 
-> And now, as the <u>Amalekites</u>[^a] were of a more wicked and murderous disposition than the Lamanites were, in and of themselves, therefore, Zerahemnah appointed chief <u>captains</u>[^b] over the Lamanites, and they were all Amalekites and <u>Zoramites</u>[^c] .
+> And now, as the <u>Amalekites</u>[^a] were of a more wicked and murderous disposition than the Lamanites were, in and of themselves, therefore, Zerahemnah appointed chief <u>captains</u>[^b] over the Lamanites, and they were all Amalekites and <u>Zoramites</u>[^c].
 
 [Alma 43:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p6#p6)
 

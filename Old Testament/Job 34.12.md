@@ -1,6 +1,6 @@
 # Job 34:12
 
-> Yea, surely God will not do wickedly, neither will the Almighty pervert <u>judgment</u>[^a] .
+> Yea, surely God will not do wickedly, neither will the Almighty pervert <u>judgment</u>[^a].
 
 [Job 34:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/34.12?lang=eng#p12)
 

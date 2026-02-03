@@ -1,6 +1,6 @@
 # D&C 6:13
 
-> If thou wilt do <u>good</u>[^a], yea, and <u>hold</u>[^b] out <u>faithful</u>[^c] to the <u>end</u>[^d], thou shalt be saved in the <u>kingdom</u>[^e] of God, which is the greatest of all the <u>gifts</u>[^f] of God; for there is no gift greater than the gift of <u>salvation</u>[^g] .
+> If thou wilt do <u>good</u>[^a], yea, and <u>hold</u>[^b] out <u>faithful</u>[^c] to the <u>end</u>[^d], thou shalt be saved in the <u>kingdom</u>[^e] of God, which is the greatest of all the <u>gifts</u>[^f] of God; for there is no gift greater than the gift of <u>salvation</u>[^g].
 
 [D&C 6:13](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Psalms 19:7
 
-> The <u>law</u>[^a] of the Lord is <u>perfect</u>[^b], <u>converting</u>[^c] the soul: the <u>testimony</u>[^d] of the Lord is <u>sure</u>[^e], making <u>wise</u>[^f] the <u>simple</u>[^g] .
+> The <u>law</u>[^a] of the LORD *is* <u>perfect</u>[^b], <u>converting</u>[^c] the soul: the <u>testimony</u>[^d] of the LORD *is* <u>sure</u>[^e], making <u>wise</u>[^f] the <u>simple</u>[^g].
 
 [Psalms 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.7?lang=eng#p7)
 

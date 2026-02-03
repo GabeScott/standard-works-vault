@@ -1,6 +1,6 @@
 # Alma 42:27
 
-> Therefore, O my son, <u>whosoever</u>[^a] will come may come and partake of the waters of life freely; and whosoever will not come the same is not compelled to come; but in the last day it shall be <u>restored</u>[^b] unto him according to his <u>deeds</u>[^c] .
+> Therefore, O my son, <u>whosoever</u>[^a] will come may come and partake of the waters of life freely; and whosoever will not come the same is not compelled to come; but in the last day it shall be <u>restored</u>[^b] unto him according to his <u>deeds</u>[^c].
 
 [Alma 42:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p27#p27)
 

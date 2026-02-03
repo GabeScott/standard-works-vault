@@ -1,6 +1,6 @@
 # Micah 6:7
 
-> Will the Lord be pleased with thousands of <u>rams</u>[^a], or with ten thousands of rivers of oil? shall I give my <u>firstborn</u>[^b] for my <u>transgression</u>[^c], the fruit of my body for the sin of my soul?
+> Will the LORD be pleased with thousands of <u>rams</u>[^a], *or* with ten thousands of rivers of oil? shall I give my <u>firstborn</u>[^b] *for* my <u>transgression</u>[^c], the fruit of my body *for* the sin of my soul?
 
 [Micah 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/6.7?lang=eng#p7)
 

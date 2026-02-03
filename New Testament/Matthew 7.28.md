@@ -1,6 +1,6 @@
 # Matthew 7:28
 
-> And it came to pass, when Jesus had ended <u>these sayings, the people</u>[^a] were <u>astonished</u>[^b] at his <u>doctrine</u>[^c] :
+> And it came to pass, when Jesus had ended <u>these sayings, the people</u>[^a] were <u>astonished</u>[^b] at his <u>doctrine</u>[^c]:
 
 [Matthew 7:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.28?lang=eng#p28)
 

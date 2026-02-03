@@ -1,6 +1,6 @@
 # Proverbs 23:9
 
-> Speak not in the ears of a <u>fool</u>[^a] : for he will despise the wisdom of thy words.
+> Speak not in the ears of a <u>fool</u>[^a]: for he will despise the wisdom of thy words.
 
 [Proverbs 23:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.9?lang=eng#p9)
 

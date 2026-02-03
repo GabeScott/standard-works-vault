@@ -1,6 +1,6 @@
 # Psalms 69:2
 
-> I sink in deep mire, where there is no standing: I am come into <u>deep</u>[^a] waters, where the floods overflow me.
+> I sink in deep mire, where *there is* no standing: I am come into <u>deep</u>[^a] waters, where the floods overflow me.
 
 [Psalms 69:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.2?lang=eng#p2)
 

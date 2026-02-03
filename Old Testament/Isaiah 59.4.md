@@ -1,6 +1,6 @@
 # Isaiah 59:4
 
-> None calleth for justice, nor any pleadeth for truth: they <u>trust</u>[^a] in vanity, and speak lies; they conceive <u>mischief</u>[^b], and bring forth iniquity.
+> None calleth for justice, nor *any* pleadeth for truth: they <u>trust</u>[^a] in vanity, and speak lies; they conceive <u>mischief</u>[^b], and bring forth iniquity.
 
 [Isaiah 59:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.4?lang=eng#p4)
 

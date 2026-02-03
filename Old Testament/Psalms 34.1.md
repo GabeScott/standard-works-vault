@@ -1,6 +1,6 @@
 # Psalms 34:1
 
-> I will <u>bless</u>[^a] the Lord at all times: his praise shall continually be in my mouth.
+> I will <u>bless</u>[^a] the LORD at all times: his praise *shall* continually *be* in my mouth.
 
 [Psalms 34:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.1?lang=eng#p1)
 

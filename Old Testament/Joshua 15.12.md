@@ -1,6 +1,6 @@
 # Joshua 15:12
 
-> And the <u>west</u>[^a] border was to <u>the great sea</u>[^b], and the coast thereof. This is the coast of the children of Judah round about according to their families.
+> And the <u>west</u>[^a] border *was* to <u>the great sea</u>[^b], and the coast *thereof.* This *is* the coast of the children of Judah round about according to their families.
 
 [Joshua 15:12](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.12?lang=eng#p12)
 

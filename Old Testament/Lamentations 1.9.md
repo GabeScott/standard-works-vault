@@ -1,6 +1,6 @@
 # Lamentations 1:9
 
-> Her <u>filthiness</u>[^a] is in her skirts; she remembereth not her last <u>end</u>[^b]; therefore she came down wonderfully: she had no comforter. O Lord , behold my affliction: for the enemy hath magnified himself.
+> Her <u>filthiness</u>[^a] *is* in her skirts; she remembereth not her last <u>end</u>[^b]; therefore she came down wonderfully: she had no comforter. O LORD, behold my affliction: for the enemy hath magnified *himself.*
 
 [Lamentations 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.9?lang=eng#p9)
 

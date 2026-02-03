@@ -1,6 +1,6 @@
 # Leviticus 15:31
 
-> Thus shall ye separate the children of Israel from their <u>uncleanness</u>[^a]; that they die not in their uncleanness, when they defile my <u>tabernacle</u>[^b] that is among them.
+> Thus shall ye separate the children of Israel from their <u>uncleanness</u>[^a]; that they die not in their uncleanness, when they defile my <u>tabernacle</u>[^b] that *is* among them.
 
 [Leviticus 15:31](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/15.31?lang=eng#p31)
 

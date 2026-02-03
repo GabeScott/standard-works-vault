@@ -1,6 +1,6 @@
 # Mosiah 28:3
 
-> Now they were desirous that salvation should be declared to every creature, for they could not <u>bear</u>[^a] that any human <u>soul</u>[^b] should <u>perish</u>[^c]; yea, even the very thoughts that any soul should endure <u>endless</u>[^d] torment did cause them to quake and <u>tremble</u>[^e] .
+> Now they were desirous that salvation should be declared to every creature, for they could not <u>bear</u>[^a] that any human <u>soul</u>[^b] should <u>perish</u>[^c]; yea, even the very thoughts that any soul should endure <u>endless</u>[^d] torment did cause them to quake and <u>tremble</u>[^e].
 
 [Mosiah 28:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/28?lang=eng&id=p3#p3)
 

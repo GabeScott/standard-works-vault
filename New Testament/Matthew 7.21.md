@@ -1,6 +1,6 @@
 # Matthew 7:21
 
-> ¶ Not every one that <u>saith</u>[^a] unto me, <u>Lord</u>[^b], Lord, shall enter into the kingdom of heaven; but he that <u>doeth</u>[^c] the <u>will</u>[^d] of my Father which is in <u>heaven</u>[^e] .
+> ¶ Not every one that <u>saith</u>[^a] unto me, <u>Lord</u>[^b], Lord, shall enter into the kingdom of heaven; but he that <u>doeth</u>[^c] the <u>will</u>[^d] of my Father which is in <u>heaven</u>[^e].
 
 [Matthew 7:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.21?lang=eng#p21)
 

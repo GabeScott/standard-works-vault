@@ -1,6 +1,6 @@
 # Deuteronomy 26:7
 
-> And when we <u>cried</u>[^a] unto the Lord God of our fathers, the Lord <u>heard</u>[^b] our voice, and looked on our affliction, and our labour, and our <u>oppression</u>[^c] :
+> And when we <u>cried</u>[^a] unto the LORD God of our fathers, the LORD <u>heard</u>[^b] our voice, and looked on our affliction, and our labour, and our <u>oppression</u>[^c]:
 
 [Deuteronomy 26:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.7?lang=eng#p7)
 

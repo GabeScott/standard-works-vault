@@ -1,6 +1,6 @@
 # Amos 5:15
 
-> Hate the evil, and <u>love</u>[^a] the good, and establish judgment in the gate: it may be that the Lord God of hosts will be gracious unto the remnant of <u>Joseph</u>[^b] .
+> Hate the evil, and <u>love</u>[^a] the good, and establish judgment in the gate: it may be that the LORD God of hosts will be gracious unto the remnant of <u>Joseph</u>[^b].
 
 [Amos 5:15](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.15?lang=eng#p15)
 

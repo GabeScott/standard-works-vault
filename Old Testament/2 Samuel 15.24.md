@@ -1,6 +1,6 @@
 # 2 Samuel 15:24
 
-> ¶ And lo <u>Zadok</u>[^a] also, and all the Levites were with him, bearing the ark of the covenant of God: and they set down the ark of God; and <u>Abiathar</u>[^b] went up, until all the people had done passing out of the city.
+> ¶ And lo <u>Zadok</u>[^a] also, and all the Levites *were* with him, bearing the ark of the covenant of God: and they set down the ark of God; and <u>Abiathar</u>[^b] went up, until all the people had done passing out of the city.
 
 [2 Samuel 15:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/15.24?lang=eng#p24)
 

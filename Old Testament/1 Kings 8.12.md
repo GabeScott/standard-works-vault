@@ -1,6 +1,6 @@
 # 1 Kings 8:12
 
-> ¶ Then spake <u>Solomon</u>[^a], The Lord said that he would dwell in the thick <u>darkness</u>[^b] .
+> ¶ Then spake <u>Solomon</u>[^a], The LORD said that he would dwell in the thick <u>darkness</u>[^b].
 
 [1 Kings 8:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.12?lang=eng#p12)
 

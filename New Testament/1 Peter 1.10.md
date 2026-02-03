@@ -1,6 +1,6 @@
 # 1 Peter 1:10
 
-> Of which <u>salvation</u>[^a] the <u>prophets</u>[^b] have inquired and searched diligently, who prophesied of the grace that should come unto you:
+> Of which <u>salvation</u>[^a] the <u>prophets</u>[^b] have inquired and searched diligently, who prophesied of the grace *that should come* unto you:
 
 [1 Peter 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.10?lang=eng#p10)
 

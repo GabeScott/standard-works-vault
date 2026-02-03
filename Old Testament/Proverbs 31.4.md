@@ -1,6 +1,6 @@
 # Proverbs 31:4
 
-> It is not for kings, O Lemuel, it is not for kings to drink <u>wine</u>[^a]; nor for princes strong drink:
+> *It is* not for kings, O Lemuel, *it is* not for kings to drink <u>wine</u>[^a]; nor for princes strong drink:
 
 [Proverbs 31:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.4?lang=eng#p4)
 

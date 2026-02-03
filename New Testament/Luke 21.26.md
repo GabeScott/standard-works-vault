@@ -1,6 +1,6 @@
 # Luke 21:26
 
-> Men’s hearts <u>failing</u>[^a] them for fear, and for looking after those things which are coming on the earth: for the powers of heaven shall be <u>shaken</u>[^b] .
+> Men’s hearts <u>failing</u>[^a] them for fear, and for looking after those things which are coming on the earth: for the powers of heaven shall be <u>shaken</u>[^b].
 
 [Luke 21:26](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.26?lang=eng#p26)
 

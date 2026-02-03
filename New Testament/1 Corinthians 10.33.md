@@ -1,6 +1,6 @@
 # 1 Corinthians 10:33
 
-> Even as I please all men in all things, not <u>seeking</u>[^a] mine own profit, but the profit of many, that they may be <u>saved</u>[^c] .
+> Even as I please all *men* in all *things,* not <u>seeking</u>[^a] mine own profit, but the *profit* of many, that they may be <u>saved</u>[^c].
 
 [1 Corinthians 10:33](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.33?lang=eng#p33)
 

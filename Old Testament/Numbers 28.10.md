@@ -1,6 +1,6 @@
 # Numbers 28:10
 
-> This is the burnt offering of every <u>sabbath</u>[^a], beside the continual burnt offering, and <u>his drink offering</u>[^b] .
+> *This is* the burnt offering of every <u>sabbath</u>[^a], beside the continual burnt offering, and <u>his drink offering</u>[^b].
 
 [Numbers 28:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.10?lang=eng#p10)
 

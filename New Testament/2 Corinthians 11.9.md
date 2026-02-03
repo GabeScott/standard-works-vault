@@ -1,6 +1,6 @@
 # 2 Corinthians 11:9
 
-> And when I was present with you, and wanted, I was <u>chargeable</u>[^a] to no man: for that which was <u>lacking</u>[^b] to me the brethren which came from Macedonia <u>supplied</u>[^c] : and in all things I have kept myself from being burdensome unto you, and so will I keep myself.
+> And when I was present with you, and wanted, I was <u>chargeable</u>[^a] to no man: for that which was <u>lacking</u>[^b] to me the brethren which came from Macedonia <u>supplied</u>[^c]: and in all *things* I have kept myself from being burdensome unto you, and *so* will I keep *myself.*
 
 [2 Corinthians 11:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.9?lang=eng#p9)
 

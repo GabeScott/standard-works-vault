@@ -1,6 +1,6 @@
 # Joshua 1:7
 
-> Only be thou strong and very <u>courageous</u>[^a], that thou mayest observe to do according to all the law, which Moses my servant commanded thee: <u>turn</u>[^b] not from it to the right hand or to the left, that thou mayest <u>prosper</u>[^c] whithersoever thou goest.
+> Only be thou strong and very <u>courageous</u>[^a], that thou mayest observe to do according to all the law, which Moses my servant commanded thee: <u>turn</u>[^b] not from it *to* the right hand or *to* the left, that thou mayest <u>prosper</u>[^c] whithersoever thou goest.
 
 [Joshua 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.7?lang=eng#p7)
 

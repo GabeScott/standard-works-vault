@@ -1,6 +1,6 @@
 # Psalms 135:12
 
-> And gave their land for an <u>heritage</u>[^a], an heritage unto Israel his people.
+> And gave their land *for* an <u>heritage</u>[^a], an heritage unto Israel his people.
 
 [Psalms 135:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/135.12?lang=eng#p12)
 

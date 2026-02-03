@@ -1,6 +1,6 @@
 # John 3:34
 
-> For he whom God hath sent <u>speaketh</u>[^a] the words of God: <u>for</u>[^b] God giveth not the Spirit by measure unto him.
+> For he whom God hath sent <u>speaketh</u>[^a] the words of God: <u>for</u>[^b] God giveth not the Spirit by measure *unto him.*
 
 [John 3:34](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.34?lang=eng#p34)
 

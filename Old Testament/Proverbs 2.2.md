@@ -1,6 +1,6 @@
 # Proverbs 2:2
 
-> So that thou incline thine ear unto wisdom, and apply thine <u>heart</u>[^a] to understanding;
+> So that thou incline thine ear unto wisdom, *and* apply thine <u>heart</u>[^a] to understanding;
 
 [Proverbs 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/2.2?lang=eng#p2)
 

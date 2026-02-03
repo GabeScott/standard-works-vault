@@ -1,6 +1,6 @@
 # 3 Nephi 9:14
 
-> Yea, verily I say unto you, if ye will <u>come</u>[^a] unto me ye shall have <u>eternal life</u>[^b] . Behold, mine <u>arm</u>[^c] of mercy is extended towards you, and whosoever will come, him will I receive; and blessed are those who come unto me.
+> Yea, verily I say unto you, if ye will <u>come</u>[^a] unto me ye shall have <u>eternal life</u>[^b]. Behold, mine <u>arm</u>[^c] of mercy is extended towards you, and whosoever will come, him will I receive; and blessed are those who come unto me.
 
 [3 Nephi 9:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p14#p14)
 

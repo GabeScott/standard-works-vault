@@ -1,6 +1,6 @@
 # Isaiah 52:4
 
-> For thus saith the Lord God , My people went down aforetime into <u>Egypt</u>[^b] to sojourn there; and the Assyrian oppressed them without cause.
+> For thus saith the Lord <u>God</u>[^a], My people went down aforetime into <u>Egypt</u>[^b] to sojourn there; and the Assyrian oppressed them without cause.
 
 [Isaiah 52:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.4?lang=eng#p4)
 

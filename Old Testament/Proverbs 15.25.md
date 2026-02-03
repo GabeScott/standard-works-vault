@@ -1,6 +1,6 @@
 # Proverbs 15:25
 
-> The Lord will destroy the house of the <u>proud</u>[^a] : but he will establish the border of the <u>widow</u>[^b] .
+> The LORD will destroy the house of the <u>proud</u>[^a]: but he will establish the border of the <u>widow</u>[^b].
 
 [Proverbs 15:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.25?lang=eng#p25)
 

@@ -1,6 +1,6 @@
 # Micah 3:6
 
-> Therefore <u>night</u>[^a] shall be unto you, that ye shall not have a vision; and it shall be dark unto you, that ye shall not <u>divine</u>[^b]; and the <u>sun</u>[^c] shall go down over the <u>prophets</u>[^d], and the day shall be dark over them.
+> Therefore <u>night</u>[^a] *shall be* unto you, that ye shall not have a vision; and it shall be dark unto you, that ye shall not <u>divine</u>[^b]; and the <u>sun</u>[^c] shall go down over the <u>prophets</u>[^d], and the day shall be dark over them.
 
 [Micah 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/3.6?lang=eng#p6)
 

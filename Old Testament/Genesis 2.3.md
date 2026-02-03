@@ -1,6 +1,6 @@
 # Genesis 2:3
 
-> And God blessed the <u>seventh day</u>[^a], and <u>sanctified</u>[^b] it: because that in it he had <u>rested</u>[^c] from all his work which God <u>created and made</u>[^d] .
+> And God blessed the <u>seventh day</u>[^a], and <u>sanctified</u>[^b] it: because that in it he had <u>rested</u>[^c] from all his work which God <u>created and made</u>[^d].
 
 [Genesis 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.3?lang=eng#p3)
 

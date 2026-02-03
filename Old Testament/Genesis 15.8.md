@@ -1,6 +1,6 @@
 # Genesis 15:8
 
-> And he said, Lord God , whereby shall I <u>know</u>[^a] that I shall inherit it?
+> And he said, Lord GOD, whereby shall I <u>know</u>[^a] that I shall inherit it?
 
 [Genesis 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.8?lang=eng#p8)
 

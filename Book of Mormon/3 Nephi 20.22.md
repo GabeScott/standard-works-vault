@@ -1,6 +1,6 @@
 # 3 Nephi 20:22
 
-> And behold, this <u>people</u>[^a] will I establish in this land, unto the fulfilling of the <u>covenant</u>[^b] which I made with your father Jacob; and it shall be a <u>New Jerusalem</u>[^c] . And the <u>powers</u>[^d] of heaven shall be in the midst of this people; yea, even <u>I</u>[^e] will be in the midst of you.
+> And behold, this <u>people</u>[^a] will I establish in this land, unto the fulfilling of the <u>covenant</u>[^b] which I made with your father Jacob; and it shall be a <u>New Jerusalem</u>[^c]. And the <u>powers</u>[^d] of heaven shall be in the midst of this people; yea, even <u>I</u>[^e] will be in the midst of you.
 
 [3 Nephi 20:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p22#p22)
 

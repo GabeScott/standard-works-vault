@@ -1,6 +1,6 @@
 # Leviticus 18:22
 
-> <u>Thou</u>[^a] shalt not lie with mankind, as with womankind: it is <u>abomination</u>[^b] .
+> <u>Thou</u>[^a] shalt not lie with mankind, as with womankind: it *is* <u>abomination</u>[^b].
 
 [Leviticus 18:22](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.22?lang=eng#p22)
 

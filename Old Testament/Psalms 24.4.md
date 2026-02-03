@@ -1,6 +1,6 @@
 # Psalms 24:4
 
-> He that hath <u>clean</u>[^a] <u>hands</u>[^b], and a <u>pure</u>[^c] <u>heart</u>[^d]; who hath not lifted up his soul unto <u>vanity</u>[^e], nor <u>sworn</u>[^f] <u>deceitfully</u>[^g] .
+> He that hath <u>clean</u>[^a] <u>hands</u>[^b], and a <u>pure</u>[^c] <u>heart</u>[^d]; who hath not lifted up his soul unto <u>vanity</u>[^e], nor <u>sworn</u>[^f] <u>deceitfully</u>[^g].
 
 [Psalms 24:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/24.4?lang=eng#p4)
 

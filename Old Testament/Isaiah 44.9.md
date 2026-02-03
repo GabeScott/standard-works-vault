@@ -1,6 +1,6 @@
 # Isaiah 44:9
 
-> ¶ They that make a graven <u>image</u>[^a] are all of them vanity; and their <u>delectable things</u>[^b] shall not profit; and they are their own witnesses; they <u>see not</u>[^c], nor know; that they may be ashamed.
+> ¶ They that make a graven <u>image</u>[^a] *are* all of them vanity; and their <u>delectable things</u>[^b] shall not profit; and they *are* their own witnesses; they <u>see not</u>[^c], nor know; that they may be ashamed.
 
 [Isaiah 44:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.9?lang=eng#p9)
 

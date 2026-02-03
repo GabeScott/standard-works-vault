@@ -1,6 +1,6 @@
 # Isaiah 34:8
 
-> For it is the day of the Lord ’s <u>vengeance</u>[^a], and the year of recompences for the controversy of Zion.
+> For *it is* the day of the LORD’s <u>vengeance</u>[^a], *and* the year of recompences for the controversy of Zion.
 
 [Isaiah 34:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/34.8?lang=eng#p8)
 

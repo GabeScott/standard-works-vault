@@ -1,6 +1,6 @@
 # Romans 13:12
 
-> The night is far spent, the <u>day</u>[^a] is at hand: let us therefore cast off the works of <u>darkness</u>[^b], and let us put on the <u>armour</u>[^c] of <u>light</u>[^d] .
+> The night is far spent, the <u>day</u>[^a] is at hand: let us therefore cast off the works of <u>darkness</u>[^b], and let us put on the <u>armour</u>[^c] of <u>light</u>[^d].
 
 [Romans 13:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.12?lang=eng#p12)
 

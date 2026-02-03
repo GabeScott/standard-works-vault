@@ -1,6 +1,6 @@
 # 3 Nephi 5:18
 
-> And I know the record which I make to be a just and a true record; nevertheless there are many things which, according to our <u>language</u>[^a], we are not able to <u>write</u>[^b] .
+> And I know the record which I make to be a just and a true record; nevertheless there are many things which, according to our <u>language</u>[^a], we are not able to <u>write</u>[^b].
 
 [3 Nephi 5:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p18#p18)
 

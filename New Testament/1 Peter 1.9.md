@@ -1,6 +1,6 @@
 # 1 Peter 1:9
 
-> Receiving the <u>end</u>[^a] of your <u>faith</u>[^b], even the <u>salvation</u>[^c] of your souls.
+> Receiving the <u>end</u>[^a] of your <u>faith</u>[^b], *even* the <u>salvation</u>[^c] of *your* souls.
 
 [1 Peter 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Matthew 10:1
 
-> And when he had <u>called</u>[^a] unto him his <u>twelve disciples</u>[^b], he gave them <u>power against</u>[^c] <u>unclean spirits</u>[^d], to cast them out, and to <u>heal</u>[^e] all manner of <u>sickness</u>[^f] and all manner of disease.
+> And when he had <u>called</u>[^a] unto *him* his <u>twelve disciples</u>[^b], he gave them <u>power against</u>[^c] <u>unclean spirits</u>[^d], to cast them out, and to <u>heal</u>[^e] all manner of <u>sickness</u>[^f] and all manner of disease.
 
 [Matthew 10:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.1?lang=eng#p1)
 

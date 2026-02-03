@@ -1,6 +1,6 @@
 # Exodus 40:27
 
-> And he burnt sweet <u>incense</u>[^a] thereon; as the Lord commanded Moses.
+> And he burnt sweet <u>incense</u>[^a] thereon; as the LORD commanded Moses.
 
 [Exodus 40:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.27?lang=eng#p27)
 

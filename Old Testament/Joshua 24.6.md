@@ -1,6 +1,6 @@
 # Joshua 24:6
 
-> And I <u>brought</u>[^a] your fathers out of Egypt: and ye came unto the sea; and the Egyptians pursued after your fathers with chariots and horsemen unto the <u>Red sea</u>[^b] .
+> And I <u>brought</u>[^a] your fathers out of Egypt: and ye came unto the sea; and the Egyptians pursued after your fathers with chariots and horsemen unto the <u>Red sea</u>[^b].
 
 [Joshua 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.6?lang=eng#p6)
 

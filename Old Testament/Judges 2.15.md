@@ -1,6 +1,6 @@
 # Judges 2:15
 
-> Whithersoever they went out, the <u>hand</u>[^a] of the Lord was against them for evil, as the Lord had said, and as the Lord had sworn unto them: and they were greatly distressed.
+> Whithersoever they went out, the <u>hand</u>[^a] of the LORD was against them for evil, as the LORD had said, and as the LORD had sworn unto them: and they were greatly distressed.
 
 [Judges 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # Jeremiah 13:19
 
-> The cities of the south shall be shut up, and none shall open them: Judah shall be <u>carried away</u>[^a] captive all of it, it shall be wholly carried away captive.
+> The cities of the south shall be shut up, and none shall open *them:* Judah shall be <u>carried away</u>[^a] captive all of it, it shall be wholly carried away captive.
 
 [Jeremiah 13:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.19?lang=eng#p19)
 

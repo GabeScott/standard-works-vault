@@ -1,6 +1,6 @@
 # 1 Nephi 18:7
 
-> And now, my father had begat two sons in the wilderness; the elder was called <u>Jacob</u>[^a] and the younger <u>Joseph</u>[^b] .
+> And now, my father had begat two sons in the wilderness; the elder was called <u>Jacob</u>[^a] and the younger <u>Joseph</u>[^b].
 
 [1 Nephi 18:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p7#p7)
 

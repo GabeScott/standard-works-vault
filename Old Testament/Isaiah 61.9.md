@@ -1,6 +1,6 @@
 # Isaiah 61:9
 
-> And their seed shall be known among the Gentiles, and their offspring among the people: all that see them shall acknowledge them, that they are the <u>seed</u>[^a] which the Lord hath blessed.
+> And their seed shall be known among the Gentiles, and their offspring among the people: all that see them shall acknowledge them, that they *are* the <u>seed</u>[^a] *which* the LORD hath blessed.
 
 [Isaiah 61:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.9?lang=eng#p9)
 

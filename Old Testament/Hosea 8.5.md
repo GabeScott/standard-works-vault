@@ -1,6 +1,6 @@
 # Hosea 8:5
 
-> ¶ Thy <u>calf</u>[^a], O Samaria, hath cast thee off; mine anger is kindled against them: how long will it be <u>ere</u>[^b] they attain to innocency?
+> ¶ Thy <u>calf</u>[^a], O Samaria, hath cast *thee* off; mine anger is kindled against them: how long *will it be* <u>ere</u>[^b] they attain to innocency?
 
 [Hosea 8:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/8.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Alma 24:28
 
-> Now the greatest number of those of the Lamanites who slew so many of their brethren were Amalekites and Amulonites, the greatest number of whom were after the <u>order</u>[^a] of the <u>Nehors</u>[^b] .
+> Now the greatest number of those of the Lamanites who slew so many of their brethren were Amalekites and Amulonites, the greatest number of whom were after the <u>order</u>[^a] of the <u>Nehors</u>[^b].
 
 [Alma 24:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p28#p28)
 

@@ -1,6 +1,6 @@
 # Leviticus 1:1
 
-> And the Lord <u>called</u>[^a] unto <u>Moses</u>[^b], and spake unto him out of the <u>tabernacle of the congregation</u>[^c], saying,
+> And the LORD <u>called</u>[^a] unto <u>Moses</u>[^b], and spake unto him out of the <u>tabernacle of the congregation</u>[^c], saying,
 
 [Leviticus 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/1.1?lang=eng#p1)
 

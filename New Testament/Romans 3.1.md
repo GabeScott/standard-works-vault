@@ -1,6 +1,6 @@
 # Romans 3:1
 
-> <u>What</u>[^a] <u>advantage</u>[^b] then hath the Jew? or what profit is there of <u>circumcision</u>[^c] ?
+> <u>What</u>[^a] <u>advantage</u>[^b] then hath the Jew? or what profit *is there* of <u>circumcision</u>[^c]?
 
 [Romans 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.1?lang=eng#p1)
 

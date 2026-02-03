@@ -1,6 +1,6 @@
 # Lamentations 5:21
 
-> <u>Turn</u>[^a] thou us unto thee, O Lord , and we shall be turned; renew our days as of old.
+> <u>Turn</u>[^a] thou us unto thee, O LORD, and we shall be turned; renew our days as of old.
 
 [Lamentations 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/5.21?lang=eng#p21)
 

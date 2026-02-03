@@ -1,6 +1,6 @@
 # 2 Nephi 18:4
 
-> For behold, <u>the child</u>[^a] shall <u>not</u>[^b] have knowledge to cry, My father, and my mother, before the riches of Damascus and the <u>spoil</u>[^c] of <u>Samaria</u>[^d] shall be taken away before the king of <u>Assyria</u>[^e] .
+> For behold, <u>the child</u>[^a] shall <u>not</u>[^b] have knowledge to cry, My father, and my mother, before the riches of Damascus and the <u>spoil</u>[^c] of <u>Samaria</u>[^d] shall be taken away before the king of <u>Assyria</u>[^e].
 
 [2 Nephi 18:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p4#p4)
 

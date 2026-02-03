@@ -1,6 +1,6 @@
 # Hosea 8:8
 
-> Israel is <u>swallowed</u>[^a] up: now shall they be among the Gentiles as a <u>vessel</u>[^b] wherein is no pleasure.
+> Israel is <u>swallowed</u>[^a] up: now shall they be among the Gentiles as a <u>vessel</u>[^b] wherein *is* no pleasure.
 
 [Hosea 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/8.8?lang=eng#p8)
 

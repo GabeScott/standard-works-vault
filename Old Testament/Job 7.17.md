@@ -1,6 +1,6 @@
 # Job 7:17
 
-> What is <u>man</u>[^a], that thou shouldest magnify him? and that thou shouldest set thine heart upon him?
+> What *is* <u>man</u>[^a], that thou shouldest magnify him? and that thou shouldest set thine heart upon him?
 
 [Job 7:17](https://www.churchofjesuschrist.org/study/scriptures/ot/job/7.17?lang=eng#p17)
 

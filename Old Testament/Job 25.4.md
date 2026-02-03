@@ -1,6 +1,6 @@
 # Job 25:4
 
-> How then can man be <u>justified</u>[^a] with God? or how can he be <u>clean</u>[^b] that is born of a woman?
+> How then can man be <u>justified</u>[^a] with God? or how can he be <u>clean</u>[^b] *that is* born of a woman?
 
 [Job 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/25.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # 1 Nephi 2:12
 
-> And thus Laman and Lemuel, being the eldest, did murmur against their <u>father</u>[^a] . And they did <u>murmur</u>[^b] because they <u>knew not</u>[^c] the dealings of that God who had <u>created</u>[^d] them.
+> And thus Laman and Lemuel, being the eldest, did murmur against their <u>father</u>[^a]. And they did <u>murmur</u>[^b] because they <u>knew not</u>[^c] the dealings of that God who had <u>created</u>[^d] them.
 
 [1 Nephi 2:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/2?lang=eng&id=p12#p12)
 

@@ -1,6 +1,6 @@
 # Matthew 23:38
 
-> Behold, your house is left unto you <u>desolate</u>[^a] .
+> Behold, your house is left unto you <u>desolate</u>[^a].
 
 [Matthew 23:38](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.38?lang=eng#p38)
 

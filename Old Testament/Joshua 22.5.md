@@ -1,6 +1,6 @@
 # Joshua 22:5
 
-> But take <u>diligent</u>[^a] heed to do the <u>commandment</u>[^b] and the law, which Moses the servant of the Lord charged you, to <u>love</u>[^c] the Lord your God, and to <u>walk</u>[^d] in all his ways, and to keep his commandments, and to cleave unto him, and to <u>serve</u>[^e] him with all your <u>heart</u>[^f] and with all your soul.
+> But take <u>diligent</u>[^a] heed to do the <u>commandment</u>[^b] and the law, which Moses the servant of the LORD charged you, to <u>love</u>[^c] the LORD your God, and to <u>walk</u>[^d] in all his ways, and to keep his commandments, and to cleave unto him, and to <u>serve</u>[^e] him with all your <u>heart</u>[^f] and with all your soul.
 
 [Joshua 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/22.5?lang=eng#p5)
 

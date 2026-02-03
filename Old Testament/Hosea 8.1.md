@@ -1,6 +1,6 @@
 # Hosea 8:1
 
-> Set the <u>trumpet</u>[^a] to thy mouth. He shall come as an <u>eagle</u>[^b] against the house of the Lord , because they have <u>transgressed</u>[^c] my covenant, and trespassed against my law.
+> *Set* the <u>trumpet</u>[^a] to thy mouth. *He shall come* as an <u>eagle</u>[^b] against the house of the LORD, because they have <u>transgressed</u>[^c] my covenant, and trespassed against my law.
 
 [Hosea 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/8.1?lang=eng#p1)
 

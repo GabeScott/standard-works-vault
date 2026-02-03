@@ -1,6 +1,6 @@
 # Psalms 138:8
 
-> <u>The</u>[^a] Lord will perfect that which concerneth me: thy mercy, O Lord , endureth for ever: forsake not the <u>works</u>[^b] of thine own hands.
+> <u>The</u>[^a] LORD will perfect *that which* concerneth me: thy mercy, O LORD, *endureth* for ever: forsake not the <u>works</u>[^b] of thine own hands.
 
 [Psalms 138:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/138.8?lang=eng#p8)
 

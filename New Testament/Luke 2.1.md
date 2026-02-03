@@ -1,6 +1,6 @@
 # Luke 2:1
 
-> And it came to pass in those days, that there went out a decree from Cæsar Augustus, that all <u>the world</u>[^a] should be <u>taxed</u>[^b] .
+> And it came to pass in those days, that there went out a decree from Cæsar Augustus, that all <u>the world</u>[^a] should be <u>taxed</u>[^b].
 
 [Luke 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.1?lang=eng#p1)
 

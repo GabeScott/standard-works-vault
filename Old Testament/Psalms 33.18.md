@@ -1,6 +1,6 @@
 # Psalms 33:18
 
-> Behold, the <u>eye</u>[^a] of the Lord is upon them that fear him, upon them that hope in his mercy;
+> Behold, the <u>eye</u>[^a] of the LORD *is* upon them that fear him, upon them that hope in his mercy;
 
 [Psalms 33:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.18?lang=eng#p18)
 

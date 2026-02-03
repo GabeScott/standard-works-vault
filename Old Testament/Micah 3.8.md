@@ -1,6 +1,6 @@
 # Micah 3:8
 
-> ¶ But truly I am full of <u>power</u>[^a] by the <u>spirit</u>[^b] of the Lord , and of judgment, and of might, to declare unto Jacob his <u>transgression</u>[^c], and to Israel his sin.
+> ¶ But truly I am full of <u>power</u>[^a] by the <u>spirit</u>[^b] of the LORD, and of judgment, and of might, to declare unto Jacob his <u>transgression</u>[^c], and to Israel his sin.
 
 [Micah 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/3.8?lang=eng#p8)
 

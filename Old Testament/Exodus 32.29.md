@@ -1,6 +1,6 @@
 # Exodus 32:29
 
-> For Moses had said, <u>Consecrate</u>[^a] yourselves to day to the Lord , even every man upon his <u>son</u>[^b], and upon his brother; that he may bestow upon you a <u>blessing</u>[^c] this day.
+> For Moses had said, <u>Consecrate</u>[^a] yourselves to day to the LORD, even every man upon his <u>son</u>[^b], and upon his brother; that he may bestow upon you a <u>blessing</u>[^c] this day.
 
 [Exodus 32:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.29?lang=eng#p29)
 

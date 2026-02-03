@@ -1,6 +1,6 @@
 # Leviticus 25:55
 
-> For unto me the children of Israel are <u>servants</u>[^a]; they are my servants whom I brought forth out of the land of Egypt: I am the Lord your God.
+> For unto me the children of Israel *are* <u>servants</u>[^a]; they *are* my servants whom I brought forth out of the land of Egypt: I *am* the LORD your God.
 
 [Leviticus 25:55](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.55?lang=eng#p55)
 

@@ -1,6 +1,6 @@
 # Isaiah 45:11
 
-> Thus saith the Lord , the Holy One of Israel, and his Maker, Ask me of things to come concerning my <u>sons</u>[^a], and concerning the <u>work</u>[^b] of my hands <u>command ye me</u>[^c] .
+> Thus saith the LORD, the Holy One of Israel, and his Maker, Ask me of things to come concerning my <u>sons</u>[^a], and concerning the <u>work</u>[^b] of my hands <u>command ye me</u>[^c].
 
 [Isaiah 45:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.11?lang=eng#p11)
 

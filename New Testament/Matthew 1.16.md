@@ -1,6 +1,6 @@
 # Matthew 1:16
 
-> And Jacob begat <u>Joseph</u>[^a] the husband of <u>Mary</u>[^b], of whom was born <u>Jesus</u>[^c], <u>who</u>[^d] is called <u>Christ</u>[^e] .
+> And Jacob begat <u>Joseph</u>[^a] the husband of <u>Mary</u>[^b], of whom was born <u>Jesus</u>[^c], <u>who</u>[^d] is called <u>Christ</u>[^e].
 
 [Matthew 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.16?lang=eng#p16)
 

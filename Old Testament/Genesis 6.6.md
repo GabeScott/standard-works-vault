@@ -1,6 +1,6 @@
 # Genesis 6:6
 
-> <u>And</u>[^a] it repented the Lord that he had made man on the earth, and it <u>grieved</u>[^b] him at his heart.
+> <u>And</u>[^a] it repented the LORD that he had made man on the earth, and it <u>grieved</u>[^b] him at his heart.
 
 [Genesis 6:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.6?lang=eng#p6)
 

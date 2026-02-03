@@ -1,6 +1,6 @@
 # Psalms 139:1
 
-> O Lord , thou hast <u>searched</u>[^a] me, and <u>known</u>[^b] me.
+> O LORD, thou hast <u>searched</u>[^a] me, and <u>known</u>[^b] *me.*
 
 [Psalms 139:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/139.1?lang=eng#p1)
 

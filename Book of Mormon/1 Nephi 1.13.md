@@ -1,6 +1,6 @@
 # 1 Nephi 1:13
 
-> And he read, saying: Wo, wo, unto Jerusalem, for I have seen thine <u>abominations</u>[^a] ! Yea, and many things did my father read concerning <u>Jerusalem</u>[^b] —that it should be destroyed, and the inhabitants thereof; many should perish by the sword, and many should be <u>carried away</u>[^c] captive into Babylon.
+> And he read, saying: Wo, wo, unto Jerusalem, for I have seen thine <u>abominations</u>[^a]! Yea, and many things did my father read concerning <u>Jerusalem</u>[^b]—that it should be destroyed, and the inhabitants thereof; many should perish by the sword, and many should be <u>carried away</u>[^c] captive into Babylon.
 
 [1 Nephi 1:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p13#p13)
 

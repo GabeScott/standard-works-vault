@@ -1,6 +1,6 @@
 # Exodus 34:14
 
-> For thou shalt worship <u>no</u>[^a] other <u>god</u>[^b] : for the Lord , whose name is <u>Jealous</u>[^c], is a <u>jealous</u>[^d] God:
+> For thou shalt worship <u>no</u>[^a] other <u>god</u>[^b]: for the LORD, whose name *is* <u>Jealous</u>[^c], *is* a <u>jealous</u>[^d] God:
 
 [Exodus 34:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.14?lang=eng#p14)
 

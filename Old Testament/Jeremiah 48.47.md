@@ -1,6 +1,6 @@
 # Jeremiah 48:47
 
-> ¶ Yet will I <u>bring again</u>[^a] the captivity of <u>Moab</u>[^b] in the latter days, saith the Lord . Thus far is the judgment of Moab.
+> ¶ Yet will I <u>bring again</u>[^a] the captivity of <u>Moab</u>[^b] in the latter days, saith the LORD. Thus far *is* the judgment of Moab.
 
 [Jeremiah 48:47](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.47?lang=eng#p47)
 

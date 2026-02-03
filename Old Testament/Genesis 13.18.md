@@ -1,6 +1,6 @@
 # Genesis 13:18
 
-> Then Abram removed his tent, and came and dwelt <u>in the plain</u>[^a] of Mamre, which is in <u>Hebron</u>[^b], and built there an <u>altar</u>[^c] unto the Lord .
+> Then Abram removed *his* tent, and came and dwelt <u>in the plain</u>[^a] of Mamre, which *is* in <u>Hebron</u>[^b], and built there an <u>altar</u>[^c] unto the LORD.
 
 [Genesis 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/13.18?lang=eng#p18)
 

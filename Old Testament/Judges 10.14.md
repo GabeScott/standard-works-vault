@@ -1,6 +1,6 @@
 # Judges 10:14
 
-> <u>Go</u>[^a] and cry unto the <u>gods</u>[^b] which ye have <u>chosen</u>[^c]; let them deliver you in the time of your <u>tribulation</u>[^d] .
+> <u>Go</u>[^a] and cry unto the <u>gods</u>[^b] which ye have <u>chosen</u>[^c]; let them deliver you in the time of your <u>tribulation</u>[^d].
 
 [Judges 10:14](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/10.14?lang=eng#p14)
 

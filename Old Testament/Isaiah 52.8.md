@@ -1,6 +1,6 @@
 # Isaiah 52:8
 
-> Thy <u>watchmen</u>[^a] shall lift up the voice; with the voice together shall they sing: for they shall <u>see</u>[^b] eye to eye, when the Lord <u>shall bring again</u>[^c] <u>Zion</u>[^d] .
+> Thy <u>watchmen</u>[^a] shall lift up the voice; with the voice together shall they sing: for they shall <u>see</u>[^b] eye to eye, when the LORD <u>shall bring again</u>[^c] <u>Zion</u>[^d].
 
 [Isaiah 52:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.8?lang=eng#p8)
 

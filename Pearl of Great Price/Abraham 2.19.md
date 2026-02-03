@@ -1,6 +1,6 @@
 # Abraham 2:19
 
-> And the Lord <u>appeared</u>[^a] unto me in answer to my prayers, and said unto me: Unto thy seed will I give this <u>land</u>[^b] .
+> And the Lord <u>appeared</u>[^a] unto me in answer to my prayers, and said unto me: Unto thy seed will I give this <u>land</u>[^b].
 
 [Abraham 2:19](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/2.19?lang=eng#p19)
 

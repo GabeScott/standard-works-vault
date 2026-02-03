@@ -1,6 +1,6 @@
 # Exodus 10:21
 
-> ¶ And the Lord said unto Moses, Stretch out thine hand toward heaven, that there may be <u>darkness</u>[^a] over the land of Egypt, even darkness which may be <u>felt</u>[^b] .
+> ¶ And the LORD said unto Moses, Stretch out thine hand toward heaven, that there may be <u>darkness</u>[^a] over the land of Egypt, even darkness *which* may be <u>felt</u>[^b].
 
 [Exodus 10:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.21?lang=eng#p21)
 

@@ -1,6 +1,6 @@
 # Isaiah 53:3
 
-> He is <u>despised</u>[^a] and rejected of men; a man of <u>sorrows</u>[^b], and acquainted with grief: and we hid as it were our faces from him; he was despised, and we <u>esteemed</u>[^c] him not.
+> He is <u>despised</u>[^a] and rejected of men; a man of <u>sorrows</u>[^b], and acquainted with grief: and we hid as it were *our* faces from him; he was despised, and we <u>esteemed</u>[^c] him not.
 
 [Isaiah 53:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.3?lang=eng#p3)
 

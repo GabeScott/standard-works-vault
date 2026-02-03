@@ -1,6 +1,6 @@
 # Mosiah 29:18
 
-> Yea, remember king Noah, his <u>wickedness</u>[^a] and his abominations, and also the wickedness and abominations of his people. Behold what great destruction did come upon them; and also because of their iniquities they were brought into <u>bondage</u>[^b] .
+> Yea, remember king Noah, his <u>wickedness</u>[^a] and his abominations, and also the wickedness and abominations of his people. Behold what great destruction did come upon them; and also because of their iniquities they were brought into <u>bondage</u>[^b].
 
 [Mosiah 29:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p18#p18)
 

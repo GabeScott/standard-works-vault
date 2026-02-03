@@ -1,6 +1,6 @@
 # John 8:28
 
-> Then said Jesus unto them, When ye have lifted up the Son of man, then shall ye know that I am he, and that I do <u>nothing</u>[^a] of myself; but as my <u>Father</u>[^b] hath <u>taught</u>[^c] me, I <u>speak</u>[^d] these things.
+> Then said Jesus unto them, When ye have lifted up the Son of man, then shall ye know that I am *he,* and *that* I do <u>nothing</u>[^a] of myself; but as my <u>Father</u>[^b] hath <u>taught</u>[^c] me, I <u>speak</u>[^d] these things.
 
 [John 8:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.28?lang=eng#p28)
 

@@ -1,6 +1,6 @@
 # Isaiah 47:3
 
-> Thy nakedness shall be uncovered, yea, thy shame shall be seen: I will take vengeance, and <u>I</u>[^a] will not meet thee as a man.
+> Thy nakedness shall be uncovered, yea, thy shame shall be seen: I will take vengeance, and <u>I</u>[^a] will not meet *thee as* a man.
 
 [Isaiah 47:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.3?lang=eng#p3)
 

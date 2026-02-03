@@ -1,6 +1,6 @@
 # Genesis 10:10
 
-> And the beginning of his kingdom was <u>Babel</u>[^a], and Erech, and Accad, and Calneh, in the land of <u>Shinar</u>[^b] .
+> And the beginning of his kingdom was <u>Babel</u>[^a], and Erech, and Accad, and Calneh, in the land of <u>Shinar</u>[^b].
 
 [Genesis 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 9:13
 
-> Furthermore the Lord spake unto me, saying, I have seen this people, and, behold, it is a <u>stiffnecked</u>[^a] people:
+> Furthermore the LORD spake unto me, saying, I have seen this people, and, behold, it *is* a <u>stiffnecked</u>[^a] people:
 
 [Deuteronomy 9:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.13?lang=eng#p13)
 

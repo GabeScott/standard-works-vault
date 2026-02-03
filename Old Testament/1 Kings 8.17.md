@@ -1,6 +1,6 @@
 # 1 Kings 8:17
 
-> And it was in the heart of David my father to build an <u>house</u>[^a] for the name of the Lord God of Israel.
+> And it was in the heart of David my father to build an <u>house</u>[^a] for the name of the LORD God of Israel.
 
 [1 Kings 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.17?lang=eng#p17)
 

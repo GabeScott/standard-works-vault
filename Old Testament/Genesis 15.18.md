@@ -1,6 +1,6 @@
 # Genesis 15:18
 
-> In the same day the Lord made a <u>covenant</u>[^a] with Abram, saying, Unto thy seed have I given this <u>land</u>[^b], from <u>the river of Egypt</u>[^c] unto the great river, the river <u>Euphrates</u>[^d] :
+> In the same day the LORD made a <u>covenant</u>[^a] with Abram, saying, Unto thy seed have I given this <u>land</u>[^b], from <u>the river of Egypt</u>[^c] unto the great river, the river <u>Euphrates</u>[^d]:
 
 [Genesis 15:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.18?lang=eng#p18)
 

@@ -1,6 +1,6 @@
 # Luke 22:63
 
-> ¶ And the men that held Jesus <u>mocked</u>[^a] him, and smote him.
+> ¶ And the men that held Jesus <u>mocked</u>[^a] him, and smote *him.*
 
 [Luke 22:63](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.63?lang=eng#p63)
 

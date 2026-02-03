@@ -1,6 +1,6 @@
 # Matthew 24:24
 
-> For there shall arise <u>false</u>[^a] <u>Christs</u>[^b], and <u>false prophets</u>[^c], and shall shew great <u>signs</u>[^d] and wonders; insomuch that, if it were possible, they shall <u>deceive</u>[^e] the very <u>elect</u>[^f] .
+> For there shall arise <u>false</u>[^a] <u>Christs</u>[^b], and <u>false prophets</u>[^c], and shall shew great <u>signs</u>[^d] and wonders; insomuch that, if *it were* possible, they shall <u>deceive</u>[^e] the very <u>elect</u>[^f].
 
 [Matthew 24:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.24?lang=eng#p24)
 

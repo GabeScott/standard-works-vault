@@ -1,6 +1,6 @@
 # Psalms 80:8
 
-> Thou hast brought a <u>vine</u>[^a] out of <u>Egypt</u>[^b] : thou hast <u>cast out</u>[^c] the heathen, and planted it.
+> Thou hast brought a <u>vine</u>[^a] out of <u>Egypt</u>[^b]: thou hast <u>cast out</u>[^c] the heathen, and planted it.
 
 [Psalms 80:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/80.8?lang=eng#p8)
 

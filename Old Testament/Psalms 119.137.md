@@ -1,6 +1,6 @@
 # Psalms 119:137
 
-> <u>Righteous</u>[^a] art thou, O Lord , and upright are thy judgments.
+> <u>Righteous</u>[^a] *art* thou, O LORD, and upright *are* thy judgments.
 
 [Psalms 119:137](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.137?lang=eng#p137)
 

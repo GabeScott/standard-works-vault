@@ -1,6 +1,6 @@
 # Proverbs 3:7
 
-> ¶ Be not <u>wise</u>[^a] in thine own eyes: <u>fear</u>[^b] the Lord , and depart from evil.
+> ¶ Be not <u>wise</u>[^a] in thine own eyes: <u>fear</u>[^b] the LORD, and depart from evil.
 
 [Proverbs 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.7?lang=eng#p7)
 

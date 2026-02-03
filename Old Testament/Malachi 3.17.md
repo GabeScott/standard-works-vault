@@ -1,6 +1,6 @@
 # Malachi 3:17
 
-> And they shall be <u>mine</u>[^a], saith the Lord of hosts, in that day when I make up my <u>jewels</u>[^b]; and I will <u>spare</u>[^c] them, as a man spareth his own son that serveth him.
+> And they shall be <u>mine</u>[^a], saith the LORD of hosts, in that day when I make up my <u>jewels</u>[^b]; and I will <u>spare</u>[^c] them, as a man spareth his own son that serveth him.
 
 [Malachi 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.17?lang=eng#p17)
 

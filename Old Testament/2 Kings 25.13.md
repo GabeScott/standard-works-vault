@@ -1,6 +1,6 @@
 # 2 Kings 25:13
 
-> And the <u>pillars</u>[^a] of brass that were in the house of the Lord , and the <u>bases</u>[^b], and the brasen <u>sea</u>[^c] that was in the house of the Lord , did the Chaldees break in pieces, and carried the brass of them to <u>Babylon</u>[^d] .
+> And the <u>pillars</u>[^a] of brass that *were* in the house of the LORD, and the <u>bases</u>[^b], and the brasen <u>sea</u>[^c] that *was* in the house of the LORD, did the Chaldees break in pieces, and carried the brass of them to <u>Babylon</u>[^d].
 
 [2 Kings 25:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Helaman 8:25
 
-> But behold, ye have rejected the truth, and <u>rebelled</u>[^a] against your holy God; and even at this time, instead of laying up for yourselves <u>treasures</u>[^b] in heaven, where nothing doth corrupt, and where nothing can come which is unclean, ye are heaping up for yourselves wrath against the day of <u>judgment</u>[^c] .
+> But behold, ye have rejected the truth, and <u>rebelled</u>[^a] against your holy God; and even at this time, instead of laying up for yourselves <u>treasures</u>[^b] in heaven, where nothing doth corrupt, and where nothing can come which is unclean, ye are heaping up for yourselves wrath against the day of <u>judgment</u>[^c].
 
 [Helaman 8:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p25#p25)
 

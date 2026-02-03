@@ -1,6 +1,6 @@
 # Acts 22:21
 
-> And he said unto me, Depart: for I will send thee far hence unto the <u>Gentiles</u>[^a] .
+> And he said unto me, Depart: for I will send thee far hence unto the <u>Gentiles</u>[^a].
 
 [Acts 22:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.21?lang=eng#p21)
 

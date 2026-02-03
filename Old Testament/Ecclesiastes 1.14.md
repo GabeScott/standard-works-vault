@@ -1,6 +1,6 @@
 # Ecclesiastes 1:14
 
-> I have seen all the works that are done under the sun; and, behold, all is <u>vanity</u>[^a] and <u>vexation of spirit</u>[^b] .
+> I have seen all the works that are done under the sun; and, behold, all *is* <u>vanity</u>[^a] and <u>vexation of spirit</u>[^b].
 
 [Ecclesiastes 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.14?lang=eng#p14)
 

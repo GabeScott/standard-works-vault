@@ -1,6 +1,6 @@
 # Proverbs 3:5
 
-> ¶ <u>Trust</u>[^a] in the Lord with all thine <u>heart</u>[^b]; and lean not unto thine <u>own</u>[^c] <u>understanding</u>[^d] .
+> ¶ <u>Trust</u>[^a] in the LORD with all thine <u>heart</u>[^b]; and lean not unto thine <u>own</u>[^c] <u>understanding</u>[^d].
 
 [Proverbs 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.5?lang=eng#p5)
 

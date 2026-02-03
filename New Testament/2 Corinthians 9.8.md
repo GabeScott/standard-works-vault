@@ -1,6 +1,6 @@
 # 2 Corinthians 9:8
 
-> And God is able to make all <u>grace</u>[^a] abound toward you; that ye, always having all sufficiency in all things, may abound to every good work:
+> And God *is* able to make all <u>grace</u>[^a] abound toward you; that ye, always having all sufficiency in all *things,* may abound to every good work:
 
 [2 Corinthians 9:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/9.8?lang=eng#p8)
 

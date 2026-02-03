@@ -1,6 +1,6 @@
 # 1 Samuel 25:43
 
-> David also took <u>Ahinoam</u>[^a] of Jezreel; and they were also both of them his <u>wives</u>[^b] .
+> David also took <u>Ahinoam</u>[^a] of Jezreel; and they were also both of them his <u>wives</u>[^b].
 
 [1 Samuel 25:43](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.43?lang=eng#p43)
 

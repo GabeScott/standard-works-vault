@@ -1,6 +1,6 @@
 # Isaiah 51:2
 
-> Look unto <u>Abraham</u>[^a] your <u>father</u>[^b], and unto Sarah that bare you: for I called him <u>alone</u>[^c], and <u>blessed</u>[^d] him, and increased him.
+> Look unto <u>Abraham</u>[^a] your <u>father</u>[^b], and unto Sarah *that* bare you: for I called him <u>alone</u>[^c], and <u>blessed</u>[^d] him, and increased him.
 
 [Isaiah 51:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.2?lang=eng#p2)
 

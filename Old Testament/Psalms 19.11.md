@@ -1,6 +1,6 @@
 # Psalms 19:11
 
-> Moreover by them is thy servant <u>warned</u>[^a] : and in <u>keeping</u>[^b] of them there is great reward.
+> Moreover by them is thy servant <u>warned</u>[^a]: *and* in <u>keeping</u>[^b] of them *there is* great reward.
 
 [Psalms 19:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.11?lang=eng#p11)
 

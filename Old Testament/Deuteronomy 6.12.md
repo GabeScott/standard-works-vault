@@ -1,6 +1,6 @@
 # Deuteronomy 6:12
 
-> Then beware lest thou <u>forget</u>[^a] the Lord , which brought thee forth out of the land of Egypt, from the house of bondage.
+> *Then* beware lest thou <u>forget</u>[^a] the LORD, which brought thee forth out of the land of Egypt, from the house of bondage.
 
 [Deuteronomy 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.12?lang=eng#p12)
 

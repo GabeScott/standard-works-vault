@@ -1,6 +1,6 @@
 # 2 Kings 21:6
 
-> And he made his son pass through the <u>fire</u>[^a], and observed times, and used <u>enchantments</u>[^b], and dealt with <u>familiar spirits</u>[^c] and wizards: he wrought much wickedness in the sight of the Lord , to provoke him to anger.
+> And he made his son pass through the <u>fire</u>[^a], and observed times, and used <u>enchantments</u>[^b], and dealt with <u>familiar spirits</u>[^c] and wizards: he wrought much wickedness in the sight of the LORD, to provoke *him* to anger.
 
 [2 Kings 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.6?lang=eng#p6)
 

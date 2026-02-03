@@ -1,6 +1,6 @@
 # Genesis 15:16
 
-> But in the <u>fourth</u>[^a] generation they shall come <u>hither</u>[^b] again: for the iniquity of the Amorites is not yet <u>full</u>[^c] .
+> But in the <u>fourth</u>[^a] generation they shall come <u>hither</u>[^b] again: for the iniquity of the Amorites *is* not yet <u>full</u>[^c].
 
 [Genesis 15:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 10:8
 
-> ¶ At that time the Lord <u>separated</u>[^a] the tribe of <u>Levi</u>[^b], to <u>bear</u>[^c] the ark of the covenant of the Lord , to stand before the Lord to minister unto him, and to <u>bless</u>[^d] in his name, unto this day.
+> ¶ At that time the LORD <u>separated</u>[^a] the tribe of <u>Levi</u>[^b], to <u>bear</u>[^c] the ark of the covenant of the LORD, to stand before the LORD to minister unto him, and to <u>bless</u>[^d] in his name, unto this day.
 
 [Deuteronomy 10:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.8?lang=eng#p8)
 

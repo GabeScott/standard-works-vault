@@ -1,6 +1,6 @@
 # Acts 2:38
 
-> Then Peter <u>said</u>[^a] unto them, <u>Repent</u>[^b], and be <u>baptized</u>[^c] every one of you in the <u>name</u>[^d] of Jesus Christ for the <u>remission</u>[^e] of sins, and ye shall receive the <u>gift</u>[^f] of the <u>Holy Ghost</u>[^g] .
+> Then Peter <u>said</u>[^a] unto them, <u>Repent</u>[^b], and be <u>baptized</u>[^c] every one of you in the <u>name</u>[^d] of Jesus Christ for the <u>remission</u>[^e] of sins, and ye shall receive the <u>gift</u>[^f] of the <u>Holy Ghost</u>[^g].
 
 [Acts 2:38](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.38?lang=eng#p38)
 

@@ -1,6 +1,6 @@
 # Acts 10:34
 
-> ¶ Then Peter opened his mouth, and said, Of a truth I perceive that God is no <u>respecter</u>[^a] of persons:
+> ¶ Then Peter opened *his* mouth, and said, Of a truth I perceive that God is no <u>respecter</u>[^a] of persons:
 
 [Acts 10:34](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.34?lang=eng#p34)
 

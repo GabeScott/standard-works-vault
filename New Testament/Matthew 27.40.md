@@ -1,6 +1,6 @@
 # Matthew 27:40
 
-> And saying, Thou that destroyest the <u>temple</u>[^a], and buildest it in three days, save thyself. If thou be the <u>Son of God</u>[^b], come down from the cross.
+> And saying, Thou that destroyest the <u>temple</u>[^a], and buildest *it* in three days, save thyself. If thou be the <u>Son of God</u>[^b], come down from the cross.
 
 [Matthew 27:40](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.40?lang=eng#p40)
 

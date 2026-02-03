@@ -1,6 +1,6 @@
 # Psalms 47:8
 
-> God reigneth over the <u>heathen</u>[^a] : God <u>sitteth</u>[^b] upon the <u>throne</u>[^c] of his holiness.
+> God reigneth over the <u>heathen</u>[^a]: God <u>sitteth</u>[^b] upon the <u>throne</u>[^c] of his holiness.
 
 [Psalms 47:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/47.8?lang=eng#p8)
 

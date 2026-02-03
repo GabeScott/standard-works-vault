@@ -1,6 +1,6 @@
 # Isaiah 51:10
 
-> Art thou not it which hath <u>dried</u>[^a] the sea, the waters of the great deep; that hath made the depths of the sea a <u>way</u>[^b] for the <u>ransomed</u>[^c] to pass over?
+> *Art* thou not it which hath <u>dried</u>[^a] the sea, the waters of the great deep; that hath made the depths of the sea a <u>way</u>[^b] for the <u>ransomed</u>[^c] to pass over?
 
 [Isaiah 51:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.10?lang=eng#p10)
 

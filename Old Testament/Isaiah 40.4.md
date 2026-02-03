@@ -1,6 +1,6 @@
 # Isaiah 40:4
 
-> Every <u>valley</u>[^a] shall be <u>exalted</u>[^b], and every <u>mountain</u>[^c] and hill shall be made <u>low</u>[^d] : and the <u>crooked</u>[^e] shall be made straight, and <u>the rough places plain</u>[^f] :
+> Every <u>valley</u>[^a] shall be <u>exalted</u>[^b], and every <u>mountain</u>[^c] and hill shall be made <u>low</u>[^d]: and the <u>crooked</u>[^e] shall be made straight, and <u>the rough places plain</u>[^f]:
 
 [Isaiah 40:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.4?lang=eng#p4)
 

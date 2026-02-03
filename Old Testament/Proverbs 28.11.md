@@ -1,6 +1,6 @@
 # Proverbs 28:11
 
-> The rich man is wise in his own conceit; but the <u>poor</u>[^a] that hath understanding searcheth him out.
+> The rich man *is* wise in his own conceit; but the <u>poor</u>[^a] that hath understanding searcheth him out.
 
 [Proverbs 28:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.11?lang=eng#p11)
 

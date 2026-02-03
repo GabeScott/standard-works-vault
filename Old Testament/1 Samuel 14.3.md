@@ -1,6 +1,6 @@
 # 1 Samuel 14:3
 
-> And Ahiah, the son of Ahitub, I-chabod’s brother, the son of Phinehas, the son of Eli, the Lord ’s priest in Shiloh, wearing an <u>ephod</u>[^a] . And the people knew not that Jonathan was gone.
+> And Ahiah, the son of Ahitub, I-chabod’s brother, the son of Phinehas, the son of Eli, the LORD’s priest in Shiloh, wearing an <u>ephod</u>[^a]. And the people knew not that Jonathan was gone.
 
 [1 Samuel 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # D&C 1:7
 
-> Wherefore, <u>fear</u>[^a] and <u>tremble</u>[^b], O ye people, for what I the Lord have <u>decreed</u>[^c] in them shall be <u>fulfilled</u>[^d] .
+> Wherefore, <u>fear</u>[^a] and <u>tremble</u>[^b], O ye people, for what I the Lord have <u>decreed</u>[^c] in them shall be <u>fulfilled</u>[^d].
 
 [D&C 1:7](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.7?lang=eng#p7)
 

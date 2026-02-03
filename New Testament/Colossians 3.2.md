@@ -1,6 +1,6 @@
 # Colossians 3:2
 
-> Set your <u>affection</u>[^a] on <u>things</u>[^b] <u>above</u>[^c], not on things on the <u>earth</u>[^d] .
+> Set your <u>affection</u>[^a] on <u>things</u>[^b] <u>above</u>[^c], not on things on the <u>earth</u>[^d].
 
 [Colossians 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.2?lang=eng#p2)
 

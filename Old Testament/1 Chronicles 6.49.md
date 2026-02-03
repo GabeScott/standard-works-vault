@@ -1,6 +1,6 @@
 # 1 Chronicles 6:49
 
-> ¶ But <u>Aaron</u>[^a] and his <u>sons</u>[^b] offered upon the altar of the burnt offering, and on the altar of incense, and were appointed for all the work of the place most holy, and to make an <u>atonement</u>[^c] for Israel, according to all that Moses the <u>servant</u>[^d] of God had commanded.
+> ¶ But <u>Aaron</u>[^a] and his <u>sons</u>[^b] offered upon the altar of the burnt offering, and on the altar of incense, *and were appointed* for all the work of the *place* most holy, and to make an <u>atonement</u>[^c] for Israel, according to all that Moses the <u>servant</u>[^d] of God had commanded.
 
 [1 Chronicles 6:49](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/6.49?lang=eng#p49)
 

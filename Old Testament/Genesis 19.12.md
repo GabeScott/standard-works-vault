@@ -1,6 +1,6 @@
 # Genesis 19:12
 
-> ¶ And <u>the men</u>[^a] said unto Lot, Hast thou here any besides? son in law, and thy sons, and thy daughters, and whatsoever thou hast in the city, <u>bring</u>[^b] them out of this place:
+> ¶ And <u>the men</u>[^a] said unto Lot, Hast thou here any besides? son in law, and thy sons, and thy daughters, and whatsoever thou hast in the city, <u>bring</u>[^b] *them* out of this place:
 
 [Genesis 19:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.12?lang=eng#p12)
 

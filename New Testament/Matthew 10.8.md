@@ -1,6 +1,6 @@
 # Matthew 10:8
 
-> <u>Heal</u>[^a] the sick, cleanse the <u>lepers</u>[^b], raise the dead, <u>cast out</u>[^c] devils: <u>freely</u>[^d] ye have received, freely <u>give</u>[^e] .
+> <u>Heal</u>[^a] the sick, cleanse the <u>lepers</u>[^b], raise the dead, <u>cast out</u>[^c] devils: <u>freely</u>[^d] ye have received, freely <u>give</u>[^e].
 
 [Matthew 10:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Leviticus 2:1
 
-> And when any will offer <u>a meat offering</u>[^a] unto the Lord , his offering shall be of fine flour; and he shall pour oil upon it, and put <u>frankincense</u>[^b] thereon:
+> And when any will offer <u>a meat offering</u>[^a] unto the LORD, his offering shall be *of* fine flour; and he shall pour oil upon it, and put <u>frankincense</u>[^b] thereon:
 
 [Leviticus 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/2.1?lang=eng#p1)
 

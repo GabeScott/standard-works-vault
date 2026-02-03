@@ -1,6 +1,6 @@
 # Isaiah 66:7
 
-> <u>Before</u>[^a] she <u>travailed</u>[^b], she brought forth; before her pain came, she was delivered of a man <u>child</u>[^c] .
+> <u>Before</u>[^a] she <u>travailed</u>[^b], she brought forth; before her pain came, she was delivered of a man <u>child</u>[^c].
 
 [Isaiah 66:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.7?lang=eng#p7)
 

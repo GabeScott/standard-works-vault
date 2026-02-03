@@ -1,6 +1,6 @@
 # Luke 23:31
 
-> For if they do these things in a <u>green tree</u>[^a], what shall be done in the <u>dry</u>[^b] ?
+> For if they do these things in a <u>green tree</u>[^a], what shall be done in the <u>dry</u>[^b]?
 
 [Luke 23:31](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.31?lang=eng#p31)
 

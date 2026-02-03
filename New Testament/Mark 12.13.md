@@ -1,6 +1,6 @@
 # Mark 12:13
 
-> ¶ And they send unto him certain of the Pharisees and of the Herodians, to <u>catch</u>[^a] him in his words.
+> ¶ And they send unto him certain of the Pharisees and of the Herodians, to <u>catch</u>[^a] him in *his* words.
 
 [Mark 12:13](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.13?lang=eng#p13)
 

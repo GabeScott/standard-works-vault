@@ -1,6 +1,6 @@
 # Mark 14:36
 
-> And he said, Abba, Father, all things are possible unto thee; <u>take away</u>[^a] this <u>cup</u>[^b] from me: nevertheless not what I will, but what thou wilt.
+> And he said, Abba, Father, all things *are* possible unto thee; <u>take away</u>[^a] this <u>cup</u>[^b] from me: nevertheless not what I will, but what thou wilt.
 
 [Mark 14:36](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.36?lang=eng#p36)
 

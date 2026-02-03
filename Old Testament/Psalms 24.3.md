@@ -1,6 +1,6 @@
 # Psalms 24:3
 
-> Who shall <u>ascend</u>[^a] into the hill of the Lord ? or who shall stand in his <u>holy place</u>[^b] ?
+> Who shall <u>ascend</u>[^a] into the hill of the LORD? or who shall stand in his <u>holy place</u>[^b]?
 
 [Psalms 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/24.3?lang=eng#p3)
 

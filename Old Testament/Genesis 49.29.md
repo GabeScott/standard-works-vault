@@ -1,6 +1,6 @@
 # Genesis 49:29
 
-> And he charged them, and said unto them, I am to be gathered unto my <u>people</u>[^a] : <u>bury</u>[^b] me with my fathers in the cave that is in the field of Ephron the Hittite,
+> And he charged them, and said unto them, I am to be gathered unto my <u>people</u>[^a]: <u>bury</u>[^b] me with my fathers in the cave that *is* in the field of Ephron the Hittite,
 
 [Genesis 49:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.29?lang=eng#p29)
 

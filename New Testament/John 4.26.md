@@ -1,6 +1,6 @@
 # John 4:26
 
-> Jesus saith unto her, <u>I</u>[^a] that speak unto thee am he.
+> Jesus saith unto her, <u>I</u>[^a] that speak unto thee am *he.*
 
 [John 4:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.26?lang=eng#p26)
 

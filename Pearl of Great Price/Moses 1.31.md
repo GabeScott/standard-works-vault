@@ -1,6 +1,6 @@
 # Moses 1:31
 
-> And behold, the glory of the Lord was upon Moses, so that Moses stood in the presence of God, and talked with him <u>face to face</u>[^a] . And the Lord God said unto Moses: For mine own <u>purpose</u>[^b] have I made these things. Here is <u>wisdom</u>[^c] and it remaineth in me.
+> And behold, the glory of the Lord was upon Moses, so that Moses stood in the presence of God, and talked with him <u>face to face</u>[^a]. And the Lord God said unto Moses: For mine own <u>purpose</u>[^b] have I made these things. Here is <u>wisdom</u>[^c] and it remaineth in me.
 
 [Moses 1:31](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.31?lang=eng#p31)
 

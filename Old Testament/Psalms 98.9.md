@@ -1,6 +1,6 @@
 # Psalms 98:9
 
-> Before the Lord ; for he cometh to <u>judge</u>[^a] the earth: with righteousness shall he judge the <u>world</u>[^b], and the people with equity.
+> Before the LORD; for he cometh to <u>judge</u>[^a] the earth: with righteousness shall he judge the <u>world</u>[^b], and the people with equity.
 
 [Psalms 98:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/98.9?lang=eng#p9)
 

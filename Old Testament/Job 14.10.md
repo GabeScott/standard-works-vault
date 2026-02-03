@@ -1,6 +1,6 @@
 # Job 14:10
 
-> But man <u>dieth</u>[^a], and wasteth away: yea, man giveth up the ghost, and where is he?
+> But man <u>dieth</u>[^a], and wasteth away: yea, man giveth up the ghost, and where *is* he?
 
 [Job 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/job/14.10?lang=eng#p10)
 

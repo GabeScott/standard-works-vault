@@ -1,6 +1,6 @@
 # Psalms 65:2
 
-> O thou that hearest prayer, unto thee shall <u>all</u>[^a] flesh <u>come</u>[^b] .
+> O thou that hearest prayer, unto thee shall <u>all</u>[^a] flesh <u>come</u>[^b].
 
 [Psalms 65:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/65.2?lang=eng#p2)
 

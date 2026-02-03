@@ -1,6 +1,6 @@
 # Numbers 31:50
 
-> We have therefore brought an <u>oblation</u>[^a] for the Lord , what every man hath gotten, of <u>jewels</u>[^b] of gold, chains, and bracelets, rings, earrings, and tablets, to make an <u>atonement</u>[^c] for our souls before the Lord .
+> We have therefore brought an <u>oblation</u>[^a] for the LORD, what every man hath gotten, of <u>jewels</u>[^b] of gold, chains, and bracelets, rings, earrings, and tablets, to make an <u>atonement</u>[^c] for our souls before the LORD.
 
 [Numbers 31:50](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.50?lang=eng#p50)
 

@@ -1,6 +1,6 @@
 # 2 Nephi 1:18
 
-> Or, that a <u>cursing</u>[^a] should come upon you for the space of <u>many generations</u>[^b]; and ye are visited by sword, and by famine, and are hated, and are led according to the will and captivity of the <u>devil</u>[^c] .
+> Or, that a <u>cursing</u>[^a] should come upon you for the space of <u>many generations</u>[^b]; and ye are visited by sword, and by famine, and are hated, and are led according to the will and captivity of the <u>devil</u>[^c].
 
 [2 Nephi 1:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p18#p18)
 

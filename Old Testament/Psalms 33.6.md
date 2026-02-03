@@ -1,6 +1,6 @@
 # Psalms 33:6
 
-> By the <u>word</u>[^a] of the Lord were the <u>heavens</u>[^b] made; and all the host of them by the breath of his mouth.
+> By the <u>word</u>[^a] of the LORD were the <u>heavens</u>[^b] made; and all the host of them by the breath of his mouth.
 
 [Psalms 33:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.6?lang=eng#p6)
 

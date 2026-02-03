@@ -1,6 +1,6 @@
 # Jeremiah 3:17
 
-> At that time they shall call <u>Jerusalem</u>[^a] the throne of the Lord ; and all the <u>nations</u>[^b] shall be <u>gathered</u>[^c] unto it, to the name of the Lord , to Jerusalem: neither shall they walk any more after the <u>imagination</u>[^d] of their evil heart.
+> At that time they shall call <u>Jerusalem</u>[^a] the throne of the LORD; and all the <u>nations</u>[^b] shall be <u>gathered</u>[^c] unto it, to the name of the LORD, to Jerusalem: neither shall they walk any more after the <u>imagination</u>[^d] of their evil heart.
 
 [Jeremiah 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.17?lang=eng#p17)
 

@@ -1,6 +1,6 @@
 # Genesis 2:25
 
-> And they were both <u>naked</u>[^a], the man and his wife, and were not <u>ashamed</u>[^b] .
+> And they were both <u>naked</u>[^a], the man and his wife, and were not <u>ashamed</u>[^b].
 
 [Genesis 2:25](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.25?lang=eng#p25)
 

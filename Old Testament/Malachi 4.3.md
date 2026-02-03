@@ -1,6 +1,6 @@
 # Malachi 4:3
 
-> And ye shall <u>tread</u>[^a] down the wicked; for they shall be ashes under the soles of your feet in the day that I shall do this, saith the Lord of hosts.
+> And ye shall <u>tread</u>[^a] down the wicked; for they shall be ashes under the soles of your feet in the day that I shall do *this,* saith the LORD of hosts.
 
 [Malachi 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/4.3?lang=eng#p3)
 

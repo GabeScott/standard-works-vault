@@ -1,6 +1,6 @@
 # Romans 15:20
 
-> Yea, so have I strived to preach the gospel, not where Christ was named, lest I should build upon another man’s <u>foundation</u>[^a] :
+> Yea, so have I strived to preach the gospel, not where Christ was named, lest I should build upon another man’s <u>foundation</u>[^a]:
 
 [Romans 15:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.20?lang=eng#p20)
 

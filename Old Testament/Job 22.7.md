@@ -1,6 +1,6 @@
 # Job 22:7
 
-> Thou hast not given water to the weary to drink, and thou hast withholden <u>bread</u>[^a] from the <u>hungry</u>[^b] .
+> Thou hast not given water to the weary to drink, and thou hast withholden <u>bread</u>[^a] from the <u>hungry</u>[^b].
 
 [Job 22:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/22.7?lang=eng#p7)
 

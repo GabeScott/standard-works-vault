@@ -1,6 +1,6 @@
 # Deuteronomy 6:14
 
-> Ye shall not go after <u>other</u>[^a] <u>gods</u>[^b], of the gods of the people which are round about you;
+> Ye shall not go after <u>other</u>[^a] <u>gods</u>[^b], of the gods of the people which *are* round about you;
 
 [Deuteronomy 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.14?lang=eng#p14)
 

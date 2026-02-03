@@ -1,6 +1,6 @@
 # Numbers 29:12
 
-> ¶ And on the fifteenth day of the seventh month ye shall have an holy convocation; ye shall do no servile work, and ye shall keep a <u>feast</u>[^a] unto the Lord seven days:
+> ¶ And on the fifteenth day of the seventh month ye shall have an holy convocation; ye shall do no servile work, and ye shall keep a <u>feast</u>[^a] unto the LORD seven days:
 
 [Numbers 29:12](https://www.churchofjesuschrist.org/study/scriptures/ot/num/29.12?lang=eng#p12)
 

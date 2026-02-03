@@ -1,6 +1,6 @@
 # Helaman 14:13
 
-> And if ye <u>believe</u>[^a] on his name ye will repent of all your sins, that thereby ye may have a remission of them through his <u>merits</u>[^b] .
+> And if ye <u>believe</u>[^a] on his name ye will repent of all your sins, that thereby ye may have a remission of them through his <u>merits</u>[^b].
 
 [Helaman 14:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p13#p13)
 

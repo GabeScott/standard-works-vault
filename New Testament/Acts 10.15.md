@@ -1,6 +1,6 @@
 # Acts 10:15
 
-> And the voice spake unto him again the second time, What God hath <u>cleansed</u>[^a], that call not thou <u>common</u>[^b] .
+> And the voice *spake* unto him again the second time, What God hath <u>cleansed</u>[^a], *that* call not thou <u>common</u>[^b].
 
 [Acts 10:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.15?lang=eng#p15)
 

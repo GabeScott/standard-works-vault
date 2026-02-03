@@ -1,6 +1,6 @@
 # Proverbs 6:15
 
-> Therefore shall his calamity come suddenly; suddenly shall he be broken without <u>remedy</u>[^a] .
+> Therefore shall his calamity come suddenly; suddenly shall he be broken without <u>remedy</u>[^a].
 
 [Proverbs 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.15?lang=eng#p15)
 

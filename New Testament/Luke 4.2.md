@@ -1,6 +1,6 @@
 # Luke 4:2
 
-> <u>Being</u>[^a] forty days <u>tempted</u>[^b] of the <u>devil</u>[^c] . And in those days he did eat nothing: and when they were ended, he afterward hungered.
+> <u>Being</u>[^a] forty days <u>tempted</u>[^b] of the <u>devil</u>[^c]. And in those days he did eat nothing: and when they were ended, he afterward hungered.
 
 [Luke 4:2](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.2?lang=eng#p2)
 

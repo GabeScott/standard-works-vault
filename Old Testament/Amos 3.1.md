@@ -1,6 +1,6 @@
 # Amos 3:1
 
-> Hear this word that the Lord hath spoken against you, O children of Israel, against the whole family which I <u>brought up</u>[^a] from the land of Egypt, saying,
+> Hear this word that the LORD hath spoken against you, O children of Israel, against the whole family which I <u>brought up</u>[^a] from the land of Egypt, saying,
 
 [Amos 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.1?lang=eng#p1)
 

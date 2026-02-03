@@ -1,6 +1,6 @@
 # 1 Kings 18:12
 
-> And it shall come to pass, as soon as I am gone from thee, that the Spirit of the Lord shall <u>carry</u>[^a] thee whither I know not; and so when I come and tell Ahab, and he cannot find thee, he shall slay me: but I thy servant fear the Lord from my youth.
+> And it shall come to pass, *as soon as* I am gone from thee, that the Spirit of the LORD shall <u>carry</u>[^a] thee whither I know not; and *so* when I come and tell Ahab, and he cannot find thee, he shall slay me: but I thy servant fear the LORD from my youth.
 
 [1 Kings 18:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.12?lang=eng#p12)
 

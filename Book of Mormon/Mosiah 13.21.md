@@ -1,6 +1,6 @@
 # Mosiah 13:21
 
-> Thou shalt not <u>kill</u>[^a] .
+> Thou shalt not <u>kill</u>[^a].
 
 [Mosiah 13:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p21#p21)
 

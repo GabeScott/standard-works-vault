@@ -1,6 +1,6 @@
 # Ezekiel 36:2
 
-> Thus saith the Lord God ; Because the <u>enemy</u>[^a] hath said against you, Aha, even the ancient high places are ours in <u>possession</u>[^b] :
+> Thus saith the Lord GOD; Because the <u>enemy</u>[^a] hath said against you, Aha, even the ancient high places are ours in <u>possession</u>[^b]:
 
 [Ezekiel 36:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.2?lang=eng#p2)
 

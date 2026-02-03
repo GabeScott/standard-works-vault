@@ -1,6 +1,6 @@
 # 2 Kings 24:14
 
-> And he <u>carried away</u>[^a] all Jerusalem, and all the princes, and all the mighty men of valour, even ten thousand captives, and all the craftsmen and <u>smiths</u>[^b] : none remained, save the poorest sort of the people of the land.
+> And he <u>carried away</u>[^a] all Jerusalem, and all the princes, and all the mighty men of valour, *even* ten thousand captives, and all the craftsmen and <u>smiths</u>[^b]: none remained, save the poorest sort of the people of the land.
 
 [2 Kings 24:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.14?lang=eng#p14)
 

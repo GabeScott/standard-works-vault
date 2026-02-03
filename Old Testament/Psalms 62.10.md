@@ -1,6 +1,6 @@
 # Psalms 62:10
 
-> Trust not in <u>oppression</u>[^a], and become not vain in robbery: if <u>riches</u>[^b] increase, set not your <u>heart</u>[^c] upon them.
+> Trust not in <u>oppression</u>[^a], and become not vain in robbery: if <u>riches</u>[^b] increase, set not your <u>heart</u>[^c] *upon them.*
 
 [Psalms 62:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/62.10?lang=eng#p10)
 

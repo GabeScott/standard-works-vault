@@ -1,6 +1,6 @@
 # 2 Samuel 5:7
 
-> Nevertheless David took the strong hold of <u>Zion</u>[^a] : the same is the <u>city of David</u>[^b] .
+> Nevertheless David took the strong hold of <u>Zion</u>[^a]: the same *is* the <u>city of David</u>[^b].
 
 [2 Samuel 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.7?lang=eng#p7)
 

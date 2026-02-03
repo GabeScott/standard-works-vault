@@ -1,6 +1,6 @@
 # Alma 50:40
 
-> Now behold, his name was <u>Pahoran</u>[^a] . And Pahoran did fill the seat of his father, and did commence his reign in the end of the twenty and fourth year, over the people of Nephi.
+> Now behold, his name was <u>Pahoran</u>[^a]. And Pahoran did fill the seat of his father, and did commence his reign in the end of the twenty and fourth year, over the people of Nephi.
 
 [Alma 50:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p40#p40)
 

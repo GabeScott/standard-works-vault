@@ -1,6 +1,6 @@
 # Deuteronomy 15:20
 
-> Thou shalt eat it before the Lord thy God year by year in the <u>place</u>[^a] which the Lord shall choose, thou and thy household.
+> Thou shalt eat *it* before the LORD thy God year by year in the <u>place</u>[^a] which the LORD shall choose, thou and thy household.
 
 [Deuteronomy 15:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.20?lang=eng#p20)
 

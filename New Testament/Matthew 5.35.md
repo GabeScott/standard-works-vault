@@ -1,6 +1,6 @@
 # Matthew 5:35
 
-> Nor by the earth; for it is his <u>footstool</u>[^a] : neither by Jerusalem; for it is the <u>city</u>[^b] of the great King.
+> Nor by the earth; for it is his <u>footstool</u>[^a]: neither by Jerusalem; for it is the <u>city</u>[^b] of the great King.
 
 [Matthew 5:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.35?lang=eng#p35)
 

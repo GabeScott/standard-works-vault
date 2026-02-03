@@ -1,6 +1,6 @@
 # Jeremiah 28:16
 
-> Therefore thus saith the Lord ; Behold, I will cast thee from off the face of the earth: this year thou shalt <u>die</u>[^a], because thou hast taught rebellion against the Lord .
+> Therefore thus saith the LORD; Behold, I will cast thee from off the face of the earth: this year thou shalt <u>die</u>[^a], because thou hast taught rebellion against the LORD.
 
 [Jeremiah 28:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/28.16?lang=eng#p16)
 

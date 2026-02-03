@@ -1,6 +1,6 @@
 # Isaiah 11:5
 
-> And righteousness shall be the <u>girdle</u>[^a] of his loins, and faithfulness the girdle of his <u>reins</u>[^b] .
+> And righteousness shall be the <u>girdle</u>[^a] of his loins, and faithfulness the girdle of his <u>reins</u>[^b].
 
 [Isaiah 11:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.5?lang=eng#p5)
 

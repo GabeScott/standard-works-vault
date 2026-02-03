@@ -1,6 +1,6 @@
 # Exodus 33:12
 
-> ¶ And Moses said unto the Lord , See, thou sayest unto me, <u>Bring</u>[^a] up this people: and thou hast not let me know whom thou wilt send with me. Yet thou hast said, I <u>know</u>[^b] thee by <u>name</u>[^c], and thou hast also found grace in my sight.
+> ¶ And Moses said unto the LORD, See, thou sayest unto me, <u>Bring</u>[^a] up this people: and thou hast not let me know whom thou wilt send with me. Yet thou hast said, I <u>know</u>[^b] thee by <u>name</u>[^c], and thou hast also found grace in my sight.
 
 [Exodus 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.12?lang=eng#p12)
 

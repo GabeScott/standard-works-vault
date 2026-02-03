@@ -1,6 +1,6 @@
 # 2 Kings 24:3
 
-> Surely at the commandment of the Lord came this upon Judah, to remove them out of his sight, for the <u>sins</u>[^a] of <u>Manasseh</u>[^b], according to all that he did;
+> Surely at the commandment of the LORD came *this* upon Judah, to remove *them* out of his sight, for the <u>sins</u>[^a] of <u>Manasseh</u>[^b], according to all that he did;
 
 [2 Kings 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.3?lang=eng#p3)
 

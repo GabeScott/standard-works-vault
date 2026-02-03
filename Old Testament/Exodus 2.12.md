@@ -1,6 +1,6 @@
 # Exodus 2:12
 
-> And he looked this way and that way, and when he saw that there was no man, he <u>slew</u>[^a] the Egyptian, and hid him in the sand.
+> And he looked this way and that way, and when he saw that *there was* no man, he <u>slew</u>[^a] the Egyptian, and hid him in the sand.
 
 [Exodus 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Isaiah 66:22
 
-> For as the <u>new</u>[^a] heavens and the new earth, which I will make, shall remain before me, saith the Lord , so shall your <u>seed</u>[^b] and your name remain.
+> For as the <u>new</u>[^a] heavens and the new earth, which I will make, shall remain before me, saith the LORD, so shall your <u>seed</u>[^b] and your name remain.
 
 [Isaiah 66:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.22?lang=eng#p22)
 

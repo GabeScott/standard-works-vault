@@ -1,6 +1,6 @@
 # Psalms 58:6
 
-> Break their teeth, O God, in their mouth: break out the great <u>teeth</u>[^a] of the young lions, O Lord .
+> Break their teeth, O God, in their mouth: break out the great <u>teeth</u>[^a] of the young lions, O LORD.
 
 [Psalms 58:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/58.6?lang=eng#p6)
 

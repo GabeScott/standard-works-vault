@@ -1,6 +1,6 @@
 # Acts 20:10
 
-> And Paul went down, and fell on him, and <u>embracing</u>[^a] him said, Trouble not yourselves; for his life is in him.
+> And Paul went down, and fell on him, and <u>embracing</u>[^a] *him* said, Trouble not yourselves; for his life is in him.
 
 [Acts 20:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.10?lang=eng#p10)
 

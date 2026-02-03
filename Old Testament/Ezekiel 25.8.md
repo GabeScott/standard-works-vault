@@ -1,6 +1,6 @@
 # Ezekiel 25:8
 
-> ¶ Thus saith the Lord God ; Because that <u>Moab</u>[^a] and <u>Seir</u>[^b] do say, Behold, the house of Judah is like unto all the <u>heathen</u>[^c];
+> ¶ Thus saith the Lord GOD; Because that <u>Moab</u>[^a] and <u>Seir</u>[^b] do say, Behold, the house of Judah *is* like unto all the <u>heathen</u>[^c];
 
 [Ezekiel 25:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/25.8?lang=eng#p8)
 

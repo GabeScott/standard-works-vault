@@ -1,6 +1,6 @@
 # Exodus 12:21
 
-> ¶ Then Moses called for all the elders of Israel, and said unto them, <u>Draw</u>[^a] out and take you a <u>lamb</u>[^b] according to your <u>families</u>[^c], and kill the <u>passover</u>[^d] .
+> ¶ Then Moses called for all the elders of Israel, and said unto them, <u>Draw</u>[^a] out and take you a <u>lamb</u>[^b] according to your <u>families</u>[^c], and kill the <u>passover</u>[^d].
 
 [Exodus 12:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.21?lang=eng#p21)
 

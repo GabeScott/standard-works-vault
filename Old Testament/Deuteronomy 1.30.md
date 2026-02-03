@@ -1,6 +1,6 @@
 # Deuteronomy 1:30
 
-> The Lord your God which goeth before you, he shall <u>fight</u>[^a] for you, according to all that he did for you in Egypt before your eyes;
+> The LORD your God which goeth before you, he shall <u>fight</u>[^a] for you, according to all that he did for you in Egypt before your eyes;
 
 [Deuteronomy 1:30](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.30?lang=eng#p30)
 

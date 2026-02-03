@@ -1,6 +1,6 @@
 # Joshua 8:31
 
-> As Moses the servant of the Lord commanded the children of Israel, as it is written in the book of the law of Moses, an <u>altar</u>[^a] of whole <u>stones</u>[^b], over which no man hath lift up any <u>iron</u>[^c] : and they offered thereon burnt offerings unto the Lord , and sacrificed peace offerings.
+> As Moses the servant of the LORD commanded the children of Israel, as it is written in the book of the law of Moses, an <u>altar</u>[^a] of whole <u>stones</u>[^b], over which no man hath lift up *any* <u>iron</u>[^c]: and they offered thereon burnt offerings unto the LORD, and sacrificed peace offerings.
 
 [Joshua 8:31](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.31?lang=eng#p31)
 

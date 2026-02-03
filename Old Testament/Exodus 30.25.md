@@ -1,6 +1,6 @@
 # Exodus 30:25
 
-> And thou shalt make it an <u>oil</u>[^a] of holy <u>ointment</u>[^b], an ointment compound after the art of the <u>apothecary</u>[^c] : it shall be an holy <u>anointing oil</u>[^d] .
+> And thou shalt make it an <u>oil</u>[^a] of holy <u>ointment</u>[^b], an ointment compound after the art of the <u>apothecary</u>[^c]: it shall be an holy <u>anointing oil</u>[^d].
 
 [Exodus 30:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.25?lang=eng#p25)
 

@@ -1,6 +1,6 @@
 # Ezekiel 13:10
 
-> ¶ Because, even because they have seduced my people, saying, <u>Peace</u>[^a]; and there was no peace; and one built up a wall, and, lo, others daubed it with untempered mortar:
+> ¶ Because, even because they have seduced my people, saying, <u>Peace</u>[^a]; and *there was* no peace; and one built up a wall, and, lo, others daubed it with untempered <u>mortar</u>[^b]*:*
 
 [Ezekiel 13:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.10?lang=eng#p10)
 

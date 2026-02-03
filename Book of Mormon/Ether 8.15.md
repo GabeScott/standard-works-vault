@@ -1,6 +1,6 @@
 # Ether 8:15
 
-> And it came to pass that thus they did agree with <u>Akish</u>[^a] . And Akish did administer unto them the oaths which were given by them of old who also sought power, which had been handed down even from <u>Cain</u>[^b], who was a murderer from the beginning.
+> And it came to pass that thus they did agree with <u>Akish</u>[^a]. And Akish did administer unto them the oaths which were given by them of old who also sought power, which had been handed down even from <u>Cain</u>[^b], who was a murderer from the beginning.
 
 [Ether 8:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p15#p15)
 

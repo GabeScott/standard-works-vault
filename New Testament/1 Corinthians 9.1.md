@@ -1,6 +1,6 @@
 # 1 Corinthians 9:1
 
-> Am I not an <u>apostle</u>[^a] ? am I not free? have I not <u>seen</u>[^b] Jesus Christ our Lord? are not ye my <u>work</u>[^c] in the Lord?
+> Am I not an <u>apostle</u>[^a]? am I not free? have I not <u>seen</u>[^b] Jesus Christ our Lord? are not ye my <u>work</u>[^c] in the Lord?
 
 [1 Corinthians 9:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.1?lang=eng#p1)
 

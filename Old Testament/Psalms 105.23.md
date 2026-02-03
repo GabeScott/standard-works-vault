@@ -1,6 +1,6 @@
 # Psalms 105:23
 
-> Israel also came into <u>Egypt</u>[^a]; and Jacob sojourned in the land of <u>Ham</u>[^b] .
+> Israel also came into <u>Egypt</u>[^a]; and Jacob sojourned in the land of <u>Ham</u>[^b].
 
 [Psalms 105:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.23?lang=eng#p23)
 

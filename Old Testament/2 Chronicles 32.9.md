@@ -1,6 +1,6 @@
 # 2 Chronicles 32:9
 
-> ¶ After this did Sennacherib king of Assyria <u>send</u>[^a] his servants to Jerusalem, (but he himself laid siege against Lachish, and all his power with him,) unto Hezekiah king of Judah, and unto all Judah that were at Jerusalem, saying,
+> ¶ After this did Sennacherib king of Assyria <u>send</u>[^a] his servants to Jerusalem, (but he *himself laid siege* against Lachish, and all his power with him,) unto Hezekiah king of Judah, and unto all Judah that *were* at Jerusalem, saying,
 
 [2 Chronicles 32:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Leviticus 14:21
 
-> And if he be <u>poor</u>[^a], and cannot get so much; then he shall take <u>one</u>[^b] lamb for a trespass offering to be waved, to make an atonement for him, and one tenth deal of fine flour mingled with oil for a meat offering, and a log of oil;
+> And if he *be* <u>poor</u>[^a], and cannot get so much; then he shall take <u>one</u>[^b] lamb *for* a trespass offering to be waved, to make an atonement for him, and one tenth deal of fine flour mingled with oil for a meat offering, and a log of oil;
 
 [Leviticus 14:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.21?lang=eng#p21)
 

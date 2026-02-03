@@ -1,6 +1,6 @@
 # 2 Kings 17:35
 
-> With whom the Lord had made a covenant, and charged them, saying, Ye shall not <u>fear</u>[^a] other <u>gods</u>[^b], nor bow yourselves to them, nor serve them, nor sacrifice to them:
+> With whom the LORD had made a covenant, and charged them, saying, Ye shall not <u>fear</u>[^a] other <u>gods</u>[^b], nor bow yourselves to them, nor serve them, nor sacrifice to them:
 
 [2 Kings 17:35](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.35?lang=eng#p35)
 

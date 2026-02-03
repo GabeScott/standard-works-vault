@@ -1,6 +1,6 @@
 # Malachi 4:6
 
-> And he shall <u>turn</u>[^a] the <u>heart</u>[^b] of the <u>fathers</u>[^c] to the <u>children</u>[^d], and the heart of the <u>children</u>[^e] to their fathers, lest I come and <u>smite</u>[^f] the <u>earth</u>[^g] with a <u>curse</u>[^h] .
+> And he shall <u>turn</u>[^a] the <u>heart</u>[^b] of the <u>fathers</u>[^c] to the <u>children</u>[^d], and the heart of the <u>children</u>[^e] to their fathers, lest I come and <u>smite</u>[^f] the <u>earth</u>[^g] with a <u>curse</u>[^h].
 
 [Malachi 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/4.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Leviticus 9:4
 
-> Also a bullock and a ram for peace offerings, to sacrifice before the Lord ; and a meat offering mingled with oil: for to day the Lord will <u>appear</u>[^a] unto you.
+> Also a bullock and a ram for peace offerings, to sacrifice before the LORD; and a meat offering mingled with oil: for to day the LORD will <u>appear</u>[^a] unto you.
 
 [Leviticus 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/9.4?lang=eng#p4)
 

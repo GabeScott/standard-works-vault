@@ -1,6 +1,6 @@
 # Zephaniah 2:3
 
-> Seek ye the Lord , all ye <u>meek</u>[^a] of the earth, which have wrought his judgment; seek <u>righteousness</u>[^b], seek meekness: it may be ye shall be hid in the <u>day</u>[^c] of the Lord ’s anger.
+> Seek ye the LORD, all ye <u>meek</u>[^a] of the earth, which have wrought his judgment; seek <u>righteousness</u>[^b], seek meekness: it may be ye shall be hid in the <u>day</u>[^c] of the LORD’s anger.
 
 [Zephaniah 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Matthew 25:29
 
-> For unto every one that hath shall be <u>given</u>[^a], and he shall have <u>abundance</u>[^b] : but from him that hath not shall be <u>taken</u>[^c] away even that which he hath.
+> For unto every one that hath shall be <u>given</u>[^a], and he shall have <u>abundance</u>[^b]: but from him that hath not shall be <u>taken</u>[^c] away even that which he hath.
 
 [Matthew 25:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.29?lang=eng#p29)
 

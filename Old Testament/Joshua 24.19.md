@@ -1,6 +1,6 @@
 # Joshua 24:19
 
-> And Joshua said unto the people, Ye cannot serve the Lord : for he is an <u>holy</u>[^a] God; he is a <u>jealous</u>[^b] God; he will not <u>forgive</u>[^c] your transgressions nor your sins.
+> And Joshua said unto the people, Ye cannot serve the LORD: for he *is* an <u>holy</u>[^a] God; he *is* a <u>jealous</u>[^b] God; he will not <u>forgive</u>[^c] your transgressions nor your sins.
 
 [Joshua 24:19](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.19?lang=eng#p19)
 

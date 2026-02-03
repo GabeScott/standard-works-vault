@@ -1,6 +1,6 @@
 # Matthew 7:16
 
-> Ye shall <u>know</u>[^a] them by their <u>fruits</u>[^b] . Do men gather grapes of thorns, or figs of thistles?
+> Ye shall <u>know</u>[^a] them by their <u>fruits</u>[^b]. Do men gather grapes of thorns, or figs of thistles?
 
 [Matthew 7:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.16?lang=eng#p16)
 

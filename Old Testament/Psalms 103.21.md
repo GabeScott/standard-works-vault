@@ -1,6 +1,6 @@
 # Psalms 103:21
 
-> Bless ye the Lord , all ye his hosts; ye ministers of his, that do his <u>pleasure</u>[^a] .
+> Bless ye the LORD, all *ye* his hosts; *ye* ministers of his, that do his <u>pleasure</u>[^a].
 
 [Psalms 103:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/103.21?lang=eng#p21)
 

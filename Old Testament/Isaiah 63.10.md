@@ -1,6 +1,6 @@
 # Isaiah 63:10
 
-> ¶ But they <u>rebelled</u>[^a], and <u>vexed</u>[^b] his <u>holy Spirit</u>[^c] : therefore he was turned to be their <u>enemy</u>[^d], and he fought against them.
+> ¶ But they <u>rebelled</u>[^a], and <u>vexed</u>[^b] his <u>holy Spirit</u>[^c]: therefore he was turned to be their <u>enemy</u>[^d], *and* he fought against them.
 
 [Isaiah 63:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.10?lang=eng#p10)
 

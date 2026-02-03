@@ -1,6 +1,6 @@
 # Genesis 49:26
 
-> The <u>blessings</u>[^a] of thy father have prevailed above the blessings of my progenitors unto the <u>utmost</u>[^b] bound of the everlasting <u>hills</u>[^c] : they shall be on the head of <u>Joseph</u>[^d], and on the crown of the head of him that was separate from his brethren.
+> The <u>blessings</u>[^a] of thy father have prevailed above the blessings of my progenitors unto the <u>utmost</u>[^b] bound of the everlasting <u>hills</u>[^c]: they shall be on the head of <u>Joseph</u>[^d], and on the crown of the head of him that was separate from his brethren.
 
 [Genesis 49:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.26?lang=eng#p26)
 

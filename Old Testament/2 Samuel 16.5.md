@@ -1,6 +1,6 @@
 # 2 Samuel 16:5
 
-> ¶ And when king David came to Bahurim, behold, thence came out a man of the family of the house of Saul, whose name was <u>Shimei</u>[^a], the son of Gera: he came forth, and <u>cursed</u>[^b] still as he came.
+> ¶ And when king David came to Bahurim, behold, thence came out a man of the family of the house of Saul, whose name *was* <u>Shimei</u>[^a], the son of Gera: he came forth, and <u>cursed</u>[^b] still as he came.
 
 [2 Samuel 16:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/16.5?lang=eng#p5)
 

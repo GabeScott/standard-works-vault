@@ -1,6 +1,6 @@
 # Lamentations 3:30
 
-> He giveth his <u>cheek</u>[^a] to him that smiteth him: he is filled full with <u>reproach</u>[^b] .
+> He giveth *his* <u>cheek</u>[^a] to him that smiteth him: he is filled full with <u>reproach</u>[^b].
 
 [Lamentations 3:30](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/3.30?lang=eng#p30)
 

@@ -1,6 +1,6 @@
 # D&C 6:21
 
-> Behold, I am Jesus Christ, the <u>Son of God</u>[^a] . I am the same that came unto mine <u>own</u>[^b], and mine own received me not. I am the <u>light</u>[^c] which shineth in <u>darkness</u>[^d], and the darkness comprehendeth it not.
+> Behold, I am Jesus Christ, the <u>Son of God</u>[^a]. I am the same that came unto mine <u>own</u>[^b], and mine own received me not. I am the <u>light</u>[^c] which shineth in <u>darkness</u>[^d], and the darkness comprehendeth it not.
 
 [D&C 6:21](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.21?lang=eng#p21)
 

@@ -1,6 +1,6 @@
 # 2 Kings 14:10
 
-> Thou hast indeed smitten Edom, and thine heart hath <u>lifted</u>[^a] thee up: glory of this, and tarry at home: for why shouldest thou meddle to thy hurt, that thou shouldest fall, even thou, and Judah with thee?
+> Thou hast indeed smitten Edom, and thine heart hath <u>lifted</u>[^a] thee up: glory *of this,* and tarry at home: for why shouldest thou meddle to *thy* hurt, that thou shouldest fall, *even* thou, and Judah with thee?
 
 [2 Kings 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/14.10?lang=eng#p10)
 

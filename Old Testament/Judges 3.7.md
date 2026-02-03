@@ -1,6 +1,6 @@
 # Judges 3:7
 
-> And the children of Israel did <u>evil</u>[^a] in the sight of the Lord , and forgat the Lord their God, and <u>served</u>[^b] <u>Baalim</u>[^c] and the <u>groves</u>[^d] .
+> And the children of Israel did <u>evil</u>[^a] in the sight of the LORD, and forgat the LORD their God, and <u>served</u>[^b] <u>Baalim</u>[^c] and the <u>groves</u>[^d].
 
 [Judges 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/3.7?lang=eng#p7)
 

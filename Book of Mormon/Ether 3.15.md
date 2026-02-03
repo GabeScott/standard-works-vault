@@ -1,6 +1,6 @@
 # Ether 3:15
 
-> And never have I <u>showed</u>[^a] myself unto man whom I have created, for never has man <u>believed</u>[^b] in me as thou hast. Seest thou that ye are created after mine own <u>image</u>[^c] ? Yea, even all men were created in the beginning after mine own image.
+> And never have I <u>showed</u>[^a] myself unto man whom I have created, for never has man <u>believed</u>[^b] in me as thou hast. Seest thou that ye are created after mine own <u>image</u>[^c]? Yea, even all men were created in the beginning after mine own image.
 
 [Ether 3:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p15#p15)
 

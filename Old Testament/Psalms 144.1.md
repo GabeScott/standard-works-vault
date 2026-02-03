@@ -1,6 +1,6 @@
 # Psalms 144:1
 
-> Blessed be the Lord my strength, which teacheth my hands to <u>war</u>[^a], and my fingers to fight:
+> Blessed *be* the LORD my strength, which teacheth my hands to <u>war</u>[^a], *and* my fingers to fight:
 
 [Psalms 144:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/144.1?lang=eng#p1)
 

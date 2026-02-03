@@ -1,6 +1,6 @@
 # Jeremiah 29:12
 
-> Then shall ye <u>call</u>[^a] upon me, and ye shall go and pray unto me, and I will <u>hearken unto you</u>[^b] .
+> Then shall ye <u>call</u>[^a] upon me, and ye shall go and pray unto me, and I will <u>hearken unto you</u>[^b].
 
 [Jeremiah 29:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.12?lang=eng#p12)
 

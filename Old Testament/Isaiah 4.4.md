@@ -1,6 +1,6 @@
 # Isaiah 4:4
 
-> <u>When</u>[^a] the Lord shall have <u>washed</u>[^b] away the filth of the daughters of Zion, and shall have <u>purged</u>[^c] the blood of Jerusalem from the midst thereof by the spirit of judgment, and by the spirit of <u>burning</u>[^d] .
+> <u>When</u>[^a] the Lord shall have <u>washed</u>[^b] away the filth of the daughters of Zion, and shall have <u>purged</u>[^c] the blood of Jerusalem from the midst thereof by the spirit of judgment, and by the spirit of <u>burning</u>[^d].
 
 [Isaiah 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/4.4?lang=eng#p4)
 

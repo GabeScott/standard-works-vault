@@ -1,6 +1,6 @@
 # Nehemiah 1:10
 
-> Now these are thy servants and thy <u>people</u>[^a], whom thou hast redeemed by thy great power, and by thy strong hand.
+> Now these *are* thy servants and thy <u>people</u>[^a], whom thou hast redeemed by thy great power, and by thy strong hand.
 
 [Nehemiah 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/1.10?lang=eng#p10)
 

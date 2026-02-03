@@ -1,6 +1,6 @@
 # 1 Timothy 1:13
 
-> Who was before a <u>blasphemer</u>[^a], and a <u>persecutor</u>[^b], and <u>injurious</u>[^c] : but I obtained <u>mercy</u>[^d], because I did it <u>ignorantly</u>[^e] in unbelief.
+> Who was before a <u>blasphemer</u>[^a], and a <u>persecutor</u>[^b], and <u>injurious</u>[^c]: but I obtained <u>mercy</u>[^d], because I did *it* <u>ignorantly</u>[^e] in unbelief.
 
 [1 Timothy 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Leviticus 9:24
 
-> And there came a <u>fire</u>[^a] out from before the Lord , and consumed upon the altar the burnt offering and the fat: which when all the people saw, they shouted, and fell on their faces.
+> And there came a <u>fire</u>[^a] out from before the LORD, and consumed upon the altar the burnt offering and the fat: *which* when all the people saw, they shouted, and fell on their faces.
 
 [Leviticus 9:24](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/9.24?lang=eng#p24)
 

@@ -1,6 +1,6 @@
 # Colossians 1:6
 
-> Which is come unto you, <u>as</u>[^a] it is in all the world; and bringeth forth <u>fruit</u>[^b], as it doth also in you, since the day ye heard of it, and knew the <u>grace</u>[^c] of God in truth:
+> Which is come unto you, <u>as</u>[^a] *it is* in all the world; and bringeth forth <u>fruit</u>[^b], as *it doth* also in you, since the day ye heard *of it,* and knew the <u>grace</u>[^c] of God in truth:
 
 [Colossians 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.6?lang=eng#p6)
 

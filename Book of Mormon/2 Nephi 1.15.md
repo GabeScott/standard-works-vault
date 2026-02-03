@@ -1,6 +1,6 @@
 # 2 Nephi 1:15
 
-> But behold, the Lord hath <u>redeemed</u>[^a] my soul from hell; I have beheld his <u>glory</u>[^b], and I am encircled about eternally in the <u>arms</u>[^c] of his <u>love</u>[^d] .
+> But behold, the Lord hath <u>redeemed</u>[^a] my soul from hell; I have beheld his <u>glory</u>[^b], and I am encircled about eternally in the <u>arms</u>[^c] of his <u>love</u>[^d].
 
 [2 Nephi 1:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p15#p15)
 

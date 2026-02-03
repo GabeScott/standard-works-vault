@@ -1,6 +1,6 @@
 # Alma 46:17
 
-> And it came to pass that when he had poured out his soul to God, he named all the land which was <u>south</u>[^a] of the land <u>Desolation</u>[^b], yea, and in fine, all the land, both on the <u>north</u>[^c] and on the south—A chosen land, and the land of <u>liberty</u>[^d] .
+> And it came to pass that when he had poured out his soul to God, he named all the land which was <u>south</u>[^a] of the land <u>Desolation</u>[^b], yea, and in fine, all the land, both on the <u>north</u>[^c] and on the south—A chosen land, and the land of <u>liberty</u>[^d].
 
 [Alma 46:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p17#p17)
 

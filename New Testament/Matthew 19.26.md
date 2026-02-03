@@ -1,6 +1,6 @@
 # Matthew 19:26
 
-> <u>But</u>[^a] Jesus beheld them, and said unto them, With men this is impossible; but with God all things are <u>possible</u>[^b] .
+> <u>But</u>[^a] Jesus beheld *them,* and said unto them, With men this is impossible; but with God all things are <u>possible</u>[^b].
 
 [Matthew 19:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.26?lang=eng#p26)
 

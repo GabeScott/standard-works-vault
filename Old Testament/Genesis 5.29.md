@@ -1,6 +1,6 @@
 # Genesis 5:29
 
-> And he called his name <u>Noah</u>[^a], saying, This same shall <u>comfort</u>[^b] us concerning our work and toil of our hands, because of the ground which the Lord hath <u>cursed</u>[^c] .
+> And he called his name <u>Noah</u>[^a], saying, This *same* shall <u>comfort</u>[^b] us concerning our work and toil of our hands, because of the ground which the LORD hath <u>cursed</u>[^c].
 
 [Genesis 5:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/5.29?lang=eng#p29)
 

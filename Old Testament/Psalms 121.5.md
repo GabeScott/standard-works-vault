@@ -1,6 +1,6 @@
 # Psalms 121:5
 
-> The Lord is thy <u>keeper</u>[^a] : the Lord is thy <u>shade</u>[^b] upon thy right hand.
+> The LORD *is* thy <u>keeper</u>[^a]: the LORD *is* thy <u>shade</u>[^b] upon thy right hand.
 
 [Psalms 121:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/121.5?lang=eng#p5)
 

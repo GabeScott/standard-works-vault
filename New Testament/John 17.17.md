@@ -1,6 +1,6 @@
 # John 17:17
 
-> <u>Sanctify</u>[^a] them through thy <u>truth</u>[^b] : thy word is <u>truth</u>[^c] .
+> <u>Sanctify</u>[^a] them through thy <u>truth</u>[^b]: thy word is <u>truth</u>[^c].
 
 [John 17:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.17?lang=eng#p17)
 

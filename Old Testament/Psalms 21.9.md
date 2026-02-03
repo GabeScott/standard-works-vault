@@ -1,6 +1,6 @@
 # Psalms 21:9
 
-> Thou shalt make them as a <u>fiery</u>[^a] oven in the time of thine anger: the Lord shall swallow them up in his wrath, and the fire shall devour them.
+> Thou shalt make them as a <u>fiery</u>[^a] oven in the time of thine anger: the LORD shall swallow them up in his wrath, and the fire shall devour them.
 
 [Psalms 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/21.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Jeremiah 19:6
 
-> Therefore, behold, the days come, saith the Lord , that this place shall no more be called <u>Tophet</u>[^a], nor The valley of the son of Hinnom, but The valley of slaughter.
+> Therefore, behold, the days come, saith the LORD, that this place shall no more be called <u>Tophet</u>[^a], nor The valley of the son of Hinnom, but The valley of slaughter.
 
 [Jeremiah 19:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/19.6?lang=eng#p6)
 

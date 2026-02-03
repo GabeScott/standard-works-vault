@@ -1,6 +1,6 @@
 # Luke 24:34
 
-> Saying, The Lord is risen indeed, and hath <u>appeared</u>[^a] to <u>Simon</u>[^b] .
+> Saying, The Lord is risen indeed, and hath <u>appeared</u>[^a] to <u>Simon</u>[^b].
 
 [Luke 24:34](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.34?lang=eng#p34)
 

@@ -1,6 +1,6 @@
 # Jeremiah 43:7
 
-> So they came into the land of <u>Egypt</u>[^a] : for they obeyed not the voice of the Lord : thus came they even to <u>Tahpanhes</u>[^b] .
+> So they came into the land of <u>Egypt</u>[^a]: for they obeyed not the voice of the LORD: thus came they *even* to <u>Tahpanhes</u>[^b].
 
 [Jeremiah 43:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/43.7?lang=eng#p7)
 

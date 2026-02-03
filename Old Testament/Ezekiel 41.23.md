@@ -1,6 +1,6 @@
 # Ezekiel 41:23
 
-> And the temple and the sanctuary had two <u>doors</u>[^a] .
+> And the temple and the sanctuary had two <u>doors</u>[^a].
 
 [Ezekiel 41:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.23?lang=eng#p23)
 

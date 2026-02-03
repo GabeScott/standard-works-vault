@@ -1,6 +1,6 @@
 # Isaiah 42:7
 
-> To <u>open</u>[^a] the <u>blind</u>[^b] eyes, to bring out the <u>prisoners</u>[^c] from the <u>prison</u>[^d], and them that sit in darkness out of the prison house.
+> To <u>open</u>[^a] the <u>blind</u>[^b] eyes, to bring out the <u>prisoners</u>[^c] from the <u>prison</u>[^d], *and* them that sit in darkness out of the prison house.
 
 [Isaiah 42:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.7?lang=eng#p7)
 

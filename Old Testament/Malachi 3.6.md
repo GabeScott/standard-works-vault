@@ -1,6 +1,6 @@
 # Malachi 3:6
 
-> For I am the Lord , I <u>change not</u>[^a]; therefore ye sons of <u>Jacob</u>[^b] are not <u>consumed</u>[^c] .
+> For I *am* the LORD, I <u>change not</u>[^a]; therefore ye sons of <u>Jacob</u>[^b] are not <u>consumed</u>[^c].
 
 [Malachi 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.6?lang=eng#p6)
 

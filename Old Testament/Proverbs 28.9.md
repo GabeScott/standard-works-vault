@@ -1,6 +1,6 @@
 # Proverbs 28:9
 
-> He that turneth away his ear from hearing the <u>law</u>[^a], even his <u>prayer</u>[^b] shall be abomination.
+> He that turneth away his ear from hearing the <u>law</u>[^a], even his <u>prayer</u>[^b] *shall be* abomination.
 
 [Proverbs 28:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.9?lang=eng#p9)
 

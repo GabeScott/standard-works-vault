@@ -1,6 +1,6 @@
 # Genesis 3:16
 
-> Unto the <u>woman</u>[^a] he said, I will greatly <u>multiply</u>[^b] thy <u>sorrow</u>[^c] and thy conception; in sorrow thou shalt bring forth <u>children</u>[^d]; and thy desire shall be to thy <u>husband</u>[^e], and he shall rule over thee.
+> Unto the <u>woman</u>[^a] he said, I will greatly <u>multiply</u>[^b] thy <u>sorrow</u>[^c] and thy conception; in sorrow thou shalt bring forth <u>children</u>[^d]; and thy desire *shall be* to thy <u>husband</u>[^e], and he shall rule over thee.
 
 [Genesis 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.16?lang=eng#p16)
 

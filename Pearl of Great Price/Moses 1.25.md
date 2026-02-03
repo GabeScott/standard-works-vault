@@ -1,6 +1,6 @@
 # Moses 1:25
 
-> And calling upon the name of God, he beheld his <u>glory</u>[^a] again, for it was upon him; and he heard a <u>voice</u>[^b], saying: Blessed art thou, Moses, for I, the Almighty, have <u>chosen</u>[^c] thee, and thou shalt be made stronger than many <u>waters</u>[^d]; for they shall obey thy <u>command</u>[^e] as if thou wert <u>God</u>[^f] .
+> And calling upon the name of God, he beheld his <u>glory</u>[^a] again, for it was upon him; and he heard a <u>voice</u>[^b], saying: Blessed art thou, Moses, for I, the Almighty, have <u>chosen</u>[^c] thee, and thou shalt be made stronger than many <u>waters</u>[^d]; for they shall obey thy <u>command</u>[^e] as if thou wert <u>God</u>[^f].
 
 [Moses 1:25](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.25?lang=eng#p25)
 

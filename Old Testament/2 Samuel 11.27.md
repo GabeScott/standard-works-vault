@@ -1,6 +1,6 @@
 # 2 Samuel 11:27
 
-> And when the mourning was past, David sent and fetched her to his house, and she became his <u>wife</u>[^a], and bare him a son. But the thing that David had done <u>displeased</u>[^b] the Lord .
+> And when the mourning was past, David sent and fetched her to his house, and she became his <u>wife</u>[^a], and bare him a son. But the thing that David had done <u>displeased</u>[^b] the LORD.
 
 [2 Samuel 11:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/11.27?lang=eng#p27)
 

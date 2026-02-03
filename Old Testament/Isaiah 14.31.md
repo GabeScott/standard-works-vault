@@ -1,6 +1,6 @@
 # Isaiah 14:31
 
-> <u>Howl</u>[^a], O gate; cry, O city; thou, whole <u>Palestina</u>[^b], art dissolved: for there shall come from the north a smoke, and none shall be alone in his appointed times.
+> <u>Howl</u>[^a], O gate; cry, O city; thou, whole <u>Palestina</u>[^b], *art* dissolved: for there shall come from the north a smoke, and none *shall be* alone in his appointed times.
 
 [Isaiah 14:31](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.31?lang=eng#p31)
 

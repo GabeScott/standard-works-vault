@@ -1,6 +1,6 @@
 # Exodus 14:27
 
-> And Moses stretched forth his hand over the sea, and the sea returned to <u>his strength</u>[^a] when the morning appeared; and the Egyptians fled <u>against it</u>[^b]; and the Lord overthrew the <u>Egyptians</u>[^c] in the midst of the sea.
+> And Moses stretched forth his hand over the sea, and the sea returned to <u>his strength</u>[^a] when the morning appeared; and the Egyptians fled <u>against it</u>[^b]; and the LORD overthrew the <u>Egyptians</u>[^c] in the midst of the sea.
 
 [Exodus 14:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.27?lang=eng#p27)
 

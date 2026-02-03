@@ -1,6 +1,6 @@
 # 1 Thessalonians 3:3
 
-> That no man should be <u>moved</u>[^a] by these <u>afflictions</u>[^b] : for yourselves know that we are <u>appointed</u>[^c] thereunto.
+> That no man should be <u>moved</u>[^a] by these <u>afflictions</u>[^b]: for yourselves know that we are <u>appointed</u>[^c] thereunto.
 
 [1 Thessalonians 3:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/3.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Judges 7:4
 
-> And the Lord said unto Gideon, The people are yet too <u>many</u>[^a]; bring them down unto the water, and I will <u>try</u>[^b] them for thee there: and it shall be, that of whom I say unto thee, This shall go with thee, the same shall go with thee; and of whomsoever I say unto thee, This shall not go with thee, the same shall not go.
+> And the LORD said unto Gideon, The people *are* yet *too* <u>many</u>[^a]; bring them down unto the water, and I will <u>try</u>[^b] them for thee there: and it shall be, *that* of whom I say unto thee, This shall go with thee, the same shall go with thee; and of whomsoever I say unto thee, This shall not go with thee, the same shall not go.
 
 [Judges 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7.4?lang=eng#p4)
 

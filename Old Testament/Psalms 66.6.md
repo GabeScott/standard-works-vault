@@ -1,6 +1,6 @@
 # Psalms 66:6
 
-> He turned the <u>sea</u>[^a] into dry land: they went through the <u>flood</u>[^b] on foot: there did we rejoice in him.
+> He turned the <u>sea</u>[^a] into dry *land:* they went through the <u>flood</u>[^b] on foot: there did we rejoice in him.
 
 [Psalms 66:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/66.6?lang=eng#p6)
 

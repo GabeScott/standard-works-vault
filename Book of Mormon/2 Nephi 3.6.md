@@ -1,6 +1,6 @@
 # 2 Nephi 3:6
 
-> For Joseph truly testified, saying: A <u>seer</u>[^a] shall the Lord my God raise up, who shall be a choice seer unto the fruit of my <u>loins</u>[^b] .
+> For Joseph truly testified, saying: A <u>seer</u>[^a] shall the Lord my God raise up, who shall be a choice seer unto the fruit of my <u>loins</u>[^b].
 
 [2 Nephi 3:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p6#p6)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 22:3
 
-> He also walked in the ways of the house of <u>Ahab</u>[^a] : for his <u>mother</u>[^b] was his counsellor to do wickedly.
+> He also walked in the ways of the house of <u>Ahab</u>[^a]: for his <u>mother</u>[^b] was his counsellor to do wickedly.
 
 [2 Chronicles 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/22.3?lang=eng#p3)
 

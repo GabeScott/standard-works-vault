@@ -1,6 +1,6 @@
 # Ezekiel 25:14
 
-> And I will lay my vengeance upon <u>Edom</u>[^a] by the hand of my people Israel: and they shall do in Edom according to mine anger and according to my fury; and they shall know my vengeance, saith the Lord God .
+> And I will lay my vengeance upon <u>Edom</u>[^a] by the hand of my people Israel: and they shall do in Edom according to mine anger and according to my fury; and they shall know my vengeance, saith the Lord GOD.
 
 [Ezekiel 25:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/25.14?lang=eng#p14)
 

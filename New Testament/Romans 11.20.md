@@ -1,6 +1,6 @@
 # Romans 11:20
 
-> Well; because of <u>unbelief</u>[^a] they were <u>broken</u>[^b] off, and thou standest by <u>faith</u>[^c] . Be not highminded, but <u>fear</u>[^d] :
+> Well; because of <u>unbelief</u>[^a] they were <u>broken</u>[^b] off, and thou standest by <u>faith</u>[^c]. Be not highminded, but <u>fear</u>[^d]:
 
 [Romans 11:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 28:37
 
-> And thou shalt become an <u>astonishment</u>[^a], a <u>proverb</u>[^b], and a <u>byword</u>[^c], among all nations whither the Lord shall lead thee.
+> And thou shalt become an <u>astonishment</u>[^a], a <u>proverb</u>[^b], and a <u>byword</u>[^c], among all nations whither the LORD shall lead thee.
 
 [Deuteronomy 28:37](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.37?lang=eng#p37)
 

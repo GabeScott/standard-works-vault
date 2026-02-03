@@ -1,6 +1,6 @@
 # Jeremiah 26:1
 
-> In the beginning of the reign of <u>Jehoiakim</u>[^a] the son of Josiah king of Judah came this word from the Lord , saying,
+> In the beginning of the reign of <u>Jehoiakim</u>[^a] the son of Josiah king of Judah came this word from the LORD, saying,
 
 [Jeremiah 26:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.1?lang=eng#p1)
 

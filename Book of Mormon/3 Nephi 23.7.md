@@ -1,6 +1,6 @@
 # 3 Nephi 23:7
 
-> And it came to pass that he said unto <u>Nephi</u>[^a] : Bring forth the record which ye have kept.
+> And it came to pass that he said unto <u>Nephi</u>[^a]: Bring forth the record which ye have kept.
 
 [3 Nephi 23:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/23?lang=eng&id=p7#p7)
 

@@ -1,6 +1,6 @@
 # Amos 7:3
 
-> <u>The</u>[^a] Lord <u>repented</u>[^b] for this: It shall not be, saith the Lord .
+> <u>The</u>[^a] LORD <u>repented</u>[^b] for this: It shall not be, saith the LORD.
 
 [Amos 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/7.3?lang=eng#p3)
 

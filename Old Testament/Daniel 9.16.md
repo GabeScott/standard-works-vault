@@ -1,6 +1,6 @@
 # Daniel 9:16
 
-> ¶ O Lord, according to all thy <u>righteousness</u>[^a], I beseech thee, let thine anger and thy fury be turned away from thy city Jerusalem, thy holy <u>mountain</u>[^b] : because for our sins, and for the iniquities of our fathers, Jerusalem and thy people are become a <u>reproach</u>[^c] to all that are about us.
+> ¶ O Lord, according to all thy <u>righteousness</u>[^a], I beseech thee, let thine anger and thy fury be turned away from thy city Jerusalem, thy holy <u>mountain</u>[^b]: because for our sins, and for the iniquities of our fathers, Jerusalem and thy people *are become* a <u>reproach</u>[^c] to all *that are* about us.
 
 [Daniel 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.16?lang=eng#p16)
 

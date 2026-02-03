@@ -1,6 +1,6 @@
 # Genesis 22:23
 
-> And <u>Bethuel</u>[^a] begat <u>Rebekah</u>[^b] : these eight Milcah did bear to Nahor, Abraham’s <u>brother</u>[^c] .
+> And <u>Bethuel</u>[^a] begat <u>Rebekah</u>[^b]: these eight Milcah did bear to Nahor, Abraham’s <u>brother</u>[^c].
 
 [Genesis 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.23?lang=eng#p23)
 

@@ -1,6 +1,6 @@
 # Zechariah 2:10
 
-> ¶ Sing and rejoice, O daughter of Zion: for, lo, I come, and I will <u>dwell</u>[^a] in the midst of thee, saith the Lord .
+> ¶ Sing and rejoice, O daughter of Zion: for, lo, I come, and I will <u>dwell</u>[^a] in the midst of thee, saith the LORD.
 
 [Zechariah 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/2.10?lang=eng#p10)
 

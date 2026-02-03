@@ -1,6 +1,6 @@
 # Genesis 21:9
 
-> ¶ And Sarah saw the son of <u>Hagar</u>[^a] the Egyptian, which she had <u>born</u>[^b] unto Abraham, <u>mocking</u>[^c] .
+> ¶ And Sarah saw the son of <u>Hagar</u>[^a] the Egyptian, which she had <u>born</u>[^b] unto Abraham, <u>mocking</u>[^c].
 
 [Genesis 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/21.9?lang=eng#p9)
 

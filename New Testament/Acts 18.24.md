@@ -1,6 +1,6 @@
 # Acts 18:24
 
-> ¶ And a certain Jew named <u>Apollos</u>[^a], born at Alexandria, an eloquent man, and <u>mighty</u>[^b] in the scriptures, came to Ephesus.
+> ¶ And a certain Jew named <u>Apollos</u>[^a], born at Alexandria, an eloquent man, *and* <u>mighty</u>[^b] in the scriptures, came to Ephesus.
 
 [Acts 18:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.24?lang=eng#p24)
 

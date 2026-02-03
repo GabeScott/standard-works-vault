@@ -1,6 +1,6 @@
 # Leviticus 10:1
 
-> And Nadab and Abihu, the <u>sons</u>[^a] of Aaron, took either of them his censer, and put fire therein, and put incense thereon, and offered <u>strange</u>[^b] fire before the Lord , which he commanded them not.
+> And Nadab and Abihu, the <u>sons</u>[^a] of Aaron, took either of them his censer, and put fire therein, and put incense thereon, and offered <u>strange</u>[^b] fire before the LORD, which he commanded them not.
 
 [Leviticus 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.1?lang=eng#p1)
 

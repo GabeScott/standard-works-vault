@@ -1,6 +1,6 @@
 # Malachi 1:13
 
-> Ye said also, Behold, what a weariness is it! and ye have <u>snuffed at it</u>[^a], saith the Lord of hosts; and ye brought that which was torn, and the <u>lame</u>[^b], and the sick; thus ye brought an offering: should I <u>accept</u>[^c] this of your hand? saith the Lord .
+> Ye said also, Behold, what a weariness *is it!* and ye have <u>snuffed at it</u>[^a], saith the LORD of hosts; and ye brought *that which was* torn, and the <u>lame</u>[^b], and the sick; thus ye brought an offering: should I <u>accept</u>[^c] this of your hand? saith the LORD.
 
 [Malachi 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/1.13?lang=eng#p13)
 

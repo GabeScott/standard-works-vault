@@ -1,6 +1,6 @@
 # Ezekiel 44:13
 
-> And they shall not come <u>near</u>[^a] unto me, to do the office of a priest unto me, nor to come near to any of my holy things, in the most <u>holy place</u>[^b] : but they shall bear their <u>shame</u>[^c], and their abominations which they have committed.
+> And they shall not come <u>near</u>[^a] unto me, to do the office of a priest unto me, nor to come near to any of my holy things, in the most <u>holy place</u>[^b]*:* but they shall bear their <u>shame</u>[^c], and their abominations which they have committed.
 
 [Ezekiel 44:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.13?lang=eng#p13)
 

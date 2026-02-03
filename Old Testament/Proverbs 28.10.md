@@ -1,6 +1,6 @@
 # Proverbs 28:10
 
-> Whoso causeth the righteous to go astray in an evil way, he shall <u>fall</u>[^a] himself into his own <u>pit</u>[^b] : but the upright shall have good things in possession.
+> Whoso causeth the righteous to go astray in an evil way, he shall <u>fall</u>[^a] himself into his own <u>pit</u>[^b]: but the upright shall have good <u>things</u>[^c] in possession.
 
 [Proverbs 28:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.10?lang=eng#p10)
 

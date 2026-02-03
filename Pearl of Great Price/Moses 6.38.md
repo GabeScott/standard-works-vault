@@ -1,6 +1,6 @@
 # Moses 6:38
 
-> And they came forth to hear him, upon the high places, saying unto the <u>tent-keepers</u>[^a] : Tarry ye here and keep the tents, while we go yonder to behold the seer, for he prophesieth, and there is a strange thing in the land; a <u>wild</u>[^b] man hath come among us.
+> And they came forth to hear him, upon the high places, saying unto the <u>tent-keepers</u>[^a]: Tarry ye here and keep the tents, while we go yonder to behold the seer, for he prophesieth, and there is a strange thing in the land; a <u>wild</u>[^b] man hath come among us.
 
 [Moses 6:38](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.38?lang=eng#p38)
 

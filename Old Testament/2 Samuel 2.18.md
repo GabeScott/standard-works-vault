@@ -1,6 +1,6 @@
 # 2 Samuel 2:18
 
-> ¶ And there were three sons of Zeruiah there, <u>Joab</u>[^a], and <u>Abishai</u>[^b], and Asahel: and <u>Asahel</u>[^c] was as light of foot as <u>a wild roe</u>[^d] .
+> ¶ And there were three sons of Zeruiah there, <u>Joab</u>[^a], and <u>Abishai</u>[^b], and Asahel: and <u>Asahel</u>[^c] *was as* light of foot as <u>a wild roe</u>[^d].
 
 [2 Samuel 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/2.18?lang=eng#p18)
 

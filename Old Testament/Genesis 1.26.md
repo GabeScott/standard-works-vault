@@ -1,6 +1,6 @@
 # Genesis 1:26
 
-> ¶ And God said, Let <u>us</u>[^a] <u>make</u>[^b] <u>man</u>[^c] in our <u>image</u>[^d], after our <u>likeness</u>[^e] : and let them have <u>dominion</u>[^f] over the fish of the sea, and over the fowl of the air, and over the cattle, and over all the earth, and over every creeping thing that creepeth upon the earth.
+> ¶ And God said, Let <u>us</u>[^a] <u>make</u>[^b] <u>man</u>[^c] in our <u>image</u>[^d], after our <u>likeness</u>[^e]: and let them have <u>dominion</u>[^f] over the fish of the sea, and over the fowl of the air, and over the cattle, and over all the earth, and over every creeping thing that creepeth upon the earth.
 
 [Genesis 1:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Matthew 5:33
 
-> ¶ Again, ye have heard that it hath been said by them of old time, Thou shalt not <u>forswear thyself</u>[^a], but shalt <u>perform</u>[^b] unto the Lord thine <u>oaths</u>[^c] :
+> ¶ Again, ye have heard that it hath been said by them of old time, Thou shalt not <u>forswear thyself</u>[^a], but shalt <u>perform</u>[^b] unto the Lord thine <u>oaths</u>[^c]:
 
 [Matthew 5:33](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.33?lang=eng#p33)
 

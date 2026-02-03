@@ -1,6 +1,6 @@
 # Matthew 10:14
 
-> And whosoever shall not receive you, nor hear your words, when ye depart out of that house or city, shake off the <u>dust</u>[^a] of your <u>feet</u>[^b] .
+> And whosoever shall not receive you, nor hear your words, when ye depart out of that house or city, shake off the <u>dust</u>[^a] of your <u>feet</u>[^b].
 
 [Matthew 10:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.14?lang=eng#p14)
 

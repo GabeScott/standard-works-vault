@@ -1,6 +1,6 @@
 # Joshua 3:16
 
-> That the <u>waters</u>[^a] which came down from <u>above</u>[^b] <u>stood</u>[^c] and rose up upon an <u>heap</u>[^d] very far from the city Adam, that is beside Zaretan: and those that came down toward the sea of the plain, even the <u>salt sea</u>[^e], failed, and were cut off: and the people passed over right against Jericho.
+> That the <u>waters</u>[^a] which came down from <u>above</u>[^b] <u>stood</u>[^c] *and* rose up upon an <u>heap</u>[^d] very far from the city Adam, that *is* beside Zaretan: and those that came down toward the sea of the plain, *even* the <u>salt sea</u>[^e], failed, *and* were cut off: and the people passed over right against Jericho.
 
 [Joshua 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Isaiah 45:5
 
-> ¶ <u>I am</u>[^a] the Lord , and there is none else, there is no God beside me: I girded thee, though thou hast not known me:
+> ¶ <u>I am</u>[^a] the LORD, and *there is* none else, *there is* no God beside me: I girded thee, though thou hast not known me:
 
 [Isaiah 45:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Isaiah 5:16
 
-> But the Lord of hosts shall be exalted in <u>judgment</u>[^a], and God that is <u>holy</u>[^b] shall be sanctified in righteousness.
+> But the LORD of hosts shall be exalted in <u>judgment</u>[^a], and God that is <u>holy</u>[^b] shall be sanctified in righteousness.
 
 [Isaiah 5:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.16?lang=eng#p16)
 

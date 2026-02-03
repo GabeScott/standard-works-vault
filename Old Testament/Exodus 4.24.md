@@ -1,6 +1,6 @@
 # Exodus 4:24
 
-> ¶ <u>And</u>[^a] it came to pass <u>by</u>[^b] the way in the inn, that the Lord met him, and sought to <u>kill</u>[^c] him.
+> ¶ <u>And</u>[^a] it came to pass <u>by</u>[^b] the way in the inn, that the LORD met him, and sought to <u>kill</u>[^c] him.
 
 [Exodus 4:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.24?lang=eng#p24)
 

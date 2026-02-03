@@ -1,6 +1,6 @@
 # Lamentations 1:8
 
-> <u>Jerusalem</u>[^a] hath grievously sinned; therefore she is <u>removed</u>[^b] : all that honoured her despise her, because they have seen her <u>nakedness</u>[^c] : yea, she sigheth, and turneth backward.
+> <u>Jerusalem</u>[^a] hath grievously sinned; therefore she is <u>removed</u>[^b]: all that honoured her despise her, because they have seen her <u>nakedness</u>[^c]: yea, she sigheth, and turneth backward.
 
 [Lamentations 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Isaiah 53:2
 
-> For he shall grow up before him as a tender <u>plant</u>[^a], and as a <u>root</u>[^b] out of a <u>dry</u>[^c] ground: he hath no form nor comeliness; and when we shall see him, there is no <u>beauty</u>[^d] that we should desire him.
+> For he shall grow up before him as a tender <u>plant</u>[^a], and as a <u>root</u>[^b] out of a <u>dry</u>[^c] ground: he hath no form nor comeliness; and when we shall see him, *there is* no <u>beauty</u>[^d] that we should desire him.
 
 [Isaiah 53:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.2?lang=eng#p2)
 

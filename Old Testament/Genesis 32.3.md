@@ -1,6 +1,6 @@
 # Genesis 32:3
 
-> And Jacob sent messengers before him to Esau his brother unto the land of <u>Seir</u>[^a], the country of <u>Edom</u>[^b] .
+> And Jacob sent messengers before him to Esau his brother unto the land of <u>Seir</u>[^a], the country of <u>Edom</u>[^b].
 
 [Genesis 32:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.3?lang=eng#p3)
 

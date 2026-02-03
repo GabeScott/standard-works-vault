@@ -1,6 +1,6 @@
 # Mosiah 3:3
 
-> And he said unto me: Awake, and hear the words which I shall tell thee; for behold, I am come to declare unto you the <u>glad</u>[^a] tidings of great <u>joy</u>[^b] .
+> And he said unto me: Awake, and hear the words which I shall tell thee; for behold, I am come to declare unto you the <u>glad</u>[^a] tidings of great <u>joy</u>[^b].
 
 [Mosiah 3:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3?lang=eng&id=p3#p3)
 

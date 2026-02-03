@@ -1,6 +1,6 @@
 # Genesis 8:21
 
-> And the Lord smelled a sweet <u>savour</u>[^a]; and the Lord said in his heart, I will not again <u>curse</u>[^b] the ground any more <u>for man’s sake</u>[^c]; for the <u>imagination</u>[^d] of man’s heart is <u>evil</u>[^e] from his youth; neither will I again <u>smite</u>[^f] any more every thing living, as I have done.
+> And the LORD smelled a sweet <u>savour</u>[^a]; and the LORD said in his heart, I will not again <u>curse</u>[^b] the ground any more <u>for man’s sake</u>[^c]; for the <u>imagination</u>[^d] of man’s heart *is* <u>evil</u>[^e] from his youth; neither will I again <u>smite</u>[^f] any more every thing living, as I have done.
 
 [Genesis 8:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.21?lang=eng#p21)
 

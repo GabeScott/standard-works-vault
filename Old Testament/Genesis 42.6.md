@@ -1,6 +1,6 @@
 # Genesis 42:6
 
-> And Joseph was the <u>governor</u>[^a] over the land, and he it was that sold to all the people of the land: and Joseph’s brethren came, and <u>bowed</u>[^b] down themselves before him with their faces to the earth.
+> And Joseph *was* the <u>governor</u>[^a] over the land, *and* he *it was* that sold to all the people of the land: and Joseph’s brethren came, and <u>bowed</u>[^b] down themselves before him *with* their faces to the earth.
 
 [Genesis 42:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.6?lang=eng#p6)
 

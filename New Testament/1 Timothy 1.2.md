@@ -1,6 +1,6 @@
 # 1 Timothy 1:2
 
-> Unto <u>Timothy</u>[^a], my <u>own</u>[^c] son in the faith: Grace, mercy, and peace, from God our Father and Jesus Christ our Lord.
+> Unto <u>Timothy</u>[^a], *my* <u>own</u>[^c] son in the faith: Grace, mercy, *and* peace, from God our Father and Jesus Christ our Lord.
 
 [1 Timothy 1:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.2?lang=eng#p2)
 

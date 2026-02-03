@@ -1,6 +1,6 @@
 # Isaiah 5:29
 
-> Their roaring shall be like a lion, they shall roar like young <u>lions</u>[^a] : yea, they shall roar, and lay hold of the <u>prey</u>[^b], and shall carry it away safe, and none shall deliver it.
+> Their roaring *shall be* like a lion, they shall roar like young <u>lions</u>[^a]: yea, they shall roar, and lay hold of the <u>prey</u>[^b], and shall carry *it* away safe, and none shall deliver *it.*
 
 [Isaiah 5:29](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.29?lang=eng#p29)
 

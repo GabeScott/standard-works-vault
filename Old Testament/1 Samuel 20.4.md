@@ -1,6 +1,6 @@
 # 1 Samuel 20:4
 
-> Then said Jonathan unto David, Whatsoever thy soul <u>desireth</u>[^a], I will even do it for thee.
+> Then said Jonathan unto David, Whatsoever thy soul <u>desireth</u>[^a], I will even do *it* for thee.
 
 [1 Samuel 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/20.4?lang=eng#p4)
 

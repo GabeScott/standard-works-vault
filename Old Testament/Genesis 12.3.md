@@ -1,6 +1,6 @@
 # Genesis 12:3
 
-> And I will <u>bless</u>[^a] them that bless thee, and <u>curse</u>[^b] him that <u>curseth</u>[^c] thee: and in thee shall all <u>families</u>[^d] of the earth be <u>blessed</u>[^e] .
+> And I will <u>bless</u>[^a] them that bless thee, and <u>curse</u>[^b] him that <u>curseth</u>[^c] thee: and in thee shall all <u>families</u>[^d] of the earth be <u>blessed</u>[^e].
 
 [Genesis 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.3?lang=eng#p3)
 

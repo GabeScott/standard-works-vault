@@ -1,6 +1,6 @@
 # Zechariah 10:7
 
-> And they of <u>Ephraim</u>[^a] shall be like a mighty man, and their heart shall rejoice as through wine: yea, their children shall see it, and be glad; their heart shall rejoice in the Lord .
+> And *they of* <u>Ephraim</u>[^a] shall be like a mighty *man,* and their heart shall rejoice as through wine: yea, their children shall see *it,* and be glad; their heart shall rejoice in the LORD.
 
 [Zechariah 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/10.7?lang=eng#p7)
 

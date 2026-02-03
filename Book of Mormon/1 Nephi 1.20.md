@@ -1,6 +1,6 @@
 # 1 Nephi 1:20
 
-> And when the Jews heard these things they were angry with him; yea, even as with the prophets of old, whom they had <u>cast out</u>[^a], and stoned, and slain; and they also <u>sought</u>[^b] his life, that they might take it away. But behold, I, Nephi, will show unto you that the tender <u>mercies</u>[^c] of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of <u>deliverance</u>[^d] .
+> And when the Jews heard these things they were angry with him; yea, even as with the prophets of old, whom they had <u>cast out</u>[^a], and stoned, and slain; and they also <u>sought</u>[^b] his life, that they might take it away. But behold, I, Nephi, will show unto you that the tender <u>mercies</u>[^c] of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of <u>deliverance</u>[^d].
 
 [1 Nephi 1:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p20#p20)
 

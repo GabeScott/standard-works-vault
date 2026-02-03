@@ -1,6 +1,6 @@
 # Isaiah 1:1
 
-> The <u>vision</u>[^a] of <u>Isaiah</u>[^b] the son of Amoz, which he saw concerning <u>Judah</u>[^c] and Jerusalem in the days of <u>Uzziah</u>[^d], <u>Jotham</u>[^e], <u>Ahaz</u>[^f], and Hezekiah, kings of Judah.
+> The <u>vision</u>[^a] of <u>Isaiah</u>[^b] the son of Amoz, which he saw concerning <u>Judah</u>[^c] and Jerusalem in the days of <u>Uzziah</u>[^d], <u>Jotham</u>[^e], <u>Ahaz</u>[^f], *and* Hezekiah, kings of Judah.
 
 [Isaiah 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.1?lang=eng#p1)
 

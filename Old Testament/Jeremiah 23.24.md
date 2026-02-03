@@ -1,6 +1,6 @@
 # Jeremiah 23:24
 
-> Can any <u>hide</u>[^a] himself in secret places that I shall not see him? saith the Lord . Do not I <u>fill</u>[^b] heaven and earth? saith the Lord .
+> Can any <u>hide</u>[^a] himself in secret places that I shall not see him? saith the LORD. Do not I <u>fill</u>[^b] heaven and earth? saith the LORD.
 
 [Jeremiah 23:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.24?lang=eng#p24)
 

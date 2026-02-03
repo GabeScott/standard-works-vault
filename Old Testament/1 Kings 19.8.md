@@ -1,6 +1,6 @@
 # 1 Kings 19:8
 
-> And he arose, and did eat and drink, and went in the strength of that <u>meat</u>[^a] <u>forty</u>[^b] days and forty nights unto <u>Horeb</u>[^c] the <u>mount of God</u>[^d] .
+> And he arose, and did eat and drink, and went in the strength of that <u>meat</u>[^a] <u>forty</u>[^b] days and forty nights unto <u>Horeb</u>[^c] the <u>mount of God</u>[^d].
 
 [1 Kings 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/19.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # 1 Kings 14:19
 
-> And the rest of the acts of Jeroboam, how he warred, and how he reigned, behold, they are written in the <u>book</u>[^a] of the <u>chronicles</u>[^b] of the kings of Israel.
+> And the rest of the acts of Jeroboam, how he warred, and how he reigned, behold, they *are* written in the <u>book</u>[^a] of the <u>chronicles</u>[^b] of the kings of Israel.
 
 [1 Kings 14:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.19?lang=eng#p19)
 

@@ -1,6 +1,6 @@
 # 1 Samuel 4:11
 
-> And the ark of God was taken; and the two sons of Eli, Hophni and Phinehas, were <u>slain</u>[^a] .
+> And the ark of God was taken; and the two sons of Eli, Hophni and Phinehas, were <u>slain</u>[^a].
 
 [1 Samuel 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/4.11?lang=eng#p11)
 

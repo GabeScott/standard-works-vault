@@ -1,6 +1,6 @@
 # Isaiah 58:6
 
-> Is not this the fast that I have chosen? to loose the <u>bands</u>[^a] of wickedness, to undo the heavy burdens, and to let the oppressed go <u>free</u>[^b], and that ye break every yoke?
+> *Is* not this the fast that I have chosen? to loose the <u>bands</u>[^a] of wickedness, to undo the heavy burdens, and to let the oppressed go <u>free</u>[^b], and that ye break every yoke?
 
 [Isaiah 58:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.6?lang=eng#p6)
 

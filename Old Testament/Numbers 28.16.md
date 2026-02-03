@@ -1,6 +1,6 @@
 # Numbers 28:16
 
-> And in the fourteenth day of the first month is the <u>passover</u>[^a] of the Lord .
+> And in the fourteenth day of the first month *is* the <u>passover</u>[^a] of the LORD.
 
 [Numbers 28:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.16?lang=eng#p16)
 

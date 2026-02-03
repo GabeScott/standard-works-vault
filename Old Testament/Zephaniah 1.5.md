@@ -1,6 +1,6 @@
 # Zephaniah 1:5
 
-> And them that worship the host of heaven upon the <u>housetops</u>[^a]; and them that worship and that swear by the Lord , and that swear by <u>Malcham</u>[^b];
+> And them that worship the host of heaven upon the <u>housetops</u>[^a]; and them that worship *and* that swear by the LORD, and that swear by <u>Malcham</u>[^b];
 
 [Zephaniah 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.5?lang=eng#p5)
 

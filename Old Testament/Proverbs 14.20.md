@@ -1,6 +1,6 @@
 # Proverbs 14:20
 
-> The <u>poor</u>[^a] is hated even of his own neighbour: but the rich hath many <u>friends</u>[^b] .
+> The <u>poor</u>[^a] is hated even of his own neighbour: but the rich *hath* many <u>friends</u>[^b].
 
 [Proverbs 14:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.20?lang=eng#p20)
 

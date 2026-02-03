@@ -1,6 +1,6 @@
 # 1 Kings 8:62
 
-> ¶ And the king, and all Israel with him, <u>offered</u>[^a] sacrifice before the Lord .
+> ¶ And the king, and all Israel with him, <u>offered</u>[^a] sacrifice before the LORD.
 
 [1 Kings 8:62](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.62?lang=eng#p62)
 

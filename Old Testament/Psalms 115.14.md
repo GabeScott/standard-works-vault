@@ -1,6 +1,6 @@
 # Psalms 115:14
 
-> The Lord shall <u>increase</u>[^a] you more and more, you and your children.
+> The LORD shall <u>increase</u>[^a] you more and more, you and your children.
 
 [Psalms 115:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/115.14?lang=eng#p14)
 

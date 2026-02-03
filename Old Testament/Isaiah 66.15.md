@@ -1,6 +1,6 @@
 # Isaiah 66:15
 
-> For, behold, the Lord will come with <u>fire</u>[^a], and with his <u>chariots</u>[^b] like a whirlwind, to render his anger with fury, and his rebuke with flames of fire.
+> For, behold, the LORD will come with <u>fire</u>[^a], and with his <u>chariots</u>[^b] like a whirlwind, to render his anger with fury, and his rebuke with flames of fire.
 
 [Isaiah 66:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.15?lang=eng#p15)
 

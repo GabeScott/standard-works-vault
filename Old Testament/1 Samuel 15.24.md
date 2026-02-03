@@ -1,6 +1,6 @@
 # 1 Samuel 15:24
 
-> ¶ And Saul said unto Samuel, I have <u>sinned</u>[^a] : for I have <u>transgressed</u>[^b] the commandment of the Lord , and thy words: because I <u>feared</u>[^c] the people, and obeyed their voice.
+> ¶ And Saul said unto Samuel, I have <u>sinned</u>[^a]: for I have <u>transgressed</u>[^b] the commandment of the LORD, and thy words: because I <u>feared</u>[^c] the people, and obeyed their voice.
 
 [1 Samuel 15:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.24?lang=eng#p24)
 

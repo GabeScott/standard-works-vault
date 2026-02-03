@@ -1,6 +1,6 @@
 # Hosea 10:2
 
-> Their heart is <u>divided</u>[^a]; now shall they be found <u>faulty</u>[^b] : he shall break down their altars, he shall spoil their images.
+> Their heart is <u>divided</u>[^a]; now shall they be found <u>faulty</u>[^b]: he shall break down their altars, he shall spoil their images.
 
 [Hosea 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/10.2?lang=eng#p2)
 

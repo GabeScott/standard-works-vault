@@ -1,6 +1,6 @@
 # 1 Kings 6:16
 
-> And he built twenty cubits on the sides of the house, both the floor and the walls with boards of cedar: he even built them for it within, even for the <u>oracle</u>[^a], even for the most <u>holy place</u>[^b] .
+> And he built twenty cubits on the sides of the house, both the floor and the walls with boards of cedar: he even built *them* for it within, *even* for the <u>oracle</u>[^a], *even* for the most <u>holy place</u>[^b]*.*
 
 [1 Kings 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.16?lang=eng#p16)
 

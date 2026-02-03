@@ -1,6 +1,6 @@
 # Job 22:13
 
-> And thou sayest, How doth God <u>know</u>[^a] ? can he <u>judge</u>[^b] through the dark cloud?
+> And thou sayest, How doth God <u>know</u>[^a]? can he <u>judge</u>[^b] through the dark cloud?
 
 [Job 22:13](https://www.churchofjesuschrist.org/study/scriptures/ot/job/22.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # 1 Nephi 20:10
 
-> For, behold, I have refined thee, I have chosen thee in the furnace of <u>affliction</u>[^a] .
+> For, behold, I have refined thee, I have chosen thee in the furnace of <u>affliction</u>[^a].
 
 [1 Nephi 20:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p10#p10)
 

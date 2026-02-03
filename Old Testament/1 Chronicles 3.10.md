@@ -1,6 +1,6 @@
 # 1 Chronicles 3:10
 
-> ¶ And Solomon’s son was <u>Rehoboam</u>[^a], Abia his son, Asa his son, Jehoshaphat his son,
+> ¶ And Solomon’s son *was* <u>Rehoboam</u>[^a], Abia his son, Asa his son, Jehoshaphat his son,
 
 [1 Chronicles 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/3.10?lang=eng#p10)
 

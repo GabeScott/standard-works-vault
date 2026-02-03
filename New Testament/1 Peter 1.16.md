@@ -1,6 +1,6 @@
 # 1 Peter 1:16
 
-> Because it is written, Be ye holy; for I am <u>holy</u>[^a] .
+> Because it is written, Be ye holy; for I am <u>holy</u>[^a].
 
 [1 Peter 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.16?lang=eng#p16)
 

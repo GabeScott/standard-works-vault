@@ -1,6 +1,6 @@
 # 1 Kings 17:9
 
-> Arise, get thee to Zarephath, which belongeth to Zidon, and dwell there: behold, I have commanded a <u>widow</u>[^a] woman there to sustain thee.
+> Arise, get thee to Zarephath, which *belongeth* to Zidon, and dwell there: behold, I have commanded a <u>widow</u>[^a] woman there to sustain thee.
 
 [1 Kings 17:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/17.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Genesis 6:3
 
-> And the Lord said, My <u>spirit</u>[^a] shall not always <u>strive</u>[^b] with man, for that he also is <u>flesh</u>[^c] : yet his days shall be an hundred and twenty years.
+> And the LORD said, My <u>spirit</u>[^a] shall not always <u>strive</u>[^b] with man, for that he also *is* <u>flesh</u>[^c]: yet his days shall be an hundred and twenty years.
 
 [Genesis 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.3?lang=eng#p3)
 

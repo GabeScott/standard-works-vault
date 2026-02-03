@@ -1,6 +1,6 @@
 # 2 Kings 2:21
 
-> And he went forth unto the spring of the waters, and cast the <u>salt</u>[^a] in there, and said, Thus saith the Lord , I have healed these <u>waters</u>[^b]; there shall not be from thence any more death or <u>barren</u>[^c] land.
+> And he went forth unto the spring of the waters, and cast the <u>salt</u>[^a] in there, and said, Thus saith the LORD, I have healed these <u>waters</u>[^b]; there shall not be from thence any more death or <u>barren</u>[^c] *land.*
 
 [2 Kings 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.21?lang=eng#p21)
 

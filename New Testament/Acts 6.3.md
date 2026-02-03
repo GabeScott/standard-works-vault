@@ -1,6 +1,6 @@
 # Acts 6:3
 
-> Wherefore, brethren, look ye out among you seven men of <u>honest</u>[^a] <u>report</u>[^b], full of the Holy Ghost and <u>wisdom</u>[^c], whom we may appoint over this <u>business</u>[^d] .
+> Wherefore, brethren, look ye out among you seven men of <u>honest</u>[^a] <u>report</u>[^b], full of the Holy Ghost and <u>wisdom</u>[^c], whom we may appoint over this <u>business</u>[^d].
 
 [Acts 6:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.3?lang=eng#p3)
 

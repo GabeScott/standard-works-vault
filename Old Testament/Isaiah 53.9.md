@@ -1,6 +1,6 @@
 # Isaiah 53:9
 
-> And he made his grave with the <u>wicked</u>[^a], and with the rich in his <u>death</u>[^b]; <u>because</u>[^c] he had done no <u>violence</u>[^d], neither was any <u>deceit</u>[^e] in his mouth.
+> And he made his grave with the <u>wicked</u>[^a], and with the rich in his <u>death</u>[^b]; <u>because</u>[^c] he had done no <u>violence</u>[^d], neither *was any* <u>deceit</u>[^e] in his mouth.
 
 [Isaiah 53:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.9?lang=eng#p9)
 

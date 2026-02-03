@@ -1,6 +1,6 @@
 # Genesis 17:13
 
-> He that is born in thy house, and he that is bought with thy money, must needs be circumcised: and my covenant shall be in your flesh for an <u>everlasting covenant</u>[^a] .
+> He that is born in thy house, and he that is bought with thy money, must needs be circumcised: and my covenant shall be in your flesh for an <u>everlasting covenant</u>[^a].
 
 [Genesis 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.13?lang=eng#p13)
 

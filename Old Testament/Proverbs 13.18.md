@@ -1,6 +1,6 @@
 # Proverbs 13:18
 
-> Poverty and <u>shame</u>[^a] shall be to him that refuseth <u>instruction</u>[^b] : but he that regardeth <u>reproof</u>[^c] shall be honoured.
+> Poverty and <u>shame</u>[^a] *shall be to* him that refuseth <u>instruction</u>[^b]: but he that regardeth <u>reproof</u>[^c] shall be honoured.
 
 [Proverbs 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.18?lang=eng#p18)
 

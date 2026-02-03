@@ -1,6 +1,6 @@
 # Romans 12:2
 
-> And be not conformed to this <u>world</u>[^a] : but be ye <u>transformed</u>[^b] by the <u>renewing</u>[^c] of your <u>mind</u>[^d], that ye may <u>prove</u>[^e] what is that good, and acceptable, and perfect, <u>will</u>[^f] of God.
+> And be not conformed to this <u>world</u>[^a]: but be ye <u>transformed</u>[^b] by the <u>renewing</u>[^c] of your <u>mind</u>[^d], that ye may <u>prove</u>[^e] what *is* that good, and acceptable, and perfect, <u>will</u>[^f] of God.
 
 [Romans 12:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.2?lang=eng#p2)
 

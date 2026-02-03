@@ -1,6 +1,6 @@
 # Exodus 6:23
 
-> And Aaron took him Elisheba, daughter of Amminadab, sister of Naashon, to wife; and she bare him <u>Nadab</u>[^a], and Abihu, Eleazar, and <u>Ithamar</u>[^b] .
+> And Aaron took him Elisheba, daughter of Amminadab, sister of Naashon, to wife; and she bare him <u>Nadab</u>[^a], and Abihu, Eleazar, and <u>Ithamar</u>[^b].
 
 [Exodus 6:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.23?lang=eng#p23)
 

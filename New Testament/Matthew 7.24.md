@@ -1,6 +1,6 @@
 # Matthew 7:24
 
-> ¶ Therefore whosoever <u>heareth</u>[^a] these sayings of mine, and <u>doeth</u>[^b] them, <u>I</u>[^c] will liken him unto a <u>wise</u>[^d] man, which <u>built</u>[^e] his house upon <u>a rock</u>[^f] :
+> ¶ Therefore whosoever <u>heareth</u>[^a] these sayings of mine, and <u>doeth</u>[^b] them, <u>I</u>[^c] will liken him unto a <u>wise</u>[^d] man, which <u>built</u>[^e] his house upon <u>a rock</u>[^f]:
 
 [Matthew 7:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.24?lang=eng#p24)
 

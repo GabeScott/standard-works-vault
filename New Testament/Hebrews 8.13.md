@@ -1,6 +1,6 @@
 # Hebrews 8:13
 
-> In that he saith, A <u>new covenant</u>[^a], he hath made the first old. Now that which decayeth and waxeth <u>old</u>[^b] is ready to <u>vanish</u>[^c] away.
+> In that he saith, A <u>new covenant</u>[^a]*,* he hath made the first old. Now that which decayeth and waxeth <u>old</u>[^b] *is* ready to <u>vanish</u>[^c] away.
 
 [Hebrews 8:13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/8.13?lang=eng#p13)
 

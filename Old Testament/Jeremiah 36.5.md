@@ -1,6 +1,6 @@
 # Jeremiah 36:5
 
-> And Jeremiah commanded Baruch, saying, I am <u>shut up</u>[^a]; I cannot go into the house of the Lord :
+> And Jeremiah commanded Baruch, saying, I *am* <u>shut up</u>[^a]; I cannot go into the house of the LORD:
 
 [Jeremiah 36:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.5?lang=eng#p5)
 

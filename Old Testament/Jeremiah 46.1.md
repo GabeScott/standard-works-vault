@@ -1,6 +1,6 @@
 # Jeremiah 46:1
 
-> The word of the Lord which came to Jeremiah the prophet against the <u>Gentiles</u>[^a];
+> The word of the LORD which came to Jeremiah the prophet against the <u>Gentiles</u>[^a];
 
 [Jeremiah 46:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.1?lang=eng#p1)
 

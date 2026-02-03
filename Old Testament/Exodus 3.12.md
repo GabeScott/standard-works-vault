@@ -1,6 +1,6 @@
 # Exodus 3:12
 
-> And he said, Certainly I will be <u>with thee</u>[^a]; and this shall be <u>a token</u>[^b] unto thee, that I have <u>sent</u>[^c] thee: When thou hast brought forth the people out of Egypt, ye shall serve God upon this <u>mountain</u>[^d] .
+> And he said, Certainly I will be <u>with thee</u>[^a]; and this *shall be* <u>a token</u>[^b] unto thee, that I have <u>sent</u>[^c] thee: When thou hast brought forth the people out of Egypt, ye shall serve God upon this <u>mountain</u>[^d].
 
 [Exodus 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Exodus 24:5
 
-> And he sent young men of the children of Israel, which offered burnt offerings, and sacrificed <u>peace offerings</u>[^a] of oxen unto the Lord .
+> And he sent young men of the children of Israel, which offered burnt offerings, and sacrificed <u>peace offerings</u>[^a] of oxen unto the LORD.
 
 [Exodus 24:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.5?lang=eng#p5)
 

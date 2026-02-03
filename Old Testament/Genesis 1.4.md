@@ -1,6 +1,6 @@
 # Genesis 1:4
 
-> And God saw the light, that it was <u>good</u>[^a] : and God divided the light from the darkness.
+> And God saw the light, that *it was* <u>good</u>[^a]: and God divided the light from the darkness.
 
 [Genesis 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 9:19
 
-> For I was afraid of the anger and hot displeasure, wherewith the Lord was wroth against you to <u>destroy</u>[^a] you. But the Lord <u>hearkened</u>[^b] unto me at that time also.
+> For I was afraid of the anger and hot displeasure, wherewith the LORD was wroth against you to <u>destroy</u>[^a] you. But the LORD <u>hearkened</u>[^b] unto me at that time also.
 
 [Deuteronomy 9:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.19?lang=eng#p19)
 

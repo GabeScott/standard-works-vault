@@ -1,6 +1,6 @@
 # Deuteronomy 9:9
 
-> When I was gone up into the mount to receive the tables of stone, even the tables of the covenant which the Lord made with you, then I abode in the mount <u>forty</u>[^a] days and forty nights, I neither did eat bread nor drink water:
+> When I was gone up into the mount to receive the tables of stone, *even* the tables of the covenant which the LORD made with you, then I abode in the mount <u>forty</u>[^a] days and forty nights, I neither did eat bread nor drink water:
 
 [Deuteronomy 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.9?lang=eng#p9)
 

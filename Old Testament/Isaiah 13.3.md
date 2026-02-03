@@ -1,6 +1,6 @@
 # Isaiah 13:3
 
-> I have commanded my <u>sanctified ones</u>[^a], I have also called my <u>mighty</u>[^b] ones for mine anger, even them that rejoice in my highness.
+> I have commanded my <u>sanctified ones</u>[^a], I have also called my <u>mighty</u>[^b] ones for mine anger, *even* them that rejoice in my highness.
 
 [Isaiah 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.3?lang=eng#p3)
 

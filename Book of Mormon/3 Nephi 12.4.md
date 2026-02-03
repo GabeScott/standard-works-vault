@@ -1,6 +1,6 @@
 # 3 Nephi 12:4
 
-> And again, blessed are all they that <u>mourn</u>[^a], for they shall be <u>comforted</u>[^b] .
+> And again, blessed are all they that <u>mourn</u>[^a], for they shall be <u>comforted</u>[^b].
 
 [3 Nephi 12:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p4#p4)
 

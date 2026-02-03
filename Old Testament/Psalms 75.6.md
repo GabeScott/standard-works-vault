@@ -1,6 +1,6 @@
 # Psalms 75:6
 
-> For <u>promotion</u>[^a] cometh neither from the east, nor from the west, nor from the south.
+> For <u>promotion</u>[^a] *cometh* neither from the east, nor from the west, nor from the south.
 
 [Psalms 75:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/75.6?lang=eng#p6)
 

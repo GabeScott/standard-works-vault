@@ -1,6 +1,6 @@
 # Genesis 6:17
 
-> And, behold, I, even I, do bring a <u>flood</u>[^a] of <u>waters</u>[^b] upon the earth, to destroy all flesh, wherein is the <u>breath of life</u>[^c], from under heaven; and every thing that is in the earth shall die.
+> And, behold, I, even I, do bring a <u>flood</u>[^a] of <u>waters</u>[^b] upon the earth, to destroy all flesh, wherein *is* the <u>breath of life</u>[^c], from under heaven; *and* every thing that *is* in the earth shall die.
 
 [Genesis 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.17?lang=eng#p17)
 

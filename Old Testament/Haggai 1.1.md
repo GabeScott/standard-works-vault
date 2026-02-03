@@ -1,6 +1,6 @@
 # Haggai 1:1
 
-> In <u>the second year</u>[^a] of Darius the king, in the sixth <u>month</u>[^b], in the first day of the month, came the word of the Lord by Haggai the prophet unto <u>Zerubbabel</u>[^c] the son of Shealtiel, governor of Judah, and to Joshua the son of Josedech, the high priest, saying,
+> In <u>the second year</u>[^a] of Darius the king, in the sixth <u>month</u>[^b], in the first day of the month, came the word of the LORD by Haggai the prophet unto <u>Zerubbabel</u>[^c] the son of Shealtiel, governor of Judah, and to Joshua the son of Josedech, the high priest, saying,
 
 [Haggai 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/1.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # 1 Kings 12:28
 
-> Whereupon the king took counsel, and <u>made</u>[^a] two <u>calves</u>[^b] of gold, and said unto them, It is too much for you to go up to Jerusalem: behold thy <u>gods</u>[^c], O Israel, which brought thee up out of the land of Egypt.
+> Whereupon the king took counsel, and <u>made</u>[^a] two <u>calves</u>[^b] *of* gold, and said unto them, It is too much for you to go up to Jerusalem: behold thy <u>gods</u>[^c], O Israel, which brought thee up out of the land of Egypt.
 
 [1 Kings 12:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.28?lang=eng#p28)
 

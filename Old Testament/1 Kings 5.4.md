@@ -1,6 +1,6 @@
 # 1 Kings 5:4
 
-> But now the Lord my God hath given me <u>rest</u>[^a] on every side, so that there is neither adversary nor evil occurrent.
+> But now the LORD my God hath given me <u>rest</u>[^a] on every side, *so that there is* neither adversary nor evil occurrent.
 
 [1 Kings 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/5.4?lang=eng#p4)
 

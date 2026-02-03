@@ -1,6 +1,6 @@
 # Numbers 26:23
 
-> ¶ Of the sons of <u>Issachar</u>[^a] after their families: of Tola, the family of the Tolaites: of Pua, the family of the Punites:
+> ¶ *Of* the sons of <u>Issachar</u>[^a] after their families: *of* Tola, the family of the Tolaites: of Pua, the family of the Punites:
 
 [Numbers 26:23](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.23?lang=eng#p23)
 

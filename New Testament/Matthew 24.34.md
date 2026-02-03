@@ -1,6 +1,6 @@
 # Matthew 24:34
 
-> Verily I say unto you, This <u>generation</u>[^a] shall not pass, till all these <u>things</u>[^b] be <u>fulfilled</u>[^c] .
+> Verily I say unto you, This <u>generation</u>[^a] shall not pass, till all these <u>things</u>[^b] be <u>fulfilled</u>[^c].
 
 [Matthew 24:34](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.34?lang=eng#p34)
 

@@ -1,6 +1,6 @@
 # Isaiah 19:1
 
-> The <u>burden</u>[^a] of <u>Egypt</u>[^b] . Behold, the Lord rideth upon a swift <u>cloud</u>[^c], and shall come into Egypt: and the <u>idols</u>[^d] of Egypt shall be moved at his presence, and the heart of Egypt shall melt in the midst of it.
+> The <u>burden</u>[^a] of <u>Egypt</u>[^b]. Behold, the LORD rideth upon a swift <u>cloud</u>[^c], and shall come into Egypt: and the <u>idols</u>[^d] of Egypt shall be moved at his presence, and the heart of Egypt shall melt in the midst of it.
 
 [Isaiah 19:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.1?lang=eng#p1)
 

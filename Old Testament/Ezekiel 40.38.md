@@ -1,6 +1,6 @@
 # Ezekiel 40:38
 
-> And the chambers and the entries thereof were by the posts of the gates, where they <u>washed</u>[^a] the burnt <u>offering</u>[^b] .
+> And the chambers and the entries thereof *were* by the posts of the gates, where they <u>washed</u>[^a] the burnt <u>offering</u>[^b].
 
 [Ezekiel 40:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.38?lang=eng#p38)
 

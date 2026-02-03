@@ -1,6 +1,6 @@
 # Revelation 22:4
 
-> And they shall <u>see</u>[^a] his <u>face</u>[^b]; and his <u>name</u>[^c] shall be in their foreheads.
+> And they shall <u>see</u>[^a] his <u>face</u>[^b]; and his <u>name</u>[^c] *shall be* in their foreheads.
 
 [Revelation 22:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.4?lang=eng#p4)
 

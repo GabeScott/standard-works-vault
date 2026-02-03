@@ -1,6 +1,6 @@
 # 1 Corinthians 10:13
 
-> There hath no temptation <u>taken</u>[^a] you but such as is common to man: but God is faithful, who will not suffer you to be <u>tempted</u>[^b] above that ye are able; but will with the <u>temptation</u>[^c] also make a way to <u>escape</u>[^d], that ye may be able to <u>bear</u>[^e] it.
+> There hath no temptation <u>taken</u>[^a] you but such as is common to man: but God *is* faithful, who will not suffer you to be <u>tempted</u>[^b] above that ye are able; but will with the <u>temptation</u>[^c] also make a way to <u>escape</u>[^d], that ye may be able to <u>bear</u>[^e] *it.*
 
 [1 Corinthians 10:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.13?lang=eng#p13)
 

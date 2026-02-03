@@ -1,6 +1,6 @@
 # Proverbs 15:1
 
-> A <u>soft</u>[^a] <u>answer</u>[^b] turneth away <u>wrath</u>[^c] : but grievous words stir up anger.
+> A <u>soft</u>[^a] <u>answer</u>[^b] turneth away <u>wrath</u>[^c]: but grievous words stir up anger.
 
 [Proverbs 15:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.1?lang=eng#p1)
 

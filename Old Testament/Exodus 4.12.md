@@ -1,6 +1,6 @@
 # Exodus 4:12
 
-> Now therefore go, and I will be with thy <u>mouth</u>[^a], and <u>teach</u>[^b] thee what thou shalt <u>say</u>[^c] .
+> Now therefore go, and I will be with thy <u>mouth</u>[^a], and <u>teach</u>[^b] thee what thou shalt <u>say</u>[^c].
 
 [Exodus 4:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.12?lang=eng#p12)
 

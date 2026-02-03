@@ -1,6 +1,6 @@
 # John 20:31
 
-> But these are <u>written</u>[^a], that ye might <u>believe</u>[^b] that Jesus is the <u>Christ</u>[^c], the Son of God; and that believing ye might have <u>life</u>[^d] through his <u>name</u>[^e] .
+> But these are <u>written</u>[^a], that ye might <u>believe</u>[^b] that Jesus is the <u>Christ</u>[^c], the Son of God; and that believing ye might have <u>life</u>[^d] through his <u>name</u>[^e].
 
 [John 20:31](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.31?lang=eng#p31)
 

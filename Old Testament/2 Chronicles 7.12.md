@@ -1,6 +1,6 @@
 # 2 Chronicles 7:12
 
-> ¶ And the Lord appeared to Solomon by night, and said unto him, I have heard thy prayer, and have chosen this <u>place</u>[^a] to myself for an house of sacrifice.
+> ¶ And the LORD appeared to Solomon by night, and said unto him, I have heard thy prayer, and have chosen this <u>place</u>[^a] to myself for an house of sacrifice.
 
 [2 Chronicles 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.12?lang=eng#p12)
 

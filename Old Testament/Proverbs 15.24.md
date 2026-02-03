@@ -1,6 +1,6 @@
 # Proverbs 15:24
 
-> The way of life is <u>above</u>[^a] to the wise, that he may depart from hell beneath.
+> The way of life *is* <u>above</u>[^a] to the wise, that he may depart from hell beneath.
 
 [Proverbs 15:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.24?lang=eng#p24)
 

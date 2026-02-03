@@ -1,6 +1,6 @@
 # Leviticus 21:5
 
-> They shall not make <u>baldness</u>[^a] upon their head, neither shall they shave off the corner of their beard, nor make any cuttings in their <u>flesh</u>[^b] .
+> They shall not make <u>baldness</u>[^a] upon their head, neither shall they shave off the corner of their beard, nor make any cuttings in their <u>flesh</u>[^b].
 
 [Leviticus 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/21.5?lang=eng#p5)
 

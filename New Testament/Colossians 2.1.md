@@ -1,6 +1,6 @@
 # Colossians 2:1
 
-> For I would that ye knew what great <u>conflict</u>[^a] I have for you, and for them at <u>Laodicea</u>[^b], and for as many as have not seen my face in the flesh;
+> For I would that ye knew what great <u>conflict</u>[^a] I have for you, and *for* them at <u>Laodicea</u>[^b], and *for* as many as have not seen my face in the flesh;
 
 [Colossians 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/col/2.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Job 34:11
 
-> For the <u>work</u>[^a] of a man shall he render unto him, and cause every man to find according to his ways.
+> For the <u>work</u>[^a] of a man shall he render unto him, and cause every man to find according to *his* ways.
 
 [Job 34:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/34.11?lang=eng#p11)
 

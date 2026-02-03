@@ -1,6 +1,6 @@
 # Isaiah 21:11
 
-> ¶ The <u>burden of Dumah</u>[^a] . He calleth to me out of <u>Seir</u>[^b], Watchman, <u>what of the night</u>[^c] ? Watchman, what of the night?
+> ¶ The <u>burden of Dumah</u>[^a]. He calleth to me out of <u>Seir</u>[^b], Watchman, <u>what of the night</u>[^c]? Watchman, what of the night?
 
 [Isaiah 21:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/21.11?lang=eng#p11)
 

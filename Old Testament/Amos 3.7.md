@@ -1,6 +1,6 @@
 # Amos 3:7
 
-> Surely the Lord God will do nothing, <u>but</u>[^a] he <u>revealeth</u>[^b] his <u>secret</u>[^c] unto his servants the <u>prophets</u>[^d] .
+> Surely the Lord GOD will do nothing, <u>but</u>[^a] he <u>revealeth</u>[^b] his <u>secret</u>[^c] unto his servants the <u>prophets</u>[^d].
 
 [Amos 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.7?lang=eng#p7)
 

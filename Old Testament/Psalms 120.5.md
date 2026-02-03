@@ -1,6 +1,6 @@
 # Psalms 120:5
 
-> Woe is me, that I sojourn in <u>Mesech</u>[^a], that I dwell in the <u>tents</u>[^b] of <u>Kedar</u>[^c] !
+> Woe is me, that I sojourn in <u>Mesech</u>[^a], *that* I dwell in the <u>tents</u>[^b] of <u>Kedar</u>[^c]!
 
 [Psalms 120:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/120.5?lang=eng#p5)
 

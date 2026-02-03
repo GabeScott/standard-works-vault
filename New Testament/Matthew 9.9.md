@@ -1,6 +1,6 @@
 # Matthew 9:9
 
-> ¶ And as Jesus passed forth from thence, he saw a man, named <u>Matthew</u>[^a], sitting at the <u>receipt of custom</u>[^b] : and he saith unto him, Follow me. And he arose, and followed him.
+> ¶ And as Jesus passed forth from thence, he saw a man, named <u>Matthew</u>[^a], sitting at the <u>receipt of custom</u>[^b]: and he saith unto him, Follow me. And he arose, and followed him.
 
 [Matthew 9:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.9?lang=eng#p9)
 

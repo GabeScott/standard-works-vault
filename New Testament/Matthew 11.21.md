@@ -1,6 +1,6 @@
 # Matthew 11:21
 
-> Woe unto thee, Chorazin! woe unto thee, Bethsaida! for if the mighty works, which were done in you, had been done in Tyre and Sidon, they would have <u>repented</u>[^a] long ago in sackcloth and <u>ashes</u>[^b] .
+> Woe unto thee, Chorazin! woe unto thee, Bethsaida! for if the mighty works, which were done in you, had been done in Tyre and Sidon, they would have <u>repented</u>[^a] long ago in sackcloth and <u>ashes</u>[^b].
 
 [Matthew 11:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.21?lang=eng#p21)
 

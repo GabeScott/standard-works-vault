@@ -1,6 +1,6 @@
 # 2 Corinthians 5:16
 
-> <u>Wherefore</u>[^a] henceforth know we no man after the flesh: yea, though we have known Christ after the flesh, yet now henceforth know we him no more.
+> <u>Wherefore</u>[^a] henceforth know we no man after the flesh: yea, though we have known Christ after the flesh, yet now henceforth know we *him* no more.
 
 [2 Corinthians 5:16](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Genesis 7:23
 
-> And every living substance was <u>destroyed</u>[^a] which was upon the face of the ground, both man, and cattle, and the creeping things, and the fowl of the heaven; and they were destroyed from the earth: and <u>Noah</u>[^b] only remained alive, and they that were with him in the ark.
+> And every living substance was <u>destroyed</u>[^a] which was upon the face of the ground, both man, and cattle, and the creeping things, and the fowl of the heaven; and they were destroyed from the earth: and <u>Noah</u>[^b] only remained <u>alive</u>[^c]*,* and they that *were* with him in the ark.
 
 [Genesis 7:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/7.23?lang=eng#p23)
 

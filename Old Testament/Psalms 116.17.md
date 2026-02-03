@@ -1,6 +1,6 @@
 # Psalms 116:17
 
-> I will offer to thee the sacrifice of thanksgiving, and will <u>call</u>[^a] upon the name of the Lord .
+> I will offer to thee the sacrifice of thanksgiving, and will <u>call</u>[^a] upon the name of the LORD.
 
 [Psalms 116:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.17?lang=eng#p17)
 

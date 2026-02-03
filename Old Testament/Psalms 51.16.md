@@ -1,6 +1,6 @@
 # Psalms 51:16
 
-> For thou desirest not <u>sacrifice</u>[^a]; else would I give it: thou delightest not in burnt offering.
+> For thou desirest not <u>sacrifice</u>[^a]; else would I give *it:* thou delightest not in burnt offering.
 
 [Psalms 51:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.16?lang=eng#p16)
 

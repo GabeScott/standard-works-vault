@@ -1,6 +1,6 @@
 # Genesis 15:14
 
-> And also that nation, whom they shall serve, will I judge: and afterward shall they <u>come</u>[^a] out with great <u>substance</u>[^b] .
+> And also that nation, whom they shall serve, will I judge: and afterward shall they <u>come</u>[^a] out with great <u>substance</u>[^b].
 
 [Genesis 15:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.14?lang=eng#p14)
 

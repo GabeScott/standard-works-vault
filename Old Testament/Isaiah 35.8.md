@@ -1,6 +1,6 @@
 # Isaiah 35:8
 
-> And an <u>highway</u>[^a] shall be there, and a way, and it shall be called The way of <u>holiness</u>[^b]; the <u>unclean</u>[^c] shall not pass over it; but it shall be for those: the wayfaring men, though fools, shall not err therein.
+> And an <u>highway</u>[^a] shall be there, and a way, and it shall be called The way of <u>holiness</u>[^b]; the <u>unclean</u>[^c] shall not pass over it; but it *shall be* for those: the wayfaring men, though fools, shall not err *therein.*
 
 [Isaiah 35:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/35.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Psalms 15:1
 
-> Lord , who shall <u>abide</u>[^a] in thy tabernacle? who shall dwell in thy holy <u>hill</u>[^b] ?
+> LORD, who shall <u>abide</u>[^a] in thy tabernacle? who shall dwell in thy holy <u>hill</u>[^b]?
 
 [Psalms 15:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/15.1?lang=eng#p1)
 

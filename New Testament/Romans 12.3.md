@@ -1,6 +1,6 @@
 # Romans 12:3
 
-> For I say, through the grace given unto me, to every man that is among you, not to <u>think</u>[^a] of himself more highly than he ought to think; but to think <u>soberly</u>[^b], according as <u>God</u>[^c] hath dealt to every man the measure of faith.
+> For I say, through the grace given unto me, to every man that is among you, not to <u>think</u>[^a] *of himself* more highly than he ought to think; but to think <u>soberly</u>[^b], according as <u>God</u>[^c] hath dealt to every man the measure of faith.
 
 [Romans 12:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.3?lang=eng#p3)
 

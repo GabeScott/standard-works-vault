@@ -1,6 +1,6 @@
 # Proverbs 20:29
 
-> The <u>glory</u>[^a] of young men is their strength: and the <u>beauty</u>[^b] of <u>old</u>[^c] men is the <u>gray</u>[^d] head.
+> The <u>glory</u>[^a] of young men *is* their strength: and the <u>beauty</u>[^b] of <u>old</u>[^c] men *is* the <u>gray</u>[^d] head.
 
 [Proverbs 20:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.29?lang=eng#p29)
 

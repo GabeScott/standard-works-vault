@@ -1,6 +1,6 @@
 # Deuteronomy 26:11
 
-> And thou shalt <u>rejoice</u>[^a] in every good thing which the Lord thy God hath given unto thee, and unto thine house, thou, and the Levite, and the <u>stranger</u>[^b] that is among you.
+> And thou shalt <u>rejoice</u>[^a] in every good *thing* which the LORD thy God hath given unto thee, and unto thine house, thou, and the Levite, and the <u>stranger</u>[^b] that *is* among you.
 
 [Deuteronomy 26:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.11?lang=eng#p11)
 

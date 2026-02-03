@@ -1,6 +1,6 @@
 # Psalms 44:8
 
-> In God we <u>boast</u>[^a] all the day long, and praise thy name for ever. Selah .
+> In God we <u>boast</u>[^a] all the day long, and praise thy name for ever. Selah.
 
 [Psalms 44:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/44.8?lang=eng#p8)
 

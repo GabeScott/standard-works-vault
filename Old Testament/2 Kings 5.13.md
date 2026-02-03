@@ -1,6 +1,6 @@
 # 2 Kings 5:13
 
-> And his servants came near, and spake unto him, and said, My father, if the prophet had bid thee do some <u>great</u>[^a] thing, wouldest thou not have done it? how much rather then, when he saith to thee, Wash, and be clean?
+> And his servants came near, and spake unto him, and said, My father, *if* the prophet had bid thee *do some* <u>great</u>[^a] thing, wouldest thou not have done *it?* how much rather then, when he saith to thee, Wash, and be clean?
 
 [2 Kings 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/5.13?lang=eng#p13)
 

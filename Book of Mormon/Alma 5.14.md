@@ -1,6 +1,6 @@
 # Alma 5:14
 
-> And now behold, I ask of you, my brethren of the church, have ye <u>spiritually</u>[^a] been <u>born of God</u>[^b] ? Have ye received his image in your countenances? Have ye experienced this mighty <u>change</u>[^c] in your hearts?
+> And now behold, I ask of you, my brethren of the church, have ye <u>spiritually</u>[^a] been <u>born of God</u>[^b]? Have ye received his image in your countenances? Have ye experienced this mighty <u>change</u>[^c] in your hearts?
 
 [Alma 5:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p14#p14)
 

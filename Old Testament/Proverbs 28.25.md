@@ -1,6 +1,6 @@
 # Proverbs 28:25
 
-> He that is of a <u>proud</u>[^a] heart stirreth up <u>strife</u>[^b] : but he that putteth his <u>trust</u>[^c] in the Lord shall be <u>made fat</u>[^d] .
+> He that is of a <u>proud</u>[^a] heart stirreth up <u>strife</u>[^b]: but he that putteth his <u>trust</u>[^c] in the LORD shall be <u>made fat</u>[^d].
 
 [Proverbs 28:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.25?lang=eng#p25)
 

@@ -1,6 +1,6 @@
 # Psalms 50:15
 
-> And <u>call</u>[^a] upon me in the day of <u>trouble</u>[^b] : I will deliver thee, and thou shalt glorify me.
+> And <u>call</u>[^a] upon me in the day of <u>trouble</u>[^b]: I will deliver thee, and thou shalt glorify me.
 
 [Psalms 50:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # Exodus 12:36
 
-> And the Lord gave the people <u>favour</u>[^a] in the sight of the Egyptians, so that they <u>lent unto them</u>[^b] such things as they required. And they <u>spoiled</u>[^c] the Egyptians.
+> And the LORD gave the people <u>favour</u>[^a] in the sight of the Egyptians, so that they <u>lent unto them</u>[^b] *such things as they required.* And they <u>spoiled</u>[^c] the Egyptians.
 
 [Exodus 12:36](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.36?lang=eng#p36)
 

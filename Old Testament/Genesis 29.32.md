@@ -1,6 +1,6 @@
 # Genesis 29:32
 
-> And <u>Leah</u>[^a] conceived, and bare a son, and she called his name <u>Reuben</u>[^b] : for she said, Surely the Lord hath looked upon my affliction; now therefore my husband will love me.
+> And <u>Leah</u>[^a] conceived, and bare a son, and she called his name <u>Reuben</u>[^b]: for she said, Surely the LORD hath looked upon my affliction; now therefore my husband will love me.
 
 [Genesis 29:32](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.32?lang=eng#p32)
 

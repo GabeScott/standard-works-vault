@@ -1,6 +1,6 @@
 # 1 Corinthians 11:1
 
-> Be ye <u>followers</u>[^a] of me, even as I also am of Christ.
+> Be ye <u>followers</u>[^a] of me, even as I also *am* of Christ.
 
 [1 Corinthians 11:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.1?lang=eng#p1)
 

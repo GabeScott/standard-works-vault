@@ -1,6 +1,6 @@
 # 1 Samuel 16:14
 
-> ¶ But the <u>Spirit</u>[^a] of the Lord <u>departed</u>[^b] from Saul, and an evil spirit <u>from the Lord</u>[^c] troubled him.
+> ¶ But the <u>Spirit</u>[^a] of the LORD <u>departed</u>[^b] from Saul, and an evil spirit <u>from the Lord</u>[^c] troubled him.
 
 [1 Samuel 16:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/16.14?lang=eng#p14)
 

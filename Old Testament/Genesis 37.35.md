@@ -1,6 +1,6 @@
 # Genesis 37:35
 
-> And all his <u>sons</u>[^a] and all his daughters rose up to comfort him; but he refused to be <u>comforted</u>[^b]; and he said, For I will go down into the grave unto my son <u>mourning</u>[^c] . Thus his father wept for him.
+> And all his <u>sons</u>[^a] and all his daughters rose up to comfort him; but he refused to be <u>comforted</u>[^b]; and he said, For I will go down into the grave unto my son <u>mourning</u>[^c]. Thus his father wept for him.
 
 [Genesis 37:35](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.35?lang=eng#p35)
 

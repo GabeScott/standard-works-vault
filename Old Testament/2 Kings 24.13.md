@@ -1,6 +1,6 @@
 # 2 Kings 24:13
 
-> And he <u>carried</u>[^a] out thence all the <u>treasures</u>[^b] of the house of the Lord , and the treasures of the king’s house, and cut in pieces all the <u>vessels</u>[^c] of gold which <u>Solomon</u>[^d] king of Israel had made in the temple of the Lord , as the Lord had said.
+> And he <u>carried</u>[^a] out thence all the <u>treasures</u>[^b] of the house of the LORD, and the treasures of the king’s house, and cut in pieces all the <u>vessels</u>[^c] of gold which <u>Solomon</u>[^d] king of Israel had made in the temple of the LORD, as the LORD had said.
 
 [2 Kings 24:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.13?lang=eng#p13)
 

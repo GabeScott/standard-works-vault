@@ -1,6 +1,6 @@
 # Job 24:24
 
-> They are exalted for a <u>little while</u>[^a], but are gone and brought <u>low</u>[^b]; they are taken out of the way as all other, and cut off as the <u>tops</u>[^c] of the ears of corn.
+> They are exalted for a <u>little while</u>[^a], but are gone and brought <u>low</u>[^b]; they are taken out of the way as all *other,* and cut off as the <u>tops</u>[^c] of the ears of corn.
 
 [Job 24:24](https://www.churchofjesuschrist.org/study/scriptures/ot/job/24.24?lang=eng#p24)
 

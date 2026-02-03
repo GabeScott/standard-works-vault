@@ -1,6 +1,6 @@
 # Nehemiah 8:10
 
-> Then he said unto them, Go your way, eat the fat, and drink the sweet, and send <u>portions</u>[^a] unto them for whom nothing is prepared: for this <u>day</u>[^b] is holy unto our Lord: neither be ye <u>sorry</u>[^c]; for the joy of the Lord is your <u>strength</u>[^d] .
+> Then he said unto them, Go your way, eat the fat, and drink the sweet, and send <u>portions</u>[^a] unto them for whom nothing is prepared: for *this* <u>day</u>[^b] *is* holy unto our Lord: neither be ye <u>sorry</u>[^c]; for the joy of the LORD is your <u>strength</u>[^d].
 
 [Nehemiah 8:10](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.10?lang=eng#p10)
 

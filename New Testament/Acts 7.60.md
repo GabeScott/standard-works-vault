@@ -1,6 +1,6 @@
 # Acts 7:60
 
-> And he kneeled down, and <u>cried</u>[^a] with a loud voice, <u>Lord</u>[^b], lay not this sin to their <u>charge</u>[^c] . And when he had said this, he fell asleep.
+> And he kneeled down, and <u>cried</u>[^a] with a loud voice, <u>Lord</u>[^b], lay not this sin to their <u>charge</u>[^c]. And when he had said this, he fell asleep.
 
 [Acts 7:60](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.60?lang=eng#p60)
 

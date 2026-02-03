@@ -1,6 +1,6 @@
 # Revelation 21:7
 
-> He that <u>overcometh</u>[^a] shall <u>inherit</u>[^b] <u>all</u>[^c] things; and I will be his God, and he shall be my <u>son</u>[^d] .
+> He that <u>overcometh</u>[^a] shall <u>inherit</u>[^b] <u>all</u>[^c] things; and I will be his God, and he shall be my <u>son</u>[^d].
 
 [Revelation 21:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.7?lang=eng#p7)
 

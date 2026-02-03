@@ -1,6 +1,6 @@
 # Jude 1:3
 
-> Beloved, when I gave all diligence to <u>write</u>[^a] unto you of the common <u>salvation</u>[^b], it was needful for me to write unto you, and exhort you that ye should <u>earnestly</u>[^c] <u>contend</u>[^d] for the faith which was once delivered unto the saints.
+> Beloved, when I gave all diligence to <u>write</u>[^a] unto you of the common <u>salvation</u>[^b], it was needful for me to write unto you, and exhort *you* that ye should <u>earnestly</u>[^c] <u>contend</u>[^d] for the faith which was once delivered unto the saints.
 
 [Jude 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 34:7
 
-> ¶ And Moses was an <u>hundred</u>[^a] and twenty years old when he died: his eye was not dim, nor his natural force abated.
+> ¶ And Moses *was* an <u>hundred</u>[^a] and twenty years old when he died: his eye was not dim, nor his natural force abated.
 
 [Deuteronomy 34:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.7?lang=eng#p7)
 

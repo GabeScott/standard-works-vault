@@ -1,6 +1,6 @@
 # Matthew 4:19
 
-> And he saith unto them, <u>Follow me</u>[^a], and I will make you <u>fishers of men</u>[^b] .
+> And he saith unto them, <u>Follow me</u>[^a], and I will make you <u>fishers of men</u>[^b].
 
 [Matthew 4:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.19?lang=eng#p19)
 

@@ -1,6 +1,6 @@
 # Luke 18:31
 
-> ¶ Then he took unto him the twelve, and said unto them, Behold, we go up to Jerusalem, and all things that are <u>written</u>[^a] by the prophets concerning the Son of man shall be accomplished.
+> ¶ Then he took *unto him* the twelve, and said unto them, Behold, we go up to Jerusalem, and all things that are <u>written</u>[^a] by the prophets concerning the Son of man shall be accomplished.
 
 [Luke 18:31](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.31?lang=eng#p31)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 1:8
 
-> Behold, I have set the land before you: go in and <u>possess</u>[^a] the <u>land</u>[^b] which the Lord sware unto your fathers, Abraham, Isaac, and Jacob, to give unto them and to their seed after them.
+> Behold, I have set the land before you: go in and <u>possess</u>[^a] the <u>land</u>[^b] which the LORD sware unto your fathers, Abraham, Isaac, and Jacob, to give unto them and to their seed after them.
 
 [Deuteronomy 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.8?lang=eng#p8)
 

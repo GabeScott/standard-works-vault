@@ -1,6 +1,6 @@
 # Joshua 3:5
 
-> And Joshua said unto the people, <u>Sanctify yourselves</u>[^a] : for to morrow the Lord will do wonders among you.
+> And Joshua said unto the people, <u>Sanctify yourselves</u>[^a]: for to morrow the LORD will do wonders among you.
 
 [Joshua 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3.5?lang=eng#p5)
 

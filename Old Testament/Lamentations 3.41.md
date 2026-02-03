@@ -1,6 +1,6 @@
 # Lamentations 3:41
 
-> Let us <u>lift up</u>[^a] our heart with our hands unto God in the heavens.
+> Let us <u>lift up</u>[^a] our heart with *our* hands unto God in the heavens.
 
 [Lamentations 3:41](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/3.41?lang=eng#p41)
 

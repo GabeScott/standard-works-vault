@@ -1,6 +1,6 @@
 # Proverbs 3:26
 
-> For the Lord shall be thy <u>confidence</u>[^a], and shall keep thy foot from being taken.
+> For the LORD shall be thy <u>confidence</u>[^a], and shall keep thy foot from being taken.
 
 [Proverbs 3:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.26?lang=eng#p26)
 

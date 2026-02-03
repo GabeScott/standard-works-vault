@@ -1,6 +1,6 @@
 # Psalms 1:3
 
-> And he shall be like a <u>tree</u>[^a] planted by the rivers of water, that bringeth forth his fruit in his season; his leaf also shall not wither; and whatsoever he doeth shall <u>prosper</u>[^b] .
+> And he shall be like a <u>tree</u>[^a] planted by the rivers of water, that bringeth forth his fruit in his season; his leaf also shall not wither; and whatsoever he doeth shall <u>prosper</u>[^b].
 
 [Psalms 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/1.3?lang=eng#p3)
 

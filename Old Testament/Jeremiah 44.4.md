@@ -1,6 +1,6 @@
 # Jeremiah 44:4
 
-> Howbeit I <u>sent</u>[^a] unto you all my servants the prophets, rising early and sending them, saying, Oh, do not this <u>abominable</u>[^b] thing that I hate.
+> Howbeit I <u>sent</u>[^a] unto you all my servants the prophets, rising early and sending *them,* saying, Oh, do not this <u>abominable</u>[^b] thing that I hate.
 
 [Jeremiah 44:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.4?lang=eng#p4)
 

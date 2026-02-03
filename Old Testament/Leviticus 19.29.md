@@ -1,6 +1,6 @@
 # Leviticus 19:29
 
-> ¶ Do not <u>prostitute</u>[^a] thy daughter, to cause her to be a whore; lest the land fall to <u>whoredom</u>[^b], and the land become full of <u>wickedness</u>[^c] .
+> ¶ Do not <u>prostitute</u>[^a] thy daughter, to cause her to be a whore; lest the land fall to <u>whoredom</u>[^b], and the land become full of <u>wickedness</u>[^c].
 
 [Leviticus 19:29](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.29?lang=eng#p29)
 

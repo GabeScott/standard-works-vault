@@ -1,6 +1,6 @@
 # Psalms 62:12
 
-> Also unto thee, O Lord, belongeth <u>mercy</u>[^a] : for thou renderest to every man according to his <u>work</u>[^b] .
+> Also unto thee, O Lord, *belongeth* <u>mercy</u>[^a]: for thou renderest to every man according to his <u>work</u>[^b].
 
 [Psalms 62:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/62.12?lang=eng#p12)
 

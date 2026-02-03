@@ -1,6 +1,6 @@
 # Exodus 30:8
 
-> And when <u>Aaron</u>[^a] lighteth the lamps at even, he shall burn incense upon it, a perpetual incense before the Lord throughout your generations.
+> And when <u>Aaron</u>[^a] lighteth the lamps at even, he shall burn incense upon it, a perpetual incense before the LORD throughout your generations.
 
 [Exodus 30:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Psalms 55:22
 
-> <u>Cast</u>[^a] thy burden upon the Lord , and he shall sustain thee: he shall never suffer the <u>righteous</u>[^b] to be moved.
+> <u>Cast</u>[^a] thy burden upon the LORD, and he shall sustain thee: he shall never suffer the <u>righteous</u>[^b] to be moved.
 
 [Psalms 55:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/55.22?lang=eng#p22)
 

@@ -1,6 +1,6 @@
 # 2 Nephi 9:8
 
-> O the <u>wisdom</u>[^a] of God, his <u>mercy</u>[^b] and <u>grace</u>[^c] ! For behold, if the <u>flesh</u>[^d] should rise no more our spirits must become subject to that angel who <u>fell</u>[^e] from before the presence of the Eternal God, and became the <u>devil</u>[^f], to rise no more.
+> O the <u>wisdom</u>[^a] of God, his <u>mercy</u>[^b] and <u>grace</u>[^c]! For behold, if the <u>flesh</u>[^d] should rise no more our spirits must become subject to that angel who <u>fell</u>[^e] from before the presence of the Eternal God, and became the <u>devil</u>[^f], to rise no more.
 
 [2 Nephi 9:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p8#p8)
 

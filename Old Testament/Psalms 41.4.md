@@ -1,6 +1,6 @@
 # Psalms 41:4
 
-> I said, Lord , be merciful unto me: <u>heal</u>[^a] my soul; for I have sinned against thee.
+> I said, LORD, be merciful unto me: <u>heal</u>[^a] my soul; for I have sinned against thee.
 
 [Psalms 41:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/41.4?lang=eng#p4)
 

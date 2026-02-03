@@ -1,6 +1,6 @@
 # Jeremiah 4:3
 
-> ¶ For thus saith the Lord to the men of Judah and Jerusalem, <u>Break</u>[^a] up your fallow ground, and sow not among <u>thorns</u>[^b] .
+> ¶ For thus saith the LORD to the men of Judah and Jerusalem, <u>Break</u>[^a] up your fallow ground, and sow not among <u>thorns</u>[^b].
 
 [Jeremiah 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.3?lang=eng#p3)
 

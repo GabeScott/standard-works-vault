@@ -1,6 +1,6 @@
 # Deuteronomy 10:7
 
-> From thence they journeyed unto Gudgodah; and from Gudgodah to <u>Jotbath</u>[^a], a land of <u>rivers of waters</u>[^b] .
+> From thence they journeyed unto Gudgodah; and from Gudgodah to <u>Jotbath</u>[^a], a land of <u>rivers of waters</u>[^b].
 
 [Deuteronomy 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.7?lang=eng#p7)
 

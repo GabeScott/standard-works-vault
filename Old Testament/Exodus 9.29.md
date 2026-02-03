@@ -1,6 +1,6 @@
 # Exodus 9:29
 
-> And Moses said unto him, As soon as I am gone out of the city, I will <u>spread abroad</u>[^a] my hands unto the Lord ; and the thunder shall cease, neither shall there be any more hail; that thou mayest know how that the <u>earth</u>[^b] is the <u>Lord’s</u>[^c] .
+> And Moses said unto him, As soon as I am gone out of the city, I will <u>spread abroad</u>[^a] my hands unto the LORD; *and* the thunder shall cease, neither shall there be any more hail; that thou mayest know how that the <u>earth</u>[^b] *is* the <u>Lord’s</u>[^c].
 
 [Exodus 9:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.29?lang=eng#p29)
 

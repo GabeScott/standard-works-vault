@@ -1,6 +1,6 @@
 # Nehemiah 2:14
 
-> Then I went on to the <u>gate</u>[^a] of the fountain, and to the king’s pool: but there was no place for the beast that was under me to pass.
+> Then I went on to the <u>gate</u>[^a] of the fountain, and to the king’s pool: but *there was* no place for the beast *that was* under me to pass.
 
 [Nehemiah 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/2.14?lang=eng#p14)
 

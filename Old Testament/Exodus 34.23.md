@@ -1,6 +1,6 @@
 # Exodus 34:23
 
-> ¶ <u>Thrice</u>[^a] in the year shall all your men children appear before the Lord God , the God of Israel.
+> ¶ <u>Thrice</u>[^a] in the year shall all your men children appear before the Lord GOD, the God of Israel.
 
 [Exodus 34:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.23?lang=eng#p23)
 

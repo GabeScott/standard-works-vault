@@ -1,6 +1,6 @@
 # Amos 5:4
 
-> ¶ For thus saith the Lord unto the house of Israel, <u>Seek</u>[^a] ye me, and ye shall live:
+> ¶ For thus saith the LORD unto the house of Israel, <u>Seek</u>[^a] ye me, and ye shall live:
 
 [Amos 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.4?lang=eng#p4)
 

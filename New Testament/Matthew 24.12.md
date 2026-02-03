@@ -1,6 +1,6 @@
 # Matthew 24:12
 
-> And because <u>iniquity</u>[^a] shall abound, the love of many shall wax <u>cold</u>[^b] .
+> And because <u>iniquity</u>[^a] shall abound, the love of many shall wax <u>cold</u>[^b].
 
 [Matthew 24:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.12?lang=eng#p12)
 

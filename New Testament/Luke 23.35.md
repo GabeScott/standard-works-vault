@@ -1,6 +1,6 @@
 # Luke 23:35
 
-> And the people stood beholding. And the rulers also with them <u>derided</u>[^a] him, saying, He saved others; let him save himself, if he be Christ, the <u>chosen</u>[^b] of God.
+> And the people stood beholding. And the rulers also with them <u>derided</u>[^a] *him,* saying, He saved others; let him save himself, if he be Christ, the <u>chosen</u>[^b] of God.
 
 [Luke 23:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.35?lang=eng#p35)
 

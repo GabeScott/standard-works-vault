@@ -1,6 +1,6 @@
 # Revelation 20:10
 
-> And the <u>devil</u>[^a] that deceived them was <u>cast</u>[^b] into the lake of <u>fire</u>[^c] and brimstone, where the beast and the false prophet are, and shall be tormented day and night for ever and ever.
+> And the <u>devil</u>[^a] that deceived them was <u>cast</u>[^b] into the lake of <u>fire</u>[^c] and brimstone, where the beast and the false prophet *are,* and shall be tormented day and night for ever and ever.
 
 [Revelation 20:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/20.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 26:18
 
-> And they withstood Uzziah the king, and said unto him, It appertaineth <u>not</u>[^b] unto thee, Uzziah, to <u>burn</u>[^c] incense unto the Lord , but to the priests the sons of <u>Aaron</u>[^d], that are consecrated to burn <u>incense</u>[^e] : go out of the sanctuary; for thou hast trespassed; neither shall it be for thine honour from the Lord God.
+> And they withstood Uzziah the king, and said unto him, *It *<u>appertaineth</u>[^a] <u>not</u>[^b] unto thee, Uzziah, to <u>burn</u>[^c] incense unto the LORD, but to the priests the sons of <u>Aaron</u>[^d], that are consecrated to burn <u>incense</u>[^e]: go out of the sanctuary; for thou hast trespassed; neither *shall it be* for thine honour from the LORD God.
 
 [2 Chronicles 26:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.18?lang=eng#p18)
 

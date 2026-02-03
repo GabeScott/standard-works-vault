@@ -1,6 +1,6 @@
 # Nahum 1:7
 
-> The Lord is <u>good</u>[^a], a strong hold in the day of trouble; and he knoweth them that <u>trust</u>[^b] in him.
+> The LORD *is* <u>good</u>[^a], a strong hold in the day of trouble; and he knoweth them that <u>trust</u>[^b] in him.
 
 [Nahum 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/1.7?lang=eng#p7)
 

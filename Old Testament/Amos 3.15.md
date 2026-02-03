@@ -1,6 +1,6 @@
 # Amos 3:15
 
-> And I will smite the <u>winter</u>[^a] house with the summer house; and the houses of <u>ivory</u>[^b] shall perish, and the great houses shall have an end, saith the Lord .
+> And I will smite the <u>winter</u>[^a] house with the summer house; and the houses of <u>ivory</u>[^b] shall perish, and the great houses shall have an end, saith the LORD.
 
 [Amos 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/3.15?lang=eng#p15)
 

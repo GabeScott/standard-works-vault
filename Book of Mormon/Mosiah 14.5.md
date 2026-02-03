@@ -1,6 +1,6 @@
 # Mosiah 14:5
 
-> But he was <u>wounded</u>[^a] for our <u>transgressions</u>[^b], he was bruised for our iniquities; the chastisement of our peace was upon him; and with his stripes we are <u>healed</u>[^c] .
+> But he was <u>wounded</u>[^a] for our <u>transgressions</u>[^b], he was bruised for our iniquities; the chastisement of our peace was upon him; and with his stripes we are <u>healed</u>[^c].
 
 [Mosiah 14:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/14?lang=eng&id=p5#p5)
 

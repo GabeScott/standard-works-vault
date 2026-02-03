@@ -1,6 +1,6 @@
 # Isaiah 60:14
 
-> The sons also of them that afflicted thee shall come bending unto thee; and all they that despised thee shall <u>bow</u>[^a] themselves down at the soles of thy feet; and they shall call thee, The city of the Lord , The Zion of the Holy One of Israel.
+> The sons also of them that afflicted thee shall come bending unto thee; and all they that despised thee shall <u>bow</u>[^a] themselves down at the soles of thy feet; and they shall call thee, The city of the LORD, The Zion of the Holy One of Israel.
 
 [Isaiah 60:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.14?lang=eng#p14)
 

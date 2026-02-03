@@ -1,6 +1,6 @@
 # John 1:9
 
-> That was the true <u>Light</u>[^a], which <u>lighteth</u>[^b] <u>every man</u>[^c] that cometh into the world.
+> *That* was the true <u>Light</u>[^a], which <u>lighteth</u>[^b] <u>every man</u>[^c] that cometh into the world.
 
 [John 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.9?lang=eng#p9)
 

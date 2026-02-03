@@ -1,6 +1,6 @@
 # Acts 11:26
 
-> And when he had found him, he brought him unto Antioch. And it came to pass, that a whole year they <u>assembled</u>[^a] themselves with the church, and taught much people. And the disciples were called <u>Christians</u>[^b] first in <u>Antioch</u>[^c] .
+> And when he had found him, he brought him unto Antioch. And it came to pass, that a whole year they <u>assembled</u>[^a] themselves with the church, and taught much people. And the disciples were called <u>Christians</u>[^b] first in <u>Antioch</u>[^c].
 
 [Acts 11:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/11.26?lang=eng#p26)
 

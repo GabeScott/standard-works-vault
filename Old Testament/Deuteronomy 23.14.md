@@ -1,6 +1,6 @@
 # Deuteronomy 23:14
 
-> For the Lord thy God <u>walketh</u>[^a] in the <u>midst</u>[^b] of thy camp, to deliver thee, and to give up thine enemies before thee; therefore shall thy camp be holy: that he see no unclean thing in thee, and turn away from thee.
+> For the LORD thy God <u>walketh</u>[^a] in the <u>midst</u>[^b] of thy camp, to deliver thee, and to give up thine enemies before thee; therefore shall thy camp be holy: that he see no unclean thing in thee, and turn away from thee.
 
 [Deuteronomy 23:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.14?lang=eng#p14)
 

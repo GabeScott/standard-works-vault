@@ -1,6 +1,6 @@
 # 2 Samuel 23:2
 
-> The <u>Spirit</u>[^a] of the Lord <u>spake</u>[^b] by me, and his word was in my tongue.
+> The <u>Spirit</u>[^a] of the LORD <u>spake</u>[^b] by me, and his word *was* in my tongue.
 
 [2 Samuel 23:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/23.2?lang=eng#p2)
 

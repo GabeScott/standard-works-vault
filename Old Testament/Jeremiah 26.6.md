@@ -1,6 +1,6 @@
 # Jeremiah 26:6
 
-> Then will I make this house like <u>Shiloh</u>[^a], and will make this city a <u>curse</u>[^b] to all the nations of the <u>earth</u>[^c] .
+> Then will I make this house like <u>Shiloh</u>[^a], and will make this city a <u>curse</u>[^b] to all the nations of the <u>earth</u>[^c].
 
 [Jeremiah 26:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.6?lang=eng#p6)
 

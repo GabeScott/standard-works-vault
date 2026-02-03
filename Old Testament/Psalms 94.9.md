@@ -1,6 +1,6 @@
 # Psalms 94:9
 
-> He that planted the ear, shall he not <u>hear</u>[^a] ? he that formed the eye, shall he not see?
+> He that planted the ear, shall he not <u>hear</u>[^a]? he that formed the eye, shall he not see?
 
 [Psalms 94:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/94.9?lang=eng#p9)
 

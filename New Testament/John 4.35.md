@@ -1,6 +1,6 @@
 # John 4:35
 
-> Say not ye, There are yet four months, and then cometh harvest? behold, I say unto you, Lift up your eyes, and look on the <u>fields</u>[^a]; for they are white already to <u>harvest</u>[^b] .
+> Say not ye, There are yet four months, and *then* cometh harvest? behold, I say unto you, Lift up your eyes, and look on the <u>fields</u>[^a]; for they are white already to <u>harvest</u>[^b].
 
 [John 4:35](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.35?lang=eng#p35)
 

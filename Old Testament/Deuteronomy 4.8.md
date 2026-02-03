@@ -1,6 +1,6 @@
 # Deuteronomy 4:8
 
-> And what nation is there so great, that hath <u>statutes</u>[^a] and judgments so righteous as all this law, which I set before you this day?
+> And what nation *is there so* great, that hath <u>statutes</u>[^a] and judgments *so* righteous as all this law, which I set before you this day?
 
 [Deuteronomy 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.8?lang=eng#p8)
 

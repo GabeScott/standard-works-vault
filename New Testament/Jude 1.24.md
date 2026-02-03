@@ -1,6 +1,6 @@
 # Jude 1:24
 
-> Now unto him that is able to keep you from falling, and to present you <u>faultless</u>[^a] before the presence of his glory with exceeding joy,
+> Now unto him that is able to keep you from falling, and to present *you* <u>faultless</u>[^a] before the presence of his glory with exceeding joy,
 
 [Jude 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.24?lang=eng#p24)
 

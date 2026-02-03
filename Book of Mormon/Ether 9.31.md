@@ -1,6 +1,6 @@
 # Ether 9:31
 
-> And there came forth <u>poisonous</u>[^a] serpents also upon the face of the land, and did poison many people. And it came to pass that their flocks began to flee before the poisonous serpents, towards the land <u>southward</u>[^b], which was called by the Nephites <u>Zarahemla</u>[^c] .
+> And there came forth <u>poisonous</u>[^a] serpents also upon the face of the land, and did poison many people. And it came to pass that their flocks began to flee before the poisonous serpents, towards the land <u>southward</u>[^b], which was called by the Nephites <u>Zarahemla</u>[^c].
 
 [Ether 9:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p31#p31)
 

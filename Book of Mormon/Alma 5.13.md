@@ -1,6 +1,6 @@
 # Alma 5:13
 
-> And behold, he <u>preached</u>[^a] the word unto your fathers, and a mighty change was also wrought in their hearts, and they humbled themselves and put their <u>trust</u>[^b] in the true and <u>living God</u>[^c] . And behold, they were faithful until the <u>end</u>[^d]; therefore they were saved.
+> And behold, he <u>preached</u>[^a] the word unto your fathers, and a mighty change was also wrought in their hearts, and they humbled themselves and put their <u>trust</u>[^b] in the true and <u>living God</u>[^c]. And behold, they were faithful until the <u>end</u>[^d]; therefore they were saved.
 
 [Alma 5:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p13#p13)
 

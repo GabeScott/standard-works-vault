@@ -1,6 +1,6 @@
 # Isaiah 50:5
 
-> ¶ The Lord God hath opened mine <u>ear</u>[^a], and I was not <u>rebellious</u>[^b], neither turned away back.
+> ¶ The Lord GOD hath opened mine <u>ear</u>[^a], and I was not <u>rebellious</u>[^b], neither turned away back.
 
 [Isaiah 50:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.5?lang=eng#p5)
 

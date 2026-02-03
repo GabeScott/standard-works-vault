@@ -1,6 +1,6 @@
 # Job 40:11
 
-> Cast abroad the rage of thy wrath: and behold every one that is <u>proud</u>[^a], and abase him.
+> Cast abroad the rage of thy wrath: and behold every one *that is* <u>proud</u>[^a], and abase him.
 
 [Job 40:11](https://www.churchofjesuschrist.org/study/scriptures/ot/job/40.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Psalms 63:6
 
-> When I remember thee upon my <u>bed</u>[^a], and <u>meditate</u>[^b] on thee in the night watches.
+> When I remember thee upon my <u>bed</u>[^a], *and* <u>meditate</u>[^b] on thee in the *night* watches.
 
 [Psalms 63:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/63.6?lang=eng#p6)
 

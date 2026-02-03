@@ -1,6 +1,6 @@
 # 2 Nephi 6:13
 
-> Wherefore, they that fight against Zion and the covenant people of the Lord shall lick up the dust of their feet; and the people of the Lord shall not be <u>ashamed</u>[^a] . For the people of the Lord are they who <u>wait</u>[^b] for him; for they still wait for the coming of the Messiah.
+> Wherefore, they that fight against Zion and the covenant people of the Lord shall lick up the dust of their feet; and the people of the Lord shall not be <u>ashamed</u>[^a]. For the people of the Lord are they who <u>wait</u>[^b] for him; for they still wait for the coming of the Messiah.
 
 [2 Nephi 6:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/6?lang=eng&id=p13#p13)
 

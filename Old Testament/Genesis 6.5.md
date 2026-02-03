@@ -1,6 +1,6 @@
 # Genesis 6:5
 
-> ¶ And God saw that the <u>wickedness</u>[^a] of man was great in the earth, and that <u>every</u>[^b] imagination of the <u>thoughts</u>[^c] of his <u>heart</u>[^d] was only <u>evil</u>[^e] continually.
+> ¶ And GOD saw that the <u>wickedness</u>[^a] of man *was* great in the earth, and *that* <u>every</u>[^b] imagination of the <u>thoughts</u>[^c] of his <u>heart</u>[^d] *was* only <u>evil</u>[^e] continually.
 
 [Genesis 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.5?lang=eng#p5)
 

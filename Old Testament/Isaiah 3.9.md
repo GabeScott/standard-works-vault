@@ -1,6 +1,6 @@
 # Isaiah 3:9
 
-> ¶ The shew of their countenance doth witness against them; and they declare their <u>sin</u>[^a] as <u>Sodom</u>[^b], they hide it not. Woe unto their soul! for they have rewarded evil unto themselves.
+> ¶ The shew of their countenance doth witness against them; and they declare their <u>sin</u>[^a] as <u>Sodom</u>[^b], they hide *it* not. Woe unto their soul! for they have rewarded evil unto themselves.
 
 [Isaiah 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.9?lang=eng#p9)
 

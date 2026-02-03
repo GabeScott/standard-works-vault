@@ -1,6 +1,6 @@
 # Isaiah 40:3
 
-> ¶ The <u>voice</u>[^a] of him that crieth in the wilderness, <u>Prepare</u>[^b] ye the <u>way</u>[^c] of the Lord , make straight in the desert a <u>highway</u>[^d] for our God.
+> ¶ The <u>voice</u>[^a] of him that crieth in the wilderness, <u>Prepare</u>[^b] ye the <u>way</u>[^c] of the LORD, make straight in the desert a <u>highway</u>[^d] for our God.
 
 [Isaiah 40:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.3?lang=eng#p3)
 

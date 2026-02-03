@@ -1,6 +1,6 @@
 # Jeremiah 22:5
 
-> But if ye will not hear these words, I <u>swear</u>[^a] by myself, saith the Lord , that this house shall become a <u>desolation</u>[^b] .
+> But if ye will not hear these words, I <u>swear</u>[^a] by myself, saith the LORD, that this house shall become a <u>desolation</u>[^b].
 
 [Jeremiah 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.5?lang=eng#p5)
 

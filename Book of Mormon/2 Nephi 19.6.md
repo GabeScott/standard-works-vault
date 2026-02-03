@@ -1,6 +1,6 @@
 # 2 Nephi 19:6
 
-> For unto us a <u>child</u>[^a] is born, unto us a son is given; and the <u>government</u>[^b] shall be upon his shoulder; and his name shall be called, Wonderful, Counselor, The <u>Mighty God</u>[^c], The <u>Everlasting Father</u>[^d], The Prince of <u>Peace</u>[^e] .
+> For unto us a <u>child</u>[^a] is born, unto us a son is given; and the <u>government</u>[^b] shall be upon his shoulder; and his name shall be called, Wonderful, Counselor, The <u>Mighty God</u>[^c], The <u>Everlasting Father</u>[^d], The Prince of <u>Peace</u>[^e].
 
 [2 Nephi 19:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p6#p6)
 

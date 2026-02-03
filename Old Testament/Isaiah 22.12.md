@@ -1,6 +1,6 @@
 # Isaiah 22:12
 
-> And in that day did the Lord God of hosts <u>call</u>[^a] to <u>weeping</u>[^b], and to mourning, and to <u>baldness</u>[^c], and to girding with sackcloth:
+> And in that day did the Lord GOD of hosts <u>call</u>[^a] to <u>weeping</u>[^b], and to mourning, and to <u>baldness</u>[^c], and to girding with sackcloth:
 
 [Isaiah 22:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.12?lang=eng#p12)
 

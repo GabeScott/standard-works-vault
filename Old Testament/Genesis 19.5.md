@@ -1,6 +1,6 @@
 # Genesis 19:5
 
-> And they called unto Lot, and said unto him, Where are the men which came in to thee this night? bring them out unto us, that we may <u>know</u>[^a] them.
+> And they called unto Lot, and said unto him, Where *are* the men which came in to thee this night? bring them out unto us, that we may <u>know</u>[^a] them.
 
 [Genesis 19:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.5?lang=eng#p5)
 

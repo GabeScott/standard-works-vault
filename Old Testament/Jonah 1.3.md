@@ -1,6 +1,6 @@
 # Jonah 1:3
 
-> But Jonah rose up to <u>flee</u>[^a] unto Tarshish from the <u>presence</u>[^b] of the Lord , and went down to Joppa; and he found a ship going to Tarshish: so he paid the fare thereof, and went down into it, to go with them unto Tarshish from the presence of the Lord .
+> But Jonah rose up to <u>flee</u>[^a] unto Tarshish from the <u>presence</u>[^b] of the LORD, and went down to Joppa; and he found a ship going to Tarshish: so he paid the fare thereof, and went down into it, to go with them unto Tarshish from the presence of the LORD.
 
 [Jonah 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/1.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Isaiah 42:1
 
-> Behold my <u>servant</u>[^a], whom I uphold; mine <u>elect</u>[^b], in whom my soul delighteth; I have <u>put</u>[^c] my <u>spirit</u>[^d] upon him: he shall bring forth <u>judgment</u>[^e] to the Gentiles.
+> Behold my <u>servant</u>[^a], whom I uphold; mine <u>elect</u>[^b], *in whom* my soul delighteth; I have <u>put</u>[^c] my <u>spirit</u>[^d] upon him: he shall bring forth <u>judgment</u>[^e] to the Gentiles.
 
 [Isaiah 42:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.1?lang=eng#p1)
 

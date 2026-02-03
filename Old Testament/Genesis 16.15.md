@@ -1,6 +1,6 @@
 # Genesis 16:15
 
-> ¶ And Hagar <u>bare</u>[^a] Abram a son: and Abram called his son’s name, which Hagar bare, <u>Ishmael</u>[^b] .
+> ¶ And Hagar <u>bare</u>[^a] Abram a son: and Abram called his son’s name, which Hagar bare, <u>Ishmael</u>[^b].
 
 [Genesis 16:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.15?lang=eng#p15)
 

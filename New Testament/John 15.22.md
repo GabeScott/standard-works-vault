@@ -1,6 +1,6 @@
 # John 15:22
 
-> If I had not come and spoken unto them, they had not had <u>sin</u>[^a] : but now they have no <u>cloak</u>[^b] for their sin.
+> If I had not come and spoken unto them, they had not had <u>sin</u>[^a]: but now they have no <u>cloak</u>[^b] for their sin.
 
 [John 15:22](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.22?lang=eng#p22)
 

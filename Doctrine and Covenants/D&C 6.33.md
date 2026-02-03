@@ -1,6 +1,6 @@
 # D&C 6:33
 
-> <u>Fear not</u>[^a] to do <u>good</u>[^b], my sons, for whatsoever ye <u>sow</u>[^c], that shall ye also reap; therefore, if ye sow <u>good</u>[^d] ye shall also reap good for your <u>reward</u>[^e] .
+> <u>Fear not</u>[^a] to do <u>good</u>[^b], my sons, for whatsoever ye <u>sow</u>[^c], that shall ye also reap; therefore, if ye sow <u>good</u>[^d] ye shall also reap good for your <u>reward</u>[^e].
 
 [D&C 6:33](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.33?lang=eng#p33)
 

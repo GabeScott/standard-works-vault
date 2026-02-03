@@ -1,6 +1,6 @@
 # 2 Samuel 5:20
 
-> And David came to <u>Baal-perazim</u>[^a], and David smote them there, and said, The Lord hath broken forth upon mine enemies before me, as the <u>breach</u>[^b] of waters. Therefore he called the name of that place Baal-perazim.
+> And David came to <u>Baal-perazim</u>[^a], and David smote them there, and said, The LORD hath broken forth upon mine enemies before me, as the <u>breach</u>[^b] of waters. Therefore he called the name of that place Baal-perazim.
 
 [2 Samuel 5:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.20?lang=eng#p20)
 

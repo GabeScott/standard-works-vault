@@ -1,6 +1,6 @@
 # Deuteronomy 16:1
 
-> Observe the month of <u>Abib</u>[^a], and keep the <u>passover</u>[^b] unto the Lord thy God: for in the month of Abib the Lord thy God brought thee forth out of Egypt by night.
+> Observe the month of <u>Abib</u>[^a], and keep the <u>passover</u>[^b] unto the LORD thy God: for in the month of Abib the LORD thy God brought thee forth out of Egypt by night.
 
 [Deuteronomy 16:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.1?lang=eng#p1)
 

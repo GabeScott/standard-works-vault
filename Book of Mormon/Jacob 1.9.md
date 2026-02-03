@@ -1,6 +1,6 @@
 # Jacob 1:9
 
-> Now Nephi began to be old, and he saw that he must soon <u>die</u>[^a]; wherefore, he <u>anointed</u>[^b] a man to be a king and a ruler over his people now, according to the reigns of the <u>kings</u>[^c] .
+> Now Nephi began to be old, and he saw that he must soon <u>die</u>[^a]; wherefore, he <u>anointed</u>[^b] a man to be a king and a ruler over his people now, according to the reigns of the <u>kings</u>[^c].
 
 [Jacob 1:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/1?lang=eng&id=p9#p9)
 

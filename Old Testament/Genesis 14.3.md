@@ -1,6 +1,6 @@
 # Genesis 14:3
 
-> All these were joined together in the vale of Siddim, which is the <u>salt sea</u>[^a] .
+> All these were joined together in the vale of Siddim, which is the <u>salt sea</u>[^a].
 
 [Genesis 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.3?lang=eng#p3)
 

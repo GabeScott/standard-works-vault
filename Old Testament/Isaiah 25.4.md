@@ -1,6 +1,6 @@
 # Isaiah 25:4
 
-> For thou hast been a strength to the <u>poor</u>[^a], a strength to the needy in his <u>distress</u>[^b], a <u>refuge</u>[^c] from the storm, a shadow from the heat, when the blast of the terrible ones is as a storm against the wall.
+> For thou hast been a strength to the <u>poor</u>[^a], a strength to the needy in his <u>distress</u>[^b], a <u>refuge</u>[^c] from the storm, a shadow from the heat, when the blast of the terrible ones *is* as a storm *against* the wall.
 
 [Isaiah 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/25.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 11:17
 
-> And then the Lord ’s wrath be kindled against you, and he <u>shut up</u>[^a] the heaven, that there be no rain, and that the land yield not her fruit; and lest ye <u>perish</u>[^b] quickly from off the good land which the Lord giveth you.
+> And *then* the LORD’s wrath be kindled against you, and he <u>shut up</u>[^a] the heaven, that there be no rain, and that the land yield not her fruit; and *lest* ye <u>perish</u>[^b] quickly from off the good land which the LORD giveth you.
 
 [Deuteronomy 11:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.17?lang=eng#p17)
 

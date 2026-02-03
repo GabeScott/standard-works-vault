@@ -1,6 +1,6 @@
 # Joel 2:12
 
-> ¶ Therefore also now, saith the Lord , <u>turn</u>[^a] ye even to me with all your <u>heart</u>[^b], and with <u>fasting</u>[^c], and with weeping, and with mourning:
+> ¶ Therefore also now, saith the LORD, <u>turn</u>[^a] ye *even* to me with all your <u>heart</u>[^b], and with <u>fasting</u>[^c], and with weeping, and with mourning:
 
 [Joel 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Genesis 1:1
 
-> In the <u>beginning</u>[^a] <u>God</u>[^b] <u>created</u>[^c] the <u>heaven</u>[^d] and the <u>earth</u>[^e] .
+> In the <u>beginning</u>[^a] <u>God</u>[^b] <u>created</u>[^c] the <u>heaven</u>[^d] and the <u>earth</u>[^e].
 
 [Genesis 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.1?lang=eng#p1)
 

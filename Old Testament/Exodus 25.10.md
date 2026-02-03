@@ -1,6 +1,6 @@
 # Exodus 25:10
 
-> ¶ And they shall make an <u>ark</u>[^a] of shittim wood: two cubits and a half shall be the length thereof, and a cubit and a half the breadth thereof, and a cubit and a half the height thereof.
+> ¶ And they shall make an <u>ark</u>[^a] *of* shittim wood: two cubits and a half *shall be* the length thereof, and a cubit and a half the breadth thereof, and a cubit and a half the height thereof.
 
 [Exodus 25:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.10?lang=eng#p10)
 

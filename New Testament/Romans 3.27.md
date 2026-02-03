@@ -1,6 +1,6 @@
 # Romans 3:27
 
-> Where is <u>boasting</u>[^a] then? It is excluded. By what law? of works? Nay: but by the law of faith.
+> Where *is* <u>boasting</u>[^a] then? It is excluded. By what law? of works? Nay: but by the law of faith.
 
 [Romans 3:27](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.27?lang=eng#p27)
 

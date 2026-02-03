@@ -1,6 +1,6 @@
 # Psalms 119:46
 
-> I will speak of thy testimonies also before <u>kings</u>[^a], and will not be <u>ashamed</u>[^b] .
+> I will speak of thy testimonies also before <u>kings</u>[^a], and will not be <u>ashamed</u>[^b].
 
 [Psalms 119:46](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.46?lang=eng#p46)
 

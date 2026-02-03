@@ -1,6 +1,6 @@
 # 1 Kings 6:2
 
-> And the <u>house</u>[^a] which king <u>Solomon</u>[^b] built for the Lord , the length thereof was threescore cubits, and the <u>breadth</u>[^c] thereof twenty cubits, and the height thereof thirty cubits.
+> And the <u>house</u>[^a] which king <u>Solomon</u>[^b] built for the LORD, the length thereof *was* threescore cubits, and the <u>breadth</u>[^c] thereof twenty *cubits,* and the height thereof thirty cubits.
 
 [1 Kings 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.2?lang=eng#p2)
 

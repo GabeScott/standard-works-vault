@@ -1,6 +1,6 @@
 # Luke 7:29
 
-> And all the people that heard him, and the <u>publicans</u>[^a], justified God, being baptized with the <u>baptism</u>[^b] of John.
+> And all the people that heard *him,* and the <u>publicans</u>[^a], justified God, being baptized with the <u>baptism</u>[^b] of John.
 
 [Luke 7:29](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.29?lang=eng#p29)
 

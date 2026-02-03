@@ -1,6 +1,6 @@
 # Ether 5:3
 
-> And unto <u>three</u>[^a] shall they be shown by the power of God; wherefore they shall <u>know</u>[^b] of a surety that these things are <u>true</u>[^c] .
+> And unto <u>three</u>[^a] shall they be shown by the power of God; wherefore they shall <u>know</u>[^b] of a surety that these things are <u>true</u>[^c].
 
 [Ether 5:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/5?lang=eng&id=p3#p3)
 

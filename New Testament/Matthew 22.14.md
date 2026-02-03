@@ -1,6 +1,6 @@
 # Matthew 22:14
 
-> For many are <u>called</u>[^a], but few are <u>chosen</u>[^b] .
+> For many are <u>called</u>[^a], but few *are* <u>chosen</u>[^b].
 
 [Matthew 22:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.14?lang=eng#p14)
 

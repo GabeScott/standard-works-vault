@@ -1,6 +1,6 @@
 # Haggai 2:7
 
-> And I will shake all nations, and the desire of all nations shall <u>come</u>[^a] : and I will fill this house with <u>glory</u>[^b], saith the Lord of hosts.
+> And I will shake all nations, and the desire of all nations shall <u>come</u>[^a]: and I will fill this house with <u>glory</u>[^b], saith the LORD of hosts.
 
 [Haggai 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.7?lang=eng#p7)
 

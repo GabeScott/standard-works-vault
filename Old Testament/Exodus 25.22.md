@@ -1,6 +1,6 @@
 # Exodus 25:22
 
-> And there I will <u>meet</u>[^a] with thee, and I will <u>commune</u>[^b] with thee from above the <u>mercy seat</u>[^c], from between the two <u>cherubims</u>[^d] which are upon the ark of the testimony, of all things which I will give thee in commandment unto the children of Israel.
+> And there I will <u>meet</u>[^a] with thee, and I will <u>commune</u>[^b] with thee from above the <u>mercy seat</u>[^c], from between the two <u>cherubims</u>[^d] which *are* upon the ark of the testimony, of all *things* which I will give thee in commandment unto the children of Israel.
 
 [Exodus 25:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.22?lang=eng#p22)
 

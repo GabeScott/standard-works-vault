@@ -1,6 +1,6 @@
 # 1 John 3:17
 
-> But whoso hath this world’s good, and seeth his <u>brother</u>[^a] have <u>need</u>[^b], and <u>shutteth</u>[^c] up his bowels of compassion from him, how dwelleth the love of God in him?
+> But whoso hath this world’s good, and seeth his <u>brother</u>[^a] have <u>need</u>[^b], and <u>shutteth</u>[^c] up his bowels *of compassion* from him, how dwelleth the love of God in him?
 
 [1 John 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.17?lang=eng#p17)
 

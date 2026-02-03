@@ -1,6 +1,6 @@
 # Deuteronomy 6:5
 
-> And thou shalt <u>love</u>[^a] the Lord thy God with all thine <u>heart</u>[^b], and with all thy soul, and with all thy <u>might</u>[^c] .
+> And thou shalt <u>love</u>[^a] the LORD thy God with all thine <u>heart</u>[^b], and with all thy soul, and with all thy <u>might</u>[^c].
 
 [Deuteronomy 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Luke 9:28
 
-> ¶ And it came to pass about an <u>eight</u>[^a] days after these sayings, he took Peter and John and James, and went up into a <u>mountain</u>[^b] to <u>pray</u>[^c] .
+> ¶ And it came to pass about an <u>eight</u>[^a] days after these sayings, he took Peter and John and James, and went up into a <u>mountain</u>[^b] to <u>pray</u>[^c].
 
 [Luke 9:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.28?lang=eng#p28)
 

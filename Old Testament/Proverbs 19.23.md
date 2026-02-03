@@ -1,6 +1,6 @@
 # Proverbs 19:23
 
-> The <u>fear</u>[^a] of the Lord tendeth to <u>life</u>[^b] : and he that hath it shall abide satisfied; he shall not be visited with evil.
+> The <u>fear</u>[^a] of the LORD *tendeth* to <u>life</u>[^b]: and *he that hath it* shall abide satisfied; he shall not be visited with evil.
 
 [Proverbs 19:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.23?lang=eng#p23)
 

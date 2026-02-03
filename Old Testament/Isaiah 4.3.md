@@ -1,6 +1,6 @@
 # Isaiah 4:3
 
-> And it shall come to pass, that he that is <u>left</u>[^a] in <u>Zion</u>[^b], and he that remaineth in <u>Jerusalem</u>[^c], shall be called holy, even every one that is <u>written among the living</u>[^d] in Jerusalem:
+> And it shall come to pass, *that he that is* <u>left</u>[^a] in <u>Zion</u>[^b], and *he that* remaineth in <u>Jerusalem</u>[^c], shall be called holy, *even* every one that is <u>written among the living</u>[^d] in Jerusalem:
 
 [Isaiah 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/4.3?lang=eng#p3)
 

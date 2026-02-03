@@ -1,6 +1,6 @@
 # Isaiah 3:15
 
-> What mean ye that ye <u>beat</u>[^a] my people to pieces, and grind the faces of the poor? saith the Lord God of hosts.
+> What mean ye *that* ye <u>beat</u>[^a] my people to pieces, and grind the faces of the poor? saith the Lord GOD of hosts.
 
 [Isaiah 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.15?lang=eng#p15)
 

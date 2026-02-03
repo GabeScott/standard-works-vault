@@ -1,6 +1,6 @@
 # Revelation 14:8
 
-> And there followed another angel, saying, <u>Babylon</u>[^a] is <u>fallen</u>[^b], is fallen, that great <u>city</u>[^c], because she made all nations drink of the wine of the wrath of her <u>fornication</u>[^d] .
+> And there followed another angel, saying, <u>Babylon</u>[^a] is <u>fallen</u>[^b], is fallen, that great <u>city</u>[^c], because she made all nations drink of the wine of the wrath of her <u>fornication</u>[^d].
 
 [Revelation 14:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.8?lang=eng#p8)
 

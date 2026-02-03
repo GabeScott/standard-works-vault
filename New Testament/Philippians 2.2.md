@@ -1,6 +1,6 @@
 # Philippians 2:2
 
-> Fulfil ye my joy, that ye be likeminded, having the same <u>love</u>[^a], being of <u>one</u>[^b] <u>accord</u>[^c], of one mind.
+> Fulfil ye my joy, that ye be likeminded, having the same <u>love</u>[^a], *being* of <u>one</u>[^b] <u>accord</u>[^c], of one mind.
 
 [Philippians 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.2?lang=eng#p2)
 

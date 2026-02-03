@@ -1,6 +1,6 @@
 # Psalms 91:4
 
-> He shall cover thee with his feathers, and under his wings shalt thou trust: his truth shall be thy <u>shield</u>[^a] and <u>buckler</u>[^b] .
+> He shall cover thee with his feathers, and under his wings shalt thou trust: his truth *shall be thy* <u>shield</u>[^a] and <u>buckler</u>[^b].
 
 [Psalms 91:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/91.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # John 7:34
 
-> Ye shall <u>seek</u>[^a] me, and shall not find me: and <u>where</u>[^b] I am, thither ye <u>cannot</u>[^d] come.
+> Ye shall <u>seek</u>[^a] me, and shall not find *me:* and <u>where</u>[^b] I am, *thither* ye <u>cannot</u>[^d] come.
 
 [John 7:34](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.34?lang=eng#p34)
 

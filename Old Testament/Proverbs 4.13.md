@@ -1,6 +1,6 @@
 # Proverbs 4:13
 
-> Take fast <u>hold</u>[^a] of <u>instruction</u>[^b]; let her not go: keep her; for she is thy life.
+> Take fast <u>hold</u>[^a] of <u>instruction</u>[^b]; let *her* not go: keep her; for she *is* thy life.
 
 [Proverbs 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/4.13?lang=eng#p13)
 

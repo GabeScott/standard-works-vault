@@ -1,6 +1,6 @@
 # Isaiah 54:8
 
-> In a little <u>wrath</u>[^a] I <u>hid</u>[^b] my <u>face</u>[^c] from thee for a moment; but with everlasting <u>kindness</u>[^d] will I have <u>mercy</u>[^e] on thee, saith the Lord thy Redeemer.
+> In a little <u>wrath</u>[^a] I <u>hid</u>[^b] my <u>face</u>[^c] from thee for a moment; but with everlasting <u>kindness</u>[^d] will I have <u>mercy</u>[^e] on thee, saith the LORD thy Redeemer.
 
 [Isaiah 54:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.8?lang=eng#p8)
 

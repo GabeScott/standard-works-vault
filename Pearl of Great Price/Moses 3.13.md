@@ -1,6 +1,6 @@
 # Moses 3:13
 
-> And the name of the second river was called Gihon; the same that compasseth the whole land of <u>Ethiopia</u>[^a] .
+> And the name of the second river was called Gihon; the same that compasseth the whole land of <u>Ethiopia</u>[^a].
 
 [Moses 3:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.13?lang=eng#p13)
 

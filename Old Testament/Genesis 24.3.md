@@ -1,6 +1,6 @@
 # Genesis 24:3
 
-> And I will make thee <u>swear</u>[^a] by the Lord , the God of heaven, and the God of the earth, that thou shalt <u>not</u>[^b] take a <u>wife</u>[^c] unto my son of the daughters of the <u>Canaanites</u>[^d], among whom I dwell:
+> And I will make thee <u>swear</u>[^a] by the LORD, the God of heaven, and the God of the earth, that thou shalt <u>not</u>[^b] take a <u>wife</u>[^c] unto my son of the daughters of the <u>Canaanites</u>[^d], among whom I dwell:
 
 [Genesis 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.3?lang=eng#p3)
 

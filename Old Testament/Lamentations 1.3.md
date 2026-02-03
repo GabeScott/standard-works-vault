@@ -1,6 +1,6 @@
 # Lamentations 1:3
 
-> Judah is gone into <u>captivity</u>[^a] because of affliction, and because of great servitude: she dwelleth among the heathen, she findeth no <u>rest</u>[^b] : all her persecutors overtook her between the straits.
+> Judah is gone into <u>captivity</u>[^a] because of affliction, and because of great servitude: she dwelleth among the heathen, she findeth no <u>rest</u>[^b]: all her persecutors overtook her between the straits.
 
 [Lamentations 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.3?lang=eng#p3)
 

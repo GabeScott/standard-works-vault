@@ -1,6 +1,6 @@
 # Isaiah 62:2
 
-> And the Gentiles shall <u>see</u>[^a] thy righteousness, and all kings thy glory: and thou shalt be called by a new <u>name</u>[^b], which the mouth of the Lord shall name.
+> And the Gentiles shall <u>see</u>[^a] thy righteousness, and all kings thy glory: and thou shalt be called by a new <u>name</u>[^b], which the mouth of the LORD shall name.
 
 [Isaiah 62:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/62.2?lang=eng#p2)
 

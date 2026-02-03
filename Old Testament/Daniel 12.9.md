@@ -1,6 +1,6 @@
 # Daniel 12:9
 
-> And he said, Go thy way, Daniel: for the words are closed up and <u>sealed</u>[^a] till the time of the end.
+> And he said, Go thy way, Daniel: for the words *are* closed up and <u>sealed</u>[^a] till the time of the end.
 
 [Daniel 12:9](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.9?lang=eng#p9)
 

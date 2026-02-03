@@ -1,6 +1,6 @@
 # Isaiah 13:13
 
-> Therefore I will <u>shake</u>[^a] the heavens, and the <u>earth</u>[^b] shall <u>remove</u>[^c] out of her place, in the wrath of the Lord of hosts, and in the day of his fierce <u>anger</u>[^d] .
+> Therefore I will <u>shake</u>[^a] the heavens, and the <u>earth</u>[^b] shall <u>remove</u>[^c] out of her place, in the wrath of the LORD of hosts, and in the day of his fierce <u>anger</u>[^d].
 
 [Isaiah 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.13?lang=eng#p13)
 

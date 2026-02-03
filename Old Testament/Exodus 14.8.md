@@ -1,6 +1,6 @@
 # Exodus 14:8
 
-> <u>And</u>[^a] the Lord hardened the heart of Pharaoh king of Egypt, and he pursued after the children of Israel: and the children of Israel went out <u>with</u>[^b] an <u>high</u>[^c] hand.
+> <u>And</u>[^a] the LORD hardened the heart of Pharaoh king of Egypt, and he pursued after the children of Israel: and the children of Israel went out <u>with</u>[^b] an <u>high</u>[^c] hand.
 
 [Exodus 14:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.8?lang=eng#p8)
 

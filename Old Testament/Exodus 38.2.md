@@ -1,6 +1,6 @@
 # Exodus 38:2
 
-> And he made the horns thereof on the four corners of it; the horns thereof were of <u>the same</u>[^a] : and he overlaid it with <u>brass</u>[^b] .
+> And he made the horns thereof on the four corners of it; the horns thereof were of <u>the same</u>[^a]: and he overlaid it with <u>brass</u>[^b].
 
 [Exodus 38:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/38.2?lang=eng#p2)
 

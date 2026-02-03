@@ -1,6 +1,6 @@
 # Exodus 15:4
 
-> Pharaoh’s <u>chariots</u>[^a] and his host hath he <u>cast</u>[^b] into the sea: his chosen captains also are drowned in the <u>Red sea</u>[^c] .
+> Pharaoh’s <u>chariots</u>[^a] and his host hath he <u>cast</u>[^b] into the sea: his chosen captains also are drowned in the <u>Red sea</u>[^c].
 
 [Exodus 15:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.4?lang=eng#p4)
 

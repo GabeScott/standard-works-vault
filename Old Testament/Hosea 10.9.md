@@ -1,6 +1,6 @@
 # Hosea 10:9
 
-> O Israel, thou hast <u>sinned</u>[^a] from the days of <u>Gibeah</u>[^b] : there they stood: the <u>battle</u>[^c] in Gibeah against the children of iniquity did not overtake them.
+> O Israel, thou hast <u>sinned</u>[^a] from the days of <u>Gibeah</u>[^b]: there they stood: the <u>battle</u>[^c] in Gibeah against the children of iniquity did not overtake them.
 
 [Hosea 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/10.9?lang=eng#p9)
 

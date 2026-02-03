@@ -1,6 +1,6 @@
 # Psalms 145:8
 
-> The Lord is <u>gracious</u>[^a], and full of <u>compassion</u>[^b]; slow to anger, and of great mercy.
+> The LORD *is* <u>gracious</u>[^a], and full of <u>compassion</u>[^b]; slow to anger, and of great mercy.
 
 [Psalms 145:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/145.8?lang=eng#p8)
 

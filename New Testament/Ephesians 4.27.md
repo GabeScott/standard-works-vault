@@ -1,6 +1,6 @@
 # Ephesians 4:27
 
-> Neither give place to the <u>devil</u>[^a] .
+> Neither give place to the <u>devil</u>[^a].
 
 [Ephesians 4:27](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.27?lang=eng#p27)
 

@@ -1,6 +1,6 @@
 # Exodus 31:17
 
-> It is a sign between me and the children of Israel for ever: for in <u>six</u>[^a] days the Lord <u>made</u>[^b] heaven and earth, and on the <u>seventh day</u>[^c] he <u>rested</u>[^d], and was <u>refreshed</u>[^e] .
+> It *is* a sign between me and the children of Israel for ever: for *in* <u>six</u>[^a] days the LORD <u>made</u>[^b] heaven and earth, and on the <u>seventh day</u>[^c] he <u>rested</u>[^d], and was <u>refreshed</u>[^e].
 
 [Exodus 31:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.17?lang=eng#p17)
 

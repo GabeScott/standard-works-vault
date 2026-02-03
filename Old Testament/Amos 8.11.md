@@ -1,6 +1,6 @@
 # Amos 8:11
 
-> ¶ Behold, the days come, saith the Lord God , that I will send a famine in the land, not a <u>famine</u>[^a] of bread, nor a <u>thirst</u>[^b] for water, but of hearing the <u>words</u>[^c] of the Lord :
+> ¶ Behold, the days come, saith the Lord GOD, that I will send a famine in the land, not a <u>famine</u>[^a] of bread, nor a <u>thirst</u>[^b] for water, but of hearing the <u>words</u>[^c] of the LORD:
 
 [Amos 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/8.11?lang=eng#p11)
 

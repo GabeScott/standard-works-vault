@@ -1,6 +1,6 @@
 # 1 Nephi 14:1
 
-> And it shall come to pass, that if the <u>Gentiles</u>[^a] shall hearken unto the Lamb of God in that day that he shall manifest himself unto them in word, and also in <u>power</u>[^b], in very deed, unto the <u>taking</u>[^c] away of their <u>stumbling blocks</u>[^d] —
+> And it shall come to pass, that if the <u>Gentiles</u>[^a] shall hearken unto the Lamb of God in that day that he shall manifest himself unto them in word, and also in <u>power</u>[^b], in very deed, unto the <u>taking</u>[^c] away of their <u>stumbling blocks</u>[^d]—
 
 [1 Nephi 14:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p1#p1)
 

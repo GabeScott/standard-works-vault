@@ -1,6 +1,6 @@
 # Jonah 1:1
 
-> Now the word of the Lord came unto <u>Jonah</u>[^a] the son of Amittai, saying,
+> Now the word of the LORD came unto <u>Jonah</u>[^a] the son of Amittai, saying,
 
 [Jonah 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/1.1?lang=eng#p1)
 

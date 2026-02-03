@@ -1,6 +1,6 @@
 # Numbers 8:10
 
-> And thou shalt bring the Levites before the Lord : and the children of Israel shall put their <u>hands</u>[^a] upon the <u>Levites</u>[^b] :
+> And thou shalt bring the Levites before the LORD: and the children of Israel shall put their <u>hands</u>[^a] upon the <u>Levites</u>[^b]:
 
 [Numbers 8:10](https://www.churchofjesuschrist.org/study/scriptures/ot/num/8.10?lang=eng#p10)
 

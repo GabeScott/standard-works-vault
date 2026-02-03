@@ -1,6 +1,6 @@
 # Exodus 13:4
 
-> This day <u>came ye out</u>[^a] in <u>the</u>[^b] month <u>Abib</u>[^c] .
+> This day <u>came ye out</u>[^a] in <u>the</u>[^b] month <u>Abib</u>[^c].
 
 [Exodus 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.4?lang=eng#p4)
 

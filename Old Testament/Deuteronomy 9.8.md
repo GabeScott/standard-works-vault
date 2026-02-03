@@ -1,6 +1,6 @@
 # Deuteronomy 9:8
 
-> Also in Horeb ye provoked the Lord to wrath, so that the Lord was angry with you <u>to have</u>[^a] <u>destroyed</u>[^b] you.
+> Also in Horeb ye provoked the LORD to wrath, so that the LORD was angry with you <u>to have</u>[^a] <u>destroyed</u>[^b] you.
 
 [Deuteronomy 9:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.8?lang=eng#p8)
 

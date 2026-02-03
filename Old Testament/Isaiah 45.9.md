@@ -1,6 +1,6 @@
 # Isaiah 45:9
 
-> Woe unto him that <u>striveth</u>[^a] with his <u>Maker</u>[^b] ! Let the potsherd strive with the potsherds of the earth. Shall the <u>clay</u>[^c] say to him that fashioneth it, What makest thou? or thy work, He hath no hands?
+> Woe unto him that <u>striveth</u>[^a] with his <u>Maker</u>[^b]! *Let* the potsherd *strive* with the potsherds of the earth. Shall the <u>clay</u>[^c] say to him that fashioneth it, What makest thou? or thy work, He hath no hands?
 
 [Isaiah 45:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.9?lang=eng#p9)
 

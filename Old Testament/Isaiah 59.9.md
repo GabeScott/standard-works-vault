@@ -1,6 +1,6 @@
 # Isaiah 59:9
 
-> ¶ Therefore is judgment far from us, neither doth <u>justice</u>[^a] overtake us: we wait for <u>light</u>[^b], but behold obscurity; for brightness, but we <u>walk</u>[^c] in darkness.
+> ¶ Therefore is judgment far from us, neither doth <u>justice</u>[^a] overtake us: we wait for <u>light</u>[^b], but behold obscurity; for brightness, *but* we <u>walk</u>[^c] in darkness.
 
 [Isaiah 59:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.9?lang=eng#p9)
 

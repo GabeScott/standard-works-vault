@@ -1,6 +1,6 @@
 # Mosiah 8:13
 
-> Now Ammon said unto him: I can assuredly tell thee, O king, of a man that can <u>translate</u>[^a] the records; for he has wherewith that he can look, and translate all records that are of ancient date; and it is a gift from God. And the things are called <u>interpreters</u>[^b], and no man can look in them except he be commanded, lest he should look for that he ought not and he should perish. And whosoever is commanded to look in them, the same is called <u>seer</u>[^c] .
+> Now Ammon said unto him: I can assuredly tell thee, O king, of a man that can <u>translate</u>[^a] the records; for he has wherewith that he can look, and translate all records that are of ancient date; and it is a gift from God. And the things are called <u>interpreters</u>[^b], and no man can look in them except he be commanded, lest he should look for that he ought not and he should perish. And whosoever is commanded to look in them, the same is called <u>seer</u>[^c].
 
 [Mosiah 8:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/8?lang=eng&id=p13#p13)
 

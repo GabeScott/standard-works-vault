@@ -1,6 +1,6 @@
 # Isaiah 51:5
 
-> My righteousness is near; my <u>salvation</u>[^a] is gone forth, and mine arms shall <u>judge</u>[^b] the people; the <u>isles</u>[^c] shall wait upon me, and on mine arm shall they trust.
+> My righteousness *is* near; my <u>salvation</u>[^a] is gone forth, and mine arms shall <u>judge</u>[^b] the people; the <u>isles</u>[^c] shall wait upon me, and on mine arm shall they trust.
 
 [Isaiah 51:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Luke 22:31
 
-> ¶ And the Lord said, Simon, Simon, behold, <u>Satan</u>[^a] hath desired to have you, that he may sift you as wheat:
+> ¶ And the Lord said, Simon, Simon, behold, <u>Satan</u>[^a] hath desired *to have* you, that he may sift *you* as wheat:
 
 [Luke 22:31](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.31?lang=eng#p31)
 

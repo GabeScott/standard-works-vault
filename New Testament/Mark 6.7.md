@@ -1,6 +1,6 @@
 # Mark 6:7
 
-> ¶ And he called unto him the <u>twelve</u>[^a], and began to send them forth by <u>two</u>[^b] and two; and gave them power over unclean spirits;
+> ¶ And he called *unto him* the <u>twelve</u>[^a], and began to send them forth by <u>two</u>[^b] and two; and gave them power over unclean spirits;
 
 [Mark 6:7](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.7?lang=eng#p7)
 

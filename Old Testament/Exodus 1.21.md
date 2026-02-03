@@ -1,6 +1,6 @@
 # Exodus 1:21
 
-> And it came to pass, because the midwives <u>feared God</u>[^a], that he made them <u>houses</u>[^b] .
+> And it came to pass, because the midwives <u>feared God</u>[^a], that he made them <u>houses</u>[^b].
 
 [Exodus 1:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.21?lang=eng#p21)
 

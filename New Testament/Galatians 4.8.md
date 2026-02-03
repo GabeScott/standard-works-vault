@@ -1,6 +1,6 @@
 # Galatians 4:8
 
-> Howbeit then, when ye knew not God, ye <u>did</u>[^a] <u>service</u>[^b] unto them which by nature are no <u>gods</u>[^c] .
+> Howbeit then, when ye knew not God, ye <u>did</u>[^a] <u>service</u>[^b] unto them which by nature are no <u>gods</u>[^c].
 
 [Galatians 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.8?lang=eng#p8)
 

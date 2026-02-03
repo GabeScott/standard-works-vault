@@ -1,6 +1,6 @@
 # 1 Corinthians 5:9
 
-> I wrote unto you in an <u>epistle</u>[^a] not to <u>company</u>[^b] with <u>fornicators</u>[^c] :
+> I wrote unto you in an <u>epistle</u>[^a] not to <u>company</u>[^b] with <u>fornicators</u>[^c]:
 
 [1 Corinthians 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/5.9?lang=eng#p9)
 

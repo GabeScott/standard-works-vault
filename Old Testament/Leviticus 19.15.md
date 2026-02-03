@@ -1,6 +1,6 @@
 # Leviticus 19:15
 
-> ¶ Ye shall do no <u>unrighteousness</u>[^a] in <u>judgment</u>[^b] : thou shalt not <u>respect</u>[^c] the person of the poor, nor honour the person of the mighty: but in <u>righteousness</u>[^d] shalt thou judge thy neighbour.
+> ¶ Ye shall do no <u>unrighteousness</u>[^a] in <u>judgment</u>[^b]: thou shalt not <u>respect</u>[^c] the person of the poor, nor honour the person of the mighty: *but* in <u>righteousness</u>[^d] shalt thou judge thy neighbour.
 
 [Leviticus 19:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # Leviticus 8:13
 
-> And Moses brought Aaron’s <u>sons</u>[^a], <u>and</u>[^b] put coats upon them, and <u>girded</u>[^c] them with girdles, and put <u>bonnets</u>[^d] upon them; as the Lord commanded Moses.
+> And Moses brought Aaron’s <u>sons</u>[^a], <u>and</u>[^b] put coats upon them, and <u>girded</u>[^c] them with girdles, and put <u>bonnets</u>[^d] upon them; as the LORD commanded Moses.
 
 [Leviticus 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.13?lang=eng#p13)
 

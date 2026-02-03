@@ -1,6 +1,6 @@
 # Genesis 6:13
 
-> And God said unto Noah, The end of all flesh is come before me; for the earth is filled with <u>violence</u>[^a] through them; and, behold, I will <u>destroy</u>[^b] them <u>with the earth</u>[^c] .
+> And God said unto Noah, The end of all flesh is come before me; for the earth is filled with <u>violence</u>[^a] through them; and, behold, I will <u>destroy</u>[^b] them <u>with the earth</u>[^c].
 
 [Genesis 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.13?lang=eng#p13)
 

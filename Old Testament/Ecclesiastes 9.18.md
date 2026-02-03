@@ -1,6 +1,6 @@
 # Ecclesiastes 9:18
 
-> <u>Wisdom</u>[^a] is better than weapons of war: but one <u>sinner</u>[^b] destroyeth much good.
+> <u>Wisdom</u>[^a] *is* better than weapons of war: but one <u>sinner</u>[^b] destroyeth much good.
 
 [Ecclesiastes 9:18](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.18?lang=eng#p18)
 

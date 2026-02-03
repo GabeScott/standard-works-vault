@@ -1,6 +1,6 @@
 # John 18:38
 
-> Pilate saith unto him, What is truth? And when he had <u>said this</u>[^a], he went out again unto the Jews, and saith unto them, I find in him no <u>fault</u>[^b] at all.
+> Pilate saith unto him, What is truth? And when he had <u>said this</u>[^a], he went out again unto the Jews, and saith unto them, I find in him no <u>fault</u>[^b] *at all.*
 
 [John 18:38](https://www.churchofjesuschrist.org/study/scriptures/nt/john/18.38?lang=eng#p38)
 

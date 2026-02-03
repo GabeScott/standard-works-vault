@@ -1,6 +1,6 @@
 # James 4:9
 
-> <u>Be afflicted</u>[^a], and mourn, and <u>weep</u>[^b] : let your laughter be turned to <u>mourning</u>[^c], and your joy to heaviness.
+> <u>Be afflicted</u>[^a], and mourn, and <u>weep</u>[^b]: let your laughter be turned to <u>mourning</u>[^c], and *your* joy to heaviness.
 
 [James 4:9](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.9?lang=eng#p9)
 

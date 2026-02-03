@@ -1,6 +1,6 @@
 # 2 Chronicles 35:1
 
-> Moreover Josiah kept a <u>passover</u>[^a] unto the Lord in Jerusalem: and they killed the passover on the <u>fourteenth</u>[^b] day of the first month.
+> Moreover Josiah kept a <u>passover</u>[^a] unto the LORD in Jerusalem: and they killed the passover on the <u>fourteenth</u>[^b] *day* of the first month.
 
 [2 Chronicles 35:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/35.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # 1 Kings 3:1
 
-> And Solomon made <u>affinity</u>[^a] with <u>Pharaoh</u>[^b] king of Egypt, and took Pharaoh’s daughter, and brought her into the <u>city of David</u>[^c], until he had made an end of building his own <u>house</u>[^d], and the house of the Lord , and the <u>wall</u>[^e] of Jerusalem round about.
+> And Solomon made <u>affinity</u>[^a] with <u>Pharaoh</u>[^b] king of Egypt, and took Pharaoh’s daughter, and brought her into the <u>city of David</u>[^c], until he had made an end of building his own <u>house</u>[^d], and the house of the LORD, and the <u>wall</u>[^e] of Jerusalem round about.
 
 [1 Kings 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/3.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Exodus 34:13
 
-> But ye shall <u>destroy</u>[^a] their <u>altars</u>[^b], break their images, and cut down their <u>groves</u>[^c] :
+> But ye shall <u>destroy</u>[^a] their <u>altars</u>[^b], break their images, and cut down their <u>groves</u>[^c]:
 
 [Exodus 34:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.13?lang=eng#p13)
 

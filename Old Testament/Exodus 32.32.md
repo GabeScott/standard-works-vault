@@ -1,6 +1,6 @@
 # Exodus 32:32
 
-> Yet now, if thou wilt <u>forgive</u>[^a] their sin—; and if not, <u>blot</u>[^b] me, I pray thee, out of thy <u>book</u>[^c] which thou hast <u>written</u>[^d] .
+> Yet now, if thou wilt <u>forgive</u>[^a] their sin—; and if not, <u>blot</u>[^b] me, I pray thee, out of thy <u>book</u>[^c] which thou hast <u>written</u>[^d].
 
 [Exodus 32:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.32?lang=eng#p32)
 

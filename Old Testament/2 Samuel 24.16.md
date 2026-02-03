@@ -1,6 +1,6 @@
 # 2 Samuel 24:16
 
-> And when the angel stretched out his hand upon Jerusalem to destroy it, <u>the Lord repented</u>[^a] him of the evil, and said to the angel that destroyed the people, It is enough: <u>stay</u>[^b] now thine hand. And the angel of the Lord was by the threshingplace of Araunah the Jebusite.
+> And when the angel stretched out his hand upon Jerusalem to destroy it, <u>the Lord repented</u>[^a] him of the evil, and said to the angel that destroyed the people, It is enough: <u>stay</u>[^b] now thine hand. And the angel of the LORD was by the threshingplace of Araunah the Jebusite.
 
 [2 Samuel 24:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/24.16?lang=eng#p16)
 

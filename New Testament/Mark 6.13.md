@@ -1,6 +1,6 @@
 # Mark 6:13
 
-> And they cast out many devils, and <u>anointed</u>[^a] with oil many that were sick, and healed them.
+> And they cast out many devils, and <u>anointed</u>[^a] with oil many that were sick, and healed *them.*
 
 [Mark 6:13](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.13?lang=eng#p13)
 

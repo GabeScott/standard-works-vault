@@ -1,6 +1,6 @@
 # Deuteronomy 4:24
 
-> For the Lord thy God is a consuming <u>fire</u>[^a], even a <u>jealous</u>[^b] God.
+> For the LORD thy God *is* a consuming <u>fire</u>[^a], *even* a <u>jealous</u>[^b] God.
 
 [Deuteronomy 4:24](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.24?lang=eng#p24)
 

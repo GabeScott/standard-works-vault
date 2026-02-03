@@ -1,6 +1,6 @@
 # Mark 5:15
 
-> And they come to Jesus, and see him that was possessed with the <u>devil</u>[^a], and had the legion, sitting, and clothed, and in his right <u>mind</u>[^b] : and they were afraid.
+> And they come to Jesus, and see him that was possessed with the <u>devil</u>[^a], and had the legion, sitting, and clothed, and in his right <u>mind</u>[^b]: and they were afraid.
 
 [Mark 5:15](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.15?lang=eng#p15)
 

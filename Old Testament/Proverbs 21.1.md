@@ -1,6 +1,6 @@
 # Proverbs 21:1
 
-> The <u>king’s</u>[^a] heart is in the hand of the Lord , as the rivers of water: he turneth it whithersoever he will.
+> The <u>king’s</u>[^a] heart *is* in the hand of the LORD, *as* the rivers of water: he turneth it whithersoever he will.
 
 [Proverbs 21:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.1?lang=eng#p1)
 

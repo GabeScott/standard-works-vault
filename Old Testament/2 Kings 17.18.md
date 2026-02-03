@@ -1,6 +1,6 @@
 # 2 Kings 17:18
 
-> Therefore the Lord was very angry with Israel, and <u>removed</u>[^a] them out of his sight: there was none left but the tribe of <u>Judah</u>[^b] only.
+> Therefore the LORD was very angry with Israel, and <u>removed</u>[^a] them out of his sight: there was none left but the tribe of <u>Judah</u>[^b] only.
 
 [2 Kings 17:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.18?lang=eng#p18)
 

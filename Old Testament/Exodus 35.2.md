@@ -1,6 +1,6 @@
 # Exodus 35:2
 
-> <u>Six</u>[^a] days shall <u>work</u>[^b] be done, but on the seventh day there shall be to you an holy day, a <u>sabbath</u>[^c] of rest to the Lord : whosoever doeth work therein shall be put to <u>death</u>[^d] .
+> <u>Six</u>[^a] days shall <u>work</u>[^b] be done, but on the seventh day there shall be to you an holy day, a <u>sabbath</u>[^c] of rest to the LORD: whosoever doeth work therein shall be put to <u>death</u>[^d].
 
 [Exodus 35:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.2?lang=eng#p2)
 

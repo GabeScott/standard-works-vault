@@ -1,6 +1,6 @@
 # Psalms 37:4
 
-> Delight thyself also in the Lord ; and he shall give thee the <u>desires</u>[^a] of thine heart.
+> Delight thyself also in the LORD; and he shall give thee the <u>desires</u>[^a] of thine heart.
 
 [Psalms 37:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Exodus 32:10
 
-> Now therefore let me alone, that my <u>wrath</u>[^a] may wax hot against them, and that I may <u>consume</u>[^b] them: and I will make of thee a great <u>nation</u>[^c] .
+> Now therefore let me alone, that my <u>wrath</u>[^a] may wax hot against them, and that I may <u>consume</u>[^b] them: and I will make of thee a great <u>nation</u>[^c].
 
 [Exodus 32:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.10?lang=eng#p10)
 

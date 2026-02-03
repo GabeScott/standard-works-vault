@@ -1,6 +1,6 @@
 # Psalms 146:8
 
-> The Lord openeth the eyes of the <u>blind</u>[^b] : the Lord raiseth them that are bowed down: the Lord loveth the righteous:
+> The LORD openeth *the *<u>eyes</u>[^a]* of* the <u>blind</u>[^b]: the LORD raiseth them that are bowed down: the LORD loveth the righteous:
 
 [Psalms 146:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/146.8?lang=eng#p8)
 

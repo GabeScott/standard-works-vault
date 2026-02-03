@@ -1,6 +1,6 @@
 # Micah 4:10
 
-> Be in pain, and labour to bring forth, O daughter of Zion, like a woman in <u>travail</u>[^a] : for now shalt thou go forth out of the city, and thou shalt dwell in the field, and thou shalt go even to <u>Babylon</u>[^b]; there shalt thou be delivered; there the Lord shall redeem thee from the hand of thine <u>enemies</u>[^c] .
+> Be in pain, and labour to bring forth, O daughter of Zion, like a woman in <u>travail</u>[^a]: for now shalt thou go forth out of the city, and thou shalt dwell in the field, and thou shalt go *even* to <u>Babylon</u>[^b]; there shalt thou be delivered; there the LORD shall redeem thee from the hand of thine <u>enemies</u>[^c].
 
 [Micah 4:10](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/4.10?lang=eng#p10)
 

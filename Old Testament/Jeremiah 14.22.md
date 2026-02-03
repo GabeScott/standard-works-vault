@@ -1,6 +1,6 @@
 # Jeremiah 14:22
 
-> Are there any among the <u>vanities of the Gentiles</u>[^a] that can cause rain? or can the heavens give <u>showers</u>[^b] ? art not thou he, O Lord our God? therefore we will wait upon thee: for thou hast <u>made</u>[^c] all these things.
+> Are there *any* among the <u>vanities of the Gentiles</u>[^a] that can cause rain? or can the heavens give <u>showers</u>[^b]? *art* not thou he, O LORD our God? therefore we will wait upon thee: for thou hast <u>made</u>[^c] all these *things.*
 
 [Jeremiah 14:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.22?lang=eng#p22)
 

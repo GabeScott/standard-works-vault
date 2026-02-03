@@ -1,6 +1,6 @@
 # John 10:16
 
-> And <u>other</u>[^a] <u>sheep</u>[^b] I have, which are not of this fold: them also I must bring, and they shall hear my voice; and there shall be <u>one</u>[^c] fold, and one shepherd.
+> And <u>other</u>[^a] <u>sheep</u>[^b] I have, which are not of this fold: them also I must bring, and they shall hear my voice; and there shall be <u>one</u>[^c] fold, *and* one shepherd.
 
 [John 10:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.16?lang=eng#p16)
 

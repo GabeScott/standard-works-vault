@@ -1,6 +1,6 @@
 # Exodus 13:14
 
-> ¶ And it shall be when thy <u>son</u>[^a] <u>asketh</u>[^b] thee in time to come, saying, What is this? that thou shalt say unto him, By strength of hand the Lord <u>brought</u>[^c] us out from Egypt, from the house of <u>bondage</u>[^d] :
+> ¶ And it shall be when thy <u>son</u>[^a] <u>asketh</u>[^b] thee in time to come, saying, What *is* this? that thou shalt say unto him, By strength of hand the LORD <u>brought</u>[^c] us out from Egypt, from the house of <u>bondage</u>[^d]:
 
 [Exodus 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.14?lang=eng#p14)
 

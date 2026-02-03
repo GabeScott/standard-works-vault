@@ -1,6 +1,6 @@
 # 1 Timothy 5:22
 
-> <u>Lay</u>[^a] <u>hands</u>[^b] suddenly on no <u>man</u>[^c], neither be <u>partaker</u>[^d] of other men’s sins: keep thyself <u>pure</u>[^e] .
+> <u>Lay</u>[^a] <u>hands</u>[^b] suddenly on no <u>man</u>[^c], neither be <u>partaker</u>[^d] of other men’s sins: keep thyself <u>pure</u>[^e].
 
 [1 Timothy 5:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.22?lang=eng#p22)
 

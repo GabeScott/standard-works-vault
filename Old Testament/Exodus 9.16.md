@@ -1,6 +1,6 @@
 # Exodus 9:16
 
-> And in very deed for this cause have I <u>raised thee up</u>[^b], for to <u>shew in thee</u>[^c] my power; and that my <u>name</u>[^d] may be <u>declared</u>[^e] throughout all the earth.
+> And in very deed for this <u>cause</u>[^a] have I <u>raised thee up</u>[^b], for to <u>shew in thee</u>[^c] my power; and that my <u>name</u>[^d] may be <u>declared</u>[^e] throughout all the earth.
 
 [Exodus 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/9.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Matthew 6:22
 
-> The light of the body is the eye: if therefore thine <u>eye</u>[^a] be <u>single</u>[^b], thy whole body shall be full of <u>light</u>[^c] .
+> The light of the body is the eye: if therefore thine <u>eye</u>[^a] be <u>single</u>[^b], thy whole body shall be full of <u>light</u>[^c].
 
 [Matthew 6:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.22?lang=eng#p22)
 

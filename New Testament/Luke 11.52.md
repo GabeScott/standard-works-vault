@@ -1,6 +1,6 @@
 # Luke 11:52
 
-> Woe unto you, <u>lawyers</u>[^a] ! for ye have taken away the <u>key</u>[^b] of <u>knowledge</u>[^c] : ye entered not in yourselves, and them that were entering in ye <u>hindered</u>[^d] .
+> Woe unto you, <u>lawyers</u>[^a]! for ye have taken away the <u>key</u>[^b] of <u>knowledge</u>[^c]: ye entered not in yourselves, and them that were entering in ye <u>hindered</u>[^d].
 
 [Luke 11:52](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.52?lang=eng#p52)
 

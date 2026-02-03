@@ -1,6 +1,6 @@
 # Jeremiah 28:9
 
-> The prophet which <u>prophesieth</u>[^a] of <u>peace</u>[^b], when the word of the prophet shall come to pass, then shall the <u>prophet</u>[^c] be known, that the Lord hath truly sent him.
+> The prophet which <u>prophesieth</u>[^a] of <u>peace</u>[^b], when the word of the prophet shall come to pass, *then* shall the <u>prophet</u>[^c] be known, that the LORD hath truly sent him.
 
 [Jeremiah 28:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/28.9?lang=eng#p9)
 

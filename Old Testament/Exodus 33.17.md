@@ -1,6 +1,6 @@
 # Exodus 33:17
 
-> And the Lord said unto Moses, <u>I</u>[^a] will <u>do</u>[^b] this thing also that thou hast spoken: for thou hast found grace in my sight, and I know thee by name.
+> And the LORD said unto Moses, <u>I</u>[^a] will <u>do</u>[^b] this thing also that thou hast spoken: for thou hast found grace in my sight, and I know thee by name.
 
 [Exodus 33:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.17?lang=eng#p17)
 

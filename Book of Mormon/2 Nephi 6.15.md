@@ -1,6 +1,6 @@
 # 2 Nephi 6:15
 
-> And they that believe not in him shall be <u>destroyed</u>[^a], both by <u>fire</u>[^b], and by tempest, and by earthquakes, and by <u>bloodsheds</u>[^c], and by <u>pestilence</u>[^d], and by <u>famine</u>[^e] . And they shall know that the Lord is God, the Holy One of Israel.
+> And they that believe not in him shall be <u>destroyed</u>[^a], both by <u>fire</u>[^b], and by tempest, and by earthquakes, and by <u>bloodsheds</u>[^c], and by <u>pestilence</u>[^d], and by <u>famine</u>[^e]. And they shall know that the Lord is God, the Holy One of Israel.
 
 [2 Nephi 6:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/6?lang=eng&id=p15#p15)
 

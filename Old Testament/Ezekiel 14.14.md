@@ -1,6 +1,6 @@
 # Ezekiel 14:14
 
-> <u>Though</u>[^a] these three men, <u>Noah</u>[^b], <u>Daniel</u>[^c], and <u>Job</u>[^d], were in it, they should deliver but their own souls by their righteousness, saith the Lord God .
+> <u>Though</u>[^a] these three men, <u>Noah</u>[^b], <u>Daniel</u>[^c], and <u>Job</u>[^d], were in it, they should deliver *but* their own souls by their righteousness, saith the Lord GOD.
 
 [Ezekiel 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # Mark 13:33
 
-> Take ye heed, <u>watch</u>[^a] and <u>pray</u>[^b] : for ye know not when the time is.
+> Take ye heed, <u>watch</u>[^a] and <u>pray</u>[^b]: for ye know not when the time is.
 
 [Mark 13:33](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.33?lang=eng#p33)
 

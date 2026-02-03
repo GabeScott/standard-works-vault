@@ -1,6 +1,6 @@
 # Exodus 32:33
 
-> And the Lord said unto Moses, <u>Whosoever</u>[^a] hath <u>sinned</u>[^b] against me, him will I <u>blot out</u>[^c] of my <u>book</u>[^d] .
+> And the LORD said unto Moses, <u>Whosoever</u>[^a] hath <u>sinned</u>[^b] against me, him will I <u>blot out</u>[^c] of my <u>book</u>[^d].
 
 [Exodus 32:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.33?lang=eng#p33)
 

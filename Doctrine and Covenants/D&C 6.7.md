@@ -1,6 +1,6 @@
 # D&C 6:7
 
-> <u>Seek not</u>[^a] for <u>riches</u>[^b] but for <u>wisdom</u>[^c], and behold, the <u>mysteries</u>[^d] of God shall be unfolded unto you, and then shall you be made <u>rich</u>[^e] . Behold, he that hath <u>eternal life</u>[^f] is rich.
+> <u>Seek not</u>[^a] for <u>riches</u>[^b] but for <u>wisdom</u>[^c], and behold, the <u>mysteries</u>[^d] of God shall be unfolded unto you, and then shall you be made <u>rich</u>[^e]. Behold, he that hath <u>eternal life</u>[^f] is rich.
 
 [D&C 6:7](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.7?lang=eng#p7)
 

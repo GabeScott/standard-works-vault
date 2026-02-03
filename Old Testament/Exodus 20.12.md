@@ -1,6 +1,6 @@
 # Exodus 20:12
 
-> ¶ <u>Honour</u>[^a] thy <u>father</u>[^b] and thy <u>mother</u>[^c] : that thy <u>days</u>[^d] may be <u>long</u>[^e] upon the <u>land</u>[^f] which the Lord thy God giveth thee.
+> ¶ <u>Honour</u>[^a] thy <u>father</u>[^b] and thy <u>mother</u>[^c]: that thy <u>days</u>[^d] may be <u>long</u>[^e] upon the <u>land</u>[^f] which the LORD thy God giveth thee.
 
 [Exodus 20:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.12?lang=eng#p12)
 

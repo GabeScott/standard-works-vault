@@ -1,6 +1,6 @@
 # Psalms 64:6
 
-> They search out <u>iniquities</u>[^a]; they accomplish a diligent search: both the inward thought of every one of them, and the heart, is deep.
+> They search out <u>iniquities</u>[^a]; they accomplish a diligent search: both the inward *thought* of every one *of them,* and the heart, *is* deep.
 
 [Psalms 64:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/64.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Jeremiah 3:9
 
-> And it came to pass through the lightness of her whoredom, that she defiled the land, and <u>committed</u>[^a] adultery with <u>stones</u>[^b] and with <u>stocks</u>[^c] .
+> And it came to pass through the lightness of her whoredom, that she defiled the land, and <u>committed</u>[^a] adultery with <u>stones</u>[^b] and with <u>stocks</u>[^c].
 
 [Jeremiah 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.9?lang=eng#p9)
 

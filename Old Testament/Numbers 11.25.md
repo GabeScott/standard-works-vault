@@ -1,6 +1,6 @@
 # Numbers 11:25
 
-> And the Lord came down in a <u>cloud</u>[^a], and spake unto him, and took of the spirit that was upon him, and gave it unto the seventy <u>elders</u>[^b] : and it came to pass, that, when the spirit rested upon them, they <u>prophesied</u>[^c], and did not cease.
+> And the LORD came down in a <u>cloud</u>[^a], and spake unto him, and took of the spirit that *was* upon him, and gave *it* unto the seventy <u>elders</u>[^b]: and it came to pass, *that,* when the spirit rested upon them, they <u>prophesied</u>[^c], and did not cease.
 
 [Numbers 11:25](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.25?lang=eng#p25)
 

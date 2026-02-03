@@ -1,6 +1,6 @@
 # Luke 11:25
 
-> <u>And</u>[^a] when he cometh, he findeth it swept and <u>garnished</u>[^b] .
+> <u>And</u>[^a] when he cometh, he findeth *it* swept and <u>garnished</u>[^b].
 
 [Luke 11:25](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.25?lang=eng#p25)
 

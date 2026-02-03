@@ -1,6 +1,6 @@
 # Mark 1:15
 
-> And saying, The <u>time</u>[^a] is fulfilled, and the <u>kingdom</u>[^b] of God <u>is at hand</u>[^c] : <u>repent</u>[^d] ye, and <u>believe</u>[^e] the gospel.
+> And saying, The <u>time</u>[^a] is fulfilled, and the <u>kingdom</u>[^b] of God <u>is at hand</u>[^c]: <u>repent</u>[^d] ye, and <u>believe</u>[^e] the gospel.
 
 [Mark 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.15?lang=eng#p15)
 

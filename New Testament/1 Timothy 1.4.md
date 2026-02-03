@@ -1,6 +1,6 @@
 # 1 Timothy 1:4
 
-> Neither give heed to <u>fables</u>[^a] and endless genealogies, which <u>minister</u>[^b] <u>questions</u>[^c], rather than godly <u>edifying</u>[^d] which is in faith: so do.
+> Neither give heed to <u>fables</u>[^a] and endless genealogies, which <u>minister</u>[^b] <u>questions</u>[^c], rather than godly <u>edifying</u>[^d] which is in faith: *so do.*
 
 [1 Timothy 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.4?lang=eng#p4)
 

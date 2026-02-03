@@ -1,6 +1,6 @@
 # Hosea 13:10
 
-> I will be thy <u>king</u>[^a] : where is any other that may save thee in all thy cities? and thy judges of whom thou saidst, Give me a <u>king</u>[^b] and princes?
+> I will be thy <u>king</u>[^a]: where *is any other* that may save thee in all thy cities? and thy judges of whom thou saidst, Give me a <u>king</u>[^b] and princes?
 
 [Hosea 13:10](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.10?lang=eng#p10)
 

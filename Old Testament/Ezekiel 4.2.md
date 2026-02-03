@@ -1,6 +1,6 @@
 # Ezekiel 4:2
 
-> And <u>lay siege against it</u>[^a], and <u>build</u>[^b] a fort against it, and <u>cast</u>[^c] a <u>mount</u>[^d] against it; set the camp also against it, and set battering rams against it round about.
+> And <u>lay siege against it</u>[^a], and <u>build</u>[^b] a fort against it, and <u>cast</u>[^c] a <u>mount</u>[^d] against it; set the camp also against it, and set <u>battering</u>[^e] rams against it round about.
 
 [Ezekiel 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/4.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 1:37
 
-> Also the Lord was <u>angry</u>[^a] with me for your <u>sakes</u>[^b], saying, Thou also shalt not go in thither.
+> Also the LORD was <u>angry</u>[^a] with me for your <u>sakes</u>[^b], saying, Thou also shalt not go in thither.
 
 [Deuteronomy 1:37](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.37?lang=eng#p37)
 

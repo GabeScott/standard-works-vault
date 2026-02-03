@@ -1,6 +1,6 @@
 # Isaiah 1:17
 
-> <u>Learn</u>[^a] to do <u>well</u>[^b]; seek <u>judgment</u>[^c], <u>relieve</u>[^d] the oppressed, <u>judge the fatherless</u>[^e], plead for the <u>widow</u>[^f] .
+> <u>Learn</u>[^a] to do <u>well</u>[^b]; seek <u>judgment</u>[^c], <u>relieve</u>[^d] the oppressed, <u>judge the fatherless</u>[^e], plead for the <u>widow</u>[^f].
 
 [Isaiah 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.17?lang=eng#p17)
 

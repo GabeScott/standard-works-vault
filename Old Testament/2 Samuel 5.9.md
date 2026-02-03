@@ -1,6 +1,6 @@
 # 2 Samuel 5:9
 
-> So David dwelt in the fort, and called it the <u>city of David</u>[^a] . And David built round about from <u>Millo</u>[^b] and inward.
+> So David dwelt in the fort, and called it the <u>city of David</u>[^a]. And David built round about from <u>Millo</u>[^b] and inward.
 
 [2 Samuel 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.9?lang=eng#p9)
 

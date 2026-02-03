@@ -1,6 +1,6 @@
 # Hebrews 9:16
 
-> For where a <u>testament</u>[^a] is, there must also of necessity be the <u>death</u>[^b] of the <u>testator</u>[^c] .
+> For where a <u>testament</u>[^a] *is,* there must also of necessity be the <u>death</u>[^b] of the <u>testator</u>[^c].
 
 [Hebrews 9:16](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.16?lang=eng#p16)
 

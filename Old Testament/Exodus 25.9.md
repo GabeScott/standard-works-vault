@@ -1,6 +1,6 @@
 # Exodus 25:9
 
-> According to all that I shew thee, after the pattern of the <u>tabernacle</u>[^a], and the pattern of all the <u>instruments</u>[^b] thereof, even so shall ye make it.
+> According to all that I shew thee, *after* the pattern of the <u>tabernacle</u>[^a], and the pattern of all the <u>instruments</u>[^b] thereof, even so shall ye make *it.*
 
 [Exodus 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.9?lang=eng#p9)
 

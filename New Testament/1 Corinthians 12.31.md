@@ -1,6 +1,6 @@
 # 1 Corinthians 12:31
 
-> But <u>covet earnestly</u>[^a] the best <u>gifts</u>[^b] : and yet shew I unto you a more <u>excellent</u>[^c] way.
+> But <u>covet earnestly</u>[^a] the best <u>gifts</u>[^b]: and yet shew I unto you a more <u>excellent</u>[^c] way.
 
 [1 Corinthians 12:31](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.31?lang=eng#p31)
 

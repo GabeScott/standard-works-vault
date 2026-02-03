@@ -1,6 +1,6 @@
 # Ezra 7:10
 
-> For Ezra had <u>prepared</u>[^a] his <u>heart</u>[^b] to seek the law of the Lord , and to do it, and to teach in Israel <u>statutes</u>[^c] and judgments.
+> For Ezra had <u>prepared</u>[^a] his <u>heart</u>[^b] to seek the law of the LORD, and to do *it,* and to teach in Israel <u>statutes</u>[^c] and judgments.
 
 [Ezra 7:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/7.10?lang=eng#p10)
 

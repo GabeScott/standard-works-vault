@@ -1,6 +1,6 @@
 # Exodus 19:3
 
-> And Moses went up unto God, and the Lord <u>called</u>[^a] unto him out of the <u>mountain</u>[^b], saying, Thus shalt thou say to the house of Jacob, and tell the children of Israel;
+> And Moses went up unto God, and the LORD <u>called</u>[^a] unto him out of the <u>mountain</u>[^b], saying, Thus shalt thou say to the house of Jacob, and tell the children of Israel;
 
 [Exodus 19:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.3?lang=eng#p3)
 

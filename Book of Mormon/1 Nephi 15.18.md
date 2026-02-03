@@ -1,6 +1,6 @@
 # 1 Nephi 15:18
 
-> Wherefore, our father hath not spoken of our seed alone, but also of all the house of Israel, pointing to the covenant which should be fulfilled in the latter days; which covenant the Lord made to our father Abraham, saying: In thy <u>seed</u>[^a] shall all the kindreds of the earth be <u>blessed</u>[^b] .
+> Wherefore, our father hath not spoken of our seed alone, but also of all the house of Israel, pointing to the covenant which should be fulfilled in the latter days; which covenant the Lord made to our father Abraham, saying: In thy <u>seed</u>[^a] shall all the kindreds of the earth be <u>blessed</u>[^b].
 
 [1 Nephi 15:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p18#p18)
 

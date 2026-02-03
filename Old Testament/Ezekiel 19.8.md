@@ -1,6 +1,6 @@
 # Ezekiel 19:8
 
-> Then the nations set <u>against</u>[^a] him on every side from the provinces, and spread their net over him: he was <u>taken</u>[^b] in their <u>pit</u>[^c] .
+> Then the nations set <u>against</u>[^a] him on every side from the provinces, and spread their net over him: he was <u>taken</u>[^b] in their <u>pit</u>[^c].
 
 [Ezekiel 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/19.8?lang=eng#p8)
 

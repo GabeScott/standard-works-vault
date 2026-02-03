@@ -1,6 +1,6 @@
 # Luke 19:10
 
-> For the Son of man is come to seek and to <u>save</u>[^a] that which was <u>lost</u>[^b] .
+> For the Son of man is come to seek and to <u>save</u>[^a] that which was <u>lost</u>[^b].
 
 [Luke 19:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.10?lang=eng#p10)
 

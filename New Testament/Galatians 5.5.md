@@ -1,6 +1,6 @@
 # Galatians 5:5
 
-> For we through the Spirit wait for the hope of righteousness by <u>faith</u>[^a] .
+> For we through the Spirit wait for the hope of righteousness by <u>faith</u>[^a].
 
 [Galatians 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.5?lang=eng#p5)
 

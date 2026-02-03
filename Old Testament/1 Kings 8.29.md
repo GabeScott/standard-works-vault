@@ -1,6 +1,6 @@
 # 1 Kings 8:29
 
-> That thine eyes may be open toward this <u>house</u>[^a] night and day, even toward the <u>place</u>[^b] of which thou hast said, My <u>name</u>[^c] shall be there: that thou mayest hearken unto the <u>prayer</u>[^d] which thy servant shall make toward this place.
+> That thine eyes may be open toward this <u>house</u>[^a] night and day, *even* toward the <u>place</u>[^b] of which thou hast said, My <u>name</u>[^c] shall be there: that thou mayest hearken unto the <u>prayer</u>[^d] which thy servant shall make toward this place.
 
 [1 Kings 8:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.29?lang=eng#p29)
 

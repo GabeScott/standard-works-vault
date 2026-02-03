@@ -1,6 +1,6 @@
 # Amos 5:21
 
-> ¶ I hate, I despise your <u>feast</u>[^a] days, and <u>I</u>[^b] will not smell in your <u>solemn assemblies</u>[^c] .
+> ¶ I hate, I despise your <u>feast</u>[^a] days, and <u>I</u>[^b] will not smell in your <u>solemn assemblies</u>[^c].
 
 [Amos 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.21?lang=eng#p21)
 

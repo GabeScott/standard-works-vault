@@ -1,6 +1,6 @@
 # Exodus 25:23
 
-> ¶ Thou shalt also make a <u>table</u>[^a] of shittim wood: two cubits shall be the length thereof, and a cubit the breadth thereof, and a cubit and a half the height thereof.
+> ¶ Thou shalt also make a <u>table</u>[^a] *of* shittim wood: two cubits *shall be* the length thereof, and a cubit the breadth thereof, and a cubit and a half the height thereof.
 
 [Exodus 25:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.23?lang=eng#p23)
 

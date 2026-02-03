@@ -1,6 +1,6 @@
 # 1 Samuel 16:13
 
-> Then Samuel took the horn of oil, and <u>anointed</u>[^a] him in the midst of his brethren: and the <u>Spirit</u>[^b] of the Lord came upon <u>David</u>[^c] from that day forward. So Samuel rose up, and went to Ramah.
+> Then Samuel took the horn of oil, and <u>anointed</u>[^a] him in the midst of his brethren: and the <u>Spirit</u>[^b] of the LORD came upon <u>David</u>[^c] from that day forward. So Samuel rose up, and went to Ramah.
 
 [1 Samuel 16:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/16.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Genesis 43:20
 
-> And said, O <u>sir</u>[^a], we came indeed down at the first time to buy <u>food</u>[^b] :
+> And said, O <u>sir</u>[^a], we came indeed down at the first time to buy <u>food</u>[^b]:
 
 [Genesis 43:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.20?lang=eng#p20)
 

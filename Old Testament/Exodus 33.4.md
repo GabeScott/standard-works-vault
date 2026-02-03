@@ -1,6 +1,6 @@
 # Exodus 33:4
 
-> ¶ And when the people heard these evil tidings, they <u>mourned</u>[^a] : and no man did put on him his <u>ornaments</u>[^b] .
+> ¶ And when the people heard these evil tidings, they <u>mourned</u>[^a]: and no man did put on him his <u>ornaments</u>[^b].
 
 [Exodus 33:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.4?lang=eng#p4)
 

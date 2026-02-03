@@ -1,6 +1,6 @@
 # Proverbs 10:11
 
-> The mouth of a <u>righteous</u>[^a] man is a <u>well</u>[^b] of life: but violence covereth the mouth of the wicked.
+> The mouth of a <u>righteous</u>[^a] *man is* a <u>well</u>[^b] of life: but violence covereth the mouth of the wicked.
 
 [Proverbs 10:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.11?lang=eng#p11)
 

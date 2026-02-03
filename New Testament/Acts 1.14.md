@@ -1,6 +1,6 @@
 # Acts 1:14
 
-> These all continued with <u>one</u>[^a] accord in prayer and <u>supplication</u>[^b], with the women, and Mary the mother of Jesus, and with his <u>brethren</u>[^c] .
+> These all continued with <u>one</u>[^a] accord in prayer and <u>supplication</u>[^b], with the women, and Mary the mother of Jesus, and with his <u>brethren</u>[^c].
 
 [Acts 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.14?lang=eng#p14)
 

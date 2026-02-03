@@ -1,6 +1,6 @@
 # Galatians 5:1
 
-> <u>Stand</u>[^a] fast therefore in the <u>liberty</u>[^b] wherewith Christ hath made us <u>free</u>[^c], and be not <u>entangled</u>[^d] again with the yoke of <u>bondage</u>[^e] .
+> <u>Stand</u>[^a] fast therefore in the <u>liberty</u>[^b] wherewith Christ hath made us <u>free</u>[^c], and be not <u>entangled</u>[^d] again with the yoke of <u>bondage</u>[^e].
 
 [Galatians 5:1](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.1?lang=eng#p1)
 

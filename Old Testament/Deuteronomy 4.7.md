@@ -1,6 +1,6 @@
 # Deuteronomy 4:7
 
-> For what <u>nation</u>[^a] is there so great, who hath God so <u>nigh</u>[^b] unto them, as the Lord our God is in all things that we call upon him for?
+> For what <u>nation</u>[^a] *is there so* great, who *hath* God *so* <u>nigh</u>[^b] unto them, as the LORD our God *is* in all *things that* we call upon him *for?*
 
 [Deuteronomy 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.7?lang=eng#p7)
 

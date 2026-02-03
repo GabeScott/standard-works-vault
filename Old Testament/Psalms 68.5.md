@@ -1,6 +1,6 @@
 # Psalms 68:5
 
-> A father of the <u>fatherless</u>[^a], and a <u>judge</u>[^b] of the widows, is God in his holy habitation.
+> A father of the <u>fatherless</u>[^a], and a <u>judge</u>[^b] of the widows, *is* God in his holy habitation.
 
 [Psalms 68:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.5?lang=eng#p5)
 

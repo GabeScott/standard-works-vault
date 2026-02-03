@@ -1,6 +1,6 @@
 # Exodus 14:30
 
-> Thus the Lord <u>saved</u>[^a] Israel that day out of the hand of the Egyptians; and Israel saw the Egyptians dead upon the sea shore.
+> Thus the LORD <u>saved</u>[^a] Israel that day out of the hand of the Egyptians; and Israel saw the Egyptians dead upon the sea shore.
 
 [Exodus 14:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.30?lang=eng#p30)
 

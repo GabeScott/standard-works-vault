@@ -1,6 +1,6 @@
 # Isaiah 60:18
 
-> <u>Violence</u>[^a] shall no more be heard in thy land, wasting nor destruction within thy borders; but thou shalt call thy <u>walls</u>[^b] Salvation, and thy gates <u>Praise</u>[^c] .
+> <u>Violence</u>[^a] shall no more be heard in thy land, wasting nor destruction within thy borders; but thou shalt call thy <u>walls</u>[^b] Salvation, and thy gates <u>Praise</u>[^c].
 
 [Isaiah 60:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.18?lang=eng#p18)
 

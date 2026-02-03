@@ -1,6 +1,6 @@
 # Isaiah 12:6
 
-> Cry out and shout, thou <u>inhabitant</u>[^a] of Zion: for great is the Holy One of Israel in the <u>midst</u>[^b] of thee.
+> Cry out and shout, thou <u>inhabitant</u>[^a] of Zion: for great *is* the Holy One of Israel in the <u>midst</u>[^b] of thee.
 
 [Isaiah 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/12.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 11:27
 
-> A <u>blessing</u>[^a], if ye obey the commandments of the Lord your God, which I command you this day:
+> A <u>blessing</u>[^a], if ye obey the commandments of the LORD your God, which I command you this day:
 
 [Deuteronomy 11:27](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.27?lang=eng#p27)
 

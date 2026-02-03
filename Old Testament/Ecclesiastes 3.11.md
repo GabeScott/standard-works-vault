@@ -1,6 +1,6 @@
 # Ecclesiastes 3:11
 
-> He hath made every thing <u>beautiful</u>[^a] in his time: also <u>he</u>[^b] hath set the world in their heart, so that no man can find out the <u>work</u>[^c] that God maketh from the beginning to the end.
+> He hath made every *thing* <u>beautiful</u>[^a] in his time: also <u>he</u>[^b] hath set the world in their heart, so that no man can find out the <u>work</u>[^c] that God maketh from the beginning to the end.
 
 [Ecclesiastes 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.11?lang=eng#p11)
 

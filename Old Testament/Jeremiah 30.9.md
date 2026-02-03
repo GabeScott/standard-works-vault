@@ -1,6 +1,6 @@
 # Jeremiah 30:9
 
-> But they shall serve the Lord their God, and <u>David</u>[^a] their king, whom I will raise up unto them.
+> But they shall serve the LORD their God, and <u>David</u>[^a] their king, whom I will raise up unto them.
 
 [Jeremiah 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.9?lang=eng#p9)
 

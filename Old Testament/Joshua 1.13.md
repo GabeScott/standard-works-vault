@@ -1,6 +1,6 @@
 # Joshua 1:13
 
-> Remember the <u>word</u>[^a] which Moses the servant of the Lord commanded you, saying, The Lord your God hath given you <u>rest</u>[^b], and hath given you this land.
+> Remember the <u>word</u>[^a] which Moses the servant of the LORD commanded you, saying, The LORD your God hath given you <u>rest</u>[^b], and hath given you this land.
 
 [Joshua 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Mormon 9:20
 
-> And the reason why he ceaseth to do <u>miracles</u>[^a] among the children of men is because that they dwindle in unbelief, and depart from the right way, and know not the God in whom they should <u>trust</u>[^b] .
+> And the reason why he ceaseth to do <u>miracles</u>[^a] among the children of men is because that they dwindle in unbelief, and depart from the right way, and know not the God in whom they should <u>trust</u>[^b].
 
 [Mormon 9:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p20#p20)
 

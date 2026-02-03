@@ -1,6 +1,6 @@
 # Alma 11:43
 
-> The spirit and the body shall be <u>reunited</u>[^a] again in its <u>perfect</u>[^b] form; both limb and joint shall be restored to its proper frame, even as we now are at this time; and we shall be brought to stand before God, <u>knowing</u>[^c] even as we know now, and have a bright <u>recollection</u>[^d] of all our <u>guilt</u>[^e] .
+> The spirit and the body shall be <u>reunited</u>[^a] again in its <u>perfect</u>[^b] form; both limb and joint shall be restored to its proper frame, even as we now are at this time; and we shall be brought to stand before God, <u>knowing</u>[^c] even as we know now, and have a bright <u>recollection</u>[^d] of all our <u>guilt</u>[^e].
 
 [Alma 11:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p43#p43)
 

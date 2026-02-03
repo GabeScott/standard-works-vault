@@ -1,6 +1,6 @@
 # 3 Nephi 19:23
 
-> And now Father, I <u>pray</u>[^a] unto thee for them, and also for all those who shall believe on their words, that they may believe in me, that I may be in them <u>as</u>[^b] thou, Father, art in me, that we may be <u>one</u>[^c] .
+> And now Father, I <u>pray</u>[^a] unto thee for them, and also for all those who shall believe on their words, that they may believe in me, that I may be in them <u>as</u>[^b] thou, Father, art in me, that we may be <u>one</u>[^c].
 
 [3 Nephi 19:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p23#p23)
 

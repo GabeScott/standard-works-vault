@@ -1,6 +1,6 @@
 # Psalms 2:2
 
-> The <u>kings</u>[^a] of the earth set themselves, and the rulers take <u>counsel</u>[^b] together, against the Lord , and against his <u>anointed</u>[^c], saying,
+> The <u>kings</u>[^a] of the earth set themselves, and the rulers take <u>counsel</u>[^b] together, against the LORD, and against his <u>anointed</u>[^c], *saying,*
 
 [Psalms 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/2.2?lang=eng#p2)
 

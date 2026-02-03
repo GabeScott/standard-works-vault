@@ -1,6 +1,6 @@
 # Psalms 10:14
 
-> Thou hast seen it; for thou beholdest mischief and spite, to requite it with thy hand: the poor committeth himself unto thee; thou art the helper of the <u>fatherless</u>[^a] .
+> Thou hast seen *it;* for thou beholdest mischief and spite, to requite *it* with thy hand: the poor committeth himself unto thee; thou art the helper of the <u>fatherless</u>[^a].
 
 [Psalms 10:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.14?lang=eng#p14)
 

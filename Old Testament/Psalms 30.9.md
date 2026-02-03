@@ -1,6 +1,6 @@
 # Psalms 30:9
 
-> <u>What</u>[^a] profit is there in my <u>blood</u>[^b], when I go down to the pit? Shall the <u>dust</u>[^c] praise thee? shall it declare thy truth?
+> <u>What</u>[^a] profit *is there* in my <u>blood</u>[^b], when I go down to the pit? Shall the <u>dust</u>[^c] praise thee? shall it declare thy truth?
 
 [Psalms 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/30.9?lang=eng#p9)
 

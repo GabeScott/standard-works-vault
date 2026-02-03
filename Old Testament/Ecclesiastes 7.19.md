@@ -1,6 +1,6 @@
 # Ecclesiastes 7:19
 
-> <u>Wisdom</u>[^a] <u>strengtheneth</u>[^b] the wise more than ten mighty men which are in the city.
+> <u>Wisdom</u>[^a] <u>strengtheneth</u>[^b] the wise more than ten mighty *men* which are in the city.
 
 [Ecclesiastes 7:19](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.19?lang=eng#p19)
 

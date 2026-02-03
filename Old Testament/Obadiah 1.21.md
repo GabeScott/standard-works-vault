@@ -1,6 +1,6 @@
 # Obadiah 1:21
 
-> And <u>saviours</u>[^a] shall come up on <u>mount Zion</u>[^b] to <u>judge</u>[^c] the mount of Esau; and the <u>kingdom</u>[^d] shall be the Lord ’s.
+> And <u>saviours</u>[^a] shall come up on <u>mount Zion</u>[^b] to <u>judge</u>[^c] the mount of Esau; and the <u>kingdom</u>[^d] shall be the LORD’s.
 
 [Obadiah 1:21](https://www.churchofjesuschrist.org/study/scriptures/ot/obad/1.21?lang=eng#p21)
 

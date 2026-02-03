@@ -1,6 +1,6 @@
 # 2 Samuel 6:7
 
-> And the anger of the Lord was kindled against <u>Uzzah</u>[^a]; and God <u>smote</u>[^b] him there for his error; and there he died by the ark of God.
+> And the anger of the LORD was kindled against <u>Uzzah</u>[^a]; and God <u>smote</u>[^b] him there for *his* error; and there he died by the ark of God.
 
 [2 Samuel 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.7?lang=eng#p7)
 

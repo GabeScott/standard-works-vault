@@ -1,6 +1,6 @@
 # Jeremiah 23:1
 
-> Woe be unto the <u>pastors</u>[^a] that destroy and scatter the sheep of my pasture! saith the Lord .
+> Woe be unto the <u>pastors</u>[^a] that destroy and scatter the sheep of my pasture! saith the LORD.
 
 [Jeremiah 23:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.1?lang=eng#p1)
 

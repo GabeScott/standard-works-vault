@@ -1,6 +1,6 @@
 # Deuteronomy 6:17
 
-> Ye shall <u>diligently</u>[^a] keep the <u>commandments</u>[^b] of the Lord your God, and his testimonies, and his statutes, which he hath commanded thee.
+> Ye shall <u>diligently</u>[^a] keep the <u>commandments</u>[^b] of the LORD your God, and his testimonies, and his statutes, which he hath commanded thee.
 
 [Deuteronomy 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.17?lang=eng#p17)
 

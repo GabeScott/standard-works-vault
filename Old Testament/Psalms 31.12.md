@@ -1,6 +1,6 @@
 # Psalms 31:12
 
-> I am <u>forgotten</u>[^a] as a dead man out of mind: I am like a broken <u>vessel</u>[^b] .
+> I am <u>forgotten</u>[^a] as a dead man out of mind: I am like a broken <u>vessel</u>[^b].
 
 [Psalms 31:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Ruth 4:18
 
-> ¶ Now these are the generations of <u>Pharez</u>[^a] : Pharez begat Hezron,
+> ¶ Now these *are* the generations of <u>Pharez</u>[^a]: Pharez begat Hezron,
 
 [Ruth 4:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.18?lang=eng#p18)
 

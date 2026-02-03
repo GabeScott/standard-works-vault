@@ -1,6 +1,6 @@
 # Mark 9:41
 
-> For whosoever shall give you a cup of water to drink in my name, because ye belong to Christ, verily I say unto you, he shall not <u>lose</u>[^a] his <u>reward</u>[^b] .
+> For whosoever shall give you a cup of water to drink in my name, because ye belong to Christ, verily I say unto you, he shall not <u>lose</u>[^a] his <u>reward</u>[^b].
 
 [Mark 9:41](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.41?lang=eng#p41)
 

@@ -1,6 +1,6 @@
 # Matthew 26:63
 
-> But Jesus <u>held</u>[^a] his <u>peace</u>[^b] . And the high priest answered and said unto him, I <u>adjure thee</u>[^c] by the <u>living God</u>[^d], that thou tell us whether thou be the Christ, the Son of God.
+> But Jesus <u>held</u>[^a] his <u>peace</u>[^b]. And the high priest answered and said unto him, I <u>adjure thee</u>[^c] by the <u>living God</u>[^d], that thou tell us whether thou be the Christ, the Son of God.
 
 [Matthew 26:63](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.63?lang=eng#p63)
 

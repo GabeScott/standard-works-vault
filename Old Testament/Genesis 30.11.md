@@ -1,6 +1,6 @@
 # Genesis 30:11
 
-> And Leah said, A <u>troop</u>[^a] cometh: and she called his name <u>Gad</u>[^b] .
+> And Leah said, A <u>troop</u>[^a] cometh: and she called his name <u>Gad</u>[^b].
 
 [Genesis 30:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.11?lang=eng#p11)
 

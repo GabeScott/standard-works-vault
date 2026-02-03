@@ -1,6 +1,6 @@
 # Matthew 8:16
 
-> ¶ When the even was come, they brought unto him many that were possessed with <u>devils</u>[^a] : and he cast out the <u>spirits</u>[^b] with his word, and <u>healed</u>[^c] all that were sick:
+> ¶ When the even was come, they brought unto him many that were possessed with <u>devils</u>[^a]: and he cast out the <u>spirits</u>[^b] with *his* word, and <u>healed</u>[^c] all that were sick:
 
 [Matthew 8:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Exodus 30:13
 
-> This they shall <u>give</u>[^a], every one that passeth among them that are numbered, half a <u>shekel</u>[^b] after the <u>shekel</u>[^c] of the sanctuary: (a <u>shekel</u>[^d] is twenty gerahs:) an half <u>shekel</u>[^e] shall be the offering of the Lord .
+> This they shall <u>give</u>[^a], every one that passeth among them that are numbered, half a <u>shekel</u>[^b] after the <u>shekel</u>[^c] of the sanctuary: (a <u>shekel</u>[^d] *is* twenty gerahs:) an half <u>shekel</u>[^e] *shall be* the offering of the LORD.
 
 [Exodus 30:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.13?lang=eng#p13)
 

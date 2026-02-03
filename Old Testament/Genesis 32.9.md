@@ -1,6 +1,6 @@
 # Genesis 32:9
 
-> ¶ And Jacob said, O <u>God</u>[^a] of my father Abraham, and God of my father Isaac, the Lord which saidst unto me, <u>Return</u>[^b] unto thy country, and to thy kindred, and I will deal well with thee:
+> ¶ And Jacob said, O <u>God</u>[^a] of my father Abraham, and God of my father Isaac, the LORD which saidst unto me, <u>Return</u>[^b] unto thy country, and to thy kindred, and I will deal well with thee:
 
 [Genesis 32:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Joshua 1:4
 
-> From the wilderness and this <u>Lebanon</u>[^a] even unto the great river, the river Euphrates, all the land of the Hittites, and unto the <u>great sea</u>[^b] toward the going down of the sun, shall be your <u>coast</u>[^c] .
+> From the wilderness and this <u>Lebanon</u>[^a] even unto the great river, the river Euphrates, all the land of the Hittites, and unto the <u>great sea</u>[^b] toward the going down of the sun, shall be your <u>coast</u>[^c].
 
 [Joshua 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.4?lang=eng#p4)
 

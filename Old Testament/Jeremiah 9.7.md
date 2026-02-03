@@ -1,6 +1,6 @@
 # Jeremiah 9:7
 
-> Therefore thus saith the Lord of hosts, Behold, I will <u>melt</u>[^a] them, and <u>try</u>[^b] them; for how shall I do for the daughter of my people?
+> Therefore thus saith the LORD of hosts, Behold, I will <u>melt</u>[^a] them, and <u>try</u>[^b] them; for how shall I do for the daughter of my people?
 
 [Jeremiah 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.7?lang=eng#p7)
 

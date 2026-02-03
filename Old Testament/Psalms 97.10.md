@@ -1,6 +1,6 @@
 # Psalms 97:10
 
-> Ye that love the Lord , <u>hate</u>[^a] <u>evil</u>[^b] : he <u>preserveth</u>[^c] the souls of his saints; he delivereth them out of the hand of the wicked.
+> Ye that love the LORD, <u>hate</u>[^a] <u>evil</u>[^b]: he <u>preserveth</u>[^c] the souls of his saints; he delivereth them out of the hand of the wicked.
 
 [Psalms 97:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/97.10?lang=eng#p10)
 

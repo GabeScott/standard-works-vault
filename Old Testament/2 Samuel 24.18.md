@@ -1,6 +1,6 @@
 # 2 Samuel 24:18
 
-> ¶ And Gad came that day to David, and said unto him, Go up, rear an <u>altar</u>[^a] unto the Lord in the threshingfloor of Araunah the Jebusite.
+> ¶ And Gad came that day to David, and said unto him, Go up, rear an <u>altar</u>[^a] unto the LORD in the threshingfloor of Araunah the Jebusite.
 
 [2 Samuel 24:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/24.18?lang=eng#p18)
 

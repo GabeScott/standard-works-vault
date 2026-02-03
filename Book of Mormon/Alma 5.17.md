@@ -1,6 +1,6 @@
 # Alma 5:17
 
-> Or do ye <u>imagine</u>[^a] to yourselves that ye can lie unto the Lord in that day, and <u>say</u>[^b] —Lord, our works have been righteous works upon the face of the earth—and that he will save you?
+> Or do ye <u>imagine</u>[^a] to yourselves that ye can lie unto the Lord in that day, and <u>say</u>[^b]—Lord, our works have been righteous works upon the face of the earth—and that he will save you?
 
 [Alma 5:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p17#p17)
 

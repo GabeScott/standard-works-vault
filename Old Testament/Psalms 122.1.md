@@ -1,6 +1,6 @@
 # Psalms 122:1
 
-> I was glad when they said unto me, Let us go into the <u>house</u>[^a] of the Lord .
+> I was glad when they said unto me, Let us go into the <u>house</u>[^a] of the LORD.
 
 [Psalms 122:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/122.1?lang=eng#p1)
 

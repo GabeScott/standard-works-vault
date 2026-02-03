@@ -1,6 +1,6 @@
 # Helaman 12:16
 
-> And behold, also, if he say unto the <u>waters</u>[^a] of the great deep— <u>Be</u>[^b] thou dried up—it is done.
+> And behold, also, if he say unto the <u>waters</u>[^a] of the great deep—<u>Be</u>[^b] thou dried up—it is done.
 
 [Helaman 12:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p16#p16)
 

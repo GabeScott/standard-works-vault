@@ -1,6 +1,6 @@
 # Ezekiel 44:4
 
-> ¶ Then brought he me the way of the <u>north</u>[^a] gate before the house: and I looked, and, behold, the <u>glory</u>[^b] of the Lord filled the house of the Lord : and I <u>fell</u>[^c] upon my face.
+> ¶ Then brought he me the way of the <u>north</u>[^a] gate before the house: and I looked, and, behold, the <u>glory</u>[^b] of the LORD filled the house of the LORD: and I <u>fell</u>[^c] upon my face.
 
 [Ezekiel 44:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.4?lang=eng#p4)
 

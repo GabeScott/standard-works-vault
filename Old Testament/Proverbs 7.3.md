@@ -1,6 +1,6 @@
 # Proverbs 7:3
 
-> <u>Bind</u>[^a] them upon thy fingers, write them upon the table of thine <u>heart</u>[^b] .
+> <u>Bind</u>[^a] them upon thy fingers, write them upon the table of thine <u>heart</u>[^b].
 
 [Proverbs 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/7.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 30:20
 
-> That thou mayest love the Lord thy God, and that thou mayest <u>obey</u>[^a] his voice, and that thou mayest cleave unto him: for he is thy <u>life</u>[^b], and the length of thy days: that thou mayest dwell in the land which the Lord sware unto thy fathers, to Abraham, to Isaac, and to Jacob, to give them.
+> That thou mayest love the LORD thy God, *and* that thou mayest <u>obey</u>[^a] his voice, and that thou mayest cleave unto him: for he *is* thy <u>life</u>[^b], and the length of thy days: that thou mayest dwell in the land which the LORD sware unto thy fathers, to Abraham, to Isaac, and to Jacob, to give them.
 
 [Deuteronomy 30:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.20?lang=eng#p20)
 

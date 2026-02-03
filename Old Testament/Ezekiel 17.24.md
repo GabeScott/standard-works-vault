@@ -1,6 +1,6 @@
 # Ezekiel 17:24
 
-> And all the trees of the field shall know that I the Lord have brought down the high tree, have <u>exalted</u>[^a] the low tree, have dried up the green tree, and have made the dry tree to flourish: I the Lord have spoken and have <u>done</u>[^b] it.
+> And all the trees of the field shall know that I the LORD have brought down the high tree, have <u>exalted</u>[^a] the low tree, have dried up the green tree, and have made the dry tree to flourish: I the LORD have spoken and have <u>done</u>[^b] *it.*
 
 [Ezekiel 17:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.24?lang=eng#p24)
 

@@ -1,6 +1,6 @@
 # Luke 12:32
 
-> Fear not, little <u>flock</u>[^a]; for it is your Father’s good pleasure to give you the <u>kingdom</u>[^b] .
+> Fear not, little <u>flock</u>[^a]; for it is your Father’s good pleasure to give you the <u>kingdom</u>[^b].
 
 [Luke 12:32](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.32?lang=eng#p32)
 

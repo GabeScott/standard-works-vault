@@ -1,6 +1,6 @@
 # Malachi 2:6
 
-> The law of <u>truth</u>[^a] was in his mouth, and iniquity was not found in his lips: he walked with me in peace and equity, and did <u>turn</u>[^b] many away from <u>iniquity</u>[^c] .
+> The law of <u>truth</u>[^a] was in his mouth, and iniquity was not found in his lips: he walked with me in peace and equity, and did <u>turn</u>[^b] many away from <u>iniquity</u>[^c].
 
 [Malachi 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 1:6
 
-> The Lord our God spake unto us in Horeb, saying, Ye have dwelt long enough in this <u>mount</u>[^a] :
+> The LORD our God spake unto us in Horeb, saying, Ye have dwelt long enough in this <u>mount</u>[^a]:
 
 [Deuteronomy 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.6?lang=eng#p6)
 

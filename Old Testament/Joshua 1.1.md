@@ -1,6 +1,6 @@
 # Joshua 1:1
 
-> Now after the <u>death</u>[^a] of Moses the servant of the Lord it came to pass, that the Lord spake unto Joshua the son of Nun, Moses’ minister, saying,
+> Now after the <u>death</u>[^a] of Moses the servant of the LORD it came to pass, that the LORD spake unto Joshua the son of Nun, Moses’ minister, saying,
 
 [Joshua 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.1?lang=eng#p1)
 

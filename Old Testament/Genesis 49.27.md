@@ -1,6 +1,6 @@
 # Genesis 49:27
 
-> ¶ <u>Benjamin</u>[^a] shall ravin as a wolf: in the morning he shall devour the prey, and at night he shall divide the spoil.
+> ¶ <u>Benjamin</u>[^a] shall ravin *as* a wolf: in the morning he shall devour the prey, and at night he shall divide the spoil.
 
 [Genesis 49:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.27?lang=eng#p27)
 

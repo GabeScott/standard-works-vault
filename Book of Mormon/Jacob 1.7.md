@@ -1,6 +1,6 @@
 # Jacob 1:7
 
-> Wherefore we labored diligently among our people, that we might persuade them to <u>come</u>[^a] unto Christ, and partake of the goodness of God, that they might enter into his <u>rest</u>[^b], lest by any means he should swear in his wrath they should not <u>enter</u>[^c] in, as in the <u>provocation</u>[^d] in the days of temptation while the children of Israel were in the <u>wilderness</u>[^e] .
+> Wherefore we labored diligently among our people, that we might persuade them to <u>come</u>[^a] unto Christ, and partake of the goodness of God, that they might enter into his <u>rest</u>[^b], lest by any means he should swear in his wrath they should not <u>enter</u>[^c] in, as in the <u>provocation</u>[^d] in the days of temptation while the children of Israel were in the <u>wilderness</u>[^e].
 
 [Jacob 1:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/1?lang=eng&id=p7#p7)
 

@@ -1,6 +1,6 @@
 # 2 Kings 14:24
 
-> And he did that which was evil in the sight of the Lord : he departed not from all the sins of <u>Jeroboam</u>[^a] the son of Nebat, who made Israel to sin.
+> And he did *that which was* evil in the sight of the LORD: he departed not from all the sins of <u>Jeroboam</u>[^a] the son of Nebat, who made Israel to sin.
 
 [2 Kings 14:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/14.24?lang=eng#p24)
 

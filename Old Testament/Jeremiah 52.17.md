@@ -1,6 +1,6 @@
 # Jeremiah 52:17
 
-> Also the <u>pillars</u>[^a] of brass that were in the house of the Lord , and the bases, and the brasen <u>sea</u>[^b] that was in the house of the Lord , the Chaldeans brake, and carried all the brass of them to Babylon.
+> Also the <u>pillars</u>[^a] of brass that *were* in the house of the LORD, and the bases, and the brasen <u>sea</u>[^b] that *was* in the house of the LORD, the Chaldeans brake, and carried all the brass of them to Babylon.
 
 [Jeremiah 52:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.17?lang=eng#p17)
 

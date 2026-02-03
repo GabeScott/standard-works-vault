@@ -1,6 +1,6 @@
 # Jeremiah 52:32
 
-> And spake <u>kindly</u>[^a] unto him, and set his throne above the throne of the <u>kings</u>[^b] that were with him in Babylon,
+> And spake <u>kindly</u>[^a] unto him, and set his throne above the throne of the <u>kings</u>[^b] that *were* with him in Babylon,
 
 [Jeremiah 52:32](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.32?lang=eng#p32)
 

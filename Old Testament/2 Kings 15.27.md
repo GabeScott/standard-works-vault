@@ -1,6 +1,6 @@
 # 2 Kings 15:27
 
-> ¶ In the two and fiftieth year of Azariah king of Judah <u>Pekah</u>[^a] the son of Remaliah began to reign over Israel in Samaria, and reigned twenty years.
+> ¶ In the two and fiftieth year of Azariah king of Judah <u>Pekah</u>[^a] the son of Remaliah began to reign over Israel in Samaria, *and reigned* twenty years.
 
 [2 Kings 15:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/15.27?lang=eng#p27)
 

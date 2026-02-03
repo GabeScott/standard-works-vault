@@ -1,6 +1,6 @@
 # Leviticus 26:17
 
-> And I will set my face against you, and ye shall be <u>slain</u>[^a] before your <u>enemies</u>[^b] : they that hate you shall <u>reign</u>[^c] over you; and ye shall <u>flee</u>[^d] when none pursueth you.
+> And I will set my face against you, and ye shall be <u>slain</u>[^a] before your <u>enemies</u>[^b]: they that hate you shall <u>reign</u>[^c] over you; and ye shall <u>flee</u>[^d] when none pursueth you.
 
 [Leviticus 26:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.17?lang=eng#p17)
 

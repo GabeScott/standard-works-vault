@@ -1,6 +1,6 @@
 # Psalms 18:41
 
-> They <u>cried</u>[^a], but there was none to save them: even unto the Lord , but he answered them not.
+> They <u>cried</u>[^a], but *there was* none to save *them: even* unto the LORD, but he answered them not.
 
 [Psalms 18:41](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.41?lang=eng#p41)
 

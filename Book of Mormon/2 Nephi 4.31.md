@@ -1,6 +1,6 @@
 # 2 Nephi 4:31
 
-> O Lord, wilt thou <u>redeem</u>[^a] my soul? Wilt thou deliver me out of the hands of mine enemies? Wilt thou make me that I may shake at the appearance of <u>sin</u>[^b] ?
+> O Lord, wilt thou <u>redeem</u>[^a] my soul? Wilt thou deliver me out of the hands of mine enemies? Wilt thou make me that I may shake at the appearance of <u>sin</u>[^b]?
 
 [2 Nephi 4:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p31#p31)
 

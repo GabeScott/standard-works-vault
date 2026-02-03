@@ -1,6 +1,6 @@
 # Numbers 33:52
 
-> Then ye shall <u>drive</u>[^a] out all the inhabitants of the land from before you, and destroy all their <u>pictures</u>[^b], and destroy all their molten images, and quite pluck down all their <u>high places</u>[^c] :
+> Then ye shall <u>drive</u>[^a] out all the inhabitants of the land from before you, and destroy all their <u>pictures</u>[^b], and destroy all their molten images, and quite pluck down all their <u>high places</u>[^c]:
 
 [Numbers 33:52](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.52?lang=eng#p52)
 

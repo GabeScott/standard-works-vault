@@ -1,6 +1,6 @@
 # Job 11:4
 
-> For thou hast said, My doctrine is <u>pure</u>[^a], and I am clean in thine eyes.
+> For thou hast said, My doctrine *is* <u>pure</u>[^a], and I am clean in thine eyes.
 
 [Job 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/11.4?lang=eng#p4)
 

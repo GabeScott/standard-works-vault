@@ -1,6 +1,6 @@
 # Jeremiah 23:5
 
-> ¶ Behold, the days come, saith the Lord , that I will raise unto <u>David</u>[^a] a righteous <u>Branch</u>[^b], and a <u>King</u>[^c] shall <u>reign</u>[^d] and prosper, and shall execute <u>judgment</u>[^e] and <u>justice</u>[^f] in the earth.
+> ¶ Behold, the days come, saith the LORD, that I will raise unto <u>David</u>[^a] a righteous <u>Branch</u>[^b], and a <u>King</u>[^c] shall <u>reign</u>[^d] and prosper, and shall execute <u>judgment</u>[^e] and <u>justice</u>[^f] in the earth.
 
 [Jeremiah 23:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.5?lang=eng#p5)
 

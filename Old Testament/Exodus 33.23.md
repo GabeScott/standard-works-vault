@@ -1,6 +1,6 @@
 # Exodus 33:23
 
-> And I will take away mine hand, and thou shalt <u>see</u>[^a] my <u>back</u>[^b] parts: but my face shall not be <u>seen</u>[^c] .
+> And I will take away mine hand, and thou shalt <u>see</u>[^a] my <u>back</u>[^b] parts: but my face shall not be <u>seen</u>[^c].
 
 [Exodus 33:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.23?lang=eng#p23)
 

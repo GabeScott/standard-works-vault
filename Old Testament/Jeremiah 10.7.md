@@ -1,6 +1,6 @@
 # Jeremiah 10:7
 
-> Who would not fear thee, O King of nations? for to thee doth it appertain: forasmuch as among all the <u>wise</u>[^a] men of the nations, and in all their kingdoms, there is none <u>like</u>[^b] unto thee.
+> Who would not fear thee, O King of nations? for to thee doth it appertain: forasmuch as among all the <u>wise</u>[^a] *men* of the nations, and in all their kingdoms, *there is* none <u>like</u>[^b] unto thee.
 
 [Jeremiah 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.7?lang=eng#p7)
 

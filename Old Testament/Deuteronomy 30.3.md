@@ -1,6 +1,6 @@
 # Deuteronomy 30:3
 
-> That then the Lord thy God will turn thy <u>captivity</u>[^a], and have <u>compassion</u>[^b] upon thee, and will return and <u>gather</u>[^c] thee from all the nations, whither the Lord thy God hath scattered thee.
+> That then the LORD thy God will turn thy <u>captivity</u>[^a], and have <u>compassion</u>[^b] upon thee, and will return and <u>gather</u>[^c] thee from all the nations, whither the LORD thy God hath scattered thee.
 
 [Deuteronomy 30:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.3?lang=eng#p3)
 

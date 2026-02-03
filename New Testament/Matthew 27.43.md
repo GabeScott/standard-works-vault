@@ -1,6 +1,6 @@
 # Matthew 27:43
 
-> He <u>trusted</u>[^a] in God; let him <u>deliver</u>[^b] him now, if he will have him: for he said, I am the <u>Son of God</u>[^c] .
+> He <u>trusted</u>[^a] in God; let him <u>deliver</u>[^b] him now, if he will have him: for he said, I am the <u>Son of God</u>[^c].
 
 [Matthew 27:43](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.43?lang=eng#p43)
 

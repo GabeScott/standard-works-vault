@@ -1,6 +1,6 @@
 # Genesis 12:1
 
-> Now the Lord had <u>said</u>[^a] unto <u>Abram</u>[^b], <u>Get</u>[^c] thee out of thy <u>country</u>[^d], and from thy <u>kindred</u>[^e], and from thy <u>father’s</u>[^f] house, unto a <u>land</u>[^g] that I will shew thee:
+> Now the LORD had <u>said</u>[^a] unto <u>Abram</u>[^b], <u>Get</u>[^c] thee out of thy <u>country</u>[^d], and from thy <u>kindred</u>[^e], and from thy <u>father’s</u>[^f] house, unto a <u>land</u>[^g] that I will shew thee:
 
 [Genesis 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.1?lang=eng#p1)
 

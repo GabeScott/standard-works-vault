@@ -1,6 +1,6 @@
 # Haggai 1:7
 
-> ¶ Thus saith the Lord of hosts; <u>Consider</u>[^a] your <u>ways</u>[^b] .
+> ¶ Thus saith the LORD of hosts; <u>Consider</u>[^a] your <u>ways</u>[^b].
 
 [Haggai 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/1.7?lang=eng#p7)
 

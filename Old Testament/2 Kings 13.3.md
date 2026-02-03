@@ -1,6 +1,6 @@
 # 2 Kings 13:3
 
-> ¶ And the <u>anger</u>[^a] of the Lord was kindled against Israel, and he delivered them into the hand of <u>Hazael</u>[^b] king of Syria, and into the hand of Ben-hadad the son of Hazael, all their days.
+> ¶ And the <u>anger</u>[^a] of the LORD was kindled against Israel, and he delivered them into the hand of <u>Hazael</u>[^b] king of Syria, and into the hand of Ben-hadad the son of Hazael, all *their* days.
 
 [2 Kings 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/13.3?lang=eng#p3)
 

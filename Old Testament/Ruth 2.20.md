@@ -1,6 +1,6 @@
 # Ruth 2:20
 
-> And Naomi said unto her daughter in law, Blessed be he of the Lord , who hath not <u>left off</u>[^a] his kindness to the living and to the dead. And Naomi said unto her, The man is near of kin unto us, one of our <u>next</u>[^b] <u>kinsmen</u>[^c] .
+> And Naomi said unto her daughter in law, Blessed *be* he of the LORD, who hath not <u>left off</u>[^a] his kindness to the living and to the dead. And Naomi said unto her, The man *is* near of kin unto us, one of our <u>next</u>[^b] <u>kinsmen</u>[^c].
 
 [Ruth 2:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.20?lang=eng#p20)
 

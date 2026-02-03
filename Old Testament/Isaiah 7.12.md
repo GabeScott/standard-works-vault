@@ -1,6 +1,6 @@
 # Isaiah 7:12
 
-> But Ahaz said, I will not ask, neither will I <u>tempt</u>[^a] the Lord .
+> But Ahaz said, I will not ask, neither will I <u>tempt</u>[^a] the LORD.
 
 [Isaiah 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.12?lang=eng#p12)
 

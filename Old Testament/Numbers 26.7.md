@@ -1,6 +1,6 @@
 # Numbers 26:7
 
-> These are the families of the Reubenites: and they that were <u>numbered</u>[^a] of them were forty and three thousand and seven hundred and thirty.
+> These *are* the families of the Reubenites: and they that were <u>numbered</u>[^a] of them were forty and three thousand and seven hundred and thirty.
 
 [Numbers 26:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.7?lang=eng#p7)
 

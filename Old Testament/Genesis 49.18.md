@@ -1,6 +1,6 @@
 # Genesis 49:18
 
-> I have <u>waited</u>[^a] for thy salvation, O Lord .
+> I have <u>waited</u>[^a] for thy salvation, O LORD.
 
 [Genesis 49:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.18?lang=eng#p18)
 

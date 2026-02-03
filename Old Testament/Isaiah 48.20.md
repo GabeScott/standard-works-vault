@@ -1,6 +1,6 @@
 # Isaiah 48:20
 
-> ¶ Go ye forth of <u>Babylon</u>[^a], flee ye from the <u>Chaldeans</u>[^b], with a voice of singing declare ye, tell this, utter it even to the end of the earth; say ye, The Lord hath redeemed his servant Jacob.
+> ¶ Go ye forth of <u>Babylon</u>[^a], flee ye from the <u>Chaldeans</u>[^b], with a voice of singing declare ye, tell this, utter it *even* to the end of the earth; say ye, The LORD hath redeemed his servant Jacob.
 
 [Isaiah 48:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.20?lang=eng#p20)
 

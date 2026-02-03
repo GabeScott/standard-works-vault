@@ -1,6 +1,6 @@
 # Isaiah 62:3
 
-> Thou shalt also be a <u>crown</u>[^a] of glory in the hand of the Lord , and a royal diadem in the hand of thy God.
+> Thou shalt also be a <u>crown</u>[^a] of glory in the hand of the LORD, and a royal diadem in the hand of thy God.
 
 [Isaiah 62:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/62.3?lang=eng#p3)
 

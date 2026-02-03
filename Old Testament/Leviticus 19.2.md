@@ -1,6 +1,6 @@
 # Leviticus 19:2
 
-> Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be <u>holy</u>[^a] : for I the Lord your God am holy.
+> Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be <u>holy</u>[^a]: for I the LORD your God *am* holy.
 
 [Leviticus 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.2?lang=eng#p2)
 

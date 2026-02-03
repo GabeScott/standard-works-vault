@@ -1,6 +1,6 @@
 # Zechariah 14:9
 
-> And the Lord shall be <u>king</u>[^a] over all the earth: in that day shall there be one Lord , and his name one.
+> And the LORD shall be <u>king</u>[^a] over all the earth: in that day shall there be one LORD, and his name one.
 
 [Zechariah 14:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # 2 Kings 15:29
 
-> In the days of Pekah king of Israel came <u>Tiglath-pileser</u>[^a] king of Assyria, and <u>took</u>[^b] Ijon, and Abel-beth-maachah, and Janoah, and Kedesh, and Hazor, and Gilead, and Galilee, all the land of Naphtali, and <u>carried</u>[^c] them captive to <u>Assyria</u>[^d] .
+> In the days of Pekah king of Israel came <u>Tiglath-pileser</u>[^a] king of Assyria, and <u>took</u>[^b] Ijon, and Abel-beth-maachah, and Janoah, and Kedesh, and Hazor, and Gilead, and Galilee, all the land of Naphtali, and <u>carried</u>[^c] them captive to <u>Assyria</u>[^d].
 
 [2 Kings 15:29](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/15.29?lang=eng#p29)
 

@@ -1,6 +1,6 @@
 # 1 Kings 3:7
 
-> And now, O Lord my God, thou hast made thy servant king instead of David my father: and I am but a <u>little</u>[^a] child: I know not how to go out or come in.
+> And now, O LORD my God, thou hast made thy servant king instead of David my father: and I *am but* a <u>little</u>[^a] child: I know not *how* to go out or come in.
 
 [1 Kings 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/3.7?lang=eng#p7)
 

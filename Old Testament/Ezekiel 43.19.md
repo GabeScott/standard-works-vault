@@ -1,6 +1,6 @@
 # Ezekiel 43:19
 
-> And thou shalt give to the <u>priests</u>[^a] the Levites that be of the seed of <u>Zadok</u>[^b], which approach unto me, to minister unto me, saith the Lord God , a young <u>bullock</u>[^c] for a <u>sin offering</u>[^d] .
+> And thou shalt give to the <u>priests</u>[^a] the Levites that be of the seed of <u>Zadok</u>[^b], which approach unto me, to minister unto me, saith the Lord GOD, a young <u>bullock</u>[^c] for a <u>sin offering</u>[^d].
 
 [Ezekiel 43:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.19?lang=eng#p19)
 

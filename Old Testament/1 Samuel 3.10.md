@@ -1,6 +1,6 @@
 # 1 Samuel 3:10
 
-> And the Lord came, and <u>stood</u>[^a], and called as at other times, Samuel, Samuel. Then Samuel answered, Speak; for thy <u>servant</u>[^b] heareth.
+> And the LORD came, and <u>stood</u>[^a], and called as at other times, Samuel, Samuel. Then Samuel answered, Speak; for thy <u>servant</u>[^b] heareth.
 
 [1 Samuel 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/3.10?lang=eng#p10)
 

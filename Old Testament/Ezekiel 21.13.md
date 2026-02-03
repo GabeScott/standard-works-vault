@@ -1,6 +1,6 @@
 # Ezekiel 21:13
 
-> Because it is a <u>trial</u>[^a], and what if the sword <u>contemn</u>[^b] even the rod? it shall be no more, saith the Lord God .
+> Because *it is* a <u>trial</u>[^a], and what if *the sword* <u>contemn</u>[^b] even the rod? it shall be no *more,* saith the Lord GOD.
 
 [Ezekiel 21:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.13?lang=eng#p13)
 

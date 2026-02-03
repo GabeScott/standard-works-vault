@@ -1,6 +1,6 @@
 # Ezekiel 5:5
 
-> ¶ Thus saith the Lord God ; This is Jerusalem: I have set it in the <u>midst</u>[^a] of the nations and countries that are round about her.
+> ¶ Thus saith the Lord GOD; This *is* Jerusalem: I have set it in the <u>midst</u>[^a] of the nations and countries *that are* round about her.
 
 [Ezekiel 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/5.5?lang=eng#p5)
 

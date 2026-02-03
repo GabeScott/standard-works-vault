@@ -1,6 +1,6 @@
 # Acts 4:32
 
-> And the multitude of them that believed were of <u>one</u>[^a] heart and of one soul: neither said any of them that <u>ought</u>[^b] of the things which he <u>possessed</u>[^c] was his own; but they had all things <u>common</u>[^d] .
+> And the multitude of them that believed were of <u>one</u>[^a] heart and of one soul: neither said any *of them* that <u>ought</u>[^b] of the things which he <u>possessed</u>[^c] was his own; but they had all things <u>common</u>[^d].
 
 [Acts 4:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.32?lang=eng#p32)
 

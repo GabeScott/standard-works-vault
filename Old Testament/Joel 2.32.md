@@ -1,6 +1,6 @@
 # Joel 2:32
 
-> And it shall come to pass, that whosoever shall <u>call</u>[^a] on the name of <u>the Lord</u>[^b] shall be <u>delivered</u>[^c] : for in <u>mount</u>[^d] <u>Zion</u>[^e] and in <u>Jerusalem</u>[^f] shall be <u>deliverance</u>[^g], as the Lord hath said, and in the <u>remnant</u>[^h] whom the Lord shall <u>call</u>[^i] .
+> And it shall come to pass, *that* whosoever shall <u>call</u>[^a] on the name of <u>the Lord</u>[^b] shall be <u>delivered</u>[^c]: for in <u>mount</u>[^d] <u>Zion</u>[^e] and in <u>Jerusalem</u>[^f] shall be <u>deliverance</u>[^g], as the LORD hath said, and in the <u>remnant</u>[^h] whom the LORD shall <u>call</u>[^i].
 
 [Joel 2:32](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.32?lang=eng#p32)
 

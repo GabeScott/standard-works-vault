@@ -1,6 +1,6 @@
 # Numbers 26:65
 
-> For the Lord had said of them, They shall surely die in the <u>wilderness</u>[^a] . And there was not left a man of them, save Caleb the son of Jephunneh, and Joshua the son of Nun.
+> For the LORD had said of them, They shall surely die in the <u>wilderness</u>[^a]. And there was not left a man of them, save Caleb the son of Jephunneh, and Joshua the son of Nun.
 
 [Numbers 26:65](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.65?lang=eng#p65)
 

@@ -1,6 +1,6 @@
 # 2 Nephi 29:14
 
-> And it shall come to pass that my people, which are of the <u>house of Israel</u>[^a], shall be gathered home unto the <u>lands</u>[^b] of their possessions; and my word also shall be gathered in <u>one</u>[^c] . And I will show unto them that fight against my word and against my <u>people</u>[^d], who are of the <u>house of Israel</u>[^e], that I am God, and that I <u>covenanted</u>[^f] with <u>Abraham</u>[^g] that I would remember his <u>seed</u>[^h] <u>forever</u>[^i] .
+> And it shall come to pass that my people, which are of the <u>house of Israel</u>[^a], shall be gathered home unto the <u>lands</u>[^b] of their possessions; and my word also shall be gathered in <u>one</u>[^c]. And I will show unto them that fight against my word and against my <u>people</u>[^d], who are of the <u>house of Israel</u>[^e], that I am God, and that I <u>covenanted</u>[^f] with <u>Abraham</u>[^g] that I would remember his <u>seed</u>[^h] <u>forever</u>[^i].
 
 [2 Nephi 29:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p14#p14)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 21:23
 
-> His <u>body</u>[^a] shall not <u>remain</u>[^b] all night upon the <u>tree</u>[^c], but thou shalt in any wise bury him that day; (for he that is hanged is <u>accursed</u>[^d] of God;) that thy land be not defiled, which the Lord thy God giveth thee for an <u>inheritance</u>[^e] .
+> His <u>body</u>[^a] shall not <u>remain</u>[^b] all night upon the <u>tree</u>[^c], but thou shalt in any wise bury him that day; (for he that is hanged *is* <u>accursed</u>[^d] of God;) that thy land be not defiled, which the LORD thy God giveth thee *for* an <u>inheritance</u>[^e].
 
 [Deuteronomy 21:23](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/21.23?lang=eng#p23)
 

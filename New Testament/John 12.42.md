@@ -1,6 +1,6 @@
 # John 12:42
 
-> ¶ Nevertheless among the chief <u>rulers</u>[^a] also many <u>believed</u>[^b] on him; but because of the Pharisees they did not <u>confess</u>[^c] him, lest they should be put out of the synagogue:
+> ¶ Nevertheless among the chief <u>rulers</u>[^a] also many <u>believed</u>[^b] on him; but because of the Pharisees they did not <u>confess</u>[^c] *him,* lest they should be put out of the synagogue:
 
 [John 12:42](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.42?lang=eng#p42)
 

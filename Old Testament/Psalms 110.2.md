@@ -1,6 +1,6 @@
 # Psalms 110:2
 
-> The Lord shall send the <u>rod</u>[^a] of thy strength out of Zion: rule thou in the midst of thine enemies.
+> The LORD shall send the <u>rod</u>[^a] of thy strength out of Zion: rule thou in the midst of thine enemies.
 
 [Psalms 110:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/110.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Acts 8:7
 
-> For <u>unclean spirits</u>[^a], crying with loud voice, came out of many that were possessed with them: and many <u>taken</u>[^b] with palsies, and that were lame, were <u>healed</u>[^c] .
+> For <u>unclean spirits</u>[^a], crying with loud voice, came out of many that were possessed *with them:* and many <u>taken</u>[^b] with palsies, and that were lame, were <u>healed</u>[^c].
 
 [Acts 8:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.7?lang=eng#p7)
 

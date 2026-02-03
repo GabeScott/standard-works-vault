@@ -1,6 +1,6 @@
 # Psalms 119:68
 
-> Thou art <u>good</u>[^a], and doest good; teach me thy statutes.
+> Thou *art* <u>good</u>[^a], and doest good; teach me thy statutes.
 
 [Psalms 119:68](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.68?lang=eng#p68)
 

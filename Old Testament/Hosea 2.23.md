@@ -1,6 +1,6 @@
 # Hosea 2:23
 
-> And I will sow her unto me in the earth; and I will have mercy upon <u>her</u>[^a] that had not obtained mercy; and I will say to them which were not my <u>people</u>[^c], Thou art my <u>people</u>[^d]; and they shall say, Thou art my God.
+> And I will sow her unto me in the earth; and I will have mercy upon <u>her</u>[^a] that had not obtained mercy; and I will say to <u>them</u>[^b]* which were* not my <u>people</u>[^c], Thou *art* my <u>people</u>[^d]; and they shall say, *Thou art* my God.
 
 [Hosea 2:23](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.23?lang=eng#p23)
 

@@ -1,6 +1,6 @@
 # Ezekiel 7:4
 
-> And mine eye shall not <u>spare</u>[^a] thee, neither will I have pity: but I will <u>recompense</u>[^b] thy ways upon thee, and thine abominations shall be in the midst of thee: and ye shall <u>know</u>[^c] that I am the Lord .
+> And mine eye shall not <u>spare</u>[^a] thee, neither will I have pity: but I will <u>recompense</u>[^b] thy ways upon thee, and thine abominations shall be in the midst of thee: and ye shall <u>know</u>[^c] that I *am* the LORD.
 
 [Ezekiel 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.4?lang=eng#p4)
 

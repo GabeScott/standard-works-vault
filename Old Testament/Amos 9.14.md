@@ -1,6 +1,6 @@
 # Amos 9:14
 
-> And I will bring again the <u>captivity</u>[^a] of my people of <u>Israel</u>[^b], and they shall <u>build</u>[^c] the <u>waste</u>[^d] cities, and inhabit them; and they shall plant vineyards, and drink the wine thereof; they shall also make gardens, and eat the fruit of them.
+> And I will bring again the <u>captivity</u>[^a] of my people of <u>Israel</u>[^b], and they shall <u>build</u>[^c] the <u>waste</u>[^d] cities, and inhabit *them;* and they shall plant vineyards, and drink the wine thereof; they shall also make gardens, and eat the fruit of them.
 
 [Amos 9:14](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.14?lang=eng#p14)
 

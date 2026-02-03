@@ -1,6 +1,6 @@
 # John 5:29
 
-> And shall <u>come</u>[^a] forth; <u>they</u>[^b] that have done good, unto the <u>resurrection</u>[^c] of life; and they that have done <u>evil</u>[^d], unto the resurrection of <u>damnation</u>[^e] .
+> And shall <u>come</u>[^a] forth; <u>they</u>[^b] that have done good, unto the <u>resurrection</u>[^c] of life; and they that have done <u>evil</u>[^d], unto the resurrection of <u>damnation</u>[^e].
 
 [John 5:29](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.29?lang=eng#p29)
 

@@ -1,6 +1,6 @@
 # Psalms 137:4
 
-> How shall we <u>sing</u>[^a] the Lord ’s song in a strange land?
+> How shall we <u>sing</u>[^a] the LORD’s song in a strange land?
 
 [Psalms 137:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/137.4?lang=eng#p4)
 

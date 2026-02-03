@@ -1,6 +1,6 @@
 # Psalms 94:14
 
-> For the Lord will not cast off his people, neither will he <u>forsake</u>[^a] his inheritance.
+> For the LORD will not cast off his people, neither will he <u>forsake</u>[^a] his inheritance.
 
 [Psalms 94:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/94.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # 1 Corinthians 9:18
 
-> What is my reward then? Verily that, when I preach the gospel, I may make the gospel of Christ without <u>charge</u>[^a], that I abuse not my power in the gospel.
+> What is my reward then? *Verily* that, when I preach the gospel, I may make the gospel of Christ without <u>charge</u>[^a], that I abuse not my power in the gospel.
 
 [1 Corinthians 9:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.18?lang=eng#p18)
 

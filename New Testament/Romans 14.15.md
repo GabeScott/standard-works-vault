@@ -1,6 +1,6 @@
 # Romans 14:15
 
-> But if thy brother be grieved with thy meat, <u>now</u>[^a] walkest thou not <u>charitably</u>[^b] . Destroy not him <u>with thy meat</u>[^c], for whom Christ died.
+> But if thy brother be grieved with *thy* meat, <u>now</u>[^a] walkest thou not <u>charitably</u>[^b]. Destroy not him <u>with thy meat</u>[^c], for whom Christ died.
 
 [Romans 14:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.15?lang=eng#p15)
 

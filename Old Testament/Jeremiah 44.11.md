@@ -1,6 +1,6 @@
 # Jeremiah 44:11
 
-> ¶ Therefore thus saith the Lord of hosts, the God of Israel; Behold, I will set my <u>face</u>[^a] against you for evil, and to cut off all Judah.
+> ¶ Therefore thus saith the LORD of hosts, the God of Israel; Behold, I will set my <u>face</u>[^a] against you for evil, and to cut off all Judah.
 
 [Jeremiah 44:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.11?lang=eng#p11)
 

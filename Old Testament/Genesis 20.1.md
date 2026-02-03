@@ -1,6 +1,6 @@
 # Genesis 20:1
 
-> And Abraham journeyed from thence toward the south country, and dwelled between Kadesh and <u>Shur</u>[^a], and sojourned in <u>Gerar</u>[^b] .
+> And Abraham journeyed from thence toward the south country, and dwelled between Kadesh and <u>Shur</u>[^a], and sojourned in <u>Gerar</u>[^b].
 
 [Genesis 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.1?lang=eng#p1)
 

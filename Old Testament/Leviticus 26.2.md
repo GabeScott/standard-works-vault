@@ -1,6 +1,6 @@
 # Leviticus 26:2
 
-> ¶ Ye shall keep my sabbaths, and <u>reverence</u>[^a] my sanctuary: I am the Lord .
+> ¶ Ye shall keep my sabbaths, and <u>reverence</u>[^a] my sanctuary: I *am* the LORD.
 
 [Leviticus 26:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Genesis 17:8
 
-> And I will <u>give</u>[^a] unto thee, and to thy seed after thee, the <u>land</u>[^b] wherein thou art a <u>stranger</u>[^c], all the <u>land</u>[^d] of <u>Canaan</u>[^e], for an everlasting <u>possession</u>[^f]; and I will be their <u>God</u>[^g] .
+> And I will <u>give</u>[^a] unto thee, and to thy seed after thee, the <u>land</u>[^b] wherein thou art a <u>stranger</u>[^c], all the <u>land</u>[^d] of <u>Canaan</u>[^e], for an everlasting <u>possession</u>[^f]; and I will be their <u>God</u>[^g].
 
 [Genesis 17:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Genesis 12:7
 
-> And the Lord appeared unto Abram, and said, <u>Unto</u>[^a] thy <u>seed</u>[^b] will I give this <u>land</u>[^c] : and there builded he an <u>altar</u>[^d] unto the Lord , who appeared unto him.
+> And the LORD appeared unto Abram, and said, <u>Unto</u>[^a] thy <u>seed</u>[^b] will I give this <u>land</u>[^c]: and there builded he an <u>altar</u>[^d] unto the LORD, who appeared unto him.
 
 [Genesis 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.7?lang=eng#p7)
 

@@ -1,6 +1,6 @@
 # Amos 9:15
 
-> And I will <u>plant</u>[^a] them upon their <u>land</u>[^b], and they shall <u>no more</u>[^c] be pulled up out of their land which I have given them, saith the Lord thy God.
+> And I will <u>plant</u>[^a] them upon their <u>land</u>[^b], and they shall <u>no more</u>[^c] be pulled up out of their land which I have given them, saith the LORD thy God.
 
 [Amos 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.15?lang=eng#p15)
 

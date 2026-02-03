@@ -1,6 +1,6 @@
 # Nehemiah 2:19
 
-> But when Sanballat the Horonite, and Tobiah the servant, the Ammonite, and Geshem the Arabian, heard it, they <u>laughed</u>[^a] us to <u>scorn</u>[^b], and despised us, and said, What is this thing that ye do? will ye rebel against the king?
+> But when Sanballat the Horonite, and Tobiah the servant, the Ammonite, and Geshem the Arabian, heard *it,* they <u>laughed</u>[^a] us to <u>scorn</u>[^b], and despised us, and said, What *is* this thing that ye do? will ye rebel against the king?
 
 [Nehemiah 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/2.19?lang=eng#p19)
 

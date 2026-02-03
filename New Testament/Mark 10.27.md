@@ -1,6 +1,6 @@
 # Mark 10:27
 
-> And Jesus looking upon them saith, <u>With</u>[^a] men it is impossible, but not with God: for with God all things are <u>possible</u>[^b] .
+> And Jesus looking upon them saith, <u>With</u>[^a] men *it is* impossible, but not with God: for with God all things are <u>possible</u>[^b].
 
 [Mark 10:27](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.27?lang=eng#p27)
 

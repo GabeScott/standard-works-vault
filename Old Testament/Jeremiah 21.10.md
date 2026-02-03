@@ -1,6 +1,6 @@
 # Jeremiah 21:10
 
-> For I have set my <u>face</u>[^a] against this city for <u>evil</u>[^b], and not for good, saith the Lord : it shall be given into the hand of the king of <u>Babylon</u>[^c], and he shall burn it with fire.
+> For I have set my <u>face</u>[^a] against this city for <u>evil</u>[^b], and not for good, saith the LORD: it shall be given into the hand of the king of <u>Babylon</u>[^c], and he shall burn it with fire.
 
 [Jeremiah 21:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/21.10?lang=eng#p10)
 

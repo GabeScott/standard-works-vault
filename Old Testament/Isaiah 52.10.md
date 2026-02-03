@@ -1,6 +1,6 @@
 # Isaiah 52:10
 
-> The Lord hath made <u>bare</u>[^a] his holy <u>arm</u>[^b] in the eyes of all the nations; and all the ends of the earth shall <u>see</u>[^c] the <u>salvation</u>[^d] of our God.
+> The LORD hath made <u>bare</u>[^a] his holy <u>arm</u>[^b] in the eyes of all the nations; and all the ends of the earth shall <u>see</u>[^c] the <u>salvation</u>[^d] of our God.
 
 [Isaiah 52:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.10?lang=eng#p10)
 

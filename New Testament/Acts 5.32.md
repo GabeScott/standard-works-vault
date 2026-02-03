@@ -1,6 +1,6 @@
 # Acts 5:32
 
-> And we are his <u>witnesses</u>[^a] of these things; and so is also the <u>Holy Ghost</u>[^b], whom God hath <u>given</u>[^c] to them that obey him.
+> And we are his <u>witnesses</u>[^a] of these things; and *so is* also the <u>Holy Ghost</u>[^b], whom God hath <u>given</u>[^c] to them that obey him.
 
 [Acts 5:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.32?lang=eng#p32)
 

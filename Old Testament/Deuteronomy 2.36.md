@@ -1,6 +1,6 @@
 # Deuteronomy 2:36
 
-> From <u>Aroer</u>[^a], which is by the brink of the river of Arnon, and from the city that is by the river, even unto Gilead, there was not one city too strong for us: the Lord our God <u>delivered</u>[^b] all unto us:
+> From <u>Aroer</u>[^a], which *is* by the brink of the river of Arnon, and *from* the city that *is* by the river, even unto Gilead, there was not one city too strong for us: the LORD our God <u>delivered</u>[^b] all unto us:
 
 [Deuteronomy 2:36](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.36?lang=eng#p36)
 

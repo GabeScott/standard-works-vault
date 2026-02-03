@@ -1,6 +1,6 @@
 # 2 Kings 17:12
 
-> For they served idols, whereof the Lord had said unto them, Ye shall <u>not</u>[^a] do this thing.
+> For they served idols, whereof the LORD had said unto them, Ye shall <u>not</u>[^a] do this thing.
 
 [2 Kings 17:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.12?lang=eng#p12)
 

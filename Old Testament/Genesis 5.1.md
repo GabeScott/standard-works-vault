@@ -1,6 +1,6 @@
 # Genesis 5:1
 
-> This is the <u>book</u>[^a] of the <u>generations</u>[^b] of Adam. In the day that God created man, in the <u>likeness</u>[^c] of God <u>made</u>[^d] he him;
+> This *is* the <u>book</u>[^a] of the <u>generations</u>[^b] of Adam. In the day that God created man, in the <u>likeness</u>[^c] of God <u>made</u>[^d] he him;
 
 [Genesis 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/5.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Numbers 18:3
 
-> And they shall keep thy charge, and the <u>charge</u>[^a] of all the tabernacle: only they shall not come <u>nigh</u>[^b] the <u>vessels</u>[^c] of the sanctuary and the altar, that neither they, nor ye also, <u>die</u>[^d] .
+> And they shall keep thy charge, and the <u>charge</u>[^a] of all the tabernacle: only they shall not come <u>nigh</u>[^b] the <u>vessels</u>[^c] of the sanctuary and the altar, that neither they, nor ye also, <u>die</u>[^d].
 
 [Numbers 18:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Exodus 29:45
 
-> ¶ And <u>I</u>[^a] will <u>dwell</u>[^b] <u>among</u>[^c] the children of Israel, and will be their <u>God</u>[^d] .
+> ¶ And <u>I</u>[^a] will <u>dwell</u>[^b] <u>among</u>[^c] the children of Israel, and will be their <u>God</u>[^d].
 
 [Exodus 29:45](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.45?lang=eng#p45)
 

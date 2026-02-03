@@ -1,6 +1,6 @@
 # Alma 34:32
 
-> For behold, this <u>life</u>[^a] is the time for men to <u>prepare</u>[^b] to meet God; yea, behold the day of <u>this</u>[^c] life is the day for men to perform their <u>labors</u>[^d] .
+> For behold, this <u>life</u>[^a] is the time for men to <u>prepare</u>[^b] to meet God; yea, behold the day of <u>this</u>[^c] life is the day for men to perform their <u>labors</u>[^d].
 
 [Alma 34:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p32#p32)
 

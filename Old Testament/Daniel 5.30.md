@@ -1,6 +1,6 @@
 # Daniel 5:30
 
-> ¶ In that night was Belshazzar the king of the <u>Chaldeans</u>[^a] <u>slain</u>[^b] .
+> ¶ In that night was Belshazzar the king of the <u>Chaldeans</u>[^a] <u>slain</u>[^b].
 
 [Daniel 5:30](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.30?lang=eng#p30)
 

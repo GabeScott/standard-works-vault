@@ -1,6 +1,6 @@
 # 3 Nephi 14:16
 
-> Ye shall know them by their <u>fruits</u>[^a] . Do men gather grapes of thorns, or figs of thistles?
+> Ye shall know them by their <u>fruits</u>[^a]. Do men gather grapes of thorns, or figs of thistles?
 
 [3 Nephi 14:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p16#p16)
 

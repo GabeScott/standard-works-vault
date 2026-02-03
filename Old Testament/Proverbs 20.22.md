@@ -1,6 +1,6 @@
 # Proverbs 20:22
 
-> Say not thou, I will <u>recompense</u>[^a] evil; but <u>wait</u>[^b] on the Lord , and he shall save thee.
+> Say not thou, I will <u>recompense</u>[^a] evil; *but* <u>wait</u>[^b] on the LORD, and he shall save thee.
 
 [Proverbs 20:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.22?lang=eng#p22)
 

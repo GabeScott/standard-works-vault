@@ -1,6 +1,6 @@
 # Isaiah 59:1
 
-> Behold, the Lord ’s <u>hand</u>[^a] is not <u>shortened</u>[^b], that it cannot save; neither his ear heavy, that it cannot <u>hear</u>[^c] :
+> Behold, the LORD’s <u>hand</u>[^a] is not <u>shortened</u>[^b], that it cannot save; neither his ear heavy, that it cannot <u>hear</u>[^c]:
 
 [Isaiah 59:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.1?lang=eng#p1)
 

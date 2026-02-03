@@ -1,6 +1,6 @@
 # 1 Corinthians 1:10
 
-> Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no <u>divisions</u>[^a] among you; but that ye be perfectly joined together in the same <u>mind</u>[^b] and in the same judgment.
+> Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and *that* there be no <u>divisions</u>[^a] among you; but *that* ye be perfectly joined together in the same <u>mind</u>[^b] and in the same judgment.
 
 [1 Corinthians 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.10?lang=eng#p10)
 

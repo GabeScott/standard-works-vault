@@ -1,6 +1,6 @@
 # Galatians 2:7
 
-> But contrariwise, when they saw that the <u>gospel</u>[^a] of the uncircumcision was committed unto me, as the gospel of the <u>circumcision</u>[^b] was unto <u>Peter</u>[^c];
+> But contrariwise, when they saw that the <u>gospel</u>[^a] of the uncircumcision was committed unto me, as *the gospel* of the <u>circumcision</u>[^b] *was* unto <u>Peter</u>[^c];
 
 [Galatians 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.7?lang=eng#p7)
 

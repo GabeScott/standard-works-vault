@@ -1,6 +1,6 @@
 # 2 Samuel 10:12
 
-> Be of good courage, and let us play the <u>men</u>[^a] for our people, and for the cities of our God: and the Lord do that which seemeth him good.
+> Be of good courage, and let us play the <u>men</u>[^a] for our people, and for the cities of our God: and the LORD do that which seemeth him good.
 
 [2 Samuel 10:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/10.12?lang=eng#p12)
 

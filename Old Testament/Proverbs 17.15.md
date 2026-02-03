@@ -1,6 +1,6 @@
 # Proverbs 17:15
 
-> He that <u>justifieth</u>[^a] the <u>wicked</u>[^b], and he that condemneth the just, even they both are abomination to the Lord .
+> He that <u>justifieth</u>[^a] the <u>wicked</u>[^b], and he that condemneth the just, even they both *are* abomination to the LORD.
 
 [Proverbs 17:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.15?lang=eng#p15)
 

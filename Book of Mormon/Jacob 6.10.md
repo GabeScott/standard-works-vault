@@ -1,6 +1,6 @@
 # Jacob 6:10
 
-> And according to the power of <u>justice</u>[^a], for justice cannot be denied, ye must go away into that <u>lake</u>[^b] of fire and brimstone, whose flames are unquenchable, and whose smoke ascendeth up forever and ever, which lake of fire and brimstone is <u>endless</u>[^c] <u>torment</u>[^d] .
+> And according to the power of <u>justice</u>[^a], for justice cannot be denied, ye must go away into that <u>lake</u>[^b] of fire and brimstone, whose flames are unquenchable, and whose smoke ascendeth up forever and ever, which lake of fire and brimstone is <u>endless</u>[^c] <u>torment</u>[^d].
 
 [Jacob 6:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/6?lang=eng&id=p10#p10)
 

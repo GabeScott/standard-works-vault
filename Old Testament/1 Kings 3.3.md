@@ -1,6 +1,6 @@
 # 1 Kings 3:3
 
-> And Solomon loved the Lord , walking in the <u>statutes</u>[^a] of David his father: only he <u>sacrificed</u>[^b] and burnt incense in high places.
+> And Solomon loved the LORD, walking in the <u>statutes</u>[^a] of David his father: only he <u>sacrificed</u>[^b] and burnt incense in high places.
 
 [1 Kings 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/3.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Leviticus 25:11
 
-> A <u>jubilee</u>[^a] shall that fiftieth year be unto you: ye shall not sow, neither reap that which groweth of itself in it, nor gather the grapes in it of <u>thy vine undressed</u>[^b] .
+> A <u>jubilee</u>[^a] shall that fiftieth year be unto you: ye shall not sow, neither reap that which groweth of itself in it, nor gather *the grapes* in it of <u>thy vine undressed</u>[^b].
 
 [Leviticus 25:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.11?lang=eng#p11)
 

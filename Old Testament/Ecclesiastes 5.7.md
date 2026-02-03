@@ -1,6 +1,6 @@
 # Ecclesiastes 5:7
 
-> For in the multitude of dreams and many words there are also divers <u>vanities</u>[^a] : but <u>fear thou God</u>[^b] .
+> For in the multitude of dreams and many words *there are* also *divers* <u>vanities</u>[^a]: but <u>fear thou God</u>[^b].
 
 [Ecclesiastes 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.7?lang=eng#p7)
 

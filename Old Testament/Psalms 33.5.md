@@ -1,6 +1,6 @@
 # Psalms 33:5
 
-> He loveth <u>righteousness</u>[^a] and <u>judgment</u>[^b] : the earth is <u>full</u>[^c] of the goodness of the Lord .
+> He loveth <u>righteousness</u>[^a] and <u>judgment</u>[^b]: the earth is <u>full</u>[^c] of the goodness of the LORD.
 
 [Psalms 33:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.5?lang=eng#p5)
 

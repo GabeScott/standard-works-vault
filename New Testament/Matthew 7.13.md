@@ -1,6 +1,6 @@
 # Matthew 7:13
 
-> ¶ Enter ye in at the <u>strait</u>[^a] <u>gate</u>[^b] : for wide is the gate, and broad is the way, that leadeth to <u>destruction</u>[^c], and many there be which go in thereat:
+> ¶ Enter ye in at the <u>strait</u>[^a] <u>gate</u>[^b]: for wide *is* the gate, and broad *is* the way, that leadeth to <u>destruction</u>[^c], and many there be which go in thereat:
 
 [Matthew 7:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.13?lang=eng#p13)
 

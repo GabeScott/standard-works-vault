@@ -1,6 +1,6 @@
 # Mark 11:24
 
-> Therefore I say unto you, What things soever ye desire, when ye <u>pray</u>[^a], <u>believe</u>[^b] that ye receive them, and ye shall have them.
+> Therefore I say unto you, What things soever ye desire, when ye <u>pray</u>[^a], <u>believe</u>[^b] that ye receive *them,* and ye shall have *them.*
 
 [Mark 11:24](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/11.24?lang=eng#p24)
 

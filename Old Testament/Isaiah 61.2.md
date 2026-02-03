@@ -1,6 +1,6 @@
 # Isaiah 61:2
 
-> To proclaim the acceptable year of the Lord , and the day of <u>vengeance</u>[^a] of our God; to <u>comfort</u>[^b] all that <u>mourn</u>[^c];
+> To proclaim the acceptable year of the LORD, and the day of <u>vengeance</u>[^a] of our God; to <u>comfort</u>[^b] all that <u>mourn</u>[^c];
 
 [Isaiah 61:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.2?lang=eng#p2)
 

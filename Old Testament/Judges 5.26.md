@@ -1,6 +1,6 @@
 # Judges 5:26
 
-> She put her hand to the <u>nail</u>[^a], and her right hand to the workmen’s hammer; and with the hammer she smote Sisera, she smote off his head, when she had pierced and stricken through his <u>temples</u>[^b] .
+> She put her hand to the <u>nail</u>[^a], and her right hand to the workmen’s hammer; and with the hammer she smote Sisera, she smote off his head, when she had pierced and stricken through his <u>temples</u>[^b].
 
 [Judges 5:26](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.26?lang=eng#p26)
 

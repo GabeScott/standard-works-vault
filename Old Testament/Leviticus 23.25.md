@@ -1,6 +1,6 @@
 # Leviticus 23:25
 
-> Ye shall do no servile <u>work</u>[^a] therein: but ye shall offer an offering made by fire unto the Lord .
+> Ye shall do no servile <u>work</u>[^a] *therein:* but ye shall offer an offering made by fire unto the LORD.
 
 [Leviticus 23:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.25?lang=eng#p25)
 

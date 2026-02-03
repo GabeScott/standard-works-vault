@@ -1,6 +1,6 @@
 # Alma 10:22
 
-> Yea, and I say unto you that if it were not for the <u>prayers</u>[^a] of the righteous, who are now in the land, that ye would even now be visited with utter destruction; yet it would not be by <u>flood</u>[^b], as were the people in the days of <u>Noah</u>[^c], but it would be by famine, and by pestilence, and the <u>sword</u>[^d] .
+> Yea, and I say unto you that if it were not for the <u>prayers</u>[^a] of the righteous, who are now in the land, that ye would even now be visited with utter destruction; yet it would not be by <u>flood</u>[^b], as were the people in the days of <u>Noah</u>[^c], but it would be by famine, and by pestilence, and the <u>sword</u>[^d].
 
 [Alma 10:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p22#p22)
 

@@ -1,6 +1,6 @@
 # Isaiah 63:3
 
-> I have trodden the <u>winepress</u>[^a] alone; and of the people there was none with me: for I will tread them in mine anger, and trample them in my fury; and their blood shall be <u>sprinkled</u>[^b] upon my garments, and I will stain all my raiment.
+> I have trodden the <u>winepress</u>[^a] alone; and of the people *there was* none with me: for I will tread them in mine anger, and trample them in my fury; and their blood shall be <u>sprinkled</u>[^b] upon my garments, and I will stain all my raiment.
 
 [Isaiah 63:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.3?lang=eng#p3)
 

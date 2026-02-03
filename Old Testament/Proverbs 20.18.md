@@ -1,6 +1,6 @@
 # Proverbs 20:18
 
-> Every purpose is established by <u>counsel</u>[^a] : and with good <u>advice</u>[^b] make <u>war</u>[^c] .
+> *Every* purpose is established by <u>counsel</u>[^a]: and with good <u>advice</u>[^b] make <u>war</u>[^c].
 
 [Proverbs 20:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.18?lang=eng#p18)
 

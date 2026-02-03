@@ -1,6 +1,6 @@
 # Isaiah 14:2
 
-> And the <u>people shall take them</u>[^a], and <u>bring</u>[^b] them to their place: and the house of Israel shall possess them in the land of the Lord for servants and handmaids: and they shall take them <u>captives</u>[^c], whose captives they were; and they shall <u>rule</u>[^d] over their oppressors.
+> And the <u>people shall take them</u>[^a], and <u>bring</u>[^b] them to their place: and the house of Israel shall possess them in the land of the LORD for servants and handmaids: and they shall take them <u>captives</u>[^c], whose captives they were; and they shall <u>rule</u>[^d] over their oppressors.
 
 [Isaiah 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.2?lang=eng#p2)
 

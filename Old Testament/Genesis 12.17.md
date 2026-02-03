@@ -1,6 +1,6 @@
 # Genesis 12:17
 
-> And the Lord <u>plagued</u>[^a] Pharaoh and his house with great <u>plagues</u>[^b] because of Sarai Abram’s wife.
+> And the LORD <u>plagued</u>[^a] Pharaoh and his house with great <u>plagues</u>[^b] because of Sarai Abram’s wife.
 
 [Genesis 12:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.17?lang=eng#p17)
 

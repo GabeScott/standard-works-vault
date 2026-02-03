@@ -1,6 +1,6 @@
 # Jeremiah 14:11
 
-> Then said the Lord unto me, <u>Pray</u>[^a] not for this people for their good.
+> Then said the LORD unto me, <u>Pray</u>[^a] not for this people for *their* good.
 
 [Jeremiah 14:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.11?lang=eng#p11)
 

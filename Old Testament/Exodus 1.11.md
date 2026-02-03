@@ -1,6 +1,6 @@
 # Exodus 1:11
 
-> Therefore they did set over them <u>taskmasters</u>[^a] to afflict them with their <u>burdens</u>[^b] . And they built for Pharaoh <u>treasure cities</u>[^c], Pithom and <u>Raamses</u>[^d] .
+> Therefore they did set over them <u>taskmasters</u>[^a] to afflict them with their <u>burdens</u>[^b]. And they built for Pharaoh <u>treasure cities</u>[^c], Pithom and <u>Raamses</u>[^d].
 
 [Exodus 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.11?lang=eng#p11)
 

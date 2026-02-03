@@ -1,6 +1,6 @@
 # Exodus 28:1
 
-> And take thou unto thee <u>Aaron</u>[^a] thy brother, and his sons with him, from among the children of Israel, that he may minister unto me in the <u>priest’s</u>[^b] <u>office</u>[^c], even Aaron, <u>Nadab</u>[^d] and Abihu, Eleazar and <u>Ithamar</u>[^e], Aaron’s <u>sons</u>[^f] .
+> And take thou unto thee <u>Aaron</u>[^a] thy brother, and his sons with him, from among the children of Israel, that he may minister unto me in the <u>priest’s</u>[^b] <u>office</u>[^c], *even* Aaron, <u>Nadab</u>[^d] and Abihu, Eleazar and <u>Ithamar</u>[^e], Aaron’s <u>sons</u>[^f].
 
 [Exodus 28:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.1?lang=eng#p1)
 

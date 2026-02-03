@@ -1,6 +1,6 @@
 # Romans 4:25
 
-> Who was delivered for our <u>offences</u>[^a], and was raised again for our <u>justification</u>[^b] .
+> Who was delivered for our <u>offences</u>[^a], and was raised again for our <u>justification</u>[^b].
 
 [Romans 4:25](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.25?lang=eng#p25)
 

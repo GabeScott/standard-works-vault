@@ -1,6 +1,6 @@
 # Zechariah 2:11
 
-> And many <u>nations</u>[^a] shall be joined to the Lord in that day, and shall be my people: and I will dwell in the <u>midst</u>[^b] of thee, and thou shalt know that the Lord of hosts hath sent me unto thee.
+> And many <u>nations</u>[^a] shall be joined to the LORD in that day, and shall be my people: and I will dwell in the <u>midst</u>[^b] of thee, and thou shalt know that the LORD of hosts hath sent me unto thee.
 
 [Zechariah 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/2.11?lang=eng#p11)
 

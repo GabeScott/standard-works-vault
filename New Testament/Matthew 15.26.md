@@ -1,6 +1,6 @@
 # Matthew 15:26
 
-> But he answered and said, It is not meet to take the children’s bread, and to cast it to <u>dogs</u>[^a] .
+> But he answered and said, It is not meet to take the children’s bread, and to cast *it* to <u>dogs</u>[^a].
 
 [Matthew 15:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Psalms 71:19
 
-> Thy <u>righteousness</u>[^a] also, O God, is very <u>high</u>[^b], who hast done great things: O God, who is <u>like</u>[^c] unto thee!
+> Thy <u>righteousness</u>[^a] also, O God, *is* very <u>high</u>[^b], who hast done great things: O God, who *is* <u>like</u>[^c] unto thee!
 
 [Psalms 71:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/71.19?lang=eng#p19)
 

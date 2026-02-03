@@ -1,6 +1,6 @@
 # Proverbs 27:6
 
-> Faithful are the <u>wounds</u>[^a] of a <u>friend</u>[^b]; but the <u>kisses</u>[^c] of an enemy are <u>deceitful</u>[^d] .
+> Faithful *are* the <u>wounds</u>[^a] of a <u>friend</u>[^b]; but the <u>kisses</u>[^c] of an enemy *are* <u>deceitful</u>[^d].
 
 [Proverbs 27:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.6?lang=eng#p6)
 

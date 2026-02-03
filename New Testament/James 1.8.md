@@ -1,6 +1,6 @@
 # James 1:8
 
-> A <u>double minded</u>[^a] man is unstable in all his ways.
+> A <u>double minded</u>[^a] man *is* unstable in all his ways.
 
 [James 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.8?lang=eng#p8)
 

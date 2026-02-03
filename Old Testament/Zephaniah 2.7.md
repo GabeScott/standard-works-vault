@@ -1,6 +1,6 @@
 # Zephaniah 2:7
 
-> And the coast shall be for the remnant of the house of Judah; they shall feed thereupon: in the houses of Ashkelon shall they lie down in the evening: for the Lord their God shall visit them, and turn away their <u>captivity</u>[^a] .
+> And the coast shall be for the remnant of the house of Judah; they shall feed thereupon: in the houses of Ashkelon shall they lie down in the evening: for the LORD their God shall visit them, and turn away their <u>captivity</u>[^a].
 
 [Zephaniah 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.7?lang=eng#p7)
 

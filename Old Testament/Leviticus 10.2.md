@@ -1,6 +1,6 @@
 # Leviticus 10:2
 
-> And there went out <u>fire</u>[^a] from the Lord , and <u>devoured</u>[^b] them, and they <u>died</u>[^c] before the Lord .
+> And there went out <u>fire</u>[^a] from the LORD, and <u>devoured</u>[^b] them, and they <u>died</u>[^c] before the LORD.
 
 [Leviticus 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.2?lang=eng#p2)
 

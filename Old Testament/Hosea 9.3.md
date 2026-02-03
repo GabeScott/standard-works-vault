@@ -1,6 +1,6 @@
 # Hosea 9:3
 
-> They shall not dwell in the Lord ’s <u>land</u>[^a]; but Ephraim shall return to <u>Egypt</u>[^b], and they shall eat <u>unclean things</u>[^c] in Assyria.
+> They shall not dwell in the LORD’s <u>land</u>[^a]; but Ephraim shall return to <u>Egypt</u>[^b], and they shall eat <u>unclean things</u>[^c] in Assyria.
 
 [Hosea 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/9.3?lang=eng#p3)
 

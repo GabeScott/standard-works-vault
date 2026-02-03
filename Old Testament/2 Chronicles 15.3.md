@@ -1,6 +1,6 @@
 # 2 Chronicles 15:3
 
-> Now for a long season Israel hath been without the true God, and without a <u>teaching</u>[^a] priest, and without law.
+> Now for a long season Israel *hath been* without the true God, and without a <u>teaching</u>[^a] priest, and without law.
 
 [2 Chronicles 15:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/15.3?lang=eng#p3)
 

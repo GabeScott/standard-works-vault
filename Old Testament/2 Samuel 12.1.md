@@ -1,6 +1,6 @@
 # 2 Samuel 12:1
 
-> And the Lord sent <u>Nathan</u>[^a] unto David. And he came unto him, and said unto him, There were two men in one city; the one rich, and the other poor.
+> And the LORD sent <u>Nathan</u>[^a] unto David. And he came unto him, and said unto him, There were two men in one city; the one rich, and the other poor.
 
 [2 Samuel 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.1?lang=eng#p1)
 

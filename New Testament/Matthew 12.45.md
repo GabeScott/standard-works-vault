@@ -1,6 +1,6 @@
 # Matthew 12:45
 
-> Then goeth <u>he, and taketh</u>[^a] with himself seven other <u>spirits</u>[^b] more wicked than himself, and they enter in and dwell there: and the last state of that man is <u>worse</u>[^d] than the first. Even so shall it be also unto this wicked generation.
+> Then goeth <u>he, and taketh</u>[^a] with himself seven other <u>spirits</u>[^b] more wicked than himself, and they enter in and dwell there: and the last *state* of that man is <u>worse</u>[^d] than the first. Even so shall it be also unto this wicked generation.
 
 [Matthew 12:45](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.45?lang=eng#p45)
 

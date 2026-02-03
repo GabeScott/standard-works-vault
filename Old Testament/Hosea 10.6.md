@@ -1,6 +1,6 @@
 # Hosea 10:6
 
-> It shall be also carried unto Assyria for a present to king <u>Jareb</u>[^a] : Ephraim shall receive <u>shame</u>[^b], and Israel shall be <u>ashamed</u>[^c] of his own <u>counsel</u>[^d] .
+> It shall be also carried unto Assyria *for* a present to king <u>Jareb</u>[^a]: Ephraim shall receive <u>shame</u>[^b], and Israel shall be <u>ashamed</u>[^c] of his own <u>counsel</u>[^d].
 
 [Hosea 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/10.6?lang=eng#p6)
 

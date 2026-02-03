@@ -1,6 +1,6 @@
 # Deuteronomy 28:26
 
-> And thy <u>carcase</u>[^a] shall be meat unto all fowls of the air, and unto the beasts of the earth, and no man shall fray them away.
+> And thy <u>carcase</u>[^a] shall be meat unto all fowls of the air, and unto the beasts of the earth, and no man shall fray *them* away.
 
 [Deuteronomy 28:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.26?lang=eng#p26)
 

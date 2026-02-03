@@ -1,6 +1,6 @@
 # John 14:1
 
-> Let not your heart be <u>troubled</u>[^a] : ye believe in God, believe also in me.
+> Let not your heart be <u>troubled</u>[^a]: ye believe in God, believe also in me.
 
 [John 14:1](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.1?lang=eng#p1)
 

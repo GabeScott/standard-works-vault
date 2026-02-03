@@ -1,6 +1,6 @@
 # Isaiah 54:1
 
-> <u>Sing</u>[^a], O <u>barren</u>[^b], thou that didst not bear; break forth into singing, and cry aloud, thou that didst not travail with child: for more are the children of the desolate than the children of the married wife, saith the Lord .
+> <u>Sing</u>[^a], O <u>barren</u>[^b], thou *that* didst not bear; break forth into singing, and cry aloud, thou *that* didst not travail with child: for more *are* the children of the desolate than the children of the married wife, saith the LORD.
 
 [Isaiah 54:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Isaiah 2:2
 
-> And it shall come to pass in the <u>last days</u>[^a], that the <u>mountain</u>[^b] of the Lord ’s <u>house</u>[^c] shall be <u>established</u>[^d] in the top of the mountains, and shall be exalted above the hills; and all <u>nations</u>[^e] shall flow unto it.
+> And it shall come to pass in the <u>last days</u>[^a], *that* the <u>mountain</u>[^b] of the LORD’s <u>house</u>[^c] shall be <u>established</u>[^d] in the top of the mountains, and shall be exalted above the hills; and all <u>nations</u>[^e] shall flow unto it.
 
 [Isaiah 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.2?lang=eng#p2)
 

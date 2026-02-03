@@ -1,6 +1,6 @@
 # 1 Samuel 3:21
 
-> And the Lord <u>appeared</u>[^a] again in <u>Shiloh</u>[^b] : for the Lord revealed himself to Samuel in Shiloh by the <u>word</u>[^c] of the Lord .
+> And the LORD <u>appeared</u>[^a] again in <u>Shiloh</u>[^b]: for the LORD revealed himself to Samuel in Shiloh by the <u>word</u>[^c] of the LORD.
 
 [1 Samuel 3:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/3.21?lang=eng#p21)
 

@@ -1,6 +1,6 @@
 # Luke 1:49
 
-> For he that is mighty hath done to me great <u>things</u>[^a]; and <u>holy</u>[^b] is his name.
+> For he that is mighty hath done to me great <u>things</u>[^a]; and <u>holy</u>[^b] *is* his name.
 
 [Luke 1:49](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.49?lang=eng#p49)
 

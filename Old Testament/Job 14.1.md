@@ -1,6 +1,6 @@
 # Job 14:1
 
-> <u>Man</u>[^a] that is born of a woman is of few days, and full of trouble.
+> <u>Man</u>[^a] *that is* born of a woman *is* of few days, and full of trouble.
 
 [Job 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/job/14.1?lang=eng#p1)
 

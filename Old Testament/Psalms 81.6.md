@@ -1,6 +1,6 @@
 # Psalms 81:6
 
-> I removed his shoulder from the <u>burden</u>[^a] : his hands were delivered from the pots.
+> I removed his shoulder from the <u>burden</u>[^a]: his hands were delivered from the pots.
 
 [Psalms 81:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/81.6?lang=eng#p6)
 

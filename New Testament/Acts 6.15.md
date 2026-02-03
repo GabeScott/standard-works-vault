@@ -1,6 +1,6 @@
 # Acts 6:15
 
-> And all that sat in the council, looking steadfastly on him, saw his face as it had been the <u>face</u>[^a] of an <u>angel</u>[^b] .
+> And all that sat in the council, looking steadfastly on him, saw his face as it had been the <u>face</u>[^a] of an <u>angel</u>[^b].
 
 [Acts 6:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.15?lang=eng#p15)
 

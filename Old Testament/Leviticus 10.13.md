@@ -1,6 +1,6 @@
 # Leviticus 10:13
 
-> And ye shall <u>eat</u>[^a] it in the holy place, because it is thy due, and thy sons’ due, of the sacrifices of the Lord made by fire: for so I am commanded.
+> And ye shall <u>eat</u>[^a] it in the holy place, because it *is* thy due, and thy sons’ due, of the sacrifices of the LORD made by fire: for so I am commanded.
 
 [Leviticus 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 10:17
 
-> For the Lord your <u>God</u>[^a] is <u>God</u>[^b] of gods, and <u>Lord of lords</u>[^c], a great God, a mighty, and a terrible, <u>which</u>[^d] <u>regardeth</u>[^e] not persons, nor taketh <u>reward</u>[^f] :
+> For the LORD your <u>God</u>[^a] *is* <u>God</u>[^b] of gods, and <u>Lord of lords</u>[^c], a great God, a mighty, and a terrible, <u>which</u>[^d] <u>regardeth</u>[^e] not persons, nor taketh <u>reward</u>[^f]:
 
 [Deuteronomy 10:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.17?lang=eng#p17)
 

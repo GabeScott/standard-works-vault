@@ -1,6 +1,6 @@
 # Mosiah 17:13
 
-> And it came to pass that they took him and bound him, and <u>scourged</u>[^a] his skin with faggots, yea, even unto <u>death</u>[^b] .
+> And it came to pass that they took him and bound him, and <u>scourged</u>[^a] his skin with faggots, yea, even unto <u>death</u>[^b].
 
 [Mosiah 17:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/17?lang=eng&id=p13#p13)
 

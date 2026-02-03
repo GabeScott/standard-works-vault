@@ -1,6 +1,6 @@
 # Acts 3:13
 
-> The God of Abraham, and of Isaac, and of Jacob, the God of our fathers, hath <u>glorified</u>[^a] his Son Jesus; whom ye <u>delivered up</u>[^b], and <u>denied</u>[^c] him in the presence of Pilate, when he was determined to let him go.
+> The God of Abraham, and of Isaac, and of Jacob, the God of our fathers, hath <u>glorified</u>[^a] his Son Jesus; whom ye <u>delivered up</u>[^b], and <u>denied</u>[^c] him in the presence of Pilate, when he was determined to let *him* go.
 
 [Acts 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.13?lang=eng#p13)
 

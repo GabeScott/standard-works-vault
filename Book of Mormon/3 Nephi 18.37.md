@@ -1,6 +1,6 @@
 # 3 Nephi 18:37
 
-> And the multitude heard not the words which he spake, therefore they did not bear record; but the disciples bare record that he gave them <u>power</u>[^a] to give the <u>Holy Ghost</u>[^b] . And I will show unto you <u>hereafter</u>[^c] that this record is true.
+> And the multitude heard not the words which he spake, therefore they did not bear record; but the disciples bare record that he gave them <u>power</u>[^a] to give the <u>Holy Ghost</u>[^b]. And I will show unto you <u>hereafter</u>[^c] that this record is true.
 
 [3 Nephi 18:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p37#p37)
 

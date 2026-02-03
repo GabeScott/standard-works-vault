@@ -1,6 +1,6 @@
 # 2 Peter 1:4
 
-> Whereby are given unto us exceeding great and precious <u>promises</u>[^a] : that by these ye might be <u>partakers</u>[^b] of the <u>divine</u>[^c] <u>nature</u>[^d], having <u>escaped</u>[^e] the <u>corruption</u>[^f] that is in the world through <u>lust</u>[^g] .
+> Whereby are given unto us exceeding great and precious <u>promises</u>[^a]: that by these ye might be <u>partakers</u>[^b] of the <u>divine</u>[^c] <u>nature</u>[^d], having <u>escaped</u>[^e] the <u>corruption</u>[^f] that is in the world through <u>lust</u>[^g].
 
 [2 Peter 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.4?lang=eng#p4)
 

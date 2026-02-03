@@ -1,6 +1,6 @@
 # Proverbs 13:7
 
-> There is that maketh himself <u>rich</u>[^a], yet hath nothing: there is that maketh himself poor, yet hath great <u>riches</u>[^b] .
+> There is that maketh himself <u>rich</u>[^a], yet *hath* nothing: *there is* that maketh himself poor, yet *hath* great <u>riches</u>[^b].
 
 [Proverbs 13:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.7?lang=eng#p7)
 

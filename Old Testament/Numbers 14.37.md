@@ -1,6 +1,6 @@
 # Numbers 14:37
 
-> Even those men that did bring up the evil report upon the land, <u>died</u>[^a] by the <u>plague</u>[^b] before the Lord .
+> Even those men that did bring up the evil report upon the land, <u>died</u>[^a] by the <u>plague</u>[^b] before the LORD.
 
 [Numbers 14:37](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.37?lang=eng#p37)
 

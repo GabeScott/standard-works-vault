@@ -1,6 +1,6 @@
 # Isaiah 59:16
 
-> ¶ And he saw that there was <u>no man</u>[^a], and wondered that there was no <u>intercessor</u>[^b] : therefore his <u>arm</u>[^c] <u>brought</u>[^d] <u>salvation</u>[^e] unto him; and his righteousness, it sustained him.
+> ¶ And he saw that *there was* <u>no man</u>[^a], and wondered that *there was* no <u>intercessor</u>[^b]: therefore his <u>arm</u>[^c] <u>brought</u>[^d] <u>salvation</u>[^e] unto him; and his righteousness, it sustained him.
 
 [Isaiah 59:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.16?lang=eng#p16)
 

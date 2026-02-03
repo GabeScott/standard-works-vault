@@ -1,6 +1,6 @@
 # 1 Samuel 16:1
 
-> And the Lord said unto Samuel, How long wilt thou mourn for Saul, seeing I have rejected him from reigning over Israel? fill thine horn with oil, and go, I will send thee to <u>Jesse</u>[^a] the <u>Beth-lehemite</u>[^b] : for I have provided me a <u>king</u>[^c] among his sons.
+> And the LORD said unto Samuel, How long wilt thou mourn for Saul, seeing I have rejected him from reigning over Israel? fill thine horn with oil, and go, I will send thee to <u>Jesse</u>[^a] the <u>Beth-lehemite</u>[^b]: for I have provided me a <u>king</u>[^c] among his sons.
 
 [1 Samuel 16:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/16.1?lang=eng#p1)
 

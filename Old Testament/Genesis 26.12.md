@@ -1,6 +1,6 @@
 # Genesis 26:12
 
-> Then Isaac sowed in that land, and received in the same year an <u>hundredfold</u>[^a] : and the Lord <u>blessed</u>[^b] him.
+> Then Isaac sowed in that land, and received in the same year an <u>hundredfold</u>[^a]: and the LORD <u>blessed</u>[^b] him.
 
 [Genesis 26:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Romans 2:15
 
-> <u>Which</u>[^a] shew the work of the <u>law</u>[^b] written in their hearts, their <u>conscience</u>[^c] also bearing <u>witness</u>[^d], and their thoughts the mean while accusing or else excusing one another;)
+> <u>Which</u>[^a] shew the work of the <u>law</u>[^b] written in their hearts, their <u>conscience</u>[^c] also bearing <u>witness</u>[^d], and *their* thoughts the mean while accusing or else excusing one another;)
 
 [Romans 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.15?lang=eng#p15)
 

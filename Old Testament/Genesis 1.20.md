@@ -1,6 +1,6 @@
 # Genesis 1:20
 
-> And God said, Let the <u>waters</u>[^a] <u>bring</u>[^b] forth abundantly the moving creature that hath life, and <u>fowl</u>[^c] that may fly above the earth in the open firmament of heaven.
+> And God said, Let the <u>waters</u>[^a] <u>bring</u>[^b] forth abundantly the moving creature that hath life, and <u>fowl</u>[^c] *that* may fly above the earth in the open firmament of heaven.
 
 [Genesis 1:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.20?lang=eng#p20)
 

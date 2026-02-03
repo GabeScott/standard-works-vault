@@ -1,6 +1,6 @@
 # 1 Corinthians 6:2
 
-> Do ye not know that the saints shall <u>judge</u>[^a] the <u>world</u>[^b] ? and if the world shall be judged by you, are ye unworthy to judge the smallest matters?
+> Do ye not know that the saints shall <u>judge</u>[^a] the <u>world</u>[^b]? and if the world shall be judged by you, are ye unworthy to judge the smallest matters?
 
 [1 Corinthians 6:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/6.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # 1 Kings 9:15
 
-> ¶ And this is the reason of the <u>levy</u>[^a] which king Solomon raised; for to build the house of the Lord , and his own house, and <u>Millo</u>[^b], and the <u>wall</u>[^c] of Jerusalem, and Hazor, and Megiddo, and Gezer.
+> ¶ And this *is* the reason of the <u>levy</u>[^a] which king Solomon raised; for to build the house of the LORD, and his own house, and <u>Millo</u>[^b], and the <u>wall</u>[^c] of Jerusalem, and Hazor, and Megiddo, and Gezer.
 
 [1 Kings 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # Micah 7:18
 
-> Who is a God like unto thee, that <u>pardoneth</u>[^a] iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his <u>anger</u>[^b] for ever, because he <u>delighteth</u>[^c] in <u>mercy</u>[^d] .
+> Who *is* a God like unto thee, that <u>pardoneth</u>[^a] iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his <u>anger</u>[^b] for ever, because he <u>delighteth</u>[^c] *in* <u>mercy</u>[^d].
 
 [Micah 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.18?lang=eng#p18)
 

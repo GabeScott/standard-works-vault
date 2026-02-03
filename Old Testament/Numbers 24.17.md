@@ -1,6 +1,6 @@
 # Numbers 24:17
 
-> I shall see him, but <u>not now</u>[^a] : I shall behold him, but not nigh: there shall come a <u>Star</u>[^b] out of Jacob, and a Sceptre shall rise out of Israel, and shall smite the corners of <u>Moab</u>[^c], and destroy all the children of Sheth.
+> I shall see him, but <u>not now</u>[^a]: I shall behold him, but not nigh: there shall come a <u>Star</u>[^b] out of Jacob, and a Sceptre shall rise out of Israel, and shall smite the corners of <u>Moab</u>[^c], and destroy all the children of Sheth.
 
 [Numbers 24:17](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.17?lang=eng#p17)
 

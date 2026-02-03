@@ -1,6 +1,6 @@
 # Genesis 13:4
 
-> Unto the place of the <u>altar</u>[^a], which he had made there at the first: and there Abram <u>called</u>[^b] on the name of the Lord .
+> Unto the place of the <u>altar</u>[^a], which he had made there at the first: and there Abram <u>called</u>[^b] on the name of the LORD.
 
 [Genesis 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/13.4?lang=eng#p4)
 

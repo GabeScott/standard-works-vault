@@ -1,6 +1,6 @@
 # Mosiah 15:10
 
-> And now I say unto you, who shall declare his <u>generation</u>[^a] ? Behold, I say unto you, that when his soul has been made an offering for <u>sin</u>[^b] he shall see his <u>seed</u>[^c] . And now what say ye? And who shall be his seed?
+> And now I say unto you, who shall declare his <u>generation</u>[^a]? Behold, I say unto you, that when his soul has been made an offering for <u>sin</u>[^b] he shall see his <u>seed</u>[^c]. And now what say ye? And who shall be his seed?
 
 [Mosiah 15:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p10#p10)
 

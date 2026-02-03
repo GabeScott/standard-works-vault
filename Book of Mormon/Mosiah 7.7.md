@@ -1,6 +1,6 @@
 # Mosiah 7:7
 
-> And behold, they met the king of the people who were in the land of Nephi, and in the land of <u>Shilom</u>[^a]; and they were surrounded by the king’s guard, and were <u>taken</u>[^b], and were <u>bound</u>[^c], and were committed to <u>prison</u>[^d] .
+> And behold, they met the king of the people who were in the land of Nephi, and in the land of <u>Shilom</u>[^a]; and they were surrounded by the king’s guard, and were <u>taken</u>[^b], and were <u>bound</u>[^c], and were committed to <u>prison</u>[^d].
 
 [Mosiah 7:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p7#p7)
 

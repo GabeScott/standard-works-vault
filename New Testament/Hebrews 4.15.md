@@ -1,6 +1,6 @@
 # Hebrews 4:15
 
-> For we have not an high priest <u>which</u>[^a] cannot be touched with the feeling of our infirmities; but was in all points <u>tempted</u>[^b] like as we are, yet without <u>sin</u>[^c] .
+> For we have not an high priest <u>which</u>[^a] cannot be touched with the feeling of our infirmities; but was in all points <u>tempted</u>[^b] like as *we are, yet* without <u>sin</u>[^c].
 
 [Hebrews 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.15?lang=eng#p15)
 

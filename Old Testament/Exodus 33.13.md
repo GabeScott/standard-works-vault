@@ -1,6 +1,6 @@
 # Exodus 33:13
 
-> Now therefore, I pray thee, if I have found <u>grace</u>[^a] in thy sight, <u>shew</u>[^b] me now thy <u>way</u>[^c], that I may know thee, that I may find grace in thy sight: and consider that this nation is <u>thy</u>[^d] <u>people</u>[^e] .
+> Now therefore, I pray thee, if I have found <u>grace</u>[^a] in thy sight, <u>shew</u>[^b] me now thy <u>way</u>[^c], that I may know thee, that I may find grace in thy sight: and consider that this nation *is* <u>thy</u>[^d] <u>people</u>[^e].
 
 [Exodus 33:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.13?lang=eng#p13)
 

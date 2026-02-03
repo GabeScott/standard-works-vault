@@ -1,6 +1,6 @@
 # Matthew 10:28
 
-> And <u>fear not</u>[^a] them which kill the body, but are not able to kill the soul: but rather <u>fear</u>[^b] him which is able to <u>destroy</u>[^c] both <u>soul</u>[^d] and body in <u>hell</u>[^e] .
+> And <u>fear not</u>[^a] them which kill the body, but are not able to kill the soul: but rather <u>fear</u>[^b] him which is able to <u>destroy</u>[^c] both <u>soul</u>[^d] and body in <u>hell</u>[^e].
 
 [Matthew 10:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.28?lang=eng#p28)
 

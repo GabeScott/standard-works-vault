@@ -1,6 +1,6 @@
 # Hebrews 12:24
 
-> And to Jesus the <u>mediator</u>[^a] of the <u>new</u>[^b] <u>covenant</u>[^c], and to the <u>blood</u>[^d] of sprinkling, that speaketh <u>better</u>[^e] things than that of Abel.
+> And to Jesus the <u>mediator</u>[^a] of the <u>new</u>[^b] <u>covenant</u>[^c], and to the <u>blood</u>[^d] of sprinkling, that speaketh <u>better</u>[^e] things than *that of* Abel.
 
 [Hebrews 12:24](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.24?lang=eng#p24)
 

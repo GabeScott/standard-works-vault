@@ -1,6 +1,6 @@
 # Genesis 1:9
 
-> ¶ And God said, Let the <u>waters</u>[^a] under the heaven be gathered together unto <u>one</u>[^b] place, and let the dry land appear: and it was so.
+> ¶ And God said, Let the <u>waters</u>[^a] under the heaven be gathered together unto <u>one</u>[^b] place, and let the dry *land* appear: and it was so.
 
 [Genesis 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.9?lang=eng#p9)
 

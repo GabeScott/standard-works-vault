@@ -1,6 +1,6 @@
 # Proverbs 16:6
 
-> By mercy and truth iniquity is purged: and by the <u>fear</u>[^a] of the Lord men <u>depart</u>[^b] from <u>evil</u>[^c] .
+> By mercy and truth iniquity is purged: and by the <u>fear</u>[^a] of the LORD *men* <u>depart</u>[^b] from <u>evil</u>[^c].
 
 [Proverbs 16:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.6?lang=eng#p6)
 

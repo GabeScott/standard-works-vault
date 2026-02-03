@@ -1,6 +1,6 @@
 # Jeremiah 31:33
 
-> But this shall be the <u>covenant</u>[^a] that I will make with the house of Israel; After those days, saith the Lord , I will put my <u>law</u>[^b] in their inward parts, and write it in their <u>hearts</u>[^c]; and will be their God, and they shall be my people.
+> But this *shall be* the <u>covenant</u>[^a] that I will make with the house of Israel; After those days, saith the LORD, I will put my <u>law</u>[^b] in their inward parts, and write it in their <u>hearts</u>[^c]; and will be their God, and they shall be my people.
 
 [Jeremiah 31:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.33?lang=eng#p33)
 

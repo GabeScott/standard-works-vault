@@ -1,6 +1,6 @@
 # 1 Timothy 1:15
 
-> This is a faithful <u>saying</u>[^a], and worthy of all acceptation, that Christ Jesus came into the world to <u>save</u>[^b] <u>sinners</u>[^c]; of whom I am chief.
+> This *is* a faithful <u>saying</u>[^a], and worthy of all acceptation, that Christ Jesus came into the world to <u>save</u>[^b] <u>sinners</u>[^c]; of whom I am chief.
 
 [1 Timothy 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.15?lang=eng#p15)
 

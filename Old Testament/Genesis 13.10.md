@@ -1,6 +1,6 @@
 # Genesis 13:10
 
-> And Lot lifted up his eyes, and beheld all the plain of Jordan, that it was well watered every where, before the Lord destroyed <u>Sodom</u>[^a] and Gomorrah, even as the garden of the Lord , like the land of Egypt, as thou comest unto <u>Zoar</u>[^b] .
+> And Lot lifted up his eyes, and beheld all the plain of Jordan, that it *was* well watered every where, before the LORD destroyed <u>Sodom</u>[^a] and Gomorrah, *even* as the garden of the LORD, like the land of Egypt, as thou comest unto <u>Zoar</u>[^b].
 
 [Genesis 13:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/13.10?lang=eng#p10)
 

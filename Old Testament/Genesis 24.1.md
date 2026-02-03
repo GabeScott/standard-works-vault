@@ -1,6 +1,6 @@
 # Genesis 24:1
 
-> And Abraham was old, and well <u>stricken in age</u>[^a] : and the Lord had <u>blessed</u>[^b] Abraham in all <u>things</u>[^c] .
+> And Abraham was old, *and* well <u>stricken in age</u>[^a]: and the LORD had <u>blessed</u>[^b] Abraham in all <u>things</u>[^c].
 
 [Genesis 24:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.1?lang=eng#p1)
 

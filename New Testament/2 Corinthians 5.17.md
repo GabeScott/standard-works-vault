@@ -1,6 +1,6 @@
 # 2 Corinthians 5:17
 
-> Therefore if any man be <u>in Christ</u>[^a], he is a <u>new</u>[^b] creature: <u>old</u>[^c] things are <u>passed</u>[^d] away; behold, all things are become <u>new</u>[^e] .
+> Therefore if any man *be* <u>in Christ</u>[^a], *he is* a <u>new</u>[^b] creature: <u>old</u>[^c] things are <u>passed</u>[^d] away; behold, all things are become <u>new</u>[^e].
 
 [2 Corinthians 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.17?lang=eng#p17)
 

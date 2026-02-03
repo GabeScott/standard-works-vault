@@ -1,6 +1,6 @@
 # Joel 2:11
 
-> And the Lord shall utter his <u>voice</u>[^a] before his army: for his camp is very great: for he is strong that executeth his word: for the <u>day</u>[^b] of the Lord is <u>great</u>[^c] and very terrible; and who can <u>abide</u>[^d] it?
+> And the LORD shall utter his <u>voice</u>[^a] before his army: for his camp *is* very great: for *he is* strong that executeth his word: for the <u>day</u>[^b] of the LORD *is* <u>great</u>[^c] and very terrible; and who can <u>abide</u>[^d] it?
 
 [Joel 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.11?lang=eng#p11)
 
