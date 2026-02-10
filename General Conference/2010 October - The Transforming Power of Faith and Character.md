@@ -89,3 +89,6 @@ If you have determined to live righteously, don’t become discouraged. Life may
 
 
 
+
+
+#Character #Dedication #Faith #Holy_Ghost #Mortality #Obedience

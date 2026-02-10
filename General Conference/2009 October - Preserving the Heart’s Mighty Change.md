@@ -73,3 +73,6 @@ I pray that we may press forward with steadfast faith in Christ and endure joyfu
 
 [^11]: See Dieter F. Uchtdorf, in Conference Report, Oct. 2007, 16–19; or *Ensign,* Nov. 2007, 18–21.
 
+
+
+#Conversion #Endurance #Faith

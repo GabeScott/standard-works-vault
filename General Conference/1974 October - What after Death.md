@@ -75,3 +75,6 @@ I close my remarks today with my faith that the Lord knows what he is doing and 
 
 
 
+
+
+#Death #Jesus_Christ

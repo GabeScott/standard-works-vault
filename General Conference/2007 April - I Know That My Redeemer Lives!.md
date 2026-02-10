@@ -124,3 +124,6 @@ With all my heart and the fervency of my soul, I lift up my voice in testimony a
 
 [^21]: “I Know That My Redeemer Lives,” *Hymns,* no. 136; see also [[Job 19.25|Job 19:25]].
 
+
+
+#Jesus_Christ #Love #Plan_Of_Salvation #Resurrection

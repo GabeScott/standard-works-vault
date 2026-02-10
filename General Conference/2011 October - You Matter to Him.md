@@ -151,3 +151,6 @@ May we ever believe, trust, and align our lives so that we will understand our t
 
 [^22]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
+
+
+#Divine_Nature #Hope #Humility #Individual_Worth

@@ -139,3 +139,6 @@ May we do this, as members of the Church of Jesus Christ, which we are, and foll
 
 
 
+
+
+#Commitment #Obedience #Priesthood

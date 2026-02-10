@@ -65,3 +65,6 @@ I declare my apostolic witness that the Father and the Son live. The spirit of r
 
 
 
+
+
+#Church_History #Faith #Holy_Ghost #Obedience #Revelation

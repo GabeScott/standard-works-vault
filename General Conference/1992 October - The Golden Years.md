@@ -79,3 +79,6 @@ My beloved Brethren, my dear wife and I are still prepared to go wherever you wa
 
 
 
+
+
+#Elderly #Missionary_Work #Service

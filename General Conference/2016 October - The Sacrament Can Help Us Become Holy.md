@@ -107,3 +107,6 @@ I testify of the multitude of blessings available to us as we increase our prepa
 
 [^7]: David A. Bednar, “[[2016 April - Always Retain a Remission of Your Sins.md|Always Retain a Remission of Your Sins]],” *Ensign* or *Liahona,* May 2016, 61–62.
 
+
+
+#Holy_Ghost #Jesus_Christ #Music #Preparation #Sacrament

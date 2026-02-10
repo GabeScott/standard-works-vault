@@ -119,3 +119,6 @@ In [[2 Nephi 2.6|2 Nephi 2:6]] we read, “Wherefore, redemption cometh in and 
 
 [^31]: See [[3 Nephi 20.38|3 Nephi 20:38]]; see also [[Isaiah 55.2|Isaiah 55:2]].
 
+
+
+#Covenants #Discipleship #Grace #Trust #Youth

@@ -105,3 +105,6 @@ God lives. He is our Father. The Savior Jesus Christ lives, and I know that thro
 
 
 
+
+
+#Agency #Perspective

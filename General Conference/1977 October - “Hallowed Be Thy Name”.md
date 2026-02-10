@@ -55,3 +55,6 @@ May the Lord bless us to be reverent, prayerful, full of worship and devotion, u
 
 
 
+
+
+#Prayer #Reverence

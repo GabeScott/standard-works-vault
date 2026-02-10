@@ -73,3 +73,6 @@ Now he said in that chapter that the wisdom of their wise men shall perish and t
 
 
 
+
+
+#Prophecy #Restoration #Testimony

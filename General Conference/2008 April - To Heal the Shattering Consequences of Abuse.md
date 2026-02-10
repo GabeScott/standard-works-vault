@@ -69,5 +69,5 @@ I pray that you, as one abused or one who has caused it, will act now to avail y
 
 [^3]: See [[Deuteronomy 22.25|Deuteronomy 22:25–27]][[Deuteronomy 22.26|]][[Deuteronomy 22.27|]].
 
-[^4]: See *Church Handbook of Instructions, Book 1: Stake Presidencies and Bishoprics* (2006), 107–8, 110, 120, 122, 147, 186.
 
+#Abuse #Atonement #Healing

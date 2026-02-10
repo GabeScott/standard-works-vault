@@ -81,3 +81,6 @@ I bear testimony that this is the Church of Jesus Christ. He presides over it an
 
 
 
+
+
+#Faith #Obedience

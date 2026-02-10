@@ -68,4 +68,4 @@ I pray that each of us will develop a receptive and understanding heart that wil
 
 
 
-
+#Activation #Fellowshipping #Love #Service

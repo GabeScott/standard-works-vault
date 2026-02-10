@@ -63,3 +63,6 @@ May we look for the stars and find satisfaction, even joy, in living according t
 
 
 
+
+
+#Financial_Management #Preparation #Self-Reliance

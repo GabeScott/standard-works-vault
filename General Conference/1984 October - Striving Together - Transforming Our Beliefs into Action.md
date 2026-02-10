@@ -71,3 +71,6 @@ I bear witness of these things in the name of Jesus Christ, amen.
 
 
 
+
+
+#Covenants #Service

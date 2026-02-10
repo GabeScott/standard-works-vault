@@ -77,3 +77,6 @@ In the final days of the Nephite civilization, the prophet Mormon wrote a letter
 
 
 
+
+
+#Adversity #Plan_Of_Salvation

@@ -87,3 +87,6 @@ Therefore, let us dispense the means which the Lord has given us to enrich the l
 
 
 
+
+
+#Tithing #Wealth

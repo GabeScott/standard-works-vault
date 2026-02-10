@@ -70,4 +70,4 @@ I bear solemn witness that Jesus is the Christ, our Savior and Redeemer. He dire
 
 
 
-
+#Adversity #Faith #Holy_Ghost

@@ -105,3 +105,6 @@ Young women, your patriarchal blessing will help you know that you have a noble 
 
 [^27]: [[3 Nephi 12.16|3 Nephi 12:16]].
 
+
+
+#Covenants #Example #Patriarchal_Blessings #Spirituality

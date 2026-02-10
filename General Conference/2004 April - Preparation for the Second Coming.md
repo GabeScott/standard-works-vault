@@ -127,3 +127,6 @@ I testify of Jesus Christ. I testify that He shall come, as He has promised. And
 
 
 
+
+
+#Covenants #Preparation #Repentance

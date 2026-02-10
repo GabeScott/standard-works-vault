@@ -129,3 +129,6 @@ Brethren, great promises await us if we are true and faithful to the oath and co
 
 [^10]: [[John 13.35|John 13:35]].
 
+
+
+#Anger #Priesthood #Self-Control #Sin

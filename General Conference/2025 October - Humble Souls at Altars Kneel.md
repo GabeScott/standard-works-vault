@@ -161,3 +161,6 @@ In his October 2022 general conference talk, President Russell M. Nelson descri
 
 [^38]: “[Welcome Home](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/welcome-home-release-3?lang=eng&id=figure1_p12#figure1_p12),” *Hymns—For Home and Church*.
 
+
+
+#Atonement #Covenants #Healing #Humility #Jesus_Christ #Sacrament #Worship

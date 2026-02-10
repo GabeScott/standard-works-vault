@@ -39,3 +39,6 @@ I bear solemn witness that God lives, that He cares enough to direct His prophet
 
 
 
+
+
+#Endurance #Faith #Humility #Pride

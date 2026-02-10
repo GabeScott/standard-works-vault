@@ -46,4 +46,4 @@ I testify that our Lord, the Holy One of Israel, lives and that He directs His C
 
 
 
-
+#Adversity #Atonement #Church_Membership #Faith

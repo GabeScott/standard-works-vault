@@ -27,3 +27,6 @@ Upon a signal from the conductor, please join in singing “The Spirit of God.�
 
 [^1]: *Hymns,* no. 2.
 
+
+
+#First_Vision #Restoration

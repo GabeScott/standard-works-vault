@@ -75,3 +75,6 @@ Plan on completing the full four years of seminary. You know the institute is av
 
 
 
+
+
+#Education #Institute #Jesus_Christ #Scriptures #Seminary

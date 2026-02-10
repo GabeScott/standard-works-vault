@@ -121,3 +121,6 @@ Take a few more steps on the covenant path, even if it’s too dark to see very 
 
 [^29]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
+
+
+#Faith #Hope #Jesus_Christ

@@ -17,3 +17,6 @@ I know that this is the work of the Lord. I know that he lives. I know this. I k
 
 
 
+
+
+#Gratitude #Love

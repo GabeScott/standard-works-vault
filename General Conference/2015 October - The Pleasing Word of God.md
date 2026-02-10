@@ -84,4 +84,4 @@ It is my prayer that we may experience the joy that comes from striving to live 
 
 
 
-
+#Adversity #Atonement #Holy_Ghost #Prophets #Repentance #Sabbath

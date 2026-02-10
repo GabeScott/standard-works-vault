@@ -61,3 +61,6 @@ In the Holy Temple just east of the Tabernacle on Temple Square in Salt Lake Cit
 
 [^1]: *Gospel Standards,* comp. G. Homer Durham (Salt Lake City: Improvement Era, 1941), p. 150.
 
+
+
+#Faith #Love #Patience

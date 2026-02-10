@@ -133,3 +133,6 @@ I thank God for my testimony of Jesus and pray that all may be likewise blessed,
 
 [^25]: “The Living Christ: The Testimony of the Apostles.”
 
+
+
+#Atonement #Faith #Jesus_Christ #Prayer #Scripture_Study #Testimony

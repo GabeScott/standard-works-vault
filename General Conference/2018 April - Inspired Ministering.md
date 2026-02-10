@@ -111,3 +111,6 @@ I bear you my witness that the Lord has already begun a great step forward in Hi
 
 [^2]: Name has been changed.
 
+
+
+#Charity #Ministering #Priesthood_Quorums #Service

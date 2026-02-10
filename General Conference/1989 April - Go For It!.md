@@ -137,3 +137,6 @@ Brethren of the priesthood, like the Charles Dickens character Philip Pirrip, we
 
 
 
+
+
+#Dedication #Faith #Self-Esteem

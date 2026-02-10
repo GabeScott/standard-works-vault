@@ -197,3 +197,6 @@ May the voices of the Lord’s servants prevail, I pray in the name of Jesus Chr
 
 
 
+
+
+#Marriage #Morality

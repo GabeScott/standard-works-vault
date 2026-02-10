@@ -63,3 +63,6 @@ I love you. I pray for you. I would ask that you would remember me and all the G
 
 [^3]: [[Joshua 24.15|Joshua 24:15]].
 
+
+
+#General_Conference #Pornography #Prayer #Temples

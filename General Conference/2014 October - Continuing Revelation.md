@@ -105,3 +105,6 @@ As you listen in this conference to the words of those God has called to speak f
 
 [^6]: Boyd K. Packer, *Ensign,* May 1974, 95.
 
+
+
+#Family #Prophets #Revelation

@@ -121,5 +121,5 @@ As an Apostle of the Lord Jesus Christ, I bear my sure witness of the Savior’s
 
 [^23]: See [[2 Nephi 25.23|2 Nephi 25:23]].
 
-[^24]: Russell M. Nelson, Facebook, Aug. 1, 2022, facebook.com/russell.m.nelson; Twitter, Aug. 1, 2022, twitter.com/nelsonrussellm; Instagram, Aug. 1, 2022, instagram.com/russellmnelson; see also “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
 
+#Abuse #Anger #Atonement #Repentance #Testimony

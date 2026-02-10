@@ -69,3 +69,6 @@ The commandments are guides to happiness. I implore you to follow them.
 
 
 
+
+
+#Adversity #Joy #Sin

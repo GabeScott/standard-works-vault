@@ -73,3 +73,6 @@ I witness humbly that I know the Lord still guides his church through his servan
 
 
 
+
+
+#Leadership #Prophecy #Spirituality

@@ -125,3 +125,6 @@ Brethren, I have been privileged, as boy and man, to enjoy the warm, comforting 
 
 [^16]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 168.
 
+
+
+#Covenants #Example #Family #Family_History #Fatherhood #Idol_Worship #Love #Marriage #Motherhood #Ordinances #Priesthood #Profanity #Respect #Reverence

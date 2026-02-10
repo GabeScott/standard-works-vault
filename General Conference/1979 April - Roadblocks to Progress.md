@@ -92,3 +92,6 @@ May we strive for that day and knowledge, I humbly pray. God does live. He does 
 
 
 
+
+
+#Attitude #Repentance

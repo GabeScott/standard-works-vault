@@ -53,3 +53,6 @@ Eternal marriage is just like that. We need to treat it just that way. I pray th
 
 
 
+
+
+#Covenants #Love #Marriage #Temples

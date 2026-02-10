@@ -113,3 +113,6 @@ May we choose wisely, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
+
+
+#Agency #Media #Morality #Obedience

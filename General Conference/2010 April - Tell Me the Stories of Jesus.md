@@ -179,3 +179,6 @@ I testify that Jesus is the Christ, the Savior of all mankind. His life, His Ato
 
 [^44]: See [[Alma 26.12|Alma 26:12]].
 
+
+
+#Children #Jesus_Christ #Teaching #Youth

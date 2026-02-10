@@ -61,3 +61,6 @@ As servants of the Lord Jesus Christ, we can do it! Our honest effort to improve
 
 
 
+
+
+#Commitment #Courage #God_The_Father #Honesty #Jesus_Christ #Joseph_Smith #Priesthood #Scripture_Study #Scriptures #Self-Esteem

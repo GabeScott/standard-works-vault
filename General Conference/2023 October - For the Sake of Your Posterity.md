@@ -79,5 +79,5 @@ From the bottom of my heart, I invite you to think about it, to look ahead and e
 
 [^4]: [[D&C 76.79|Doctrine and Covenants 76:79]]; emphasis added.
 
-[^5]: M. Russell Ballard, “[[2016 October - To Whom Shall We Go.md|To Whom Shall We Go]]?,” *Ensign* or *Liahona*, Nov. 2016, 90–91; emphasis added.
 
+#Activation #Covenants #Family

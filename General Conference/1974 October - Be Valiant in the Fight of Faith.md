@@ -109,3 +109,6 @@ God grant us the wisdom and vision and determination, the valiance and courage, 
 
 
 
+
+
+#Commitment #Testimony

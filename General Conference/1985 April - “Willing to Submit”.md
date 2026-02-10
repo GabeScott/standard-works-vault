@@ -115,3 +115,6 @@ May we now, in our time and turn, be “willing to submit” ([[Mosiah 3.19|Mosi
 
 
 
+
+
+#Obedience

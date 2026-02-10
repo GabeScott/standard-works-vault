@@ -37,3 +37,6 @@ Finally, I share the prayer of my heart with you at this time. May I display in 
 
 
 
+
+
+#Sacrifice #Service

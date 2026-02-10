@@ -67,3 +67,6 @@ May we be blessed as the psalmist said: “Blessed is he that considereth the po
 
 
 
+
+
+#Social_Services #Welfare

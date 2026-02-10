@@ -54,4 +54,4 @@ May you and I receive the revelation to know how to best approach those in our l
 
 
 
-
+#Activation #Family #Jesus_Christ #Love #Patience

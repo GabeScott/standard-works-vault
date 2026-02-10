@@ -91,3 +91,6 @@ We need not fear as we see our children enter the waters of life, for we have he
 
 [^11]: Richard G. Scott, “[[2009 October - To Acquire Spiritual Guidance.md|To Acquire Spiritual Guidance]],” *Ensign* or *Liahona,* Nov. 2009, 7.
 
+
+
+#Baptism #Children #Covenants #Holy_Ghost #Teaching

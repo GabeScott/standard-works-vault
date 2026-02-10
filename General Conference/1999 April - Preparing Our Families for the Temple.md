@@ -69,3 +69,6 @@ Brothers and sisters, as servants of the living God, we shall press forward in t
 
 
 
+
+
+#Children #Covenants #Parenthood #Preparation #Satan #Spirituality #Teaching #Temple_Work #Temples

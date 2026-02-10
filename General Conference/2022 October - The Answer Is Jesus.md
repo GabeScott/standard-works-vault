@@ -111,5 +111,5 @@ I love the Savior. I bear witness of His name, even Jesus Christ. I testify that
 
 [^10]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
 
-[^11]: [[Hebrews 12.2|Hebrews 12:2]].
 
+#Adversity #Jesus_Christ #Missionary_Work #Youth

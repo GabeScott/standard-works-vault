@@ -83,3 +83,6 @@ My brethren, I have spoken plainly tonight. I hope you can feel the love and the
 
 
 
+
+
+#Fatherhood #Missionary_Work #Preparation #Worthiness

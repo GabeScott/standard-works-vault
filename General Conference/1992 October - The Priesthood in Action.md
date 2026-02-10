@@ -101,3 +101,6 @@ To this divine truth I testify as I leave my witness with you that this work is 
 
 [^1]: *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), pp. 469–70.
 
+
+
+#Missionary_Work #Priesthood #Service

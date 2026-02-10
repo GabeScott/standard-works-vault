@@ -89,5 +89,5 @@ I solemnly bear my testimony that the constant pursuit of temperance purifies ou
 
 [^19]: [[1 Peter 2.23|1 Peter 2:23]].
 
-[^20]: [[D&C 19.19|Doctrine and Covenants 19:19]].
 
+#Adversity #Anger #Discipleship #Jesus_Christ #Patience

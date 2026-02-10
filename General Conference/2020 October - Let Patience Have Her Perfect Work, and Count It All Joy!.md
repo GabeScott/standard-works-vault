@@ -70,4 +70,4 @@ I witness of the redeeming, sanctifying, humbling, and joyous power of the Savio
 
 
 
-
+#Adversity #Faith #Patience

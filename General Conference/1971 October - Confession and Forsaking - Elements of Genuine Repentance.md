@@ -85,3 +85,6 @@ It may not be easy—the road may be long, but I leave you my witness it is the 
 
 
 
+
+
+#Bishops #Repentance

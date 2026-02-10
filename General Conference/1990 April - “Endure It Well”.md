@@ -97,3 +97,6 @@ For the eloquence and for the exquisiteness and the elegance of Christ’s everl
 
 
 
+
+
+#Adversity #Endurance #Faith

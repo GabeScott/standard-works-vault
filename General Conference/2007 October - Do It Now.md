@@ -59,3 +59,6 @@ It is my witness that you and all of us can change, and it can be now. It may no
 
 
 
+
+
+#Preparation #Priorities #Repentance #Time_Management

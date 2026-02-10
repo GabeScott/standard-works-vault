@@ -105,3 +105,6 @@ Elisha’s counsel can help Church members today to silence our murmuring. Regar
 
 [^2]: *Testimonies of the Divinity of The Church of Jesus Christ of Latter-day Saints by Its Leaders,* comp. Joseph E. Cardon and Samuel O. Bennion, Independence, Mo.: Zion’s Printing and Publishing Co., 1930, pp. 103, 105.
 
+
+
+#Adversity #Criticism #Obedience

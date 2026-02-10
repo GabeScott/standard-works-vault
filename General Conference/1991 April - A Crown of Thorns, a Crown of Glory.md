@@ -65,3 +65,6 @@ I conclude with the words of Ezekiel, “And thou, son of man, … though briers
 
 
 
+
+
+#Adversity #Atonement #Conscience #Holy_Ghost #Jesus_Christ #Repentance #Responsibility

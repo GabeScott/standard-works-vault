@@ -55,3 +55,6 @@ May we remember together to “make a joyful noise unto the Lord, all ye lands.
 
 
 
+
+
+#Agency #Commandments #Individual_Worth #Sacrifice

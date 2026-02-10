@@ -87,3 +87,6 @@ I bear you my testimony, my brethren, that we hold the priesthood of God. This i
 
 
 
+
+
+#Fellowshipping #Plan_Of_Salvation #Word_Of_Wisdom #Youth

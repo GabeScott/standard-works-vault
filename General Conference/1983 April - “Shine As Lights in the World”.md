@@ -111,3 +111,6 @@ In the holy name of Jesus Christ, amen.
 
 
 
+
+
+#Endurance #Hope

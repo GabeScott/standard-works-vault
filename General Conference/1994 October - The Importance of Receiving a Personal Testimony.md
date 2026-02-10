@@ -89,3 +89,6 @@ To the other testimonies borne this day, I wish to add my own testimony in the s
 
 
 
+
+
+#Faith #Joseph_Smith #Obedience #Prayer #Prophets #Service #Testimony

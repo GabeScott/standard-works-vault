@@ -117,5 +117,5 @@ I bear my witness of this sacred truth in the name of Jesus Christ, amen.
 
 [^22]: [[Isaiah 58.10|Isaiah 58:10–12]][[Isaiah 58.11|]][[Isaiah 58.12|]].
 
-[^23]: [[D&C 51.19|D&C 51:19]]; see also [[Matthew 25.34|Matthew 25:34–46]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]][[Matthew 25.41|]][[Matthew 25.42|]][[Matthew 25.43|]][[Matthew 25.44|]][[Matthew 25.45|]][[Matthew 25.46|]].
 
+#Accountability #Family #Morality #Service #Virtue

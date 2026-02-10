@@ -97,3 +97,6 @@ May the Lord continue to bless us with the faith to follow the inspired leadersh
 
 
 
+
+
+#Fasting #Welfare

@@ -59,3 +59,6 @@ Dear sisters, I have felt the love of the Lord often in my life. On the good day
 
 [^11]: [[Joshua 24.15|Joshua 24:15]]; emphasis added.
 
+
+
+#Agency #Faith #Family #Home #Jesus_Christ

@@ -99,3 +99,6 @@ How grateful and happy I am for the decision that my father let me make 47 years
 
 [^14]: [[Mark 1.40|Mark 1:40]].
 
+
+
+#Conversion #Discipleship #Responsibility

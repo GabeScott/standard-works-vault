@@ -45,3 +45,6 @@ My pilgrimage back in time completed, I looked around upon those peaceful fields
 
 
 
+
+
+#Atonement #Mercy #Repentance

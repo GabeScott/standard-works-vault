@@ -39,3 +39,6 @@ I invoke a blessing upon all who are seeking greater light, knowledge, and truth
 
 [^4]: See [[D&C 88.73|Doctrine and Covenants 88:73]].
 
+
+
+#Church_Doctrine #General_Conference #Jesus_Christ #Revelation #Truth

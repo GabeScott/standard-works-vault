@@ -99,3 +99,6 @@ I leave you my special witness of the truthfulness of this great work. All of us
 
 
 
+
+
+#Gratitude #Humility

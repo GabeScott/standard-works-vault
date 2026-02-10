@@ -101,3 +101,6 @@ As members of the Church of Jesus Christ, ours is a ministry of healing, with a 
 
 
 
+
+
+#Healing #Jesus_Christ #Sin

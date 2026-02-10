@@ -175,3 +175,6 @@ Dear sisters, dear young women of the Church, dear young friends, as an Apostle 
 
 [^11]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
+
+
+#Love #Mortality #Plan_Of_Salvation #Premortal_Existence

@@ -81,3 +81,6 @@ May the Lord bless all of us to this end, I pray humbly, in the name of Jesus Ch
 
 
 
+
+
+#Financial_Management #Preparation #Self-Reliance

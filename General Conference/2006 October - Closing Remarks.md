@@ -23,3 +23,6 @@ For this we pray as we bid you good-bye for another six months, in the sacred an
 
 
 
+
+
+#General_Conference #Peace

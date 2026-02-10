@@ -57,3 +57,6 @@ I believe that each one of you has the power to change the world. Believe in you
 
 
 
+
+
+#Endurance #Prayer #Scripture_Study #Trust

@@ -184,3 +184,6 @@ I further testify that The Church of Jesus Christ of Latter-day Saints—present
 
 
 
+
+
+#Blessings #Jesus_Christ

@@ -83,3 +83,6 @@ May the Lord help us so to understand and do, and fill our stations, and not be 
 
 
 
+
+
+#Compassion #Forgiveness #Repentance

@@ -62,4 +62,4 @@ As you accept this invitation, you will learn a great lesson, as did Elder Misie
 
 
 
-
+#Activation #Book_Of_Mormon #Missionary_Work #Sacrifice #Service #Youth

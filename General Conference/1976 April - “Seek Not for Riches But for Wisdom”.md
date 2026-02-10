@@ -82,4 +82,4 @@ I bear you my witness that I know that God lives and that Jesus is the Christ. A
 
 
 
-
+#Activation #Family #Wealth #Wisdom

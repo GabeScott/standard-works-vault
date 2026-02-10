@@ -127,5 +127,5 @@ I witness that Jesus is the Christ. He is the source of all joy.[^27] His grace 
 
 [^29]: See “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* May 2017, inside front cover.
 
-[^30]: See [[1 Nephi 1.14|1 Nephi 1:14]].
 
+#Adversity #Book_Of_Mormon #Trust

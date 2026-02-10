@@ -55,3 +55,6 @@ I testify of the divinity of Christ and the reality of His mission to bring to p
 
 
 
+
+
+#Commandments #Contention #Faith #Fatherhood #Jesus_Christ #Love #Motherhood #Neighbors #Prayer #Service

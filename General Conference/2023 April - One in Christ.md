@@ -139,3 +139,6 @@ This morning, I bear witness of His literal Resurrection and all that it implies
 
 [^28]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97; emphasis in original.
 
+
+
+#Contention #Jesus_Christ #Love #Unity

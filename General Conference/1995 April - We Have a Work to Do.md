@@ -49,3 +49,6 @@ At the opening of this session, the choir sang a wonderful hymn. “Faith of our
 
 
 
+
+
+#Church_Organization #Commitment #Faith #Family #General_Conference #Honesty #Love #Media #Respect #Temples #Time_Management #Work #Youth

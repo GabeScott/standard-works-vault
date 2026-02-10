@@ -109,5 +109,5 @@ My beloved brethren, may we be filled with gratitude for the *right* of choice, 
 
 [^13]: See Clayton M. Christensen, “Decisions for Which I’ve Been Grateful” (Brigham Young University–Idaho devotional, June 8, 2004), www.byui.edu/presentations.
 
-[^14]: [[Isaiah 52.11|Isaiah 52:11]].
 
+#Accountability #Agency

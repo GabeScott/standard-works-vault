@@ -77,3 +77,6 @@ God help us to shake off and break the chains with which we are bound. With Godâ
 
 
 
+
+
+#Commitment #Repentance #Word_Of_Wisdom

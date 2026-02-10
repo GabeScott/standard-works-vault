@@ -109,3 +109,6 @@ To young men who are here who have not yet been to the temple, may I suggest tha
 
 
 
+
+
+#Honesty #Temples #Worthiness

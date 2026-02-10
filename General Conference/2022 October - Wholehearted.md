@@ -109,5 +109,5 @@ Arm in arm with you, I want to stand with Him forever. Wholehearted. Knowing tha
 
 [^17]: See [[Isaiah 40.31|Isaiah 40:31]].
 
-[^18]: See [[Romans 8.14|Romans 8:14–18, 28, 38–39]][[Romans 8.15|]][[Romans 8.16|]][[Romans 8.17|]][[Romans 8.18|]][[Romans 8.28|]][[Romans 8.38|]][[Romans 8.39|]].
 
+#Adversity #Covenants #Discipleship #Faith #Jesus_Christ

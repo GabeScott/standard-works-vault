@@ -31,3 +31,6 @@ I bid you farewell until we meet again in six months’ time, and I do so in the
 
 
 
+
+
+#General_Conference #Love

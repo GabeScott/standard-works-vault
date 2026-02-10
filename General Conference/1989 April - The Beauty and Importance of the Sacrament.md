@@ -87,3 +87,6 @@ Yes, I know he gives life—in all of its depth of meaning. As the emblems of hi
 
 
 
+
+
+#Sacrament #Worthiness

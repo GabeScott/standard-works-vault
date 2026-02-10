@@ -116,3 +116,6 @@ In the name of Jesus Christ, amen.
 
 [^28]: “As the Dew from Heaven Distilling,” *Hymns,* no. 149.
 
+
+
+#Obedience #Ordinances #Priesthood

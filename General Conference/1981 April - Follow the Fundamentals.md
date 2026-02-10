@@ -37,3 +37,6 @@ I am grateful for the welfare instructions we receive in this session of our con
 
 
 
+
+
+#Fasting #Sacrifice

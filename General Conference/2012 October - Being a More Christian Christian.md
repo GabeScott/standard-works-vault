@@ -107,3 +107,6 @@ These are some of the characteristics of those who hear and heed the Savior’s 
 
 [^16]: [[Luke 18.22|Luke 18:22]].
 
+
+
+#Christianity #Discipleship

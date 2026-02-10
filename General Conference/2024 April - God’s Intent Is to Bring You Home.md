@@ -119,3 +119,6 @@ This is the good news! I am unspeakably grateful for these simple truths. The Fa
 
 [^25]: See [[Matthew 27.50|Matthew 27:50–51]][[Matthew 27.51|]]; [[Hebrews 9.6|Hebrews 9:6–12]][[Hebrews 9.7|]][[Hebrews 9.8|]][[Hebrews 9.9|]][[Hebrews 9.10|]][[Hebrews 9.11|]][[Hebrews 9.12|]].
 
+
+
+#Atonement #Jesus_Christ #Plan_Of_Salvation #Repentance

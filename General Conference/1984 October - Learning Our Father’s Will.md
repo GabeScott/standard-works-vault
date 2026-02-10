@@ -71,3 +71,6 @@ May each of us attend our meetings regularly, study and ponder the words of God 
 
 
 
+
+
+#Church_Meetings #Scriptures

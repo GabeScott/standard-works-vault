@@ -95,5 +95,5 @@ I know that God the Father lives. I testify that He hears and answers our every 
 
 [^7]: [[3 Nephi 18.22|3 Nephi 18:22]].
 
-[^8]: [[Matthew 25.21|Matthew 25:21]].
 
+#Adversity #Endurance #Prayer #Scripture_Study #Service

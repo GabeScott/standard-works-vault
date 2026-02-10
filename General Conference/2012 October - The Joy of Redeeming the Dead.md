@@ -79,3 +79,6 @@ This work is a spiritual work, a monumental effort of cooperation on both sides 
 
 [^9]: Jeanene Watkins Scott, personal journal, Sept. 23, 1989.
 
+
+
+#Family_History #Temple_Work

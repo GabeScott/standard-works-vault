@@ -75,3 +75,6 @@ To me, the greatest miracles in life are not the parting of the Red Sea, the mov
 
 [^4]: Jeffrey R. Holland, “[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona,* May 2012, 33.
 
+
+
+#Atonement #Jesus_Christ #Joy #Plan_Of_Salvation #Repentance

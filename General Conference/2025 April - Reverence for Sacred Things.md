@@ -73,3 +73,6 @@ I testify to you that as we strive to incorporate such virtue into our daily liv
 
 [^13]: See [[D&C 136.28|Doctrine and Covenants 136:28]].
 
+
+
+#Discipleship #Joy #Reverence #Spiritual_Growth

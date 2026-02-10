@@ -89,3 +89,6 @@ Brothers and sisters, I testify that no one of us is less treasured or cherished
 
 [^15]: [[Revelation 7.14|Rev. 7:14]].
 
+
+
+#Covetousness #Generosity #Love #Service

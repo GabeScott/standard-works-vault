@@ -203,5 +203,5 @@ Of this I testify and bear witness in the sacred name of Jesus Christ, amen.
 
 [^30]: See [[3 Nephi 9.20|3 Nephi 9:20]]; [[D&C 20.37|Doctrine and Covenants 20:37]].
 
-[^31]: See [[D&C 88.63|Doctrine and Covenants 88:63]].
 
+#Adversity #God_The_Father #Hope #Jesus_Christ #Love #Plan_Of_Salvation #Repentance

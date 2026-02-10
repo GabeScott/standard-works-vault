@@ -105,3 +105,6 @@ I testify to you that following the Lord’s will in our life will enable us to 
 
 [^23]: See Guide to the Scriptures, “[Consecrate, Law of Consecration](https://churchofjesuschrist.org/study/scriptures/gs/consecrate-law-of-consecration?lang=eng),” Gospel Library.
 
+
+
+#Agency #Discipleship #Eternal_Life #Humility #Jesus_Christ

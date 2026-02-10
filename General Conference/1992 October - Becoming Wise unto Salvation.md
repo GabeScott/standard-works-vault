@@ -53,3 +53,6 @@ It is my witness that President Ezra Taft Benson, his Counselors, and the member
 
 
 
+
+
+#General_Conference #Prophets #Scriptures

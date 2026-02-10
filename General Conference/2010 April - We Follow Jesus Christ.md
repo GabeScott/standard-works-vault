@@ -111,3 +111,6 @@ I bear my apostolic witness that Jesus Christ lives and is the Savior and Redeem
 
 [^21]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
+
+
+#Atonement #Jesus_Christ #Safety

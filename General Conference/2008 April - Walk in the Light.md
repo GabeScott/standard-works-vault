@@ -75,5 +75,5 @@ This is the true Church of Jesus Christ. There is a living prophet, Thomas S. M
 
 [^2]: [[Moroni 7.16|Moroni 7:16–17]][[Moroni 7.17|]].
 
-[^3]: [[Moroni 7.18|Moroni 7:18–20]][[Moroni 7.19|]][[Moroni 7.20|]].
 
+#Accountability #Holy_Ghost #Jesus_Christ

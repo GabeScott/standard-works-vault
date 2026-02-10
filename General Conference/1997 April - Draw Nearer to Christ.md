@@ -23,3 +23,6 @@ I know we can overcome the challenges that come our way because we are daughters
 
 
 
+
+
+#Jesus_Christ #Scriptures #Young_Women

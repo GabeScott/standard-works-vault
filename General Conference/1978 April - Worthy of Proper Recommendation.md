@@ -95,3 +95,6 @@ May we strive every day to live worthy in every way of this great privilege and 
 
 
 
+
+
+#Character #Worthiness #Youth

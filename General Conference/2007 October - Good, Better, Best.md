@@ -89,3 +89,6 @@ I testify of our Heavenly Father, whose children we are and whose plan is design
 
 [^9]: “America the Beautiful,” *Hymns,* no. 338.
 
+
+
+#Family #Priorities #Teaching

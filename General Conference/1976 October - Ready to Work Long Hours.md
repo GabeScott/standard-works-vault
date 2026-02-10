@@ -91,3 +91,6 @@ May we meet there when we have finished our work here I humbly pray in the name 
 
 
 
+
+
+#Priesthood #Temptation #Work

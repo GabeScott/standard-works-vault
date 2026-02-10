@@ -25,3 +25,6 @@ Such have been the declarations of this man who stands today as the Lord’s pro
 
 
 
+
+
+#Ezra_Taft_Benson #Obedience #Prophets

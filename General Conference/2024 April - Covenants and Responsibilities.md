@@ -93,3 +93,6 @@ I testify of Jesus Christ, who is the head of that Church, and invoke His blessi
 
 [^19]: [[D&C 14.7|Doctrine and Covenants 14:7]].
 
+
+
+#Book_Of_Mormon #Church_History #Commitment #Covenants #Discipleship #Responsibility #Temple_Work #Temples

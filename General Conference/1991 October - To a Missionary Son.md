@@ -65,3 +65,6 @@ The work in which you are engaged is true. You are teaching the restored gospel 
 
 
 
+
+
+#Faith #Humility #Missionary_Work #Obedience #Scriptures

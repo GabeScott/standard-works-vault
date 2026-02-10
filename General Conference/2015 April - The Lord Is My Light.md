@@ -145,3 +145,6 @@ On this Easter weekend, as one of the Savior’s Apostles, I bear solemn witness
 
 [^26]: [[Psalms 27.1|Psalm 27:1]]; see also “The Lord Is My Light,” *Hymns,* no. 89.
 
+
+
+#Church_Growth #Faith #Family #Home #Jesus_Christ #Unity

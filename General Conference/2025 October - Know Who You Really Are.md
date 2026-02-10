@@ -101,3 +101,6 @@ I testify that we have a loving Heavenly Father. As we come to know this eternal
 
 [^18]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
+
+
+#Divine_Nature #God_The_Father #Jesus_Christ #Prayer

@@ -53,3 +53,6 @@ I lovingly plead, “Do not procrastinate the day of your repentance” ([[Alma 
 
 
 
+
+
+#Atonement #Conscience #Repentance #Sin

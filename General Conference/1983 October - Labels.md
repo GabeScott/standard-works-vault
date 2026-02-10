@@ -87,3 +87,6 @@ Like a golden thread woven through the tapestry of life is the message on the la
 
 
 
+
+
+#Attitude #Disabilities #Faith #Humility #Jesus_Christ #Judging #Service #Spirituality

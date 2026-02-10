@@ -137,3 +137,6 @@ Our Father wants all His children who will to enjoy eternal life with Him in His
 
 [^36]: [[Moroni 7.27|Moroni 7:27]].
 
+
+
+#Example #Jesus_Christ #Plan_Of_Salvation #Testimony

@@ -135,5 +135,5 @@ With all my heart, I invite you to trust the doctrine of Christ and build your l
 
 [^36]: See [[John 3.16|John 3:16–17]][[John 3.17|]].
 
-[^37]: See [[John 16.20|John 16:20]].
 
+#Adversity #Church_Doctrine #Jesus_Christ #Repentance #Trust

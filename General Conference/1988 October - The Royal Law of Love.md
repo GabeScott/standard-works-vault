@@ -77,3 +77,6 @@ That we may do so, I humbly pray, in the name of Jesus Christ, amen.
 
 
 
+
+
+#Compassion #Love #Service

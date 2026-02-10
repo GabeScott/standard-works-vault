@@ -87,3 +87,6 @@ I pray that we will. In the name of Jesus Christ, amen.
 
 
 
+
+
+#Holy_Ghost #Obedience #Prayer #Prophets #Scripture_Study #Spirituality

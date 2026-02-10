@@ -69,3 +69,6 @@ I testify that through the Prophet Joseph Smith we have received countless revel
 
 [^19]: [[D&C 88.40|D&C 88:40]].
 
+
+
+#Holy_Ghost #Humility #Obedience

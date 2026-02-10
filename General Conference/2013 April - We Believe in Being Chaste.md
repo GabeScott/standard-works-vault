@@ -81,3 +81,6 @@ The doctrine I have described will seem to be archaic and outdated to many peopl
 
 
 
+
+
+#Morality #Plan_Of_Salvation #Repentance

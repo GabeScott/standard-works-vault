@@ -89,5 +89,5 @@ Brothers and sisters, I bear witness of Jesus Christ. I know He lives. He is our
 
 [^18]: [[1 Corinthians 2.16|1 Corinthians 2:16]].
 
-[^19]: [[Alma 27.17|Alma 27:17]]; see also [[Alma 31.38|Alma 31:38]].
 
+#Adversity #Holy_Ghost #Jesus_Christ #Obedience #Prophets

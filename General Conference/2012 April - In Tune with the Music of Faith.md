@@ -115,3 +115,6 @@ Let us, therefore, wherever we are on the path of discipleship in Lehi’s visio
 
 [^27]: “When Faith Endures,” *Hymns,* no. 128.
 
+
+
+#Book_Of_Mormon #Faith #Family #Scripture_Study

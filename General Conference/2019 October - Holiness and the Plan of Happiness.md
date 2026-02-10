@@ -151,5 +151,5 @@ I testify that Joseph Smith was a prophet of God, that President Russell M. Nel
 
 [^16]: Dallin H. Oaks, “[[1985 October - Spirituality.md|Spirituality]],” *Ensign,* Nov. 1985, 63.
 
-[^17]: “More Holiness Give Me,” *Hymns,* no. 131.
 
+#Adversity #Atonement #Holiness #Jesus_Christ #Joy #Plan_Of_Salvation #Repentance

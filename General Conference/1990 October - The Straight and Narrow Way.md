@@ -105,3 +105,6 @@ I bear solemn testimony that Jesus is the Holy One of Israel, our Savior, and ou
 
 
 
+
+
+#Morality #Obedience #Prayer #Pride #Prophets #Scriptures #Service #Temptation #Worldliness

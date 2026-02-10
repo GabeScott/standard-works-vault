@@ -116,4 +116,4 @@ Knowing this work to be true, we go forward, each of us. May we make a renewed e
 
 
 
-
+#Abortion #Abuse #Children #Church_Doctrine #Church_Organization #Family #Godhead #Homosexuality #Honesty #Jesus_Christ #Joseph_Smith #Joy #Marriage #Media #Prophets #Sin #Tithing

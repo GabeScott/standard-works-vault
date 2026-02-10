@@ -95,3 +95,6 @@ Loving service anonymously given may be unknown to man—but the gift and the gi
 
 
 
+
+
+#Charity #Generosity #Service

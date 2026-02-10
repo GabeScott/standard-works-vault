@@ -89,3 +89,6 @@ God bless you, my brethren, young and old, that the watch-care of the Lord may b
 
 
 
+
+
+#Marriage #Temptation

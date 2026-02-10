@@ -103,3 +103,6 @@ As the world continues to ripen in iniquity, our lives of necessity must become 
 
 
 
+
+
+#Blessings #Obedience #Pride

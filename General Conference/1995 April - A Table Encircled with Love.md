@@ -73,3 +73,6 @@ My plea today is that each of us will look carefully at our homes and at the kit
 
 [^9]: *Strengthening the Home,* pamphlet, 1973, p. 7.
 
+
+
+#Family #Home #Prayer #Scripture_Study #Unity

@@ -111,5 +111,5 @@ Brothers and sisters, as we repent of our sins and come boldly to the “throne 
 
 [^29]: [[Hebrews 4.16|Hebrews 4:16]].
 
-[^30]: [[Job 42.3|Job 42:3]].
 
+#Adversity #Gratitude #Jesus_Christ #Prayer

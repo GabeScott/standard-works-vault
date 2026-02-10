@@ -89,3 +89,6 @@ I pray that you will be securely tied back to God, that His eternal truths will 
 
 [^13]: “Deny yourselves of all ungodliness” ([[Moroni 10.32|Moroni 10:32]]). Do not fear man more than God (see [[D&C 3.7|Doctrine and Covenants 3:7]]; [[D&C 59.5|59:5]]).
 
+
+
+#Faith #Jesus_Christ #Scriptures

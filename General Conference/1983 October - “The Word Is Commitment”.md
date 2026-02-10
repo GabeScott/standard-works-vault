@@ -95,3 +95,6 @@ The word is *commitment.* To be something, we must be committed. God is our Fath
 
 
 
+
+
+#Commitment

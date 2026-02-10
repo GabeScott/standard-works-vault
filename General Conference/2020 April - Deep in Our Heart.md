@@ -135,3 +135,6 @@ I testify that God continues to do all things necessary to prepare His people fo
 
 [^36]: [[Moroni 10.32|Moroni 10:32]].
 
+
+
+#Agency #Goals #Sacrifice #Spirituality #Youth

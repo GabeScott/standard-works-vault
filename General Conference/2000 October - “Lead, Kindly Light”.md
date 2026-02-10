@@ -45,3 +45,6 @@ I know from my own experience, just as surely as Josh knows from his, of the rea
 
 
 
+
+
+#Agency #Commandments #Covenants #Faith #Jesus_Christ #Loneliness #Sin #Truth

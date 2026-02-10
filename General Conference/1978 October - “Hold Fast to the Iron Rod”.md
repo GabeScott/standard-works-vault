@@ -85,3 +85,6 @@ May the Lord bless us, each one, to hold fast to the iron rod, I humbly pray, in
 
 
 
+
+
+#Family_History #Sabbath #Self-Reliance #Spirituality

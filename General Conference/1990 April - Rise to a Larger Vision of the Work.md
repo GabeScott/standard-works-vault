@@ -91,3 +91,6 @@ This is the work of the Almighty. Let us never forget that. It is the work of Hi
 
 
 
+
+
+#Financial_Management #Jesus_Christ #Prophets #Tithing

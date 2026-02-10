@@ -137,3 +137,6 @@ God grant that we may awaken to our plight and change our course while there is 
 
 
 
+
+
+#Morality #Prophecy

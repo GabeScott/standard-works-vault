@@ -151,5 +151,5 @@ God bless you, noble men of the Aaronic Priesthood, in the name of Jesus Christ,
 
 [^17]: See [[D&C 110.7|D&C 110:7–9]][[D&C 110.8|]][[D&C 110.9|]]; text is adapted from the Aaronic Priesthood mission statement in *Aaronic Priesthood Leadership Handbook* (1991), 6.
 
-[^18]: Poem by Keith B. McMullin.
 
+#Activation #Atonement #Priesthood #Youth

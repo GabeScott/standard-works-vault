@@ -133,3 +133,6 @@ If we truly listen, we may hear that voice from far away say to us, as it spoke 
 
 [^15]: [[Matthew 25.21|Matthew 25:21]].
 
+
+
+#Compassion #Love #Service

@@ -71,3 +71,6 @@ And finally this promise from the Master: “And again, be patient in tribulatio
 
 
 
+
+
+#Adversity #Dedication

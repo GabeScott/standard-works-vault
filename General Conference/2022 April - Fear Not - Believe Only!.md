@@ -96,5 +96,5 @@ Someone who faced circumstances far more desperate than you and I ever will once
 
 [^19]: See [[Mosiah 16.9|Mosiah 16:9]]; [[3 Nephi 9.18|3 Nephi 9:18]]; [[3 Nephi 11.11|11:11]]; [[Ether 4.12|Ether 4:12]]; see also [[John 8.12|John 8:12]].
 
-[^20]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
+#Adversity #Fear #Hope #Jesus_Christ #Light_Of_Christ #Suicide #Youth

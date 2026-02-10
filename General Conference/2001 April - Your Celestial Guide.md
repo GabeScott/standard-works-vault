@@ -67,3 +67,6 @@ If He knows one young woman in a faraway branch in British Columbia, He knows yo
 
 
 
+
+
+#Adversity #Holy_Ghost #Obedience #Patriarchal_Blessings #Prayer #Sacrament #Spirituality #Temptation #Young_Women

@@ -131,5 +131,5 @@ This is my witness and testimony, in the sacred name of Him who will always come
 
 [^28]: Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign*, Nov. 1999, 38; *Liahona*, Jan. 2000, 45.
 
-[^29]: [[D&C 68.6|Doctrine and Covenants 68:6]].
 
+#Adversity #Covenants #Death #Faith #Hope #Jesus_Christ #Miracles #Obedience

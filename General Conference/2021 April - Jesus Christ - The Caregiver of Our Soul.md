@@ -109,5 +109,5 @@ My dear brothers and sisters, on this Easter Sunday, I bear my solemn witness th
 
 [^29]: See [[Moses 1.39|Moses 1:39]].
 
-[^30]: See [[John 11.25|John 11:25]].
 
+#Adversity #Atonement #Jesus_Christ #Repentance

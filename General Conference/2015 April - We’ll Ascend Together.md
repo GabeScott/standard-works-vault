@@ -139,3 +139,6 @@ emp.byui.edu/SATTERFIELDB/PDF/RoleManWoman2.pdf
 
 [^18]: Jeffrey R. Holland, “The Tongue of Angels,” *Ensign* or *Liahona,* May 2007, 18.
 
+
+
+#Communication #Fatherhood #Kindness #Love #Marriage #Safety

@@ -45,3 +45,6 @@ In conclusion, I bear testimony that feasting upon the words of Christ can happe
 
 
 
+
+
+#Jesus_Christ #Scriptures

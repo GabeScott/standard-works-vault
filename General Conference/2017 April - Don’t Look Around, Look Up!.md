@@ -65,5 +65,5 @@ I bear witness of Jesus Christ, that He is our Savior and Redeemer. When we foll
 
 [^7]: Thomas S. Monson, “[[2016 April - Choices.md|Choices]],” *Ensign* or *Liahona,* May 2016, 86.
 
-[^8]: [[D&C 100.15|Doctrine and Covenants 100:15]].
 
+#Adversity #Conversion #Family_History #Missionary_Work #Perspective #Temple_Work

@@ -119,5 +119,5 @@ For all who suffer, I pray, “May God grant unto you that your burdens may be l
 
 [^26]: The more appropriate scriptural word for *recipient* is *partaker* (see [[Ether 12.6|Ether 12:6–9]][[Ether 12.7|]][[Ether 12.8|]][[Ether 12.9|]]).
 
-[^27]: [[Alma 33.23|Alma 33:23]].
 
+#Adversity #Covenants #Hope #Jesus_Christ #Joy

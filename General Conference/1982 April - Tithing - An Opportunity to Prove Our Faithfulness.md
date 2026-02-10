@@ -97,3 +97,6 @@ God bless you, my brethren of the priesthood, with faith and testimony and a lov
 
 
 
+
+
+#Leadership #Missionary_Work #Tithing

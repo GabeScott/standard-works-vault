@@ -89,3 +89,6 @@ I pledge my life, my strength—all that I have to offer—in serving Him and in
 
 [^6]: [[Jeremiah 8.22|Jeremiah 8:22]].
 
+
+
+#Church_History #Leadership #Prophets #Testimony #Unity

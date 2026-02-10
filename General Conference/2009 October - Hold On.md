@@ -49,3 +49,6 @@ May we *hold on* to the eternal truths of the gospel of Jesus Christ because the
 
 
 
+
+
+#Obedience #Safety #Scriptures

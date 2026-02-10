@@ -79,3 +79,6 @@ I testify spiritual and temporal blessings come into our lives as we live the la
 
 
 
+
+
+#Blessings #Tithing

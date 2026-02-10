@@ -51,3 +51,6 @@ It is through the ordinances and covenants available in the temple that our Fath
 
 
 
+
+
+#Covenants #Faith #Temple_Work

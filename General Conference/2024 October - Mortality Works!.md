@@ -97,5 +97,5 @@ I testify that as we receive the ordinances of the gospel, enter into covenants 
 
 [^11]: See [[Moses 1.39|Moses 1:39]].
 
-[^12]: [[Mosiah 2.41|Mosiah 2:41]].
 
+#Adversity #Atonement #Mortality #Plan_Of_Salvation

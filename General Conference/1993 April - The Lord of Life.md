@@ -75,3 +75,6 @@ I bear my solemn witness that full acceptance of the Atonement, with the saving 
 
 
 
+
+
+#Atonement #Conversion #Jesus_Christ #Repentance

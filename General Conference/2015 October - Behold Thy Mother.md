@@ -73,3 +73,6 @@ To all of our mothers everywhere, past, present, or future, I say, “Thank you.
 
 [^14]: [[Moroni 7.46|Moroni 7:46]]; see also [[1 Corinthians 13.8|1 Corinthians 13:8]].
 
+
+
+#Family #Jesus_Christ #Love #Motherhood

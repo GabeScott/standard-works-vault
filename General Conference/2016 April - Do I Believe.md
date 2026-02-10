@@ -71,3 +71,6 @@ I bear witness that our membership in the Lord’s kingdom is a gift of immeasur
 
 [^7]: M. Russell Ballard, “[[2014 October - Stay in the Boat and Hold On!.md|Stay in the Boat and Hold On!]]” *Ensign* or *Liahona,* Nov. 2014, 92.
 
+
+
+#Conversion #Discipleship #Faith #Family #Kingdom_Of_God #Ordinances #Priesthood #Prophets #Temples

@@ -71,3 +71,6 @@ After this conference, will you join with me in making a renewed commitment to i
 
 
 
+
+
+#Scriptures

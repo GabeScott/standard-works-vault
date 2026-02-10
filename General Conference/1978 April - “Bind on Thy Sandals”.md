@@ -47,3 +47,6 @@ What a glorious thing it is to have the privilege of bearing the priesthood. God
 
 
 
+
+
+#Preparation

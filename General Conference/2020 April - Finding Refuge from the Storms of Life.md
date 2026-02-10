@@ -80,4 +80,4 @@ As we face the storms of life, I know that if we make our best effort and rely u
 
 
 
-
+#Adversity #Faith #Jesus_Christ

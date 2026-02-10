@@ -79,3 +79,6 @@ I testify of the truth of what I have said here and of the truths taught and to 
 
 [^9]: See *Teachings: Joseph Smith,* 231–33.
 
+
+
+#Plan_Of_Salvation #Spirit_World #Trust

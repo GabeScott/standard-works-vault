@@ -103,3 +103,6 @@ Humbly and prayerfully I leave this testimony, knowing full well I must eventual
 
 
 
+
+
+#Commandments #Repentance #Restoration

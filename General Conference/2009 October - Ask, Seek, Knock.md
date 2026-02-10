@@ -95,3 +95,6 @@ Every Latter-day Saint may merit personal revelation. The invitation to ask, see
 
 [^17]: See [[D&C 1.30|D&C 1:30]].
 
+
+
+#Prayer #Spirituality #Truth

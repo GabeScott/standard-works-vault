@@ -147,3 +147,6 @@ I pray, brethren, that as we serve in our families, quorums, wards, stakes, comm
 
 [^20]: See [[D&C 83.6|Doctrine and Covenants 83:6]].
 
+
+
+#Conversion #Discipleship #Goals #Healing #Humility #Jesus_Christ #Service

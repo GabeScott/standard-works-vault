@@ -95,5 +95,5 @@ I testify that in The Church of Jesus Christ of Latter-day Saints is found the p
 
 [^4]: As the Prophet Joseph petitioned in the prayer dedicating the Kirtland Temple, which prayer was revealed to him by the Lord, “We ask thee, Holy Father, that thy servants may go forth from this house armed with thy power, and that thy name may be upon them, and thy glory be round about them, and thine angels have charge over them” ([[D&C 109.22|D&C 109:22]]).
 
-[^5]: In the Kirtland Temple dedicatory prayer referenced earlier, the Prophet petitioned, “And do thou grant, Holy Father, that all those who shall worship in this house … may grow up in thee, and receive a fulness of the Holy Ghost” ([[D&C 109.14|D&C 109:14–15]][[D&C 109.15|]]). The “fulness of the Holy Ghost” includes what Jesus described as “the promise which I give unto you of eternal life, even the glory of the celestial kingdom; which glory is that of the church of the Firstborn, even of God, the holiest of all, through Jesus Christ his Son” ([[D&C 88.4|D&C 88:4–5]][[D&C 88.5|]]).
 
+#Adversity #Covenants #Faith #Holy_Ghost #Obedience

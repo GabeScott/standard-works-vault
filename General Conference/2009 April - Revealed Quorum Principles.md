@@ -69,5 +69,5 @@ I give you my witness that Jesus is the Christ, that He lives and loves us, and 
 
 [^8]: See Ezra Taft Benson, in Conference Report, Apr. 1986, 55–60; or *Ensign,* May 1986, 43–46; “Aaronic Priesthood,” section 2 of the *Church Handbook of Instructions, Book 2: Priesthood and Auxiliary Leaders* (1998), 175–92; see also note 7.
 
-[^9]: See Thomas S. Monson, in Conference Report, Oct. 1982, 25–29; or *Ensign,* Nov. 1982, 19–21; *Scouting Handbook* (1997); see also note 8.
 
+#Activation #Priesthood

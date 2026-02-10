@@ -73,5 +73,5 @@ Jesus is the Christ. Joseph is the prophet of the Restoration. President Gordon 
 
 [^6]: [[2 Corinthians 5.7|2 Cor. 5:7]].
 
-[^7]: [[Moses 6.36|Moses 6:36]].
 
+#Adversity #Faith #Obedience #Peace #Trust

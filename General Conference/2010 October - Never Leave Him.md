@@ -193,5 +193,5 @@ I too have that witness. I so testify in the name of Jesus Christ, amen.
 
 [^39]: [[John 6.67|John 6:67]].
 
-[^40]: [[John 6.68|John 6:68–69]][[John 6.69|]].
 
+#Adversity #Jesus_Christ #Loyalty #Offense

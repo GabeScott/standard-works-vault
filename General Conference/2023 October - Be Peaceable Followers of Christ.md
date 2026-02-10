@@ -147,5 +147,5 @@ As an Apostle of the Lord Jesus Christ, I testify that “peaceable followers of
 
 [^29]: [[D&C 136.29|Doctrine and Covenants 136:29]].
 
-[^30]: “Come, Ye Disconsolate,” *Hymns*, no. 115.
 
+#Adversity #Atonement #Discipleship #Jesus_Christ #Joy #Peacemaking #Preparation

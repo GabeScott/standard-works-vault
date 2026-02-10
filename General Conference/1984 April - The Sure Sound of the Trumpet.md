@@ -85,3 +85,6 @@ In the name of the Redeemer, Jesus Christ, amen.
 
 
 
+
+
+#Example #Obedience

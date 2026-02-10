@@ -77,3 +77,6 @@ By this means the Prophet Joseph Smith received revelation, as have those who su
 
 
 
+
+
+#Commandments #Holy_Ghost #Spirituality

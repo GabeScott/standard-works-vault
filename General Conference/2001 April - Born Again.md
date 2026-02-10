@@ -131,5 +131,5 @@ I humbly pray that the Spirit of the Lord will put His seal upon the importance 
 
 [^27]: [[2 Peter 1.9|2 Pet. 1:9]].
 
-[^28]: See [[Mosiah 4.3|Mosiah 4:3]].
 
+#Accountability #Atonement #Conversion #Family_History #Forgiveness #Holy_Ghost #Ordinances #Plan_Of_Salvation #Repentance #Temple_Work

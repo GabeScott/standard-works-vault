@@ -83,3 +83,6 @@ I give thanks for my wife, for my children, for my grandchildren and my great-gr
 
 [^4]: David Brooks, “The Age of Possibility,” *New York Times,* Nov. 16, 2012, A35, nytimes.com/2012/11/16/opinion/brooks-the-age-of-possibility.html.
 
+
+
+#Family #Marriage

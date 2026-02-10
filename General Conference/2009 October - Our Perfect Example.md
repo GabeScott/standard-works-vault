@@ -89,3 +89,6 @@ I testify that the way lies in faith in Jesus Christ, in baptism, in receiving t
 
 [^9]: [[John 14.27|John 14:27]].
 
+
+
+#Family #Jesus_Christ #Love

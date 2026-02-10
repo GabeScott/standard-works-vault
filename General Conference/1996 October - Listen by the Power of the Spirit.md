@@ -41,3 +41,6 @@ For this I pray in the name of Jesus Christ, amen.
 
 
 
+
+
+#Listening #Pioneers #Preparation #Unity

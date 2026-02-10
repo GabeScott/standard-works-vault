@@ -203,3 +203,6 @@ I know that President Thomas S. Monson is the prophet of God on the earth today
 
 [^13]: See *Teachings of Presidents of the Church: Brigham Young* (1997), 299. He was referring to the importance of temple and family history work.
 
+
+
+#Book_Of_Mormon #Conversion #Jesus_Christ

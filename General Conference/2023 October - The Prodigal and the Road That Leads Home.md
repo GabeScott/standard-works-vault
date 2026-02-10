@@ -183,3 +183,6 @@ It is my prayer that each one of us may hear, in this profound parable, the Fath
 
 [^23]: See [[Psalms 28.7|Psalm 28:7]].
 
+
+
+#Forgiveness #Jesus_Christ #Joy #Repentance

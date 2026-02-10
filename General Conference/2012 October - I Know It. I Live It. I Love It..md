@@ -71,3 +71,6 @@ I have a testimony of our Heavenly Father’s great plan of eternal happiness. I
 
 [^9]: Personal correspondence.
 
+
+
+#Commitment #Obedience

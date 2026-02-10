@@ -179,3 +179,6 @@ That we may have the wisdom and determination to cross the bridges the Savior bu
 
 [^17]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
 
+
+
+#Jesus_Christ #Obedience #Prayer #Service

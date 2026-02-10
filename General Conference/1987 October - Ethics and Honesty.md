@@ -87,3 +87,6 @@ I so declare, in the name of Jesus Christ, amen.
 
 
 
+
+
+#Honesty #Morality

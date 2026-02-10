@@ -106,3 +106,6 @@ My young beloved brethren, I pray that each of us, through our faith, will use o
 
 [^23]: “Discourse by President Woodruff,” *Millennial Star,* 5 Oct. 1891, 628–29.
 
+
+
+#Faith #Preparation #Service

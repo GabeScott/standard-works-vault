@@ -65,3 +65,6 @@ That personal and prophetic revelation is the foundation upon which our Church s
 
 
 
+
+
+#Church_Callings #Jesus_Christ #Missionary_Work #Testimony

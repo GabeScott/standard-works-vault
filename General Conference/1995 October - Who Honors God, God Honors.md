@@ -122,3 +122,6 @@ May we ever remember the truth, “Who honors God, God honors.” In the name of
 
 [^6]: [[3 Nephi 5.13|3 Ne. 5:13]].
 
+
+
+#Character #God_The_Father #Jesus_Christ #Missionary_Work #Priesthood #Youth

@@ -149,3 +149,6 @@ Let us be known as a people who love God with all our heart, soul, and mind and 
 
 [^17]: See [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
+
+
+#Discipleship #God_The_Father #Hope #Love #Obedience

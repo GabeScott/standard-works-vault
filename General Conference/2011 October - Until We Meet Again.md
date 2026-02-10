@@ -45,3 +45,6 @@ I say farewell to you until we meet again in six months’ time, and I do so in 
 
 
 
+
+
+#General_Conference #God_The_Father #Gratitude

@@ -145,3 +145,6 @@ Of this gift I bear witness in the name of Jesus Christ, amen.
 
 [^33]: [[D&C 84.20|Doctrine and Covenants 84:20]].
 
+
+
+#Covenants #Ordinances #Priesthood_Power #Sacrament #Women

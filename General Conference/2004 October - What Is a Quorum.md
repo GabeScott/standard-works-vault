@@ -61,3 +61,6 @@ And so I say to you two Brethren who have joined us in our quorum, and to all of
 
 
 
+
+
+#Priesthood #Quorum_Of_The_Twelve_Apostles #Service

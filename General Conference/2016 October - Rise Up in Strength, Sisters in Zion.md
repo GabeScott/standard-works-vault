@@ -77,5 +77,5 @@ I love the gospel of Jesus Christ, and I am eternally grateful for the direction
 
 [^11]: See [[D&C 109.22|Doctrine and Covenants 109:22]].
 
-[^12]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
+#Adversity #Covenants #Jesus_Christ #Plan_Of_Salvation #Restoration #Teaching #Temples #Women

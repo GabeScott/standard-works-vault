@@ -121,3 +121,6 @@ That we may heed the Savior’s call and strive to engage in His great commissio
 
 [^7]: Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 17.
 
+
+
+#Discipleship #Love #Missionary_Work #Sharing

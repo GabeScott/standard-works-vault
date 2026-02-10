@@ -88,4 +88,4 @@ And when they do, they will know, as I know, that the Lord is more concerned wit
 
 
 
-
+#Activation #Forgiveness #Repentance

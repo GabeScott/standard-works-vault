@@ -39,3 +39,6 @@ I testify that this is true, that we are bound together in his church by his pri
 
 
 
+
+
+#Charity #Holy_Ghost #Jesus_Christ #Relief_Society #Scriptures #Truth

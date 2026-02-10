@@ -89,3 +89,6 @@ In the name of Jesus Christ, amen.
 
 [^9]: In Conference Report, Apr. 1977, 115; or *Ensign,* May 1977, 78.
 
+
+
+#Faith #Holy_Ghost #Jesus_Christ #Missionary_Work #Prophecy #Prophets #Restoration #Sacrifice #Testimony #Truth

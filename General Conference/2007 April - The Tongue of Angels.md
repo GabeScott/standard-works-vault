@@ -89,5 +89,5 @@ So, brothers and sisters, in this long eternal quest to be more like our Savior,
 
 [^13]: See [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]].
 
-[^14]: See [[Matthew 25.40|Matthew 25:40]].
 
+#Abuse #Attitude #Family #Marriage #Respect

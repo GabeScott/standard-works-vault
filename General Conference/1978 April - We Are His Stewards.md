@@ -22,4 +22,4 @@ I humbly pray, my brothers and sisters, that we will do this as we represent the
 
 
 
-
+#Accountability #Fasting

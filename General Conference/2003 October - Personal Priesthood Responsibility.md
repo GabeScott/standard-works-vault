@@ -139,3 +139,6 @@ God lives. Jesus is the Christ. He directs His Church through His prophets and a
 
 [^29]: [[D&C 121.45|D&C 121:45]].
 
+
+
+#Obedience #Priesthood #Responsibility #Service

@@ -129,3 +129,6 @@ Dear sisters, I love you and hope you will experience this great joy in your own
 
 [^23]: [[D&C 25.13|Doctrine and Covenants 25:13]].
 
+
+
+#Covenants #Temples

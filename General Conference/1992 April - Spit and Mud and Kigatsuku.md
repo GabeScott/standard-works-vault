@@ -43,3 +43,6 @@ Our desire to serve is divine. Charity is our motto. As women, we beseech with t
 
 
 
+
+
+#Charity #Service

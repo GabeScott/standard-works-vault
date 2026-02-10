@@ -155,3 +155,6 @@ Let us *rejoice* in the restoration of priesthood keys, which make it possible f
 
 [^23]: See [[D&C 110.12|Doctrine and Covenants 110:12]]; [[D&C 132.29|132:29–30]][[D&C 132.30|]].
 
+
+
+#Covenants #Joseph_Smith #Priesthood_Keys #Temple_Work #Temples

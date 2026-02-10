@@ -61,3 +61,6 @@ To the youth of the noble birthright, look into the windows of eternity! See you
 
 [^14]: [[Revelation 3.4|Revelation 3:4]]; see also [[Revelation 3.5|v. 5]].
 
+
+
+#Morality #Repentance #Temples #Worthiness

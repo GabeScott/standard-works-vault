@@ -79,3 +79,6 @@ I believe the promises of a prophet. I know that I have a loving Heavenly Father
 
 [^9]: Boyd K. Packer, in Conference Report, Oct. 1991, 29–30; or *Ensign,* Nov. 1991, 23.
 
+
+
+#Example #Respect #Reverence #Teaching

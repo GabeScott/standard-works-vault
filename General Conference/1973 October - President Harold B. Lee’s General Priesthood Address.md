@@ -97,3 +97,6 @@ I plead with you, my brethren, and leave with you my blessing, and bear you my w
 
 
 
+
+
+#Family #Marriage #Obedience #Priesthood #Repentance #Responsibility #Spirituality #Youth

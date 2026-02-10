@@ -187,5 +187,5 @@ I testify, with the Apostle John, “There is no fear in \[Christ’s\] love.”
 
 [^23]: [[Mark 5.36|Mark 5:36]].
 
-[^24]: [[John 15.10|John 15:10]].
 
+#Adversity #Fear #Jesus_Christ #Love #Second_Coming

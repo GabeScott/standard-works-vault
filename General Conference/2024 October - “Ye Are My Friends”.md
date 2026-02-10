@@ -115,3 +115,6 @@ In a contentious and divided world, I testify that the Savior Jesus Christ is th
 
 [^30]: [[John 15.14|John 15:14]]; [[D&C 84.63|Doctrine and Covenants 84:63]].
 
+
+
+#Belonging #Friendship #Jesus_Christ #Unity

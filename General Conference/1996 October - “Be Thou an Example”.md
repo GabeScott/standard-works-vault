@@ -115,3 +115,6 @@ In the name of Jesus Christ, amen.
 
 [^14]: [[D&C 76.5|D&C 76:5–6]][[D&C 76.6|]].
 
+
+
+#Example #Fasting #Home_Teaching #Missionary_Work #Tithing

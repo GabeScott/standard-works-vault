@@ -95,3 +95,6 @@ I bear my humble witness that both President Brigham Young and President Gordon 
 
 [^10]: *Teachings of Gordon B. Hinckley* (1997), 509.
 
+
+
+#Brigham_Young #Church_History #Gordon_B._Hinckley #Prophets #Temple_Square

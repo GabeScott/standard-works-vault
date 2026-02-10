@@ -81,5 +81,5 @@ My dear brothers and sisters, we can build up His Church and see real growth as 
 
 [^12]: See Ann M. Dibb, “My Father Is a Prophet” (Brigham Young University–Idaho devotional, Feb. 19, 2008), byui.edu/devotionalsandspeeches; Thomas S. Monson, “Stand in Your Appointed Place,” *Liahona* and *Ensign,* May 2003, 54–57; “Peace, Be Still,” *Liahona* and *Ensign,* Nov. 2002, 53–56; “Priesthood Power,” *Liahona,* Jan. 2000, 58–61; *Ensign,* Nov. 1999, 49–51; “The Spirit Giveth Life,” *Ensign,* May 1985, 68–70.
 
-[^13]: In addition to President Thomas S. Monson, other prophets have taught this same principle. For example, President Spencer W. Kimball taught the importance of acting on the impressions given through the Spirit when he said: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other in the kingdom” (*Teachings of Presidents of the Church: Spencer W. Kimball* \[2006\], 82).
 
+#Activation #Conversion #Missionary_Work

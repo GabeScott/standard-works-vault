@@ -69,3 +69,6 @@ I bear you my testimony that a prophet leads this Church today by revelation. On
 
 
 
+
+
+#Spencer_W._Kimball

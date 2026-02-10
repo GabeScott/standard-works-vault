@@ -137,3 +137,6 @@ God lives! Jesus is the Christ! His Church has been restored! He and His Father,
 
 [^14]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
+
+
+#Holy_Ghost #Jesus_Christ #Revelation #Scripture_Study #Temple_Work

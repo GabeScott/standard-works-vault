@@ -99,3 +99,6 @@ In the nine years that President Thomas S. Monson and I have served as counselor
 
 [^21]: [[Alma 5.40|Alma 5:40]].
 
+
+
+#Holy_Ghost #Honesty #Prophets #Spirituality #Temples

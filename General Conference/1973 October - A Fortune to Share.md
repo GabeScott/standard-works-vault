@@ -59,3 +59,6 @@ And that we may be fully successful in this greatest of all enterprises, I humbl
 
 
 
+
+
+#Priorities #Standards

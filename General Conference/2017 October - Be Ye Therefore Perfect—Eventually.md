@@ -83,3 +83,6 @@ I testify of that grand destiny, made available to us by the Atonement of the Lo
 
 [^17]: See [[D&C 93.13|Doctrine and Covenants 93:13]].
 
+
+
+#God_The_Father #Grace #Individual_Worth #Jesus_Christ #Perspective

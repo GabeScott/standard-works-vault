@@ -160,4 +160,4 @@ Brethren and sisters, God bless you as you move forward to meet all your commitm
 
 
 
-
+#Abortion #Honesty #Marriage #Resurrection #Word_Of_Wisdom

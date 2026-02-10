@@ -131,3 +131,6 @@ I leave with you my testimony of the divinity of this work and my love for each 
 
 
 
+
+
+#Financial_Management #Honesty #Jesus_Christ #Love #Missionary_Work #Prayer #Self-Reliance

@@ -131,3 +131,6 @@ My brothers and sisters, may we resolve from this day forward to fill our hearts
 
 [^14]: [[2 Timothy 4.7|2 Tim. 4:7]].
 
+
+
+#Death #Joy #Love #Peace #Plan_Of_Salvation #Service #Testimony #Time_Management #Truth

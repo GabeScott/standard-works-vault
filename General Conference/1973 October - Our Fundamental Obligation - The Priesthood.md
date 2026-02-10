@@ -85,3 +85,6 @@ I testify with all the sobriety of my heart and soul that we are committed, that
 
 
 
+
+
+#Joseph_Smith #Priesthood #Responsibility

@@ -99,3 +99,6 @@ I am grateful that through the infinite fairness and love of God, all men and wo
 
 [^18]: [[Alma 9.27|Alma 9:27]].
 
+
+
+#Blessings #Priesthood #Spirituality

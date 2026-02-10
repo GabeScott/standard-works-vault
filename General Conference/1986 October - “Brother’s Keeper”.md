@@ -89,3 +89,6 @@ May God bless us to live the Golden Rule in our earning activities. As we seek t
 
 
 
+
+
+#Commandments #Honesty #Word_Of_Wisdom

@@ -47,3 +47,6 @@ I know we have a loving Father who is waiting for us. I know that he instructs u
 
 
 
+
+
+#Adversity #Councils #Example #Family #Family_Home_Evening #Home #Media #Parenthood #Prayer #Satan #Youth

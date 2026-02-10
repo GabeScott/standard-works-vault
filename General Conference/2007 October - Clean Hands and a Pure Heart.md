@@ -77,3 +77,6 @@ May you and I repent with sincerity of heart and truly come unto Christ. I pray 
 
 
 
+
+
+#Atonement #Morality #Repentance

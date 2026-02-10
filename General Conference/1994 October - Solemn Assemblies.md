@@ -77,3 +77,6 @@ I bear this testimony to you in the name of Jesus Christ, amen.
 
 
 
+
+
+#Authority #Church_Organization #Ezra_Taft_Benson #General_Conference

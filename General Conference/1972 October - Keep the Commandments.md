@@ -77,3 +77,6 @@ May God help us to hear and to obey, I humbly pray in the name of Jesus Christ. 
 
 
 
+
+
+#Commandments #Obedience

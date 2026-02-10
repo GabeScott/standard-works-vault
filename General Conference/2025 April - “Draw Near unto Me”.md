@@ -127,3 +127,6 @@ I testify as a witness of the risen Savior and our Redeemer, in the name of Jesu
 
 [^12]: [[Matthew 25.21|Matthew 25:21]].
 
+
+
+#Discipleship #Jesus_Christ #Love #Resurrection #Service

@@ -89,3 +89,6 @@ It is my prayer, my brothers and sisters, that each of us as leaders and parents
 
 
 
+
+
+#Native_Americans #Social_Services #Welfare

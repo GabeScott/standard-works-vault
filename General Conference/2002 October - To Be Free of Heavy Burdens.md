@@ -85,5 +85,5 @@ In closing, if you have felt impressions to be free of burdens caused by yoursel
 
 [^12]: See John Taylor, *The Mediation and Atonement* (1882).
 
-[^13]: See Richard G. Scott, in Conference Report, Apr. 1992, 43–46; or *Ensign,* May 1992, 31.
 
+#Accountability #Atonement #Forgiveness #Healing #Peace #Repentance

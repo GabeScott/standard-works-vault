@@ -107,3 +107,6 @@ As we focus our attention on the Savior during these two special Sundays, let us
 
 [^15]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 
+
+
+#Goals #Jesus_Christ #Plan_Of_Salvation

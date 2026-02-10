@@ -89,3 +89,6 @@ I humbly witness: God lives. He â€œshall wipe away all tears from \[our\] eyesâ€
 
 [^19]: [[Revelation 21.4|Revelation 21:4]].
 
+
+
+#Atonement #Family #Temples

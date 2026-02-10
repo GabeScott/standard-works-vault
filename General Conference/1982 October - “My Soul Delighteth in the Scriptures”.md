@@ -79,3 +79,6 @@ To this I add my witness. The holy scriptures are the word of God. If we are to 
 
 
 
+
+
+#Scriptures

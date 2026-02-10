@@ -143,5 +143,5 @@ May we each have the courage to do so, I pray, in the name of Jesus Christ, amen
 
 [^11]: See Hugh Nibley, *Abraham in Egypt* (1981), 192.
 
-[^12]: [[D&C 107.99|D&C 107:99]].
 
+#Adversity #Courage #Duty

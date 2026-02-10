@@ -39,3 +39,6 @@ I humbly declare that Jesus is the Christ, the literal Son of God, and that His 
 
 
 
+
+
+#Apostasy #Book_Of_Mormon #Church_Doctrine #Church_Organization #Family #Holy_Ghost #Joseph_Smith #Plan_Of_Salvation #Premortal_Existence #Prophets #Restoration #Spirituality #Temple_Work

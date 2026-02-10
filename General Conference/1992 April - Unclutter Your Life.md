@@ -71,3 +71,6 @@ In the name of Jesus Christ, amen.
 
 
 
+
+
+#Priorities #Spirituality #Time_Management

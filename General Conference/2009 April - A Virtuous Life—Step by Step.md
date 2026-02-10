@@ -77,3 +77,6 @@ I bear testimony that we *are* daughters of our Heavenly Father. He loves us and
 
 
 
+
+
+#Atonement #Example #Virtue

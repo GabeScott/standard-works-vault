@@ -71,3 +71,6 @@ We invite mankind everywhere to prayerfully study the truths revealed following 
 
 
 
+
+
+#Communication #Testimony #Truth

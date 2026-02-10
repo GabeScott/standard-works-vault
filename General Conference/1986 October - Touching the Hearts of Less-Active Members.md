@@ -50,4 +50,4 @@ I bear my humble witness that our leaders are inspired and receive revelation fo
 
 
 
-
+#Activation #Forgiveness #Love #Missionary_Work #Repentance

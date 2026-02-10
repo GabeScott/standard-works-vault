@@ -65,3 +65,6 @@ President Benson, in the April 1986 general conference, expressed these thoughts
 
 [^3]: “The Power of the Word,” *Ensign,* May 1986, p. 82.
 
+
+
+#Jesus_Christ #Scripture_Study #Scriptures

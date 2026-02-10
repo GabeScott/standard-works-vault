@@ -127,5 +127,5 @@ The Savior pleads:
 
 [^15]: For more about Josie’s journey toward healing, see Morgan Jones, “Bipolar Disorder Can’t Stop LDS Woman from Spreading Light, Joy through the 444 Project,” *Deseret News,* Mar. 21, 2016, deseretnews.com.
 
-[^16]: [[3 Nephi 9.13|3 Nephi 9:13–14]][[3 Nephi 9.14|]].
 
+#Adversity #Atonement #Faith #Healing #Holy_Ghost #Jesus_Christ #Repentance

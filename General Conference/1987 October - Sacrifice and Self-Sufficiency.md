@@ -114,3 +114,6 @@ I testify that we have been taught the truth during this conference, that God li
 
 
 
+
+
+#Missionary_Work #Obedience #Sacrifice #Self-Reliance

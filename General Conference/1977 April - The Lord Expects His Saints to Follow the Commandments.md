@@ -177,3 +177,6 @@ Brothers and sisters, this is the work of the Lord. We deal with many things whi
 
 
 
+
+
+#Obedience #Sabbath

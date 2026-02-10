@@ -157,5 +157,5 @@ For us, being valiant in our testimony of Jesus is a stepping-stone toward quali
 
 [^31]: Henry Ward Beecher, in Tryon Edwards, *A Dictionary of Thoughts* (1891), 586.
 
-[^32]: See [[2 Nephi 31.21|2 Nephi 31:21]]; [[Mosiah 3.17|Mosiah 3:17]].
 
+#Adversity #Atonement #Jesus_Christ #Repentance #Testimony

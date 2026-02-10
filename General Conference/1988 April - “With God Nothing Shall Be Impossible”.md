@@ -95,3 +95,6 @@ The great latter-day work of which we are a part shall be accomplished. Propheci
 
 
 
+
+
+#Adversity #Faith

@@ -55,4 +55,4 @@ I testify to you that God lives. I know that we are His children, that He knows 
 
 
 
-
+#Adversity #Agency #Divine_Nature #Music #Obedience #Parenthood #Prayer #Sacrifice

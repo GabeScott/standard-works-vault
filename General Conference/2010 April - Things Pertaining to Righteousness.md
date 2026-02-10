@@ -69,3 +69,6 @@ This can be achieved more effectively if revelation is facilitated during the te
 
 
 
+
+
+#Obedience #Parents #Scriptures #Teaching

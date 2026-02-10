@@ -59,3 +59,6 @@ May we all feel his strength as we seek to serve him. In the name of Jesus Chris
 
 
 
+
+
+#Fellowshipping #Service

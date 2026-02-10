@@ -99,3 +99,6 @@ Let us not be arrogant but rather humbly grateful if our children are obedient a
 
 [^21]: [[Jeremiah 31.16|Jeremiah 31:16]].
 
+
+
+#Children #Love #Parenthood #Repentance #Teaching

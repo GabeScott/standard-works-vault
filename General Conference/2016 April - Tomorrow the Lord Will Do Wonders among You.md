@@ -85,5 +85,5 @@ If gospel standards seem high and the personal improvement needed in the days ah
 
 [^12]: [[Joshua 3.5|Joshua 3:5]].
 
-[^13]: [[Isaiah 9.6|Isaiah 9:6]].
 
+#Adversity #Endurance #General_Conference #Hope #Love #Opposition #Repentance

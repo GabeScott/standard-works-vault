@@ -49,3 +49,6 @@ Let me close by expressing my love and gratitude for goodly parents, to my choic
 
 
 
+
+
+#Leadership #Scripture_Study

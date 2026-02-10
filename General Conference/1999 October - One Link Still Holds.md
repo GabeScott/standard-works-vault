@@ -104,3 +104,6 @@ We love you, our beloved youth, and pray God to bless each one of you. In the na
 
 [^6]: *Gospel Doctrine,* 5th ed. (1939), 119.
 
+
+
+#Friendship #Home #Obedience #Parents #Prayer #Prophets #Standards

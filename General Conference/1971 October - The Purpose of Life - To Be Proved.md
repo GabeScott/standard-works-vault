@@ -85,3 +85,6 @@ Let us never forget the great lessons to be learned from Zion’s Camp and Liber
 
 
 
+
+
+#Adversity #Church_History

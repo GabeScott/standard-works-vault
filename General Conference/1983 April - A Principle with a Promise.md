@@ -105,3 +105,6 @@ I further testify that obedience to all of God’s laws brings the precious prom
 
 
 
+
+
+#Obedience #Word_Of_Wisdom

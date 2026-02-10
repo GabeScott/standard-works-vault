@@ -83,5 +83,5 @@ si.lds.org
 
 [^10]: [[Ether 6.12|Ether 6:12]].
 
-[^11]: [[D&C 84.38|Doctrine and Covenants 84:38]].
 
+#Adversity #Children #Covenants #Morality #Plan_Of_Salvation #Repentance #Standards

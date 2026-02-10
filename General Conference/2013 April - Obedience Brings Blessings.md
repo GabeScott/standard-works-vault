@@ -154,3 +154,6 @@ It is my humble prayer that we may be blessed with the rich rewards promised to 
 
 [^17]: [[D&C 93.28|Doctrine and Covenants 93:28]].
 
+
+
+#Commandments #Jesus_Christ #Obedience #Truth

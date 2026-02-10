@@ -119,3 +119,6 @@ I joyfully witness that God is our Heavenly Father, we are His children, and Jes
 
 [^21]: See [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
 
+
+
+#Covenants #God_The_Father #Jesus_Christ #Ordinances #Reverence #Sabbath #Temples

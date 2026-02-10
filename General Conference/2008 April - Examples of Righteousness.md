@@ -75,3 +75,6 @@ My brethren, as we now leave this general priesthood meeting, let us all determi
 
 [^4]: [[1 Peter 2.9|1 Peter 2:9]].
 
+
+
+#Courage #Example #Priesthood #Service

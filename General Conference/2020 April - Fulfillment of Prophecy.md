@@ -113,3 +113,6 @@ I promise as you follow the inspired counsel of our dear prophet, President Russ
 
 [^26]: *Teachings: Joseph Smith,* 142.
 
+
+
+#Prophecy #Restoration

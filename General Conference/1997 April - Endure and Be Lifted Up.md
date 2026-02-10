@@ -163,3 +163,6 @@ I pray that each of us may so endure and be lifted up at the last day, in the na
 
 [^37]: In Conference Report, Oct. 1995, 96; or *Ensign,* Nov. 1995, 72; emphasis added.
 
+
+
+#Adversity #Covenants #Endurance #Jesus_Christ #Love #Loyalty #Marriage #Pioneers #Plan_Of_Salvation #Priorities #Satan #Temptation #Work

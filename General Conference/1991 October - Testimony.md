@@ -63,3 +63,6 @@ A living prophet has spoken. It is now time for us to stand and be true to our t
 
 
 
+
+
+#Adversity #Education #Prayer #Spirituality #Testimony

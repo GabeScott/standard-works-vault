@@ -92,4 +92,4 @@ May each of us do and become better through the Savior’s Atonement. Today is A
 
 
 
-
+#Adversity #Atonement #Jesus_Christ

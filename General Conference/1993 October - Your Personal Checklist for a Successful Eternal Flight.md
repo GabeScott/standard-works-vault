@@ -53,3 +53,6 @@ So there you have it: a checklist that can keep you flying in the right directio
 
 
 
+
+
+#Preparation #Priesthood #Responsibility

@@ -31,3 +31,6 @@ Let us all be diligent and obedient in keeping the commandments of the Lord, tha
 
 
 
+
+
+#Gratitude

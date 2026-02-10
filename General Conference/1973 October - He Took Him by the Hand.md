@@ -97,3 +97,6 @@ I leave you my witness that God lives. This is the Church of Jesus Christ, resto
 
 
 
+
+
+#Compassion #Service

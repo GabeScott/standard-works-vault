@@ -67,3 +67,6 @@ I bear testimony that in time and in eternity God will bless our steadiness as w
 
 
 
+
+
+#Dedication #Home_Teaching

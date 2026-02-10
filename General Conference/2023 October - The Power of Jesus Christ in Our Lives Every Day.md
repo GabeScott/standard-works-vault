@@ -95,5 +95,5 @@ I know this is the Church of Jesus Christ. I know that He stands ready to endow 
 
 [^16]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96.
 
-[^17]: [[Mark 4.37|Mark 4:37–40]][[Mark 4.38|]][[Mark 4.39|]][[Mark 4.40|]].
 
+#Adversity #Dedication #Faith #Jesus_Christ

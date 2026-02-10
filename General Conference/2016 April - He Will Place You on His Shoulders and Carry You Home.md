@@ -163,3 +163,6 @@ This is my testimony, my blessing, and my humble prayer in the sacred name of ou
 
 [^13]: See [[John 8.12|John 8:12]].
 
+
+
+#Discipleship #Divine_Nature #Faith #Heavenly_Father #Hope #Jesus_Christ #Obedience

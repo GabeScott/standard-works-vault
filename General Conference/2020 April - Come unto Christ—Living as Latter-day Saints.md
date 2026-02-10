@@ -97,5 +97,5 @@ I bear witness that as we come unto Christ and live as Latter-day Saints, we wil
 
 [^18]: See [[2 Nephi 4.19|2 Nephi 4:19]].
 
-[^19]: See [[Psalms 27.1|Psalm 27:1]].
 
+#Adversity #Church_Organization #Faith #Jesus_Christ

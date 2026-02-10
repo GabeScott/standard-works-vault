@@ -163,5 +163,5 @@ Of this I testify and leave you my blessing as an Apostle of the Lord in the nam
 
 [^13]: [[James 1.5|James 1:5]].
 
-[^14]: See [[Alma 10.7|Alma 10:7]].
 
+#Activation #Book_Of_Mormon #Leadership #Repentance #Service

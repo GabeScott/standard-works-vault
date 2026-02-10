@@ -143,5 +143,5 @@ I humbly witness that Jesus Christ is the Son of God. His love, His power, and H
 
 [^24]: [[John 15.5|John 15:5]].
 
-[^25]: Russell M. Nelson, “The Second Great Commandment,” *Ensign* or *Liahona,* Nov. 2019, 100.
 
+#Activation #Faith #Jesus_Christ #Joy #Love #Opposition

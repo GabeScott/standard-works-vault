@@ -81,3 +81,6 @@ In the sacred name of Jesus Christ, amen.
 
 
 
+
+
+#Sacrifice #Service #Worldliness

@@ -161,3 +161,6 @@ That is the blessing of worship in our lives. Of this I humbly testify in the sa
 
 [^11]: [[Psalms 100.4|Psalm 100:4–5]][[Psalms 100.5|]].
 
+
+
+#Charity #Discipleship #Faith #Hope #Sabbath #Worship

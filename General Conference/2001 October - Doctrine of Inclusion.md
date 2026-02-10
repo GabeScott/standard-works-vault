@@ -85,3 +85,6 @@ That is what Jesus taught His disciples, including “a certain lawyer,” throu
 
 
 
+
+
+#Adversity #Church_History #Friendship #God_The_Father #Kindness #Love #Neighbors #Nonmembers #Religious_Freedom #Respect #Service #Tolerance #Unity

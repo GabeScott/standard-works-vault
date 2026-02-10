@@ -119,3 +119,6 @@ I testify that we are sons and daughters of God, the seed of Abraham, the house 
 
 [^19]: See, for example, Henry B. Eyring, “[The Book of Mormon Will Change Your Life](https://churchofjesuschrist.org/study/liahona/2004/02/the-book-of-mormon-will-change-your-life?lang=eng),” *Ensign,* Feb. 2004, 8–14; *Liahona,* Feb. 2004, 12–16.
 
+
+
+#Book_Of_Mormon #Conversion #Covenants #Gathering #House_Of_Israel #Testimony

@@ -67,3 +67,6 @@ I bear you this personal witness in the name of Jesus Christ. Amen.
 
 
 
+
+
+#Joseph_Smith #Restoration

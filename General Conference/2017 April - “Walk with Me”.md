@@ -73,3 +73,6 @@ I give you my solemn witness that Jesus is the Christ, our resurrected Lord. I b
 
 
 
+
+
+#Jesus_Christ #Priesthood #Service

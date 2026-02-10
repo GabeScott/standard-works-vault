@@ -81,3 +81,6 @@ I know that he lives; I know that he loves us; and I bear you my witness in the 
 
 
 
+
+
+#Adversity #Blessings

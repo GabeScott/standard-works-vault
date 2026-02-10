@@ -53,3 +53,6 @@ God grant that we may “learn, then teach” with receptive minds and clear pur
 
 
 
+
+
+#Charity #Relief_Society

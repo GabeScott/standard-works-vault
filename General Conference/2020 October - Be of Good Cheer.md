@@ -79,5 +79,5 @@ It is all part of the plan of God the Father and His Son, Jesus Christ, of which
 
 [^7]: George A. Smith, in Journal History of The Church of Jesus Christ of Latter-day Saints, Aug. 28, 1852, 1, Church History Library, Salt Lake City.
 
-[^8]: Richard G. Scott, *Finding Peace, Happiness, and Joy* (2007), 248–49.
 
+#Adversity #Faith

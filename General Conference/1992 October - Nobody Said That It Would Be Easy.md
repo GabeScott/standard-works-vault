@@ -77,3 +77,6 @@ I leave you with my testimony of the truthfulness of the gospel of the Lord Jesu
 
 
 
+
+
+#Adversity #Missionary_Work #Service

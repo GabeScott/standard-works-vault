@@ -65,3 +65,6 @@ That these words may be written in our hearts is my prayer, in the name of Jesus
 
 
 
+
+
+#Discipleship #Family_Home_Evening #Prayer #Prophets #Temple_Work

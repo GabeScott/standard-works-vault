@@ -123,3 +123,6 @@ I testify that each one of us truly is a child of God[^26] and He loves us perfe
 
 [^28]: “*Hesed* is a special kind of love and mercy that God feels for and extends to those who have made a covenant with Him. And we reciprocate with *hesed* for Him.
 
+
+
+#Gratitude #Jesus_Christ #Love #Obedience #Service

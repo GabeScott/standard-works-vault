@@ -139,3 +139,6 @@ In the name of Jesus Christ, amen.
 
 [^10]: [[Acts 10.38|Acts 10:38]].
 
+
+
+#Home_Teaching #Jesus_Christ #Teaching

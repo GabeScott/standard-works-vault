@@ -69,3 +69,6 @@ I wish to testify that the prophetic messages of this conference will lead any w
 
 
 
+
+
+#Commandments #Conscience #Forgiveness #Honesty #Justice #Parenthood

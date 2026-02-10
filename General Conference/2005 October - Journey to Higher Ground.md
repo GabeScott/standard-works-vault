@@ -175,3 +175,6 @@ I leave my witness that the Lord will bless all who embark upon the paths of dis
 
 [^25]: In Conference Report, Oct. 1995, 96; or *Ensign,* Nov. 1995, 72.
 
+
+
+#Agency #Holy_Ghost #Obedience #Prophets #Service #Temples

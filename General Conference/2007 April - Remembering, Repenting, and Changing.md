@@ -101,5 +101,5 @@ It is through repenting that I have come to know the Savior, and it is as I seek
 
 [^19]: In *Keepers of the Flame,* 49.
 
-[^20]: [[3 Nephi 27.16|3 Nephi 27:16]].
 
+#Activation #Example #Faith #Jesus_Christ #Repentance #Sacrifice #Young_Women

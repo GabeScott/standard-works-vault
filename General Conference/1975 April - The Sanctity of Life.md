@@ -56,4 +56,4 @@ I leave my testimony that the most precious of all of God’s creations is etern
 
 
 
-
+#Abortion

@@ -156,3 +156,6 @@ That is His promise, and His word is true, I testify in His sacred name, the nam
 
 
 
+
+
+#Morality #Obedience

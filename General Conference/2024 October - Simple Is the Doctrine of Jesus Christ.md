@@ -99,3 +99,6 @@ I bear witness of the sacred work of teaching Heavenly Father’s children the s
 
 [^10]: [[Isaiah 40.31|Isaiah 40:31]].
 
+
+
+#Church_Doctrine #Family #Jesus_Christ #Teaching

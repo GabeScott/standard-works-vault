@@ -91,3 +91,6 @@ I conclude where I began, with the words of an innocent child: “You are never 
 
 [^14]: Boyd K. Packer, in Conference Report, Apr. 1995, 8; or *Ensign,* May 1995, 8.
 
+
+
+#Family #Home #Temples

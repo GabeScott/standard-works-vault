@@ -87,3 +87,6 @@ Satan wants us to feel unequal to our worldly tasks. If we turn to God, He will 
 
 
 
+
+
+#Adversity

@@ -81,3 +81,6 @@ I bear testimony of these things because I have received revelation—revelation
 
 
 
+
+
+#Holy_Ghost #Religion #Spirituality

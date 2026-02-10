@@ -161,3 +161,6 @@ Of this I testify, and leave you my blessing as an Apostle of the Lord, in the n
 
 [^15]: See [[D&C 6.20|D&C 6:20]].
 
+
+
+#Attitude #Compassion #Joy #Talents #Women

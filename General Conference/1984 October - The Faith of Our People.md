@@ -31,3 +31,6 @@ God bless you, my dear brothers and sisters, as you go forth in this great work,
 
 
 
+
+
+#Tithing

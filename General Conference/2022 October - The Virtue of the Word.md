@@ -111,3 +111,6 @@ It is the prayer of my heart that we may possess the wisdom and meekness to hold
 
 [^31]: See [[Alma 5.11|Alma 5:11–13]][[Alma 5.12|]][[Alma 5.13|]].
 
+
+
+#Book_Of_Mormon #Jesus_Christ #Scripture_Study #Scriptures #Virtue

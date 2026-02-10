@@ -57,3 +57,6 @@ In the name of Jesus Christ, amen.
 
 [^4]: *History of the Church,* 6:363.
 
+
+
+#Family #Love #Temples

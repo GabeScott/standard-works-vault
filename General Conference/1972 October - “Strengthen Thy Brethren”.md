@@ -55,3 +55,6 @@ I testify to the divinity of this church. It is true. I sustain President Lee as
 
 
 
+
+
+#Fellowshipping #Teaching

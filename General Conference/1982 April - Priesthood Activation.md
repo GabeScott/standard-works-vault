@@ -88,4 +88,7 @@ May we be so perceptive as to look through the window of each boy’s heart and 
 
 
 
+#Activation #Priesthood
 
+
+#Miracles #Priesthood

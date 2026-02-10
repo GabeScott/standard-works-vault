@@ -102,3 +102,6 @@ I promise that the bounteous blessings of the priesthood can be ours through our
 
 
 
+
+
+#Apostasy #Atonement #Blessings #Family #Jesus_Christ #Missionary_Work #Patriarchal_Blessings #Prayer #Priesthood #Restoration #Sacrament

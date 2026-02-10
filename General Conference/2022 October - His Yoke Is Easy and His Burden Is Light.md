@@ -117,5 +117,5 @@ Friends, let us remember that each person on this earth is a child of God[^23] a
 
 [^26]: [[1 John 4.19|1 John 4:19]]. “We are speaking here of the first great commandment given to the human family—to love God wholeheartedly, without reservation or compromise, that is, with all our heart, might, mind, and strength. This love of God is the first great *commandment* in the universe. But the first great *truth* in the universe is that *God loves us* exactly that way—wholeheartedly, without reservation or compromise, with all of *His* heart, might, mind, and strength” (Jeffrey R. Holland, “[[2021 October - The Greatest Possession.md|The Greatest Possession]],” *Liahona*, Nov. 2021, 9).
 
-[^27]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
+#Adversity #Charity #Jesus_Christ #Judging #Love

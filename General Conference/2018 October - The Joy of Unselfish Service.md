@@ -75,3 +75,6 @@ I testify that that love is made sacred through sacrifice—the sacrifice of a t
 
 [^7]: Thomas S. Monson, “Great Expectations” (Brigham Young University devotional, Jan. 11, 2009), 6, [speeches.byu.edu](https://speeches.byu.edu/talks/thomas-s-monson_great-expectations-2).
 
+
+
+#Love #Sacrifice #Service

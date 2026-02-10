@@ -97,3 +97,6 @@ The Savior, our Redeemer and friend, has shown us the way. As you practice His t
 
 
 
+
+
+#Family #Home #Prayer #Sacrifice

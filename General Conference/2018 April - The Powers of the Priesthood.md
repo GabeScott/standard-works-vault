@@ -99,3 +99,6 @@ I testify of Him whose priesthood it is. Through His atoning suffering and sacri
 
 [^10]: *Teachings: Harold B. Lee,* 97.
 
+
+
+#Family #Fatherhood #Melchizedek_Priesthood #Priesthood

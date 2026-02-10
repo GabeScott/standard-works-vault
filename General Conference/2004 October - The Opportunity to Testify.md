@@ -61,3 +61,6 @@ These things I know in my heart and in my mind. And of these things I testify in
 
 
 
+
+
+#Humility #Quorum_Of_The_Twelve_Apostles #Service #Testimony

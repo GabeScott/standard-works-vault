@@ -93,3 +93,6 @@ Jesus’ invitation is extended to all: “Come unto me, all ye that labour and 
 
 
 
+
+
+#Adversity #Holy_Ghost #Jesus_Christ #Love #Peace

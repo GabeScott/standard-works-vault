@@ -137,5 +137,5 @@ May we, as did the Savior’s followers of old, respond to the invitation, “Fo
 
 [^14]: See [[James 1.22|James 1:22]].
 
-[^15]: [[Matthew 4.19|Matthew 4:19]].
 
+#Activation #Love #Responsibility #Service

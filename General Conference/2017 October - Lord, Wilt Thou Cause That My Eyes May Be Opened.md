@@ -47,5 +47,5 @@ I witness that through the power of Jesus Christ, we become able to look spiritu
 
 [^1]: From *The Lion King 1½* (2004); outside North America, known as *The Lion King 3: Hakuna Matata.*
 
-[^2]: *Teachings of Presidents of the Church: Gordon B. Hinckley* (2016), 201.
 
+#Adversity #Criticism #Healing #Jesus_Christ #Perspective #Sacrament

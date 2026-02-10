@@ -89,3 +89,6 @@ It is my prayer today that we might all recommit ourselves to do everything in o
 
 
 
+
+
+#Commandments #Covenants #Obedience #Reverence

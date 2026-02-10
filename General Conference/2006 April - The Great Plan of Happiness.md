@@ -129,3 +129,6 @@ I bear testimony of that truth and of the love that our Lord and Savior Jesus Ch
 
 [^18]: In Conference Report, Apr. 1994, 26; or *Ensign,* May 1994, 20.
 
+
+
+#Atonement #Plan_Of_Salvation #Resurrection

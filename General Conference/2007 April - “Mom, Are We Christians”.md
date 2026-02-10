@@ -55,3 +55,6 @@ Cortnee asked, “Mom, are we Christians?” As a member of The Church of Jesus 
 
 [^11]: [[2 Nephi 31.2|2 Nephi 31:2]]; see also [[3 Nephi 11.31|3 Nephi 11:31–36]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]].
 
+
+
+#Book_Of_Mormon #Godhead #Ordinances #Restoration #Spirituality

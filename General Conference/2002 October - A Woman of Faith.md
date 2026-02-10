@@ -45,3 +45,6 @@ Dear brothers and sisters, please know of my love for you and my great gratitude
 
 [^7]: [[Ecclesiastes 4.9|Ecclesiastes 4:9–10]][[Ecclesiastes 4.10|]].
 
+
+
+#Courage #Faith #Trust #Women

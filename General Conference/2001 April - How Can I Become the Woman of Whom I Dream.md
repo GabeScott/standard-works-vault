@@ -112,3 +112,6 @@ Look to the positive. Know that He is watching over you, that He hears your pray
 
 
 
+
+
+#Education #Forgiveness #Friendship #Goals #Morality #Peace #Prayer #Respect #Service #Sin #Success #Talents #Temptation #Work #Young_Women

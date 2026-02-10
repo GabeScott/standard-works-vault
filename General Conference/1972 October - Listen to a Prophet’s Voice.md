@@ -89,3 +89,6 @@ And now, may I leave you my witness that I know that God lives—he is not dead;
 
 
 
+
+
+#Commandments #Joseph_Smith #Prophets #Restoration

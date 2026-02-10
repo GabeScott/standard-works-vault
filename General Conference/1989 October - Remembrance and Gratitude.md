@@ -93,3 +93,6 @@ In the name of Jesus Christ, amen.
 
 
 
+
+
+#Blessings #Church_History #Consecration #Gratitude #Prayer #Sacrifice

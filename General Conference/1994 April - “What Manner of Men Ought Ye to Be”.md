@@ -33,3 +33,6 @@ What manner of men and women ought we to be? Even as he is. In the name of Jesus
 
 
 
+
+
+#Atonement #Example #Jesus_Christ

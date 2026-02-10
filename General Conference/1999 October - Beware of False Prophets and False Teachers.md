@@ -87,3 +87,6 @@ I know that God lives. Jesus is the Christ. The restored gospel is true, and the
 
 
 
+
+
+#False_Doctrines #Friendship #Jesus_Christ #Joy #Morality #Pride #Priesthood #Prophets #Satan #Truth

@@ -67,3 +67,6 @@ The principle of self-reliance is spiritual as well as temporal. It is not a doo
 
 
 
+
+
+#Obedience #Preparation #Scriptures #Self-Reliance #Welfare #Work

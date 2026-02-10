@@ -83,3 +83,6 @@ May God help us individually and collectively to know and teach that bashing sho
 
 
 
+
+
+#Charity #Criticism #Forgiveness

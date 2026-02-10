@@ -169,5 +169,5 @@ I pray that you will make the commitment to live worthy of the holy priesthood t
 
 [^8]: [[D&C 4.3|Doctrine and Covenants 4:3]].
 
-[^9]: See [[D&C 27.15|Doctrine and Covenants 27:15–18]][[D&C 27.16|]][[D&C 27.17|]][[D&C 27.18|]].
 
+#Aaronic_Priesthood #Discipleship #Spirituality

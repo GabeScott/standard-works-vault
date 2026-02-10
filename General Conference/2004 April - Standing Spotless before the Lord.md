@@ -69,3 +69,6 @@ I bear witness that He lives and He loves us. He is our Savior and our Redeemer.
 
 
 
+
+
+#Atonement #Jesus_Christ #Love #Repentance

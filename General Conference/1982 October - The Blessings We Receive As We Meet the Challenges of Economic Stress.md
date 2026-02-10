@@ -92,3 +92,6 @@ From the refiner’s fire of economic difficulty may come eternal blessings whic
 
 
 
+
+
+#Adversity #Work

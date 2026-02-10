@@ -91,3 +91,6 @@ I share my special witness that God so loves each one of us “that he gave his 
 
 [^16]: [[2 Nephi 1.15|2 Nephi 1:15]].
 
+
+
+#Sacrament #Self-Reliance #Service #Temple_Work

@@ -76,3 +76,6 @@ I know this is true, and I bear this testimony to you, my beloved brothers and s
 
 
 
+
+
+#Faith #Obedience

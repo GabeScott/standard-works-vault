@@ -43,3 +43,6 @@ I am grateful to men and women and people of all ages whose lives help us see th
 
 
 
+
+
+#Example #Prayer #Scripture_Study #Service #Spirituality

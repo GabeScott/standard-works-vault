@@ -43,5 +43,5 @@ May this conference be a time of peace and spiritual feasting for you. May you s
 
 [^5]: [[1 Peter 3.15|1 Peter 3:15]].
 
-[^6]: [[Philippians 4.7|Philippians 4:7]].
 
+#Adversity #Gathering #General_Conference #Jesus_Christ #Missionary_Work #Peace

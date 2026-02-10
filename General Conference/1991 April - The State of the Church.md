@@ -143,3 +143,6 @@ May the Lord smile with favor upon each of you. May each of us ever be grateful 
 
 
 
+
+
+#Church_Growth #Tithing

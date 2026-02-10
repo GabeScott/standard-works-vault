@@ -123,3 +123,6 @@ May we have sufficient common sense to trust and obey the Lord our God! It is th
 
 
 
+
+
+#Government #Heroes #Obedience

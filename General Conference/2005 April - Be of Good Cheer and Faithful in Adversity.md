@@ -125,5 +125,5 @@ God is our Father. We are His children. He loves us. He desires our happiness he
 
 [^18]: [[D&C 78.18|D&C 78:18]].
 
-[^19]: [[Ether 12.4|Ether 12:4]].
 
+#Adversity #Attitude #Faith #Hope #Love #Peace #Repentance

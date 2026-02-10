@@ -123,3 +123,6 @@ I testify that those who approach the Lord with a sincere heart and real intent,
 
 [^17]: See Melina Myers, “[Scottish and Irish Youth Perform over 4,000 Ordinances in the Preston England Temple](https://www.thechurchnews.com/living-faith/2024/06/13/irish-scottish-youth-ordinances-preston-england-temple),” *Church News*, June 13, 2024, thechurchnews.com.
 
+
+
+#Church_History #Gospel #Service #Temples #Young_Adults #Youth

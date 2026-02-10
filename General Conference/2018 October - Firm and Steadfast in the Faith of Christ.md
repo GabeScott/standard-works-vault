@@ -137,5 +137,5 @@ Always remember the promise of good things to come, both now and hereafter, for 
 
 [^25]: [[Enos 1.3|Enos 1:3]].
 
-[^26]: [[Jacob 3.2|Jacob 3:2]].
 
+#Adversity #Conversion #Covenants #Faith #Jesus_Christ

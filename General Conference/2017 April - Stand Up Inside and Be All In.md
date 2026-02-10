@@ -151,5 +151,5 @@ Brothers and sisters, no one has sinned tomorrow. May we recalculate our route i
 
 [^28]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^29]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
+#Adversity #Commitment #Plan_Of_Salvation #Repentance

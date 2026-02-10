@@ -43,3 +43,6 @@ In summary, the Church is founded on continuing revelation to a current, living 
 
 
 
+
+
+#Church_Doctrine #Joseph_Smith #Prophets

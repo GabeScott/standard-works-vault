@@ -101,3 +101,6 @@ I promise that as you seek to discover the depth of the divine nature that lies 
 
 [^12]: [[2 Nephi 9.26|2 Nephi 9:26]].
 
+
+
+#Divine_Nature #Education #Love #Service

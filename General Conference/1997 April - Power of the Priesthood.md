@@ -107,3 +107,6 @@ Brethren, may we strive to keep the oath and covenant of the priesthood and qual
 
 [^14]: In Conference Report, Oct. 1955, 88.
 
+
+
+#Bishops #Brigham_Young #Church_Callings #Holy_Ghost #Home #Joy #Love #Obedience #Priesthood #Service #Spirituality

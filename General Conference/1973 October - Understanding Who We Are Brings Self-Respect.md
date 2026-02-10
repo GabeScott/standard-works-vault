@@ -185,3 +185,6 @@ In the name of our Lord and Master, Jesus, the Christ, the Savior of the world, 
 
 
 
+
+
+#Agency #Morality #Self-Esteem #Spirituality #Standards #Truth

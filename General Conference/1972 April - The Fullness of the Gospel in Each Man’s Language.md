@@ -63,3 +63,6 @@ I sustain the First Presidency and the Council of the Twelve with all my heartâ€
 
 
 
+
+
+#Communication #Languages

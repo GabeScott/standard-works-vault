@@ -119,3 +119,6 @@ May we “seek this Jesus of whom the prophets and apostles have written, that t
 
 
 
+
+
+#Atonement #Faith #Grace #Humility #Obedience #Repentance

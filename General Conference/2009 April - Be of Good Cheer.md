@@ -110,5 +110,5 @@ I declare that God lives and that He hears and answers our prayers. His Son, Jes
 
 [^8]: From personal conversations and from Frederick W. Babbel, *On Wings of Faith* (1972), 40–42.
 
-[^9]: [[2 Nephi 9.18|2 Nephi 9:18]].
 
+#Adversity #Dedication #Hope #Joy

@@ -123,3 +123,6 @@ I testify that the Lord will be with you and that your way will be prepared and 
 
 [^8]: [[D&C 121.8|Doctrine and Covenants 121:8]].
 
+
+
+#Charity #Relief_Society #Service

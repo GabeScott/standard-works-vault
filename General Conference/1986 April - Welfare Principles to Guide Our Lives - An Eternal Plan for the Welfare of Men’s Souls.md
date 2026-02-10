@@ -51,3 +51,6 @@ That you and I might realize that we have the power and responsibility to help t
 
 
 
+
+
+#Love #Service #Welfare

@@ -135,3 +135,6 @@ May the Lord bless us all with increased faith to move his work forward, I humbl
 
 
 
+
+
+#Commitment #Love #Missionary_Work

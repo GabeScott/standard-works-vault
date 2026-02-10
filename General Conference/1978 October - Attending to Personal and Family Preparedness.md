@@ -23,3 +23,6 @@ My message, then, is this: We cannot progress without attending to our own perso
 
 
 
+
+
+#Self-Reliance

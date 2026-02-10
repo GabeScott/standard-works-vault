@@ -117,3 +117,6 @@ Brethren, it is my prayer that we may so live that we too may touch heaven and b
 
 [^10]: [[Isaiah 1.18|Isaiah 1:18]].
 
+
+
+#Church_Callings #Honesty #Preparation #Service #Standards

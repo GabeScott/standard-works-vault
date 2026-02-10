@@ -21,3 +21,6 @@ God bless you. I leave my blessing upon you, that as you walk in faith there may
 
 
 
+
+
+#Faith #General_Conference #Holy_Ghost #Plan_Of_Salvation #Prayer #Sin

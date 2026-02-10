@@ -39,3 +39,6 @@ Finally, I bear my solemn witness that there is nothing too hard for the Lord. I
 
 
 
+
+
+#Faith #Miracles #Welfare

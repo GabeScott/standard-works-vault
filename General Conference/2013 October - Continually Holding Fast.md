@@ -97,3 +97,6 @@ May we choose to be diligent and gain the great blessings and protections that c
 
 [^18]: [[1 Nephi 15.36|1 Nephi 15:36]].
 
+
+
+#Church_Meetings #Covenants #Sacrament

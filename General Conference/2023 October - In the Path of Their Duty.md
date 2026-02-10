@@ -141,3 +141,6 @@ I joyfully witness that Heavenly Father and His Beloved Son live and Their promi
 
 [^25]: [[D&C 121.29|Doctrine and Covenants 121:29]].
 
+
+
+#Covenants #Discipleship #Duty #Endurance #Pioneers #Service

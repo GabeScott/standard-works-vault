@@ -99,3 +99,6 @@ I have served under the keys and directions of *six* prophets and Church Preside
 
 [^13]: *Handbook 2: Administering the Church* (2010), 3.4.
 
+
+
+#Joy #Ministering #Peace #Sabbath

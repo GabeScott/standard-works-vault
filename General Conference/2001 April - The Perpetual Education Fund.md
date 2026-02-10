@@ -73,3 +73,6 @@ I believe the Lord does not wish to see His people condemned to live in poverty.
 
 
 
+
+
+#Church_History #Education #Family #Generosity #Institute #Leadership #Poverty #Self-Reliance #Welfare

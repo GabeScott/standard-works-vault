@@ -148,3 +148,6 @@ May God help us to be a little kinder, showing forth greater forbearance, to be 
 
 
 
+
+
+#Atonement #Forgiveness #Jesus_Christ #Love #Repentance

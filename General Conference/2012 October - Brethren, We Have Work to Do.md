@@ -79,3 +79,6 @@ The Church and the world and women are crying for men—men who are developing t
 
 [^10]: “Rise Up, O Men of God,” *Hymns,* no. 323.
 
+
+
+#Education #Marriage #Priesthood #Work

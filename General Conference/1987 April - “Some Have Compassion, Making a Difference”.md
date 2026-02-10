@@ -115,3 +115,6 @@ Brothers and sisters, may we leave this conference with a renewed determination,
 
 
 
+
+
+#Fellowshipping #Missionary_Work #Temptation

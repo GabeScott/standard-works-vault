@@ -121,5 +121,5 @@ I have learned through my own experience that the small and simple things of the
 
 [^30]: “Praise to the Man,” *Hymns*, no. 27.
 
-[^31]: Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign*, Nov. 1999, 38; *Liahona*, Jan. 2000, 45.
 
+#Adversity #Discipleship #Jesus_Christ

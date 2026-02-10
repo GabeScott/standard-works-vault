@@ -135,3 +135,6 @@ Elder James E. Talmage tenderly reminded us, “The world’s greatest champion
 
 [^29]: See [[2 Nephi 33.6|2 Nephi 33:6]]; [[D&C 76.22|Doctrine and Covenants 76:22]].
 
+
+
+#Restoration #Revelation #Women

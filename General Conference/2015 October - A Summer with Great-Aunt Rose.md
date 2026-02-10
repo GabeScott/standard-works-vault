@@ -165,5 +165,5 @@ As you walk along your own bright path of discipleship, I pray that faith will f
 
 [^8]: “Often the prickly thorn produces tender roses” (Ovid, *Epistulae ex ponto,* book 2, epistle 2, line 34; “Saepe creat molles aspera spina rosas”).
 
-[^9]: See [[Moroni 7.42|Moroni 7:42]].
 
+#Adversity #Faith #Hope #Joy #Love

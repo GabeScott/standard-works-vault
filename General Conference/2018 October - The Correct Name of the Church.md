@@ -119,3 +119,6 @@ I know that God lives. Jesus is the Christ. He leads His Church today. I so test
 
 [^17]: See [[D&C 121.33|Doctrine and Covenants 121:33]].
 
+
+
+#Atonement #Jesus_Christ #Name_Of_Church #Restoration

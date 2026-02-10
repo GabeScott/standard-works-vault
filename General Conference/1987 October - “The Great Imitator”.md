@@ -79,3 +79,6 @@ I pray that, through the spreading of righteousness, the evil hands of the destr
 
 
 
+
+
+#Satan #Temptation

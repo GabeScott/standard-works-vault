@@ -57,3 +57,6 @@ May the Lord bless us as women with that eternal perspective. May our decisions 
 
 
 
+
+
+#Prayer #Prophets #Scripture_Study #Women

@@ -132,5 +132,5 @@ That each of us may do so is my humble prayer, in the name of Jesus Christ, amen
 
 [^12]: See [[1 Samuel 2.30|1 Samuel 2:30]].
 
-[^13]: “True to the Faith,” *Hymns,* no. 254.
 
+#Addiction #Financial_Management #Media #Morality #Temptation #Word_Of_Wisdom

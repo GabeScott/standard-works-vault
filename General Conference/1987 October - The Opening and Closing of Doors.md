@@ -83,3 +83,6 @@ May God bless us in the ups and downs of life, in the opening and closing of doo
 
 
 
+
+
+#Adversity #Faith

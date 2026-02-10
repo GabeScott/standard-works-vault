@@ -139,5 +139,5 @@ May we always remember that each spirit child of God is coming to earth on his o
 
 [^24]: [[3 Nephi 17.21|3 Nephi 17:21, 24]][[3 Nephi 17.24|]].
 
-[^25]: “In reality, we are all travelers—even explorers of mortality. We do not have the benefit of previous personal experience. We must pass over steep precipices and turbulent waters in our own journey here on earth” (Thomas S. Monson, “[[2003 October - The Bridge Builder.md|The Bridge Builder]],” *Ensign* or *Liahona*, Nov. 2003, 67).
 
+#Abortion #Children #Family #Love #Mortality #Motherhood #Plan_Of_Salvation

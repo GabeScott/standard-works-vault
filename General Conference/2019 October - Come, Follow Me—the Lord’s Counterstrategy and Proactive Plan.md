@@ -81,3 +81,6 @@ May our daily efforts in studying the scriptures fortify us and prove us worthy 
 
 
 
+
+
+#Spirituality #Teaching

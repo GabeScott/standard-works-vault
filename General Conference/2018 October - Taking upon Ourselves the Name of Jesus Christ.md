@@ -119,3 +119,6 @@ From the very depths of my soul, I bear testimony that The Church of Jesus Chris
 
 [^31]: [[John 4.14|John 4:14]].
 
+
+
+#Healing #Individual_Worth #Jesus_Christ #Love #Service #Trust

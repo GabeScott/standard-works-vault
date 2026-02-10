@@ -85,3 +85,6 @@ I testify we have a living Savior, Jesus Christ, and with His power and light we
 
 [^10]: “The Living Christ: The Testimony of the Apostles,” *Ensign* or *Liahona,* Apr. 2000, 2.
 
+
+
+#Atonement #Temples #Truth

@@ -111,3 +111,6 @@ God lives, Jesus is the Christ, Spencer W. Kimball is His living prophet. The e
 
 
 
+
+
+#Covenants #Priesthood

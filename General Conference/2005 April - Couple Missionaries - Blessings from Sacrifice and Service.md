@@ -93,3 +93,6 @@ As members of The Church of Jesus Christ of Latter-day Saints, it is our greates
 
 [^19]: [[D&C 98.13|D&C 98:13]].
 
+
+
+#Couple_Missionaries #Example #Faith #Missionary_Work #Sacrifice #Service

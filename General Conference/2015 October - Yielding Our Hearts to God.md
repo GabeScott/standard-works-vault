@@ -81,5 +81,5 @@ When we offer our broken heart to Jesus Christ, He accepts our offering. He take
 
 [^9]: Robert L. Millet, *After All We Can Do: Grace Works* (2003), 133.
 
-[^10]: “I’ll Go Where You Want Me to Go,” *Hymns,* no. 270.
 
+#Adversity #Conversion #Healing #Plan_Of_Salvation #Prayer #Sacrament

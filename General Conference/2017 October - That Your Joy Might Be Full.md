@@ -101,5 +101,5 @@ Come unto Him. I testify that as you center your life on Jesus Christ, you will 
 
 [^22]: “Where Can I Turn for Peace?” no. 129.
 
-[^23]: “[The Living Christ](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 3.
 
+#Adversity #Faith #Healing #Jesus_Christ #Joy #Peace #Testimony

@@ -147,3 +147,6 @@ May we gather our loved ones around us, “gird up \[our\] loins; \[and\] fresh 
 
 [^22]: In Conference Report, Apr. 1929, 110.
 
+
+
+#Children #Faith #Family #Parenthood #Scripture_Study #Teaching

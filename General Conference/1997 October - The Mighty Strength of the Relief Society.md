@@ -157,3 +157,6 @@ Sisters, may we gain knowledge through study. May we make home a heaven. May we 
 
 [^17]: [[D&C 1.30|D&C 1:30]].
 
+
+
+#Blessings #Children #Curriculum #Family #Home #Joy #Motherhood #Priesthood #Relief_Society #Service #Women

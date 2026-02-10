@@ -91,3 +91,6 @@ I pray for the blessings of the Lord upon all who seek to do his will, in the na
 
 
 
+
+
+#Agency #Satan

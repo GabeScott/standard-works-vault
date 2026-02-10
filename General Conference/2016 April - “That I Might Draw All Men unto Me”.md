@@ -125,3 +125,6 @@ As you do, I promise that you will feel nearer to God. Natural tendencies to chi
 
 [^15]: [[Revelation 21.4|Revelation 21:4]].
 
+
+
+#Jesus_Christ #Sacrament #Spirituality #Welfare

@@ -83,3 +83,6 @@ May God bless us that we may revitalize and strengthen this tremendously importa
 
 
 
+
+
+#Children #Duty #Education #Family #Family_Home_Evening #Goals #Parents #Scripture_Study

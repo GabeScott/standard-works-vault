@@ -111,3 +111,6 @@ To my Eternal Father I give thanks for that essence of divinity which is within 
 
 
 
+
+
+#Restoration #Testimony #Tithing

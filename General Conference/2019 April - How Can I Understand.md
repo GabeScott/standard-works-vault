@@ -107,3 +107,6 @@ I testify that Jesus Christ is the Savior of the world. He is the Redeemer, and 
 
 [^21]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
+
+
+#Example #Teaching

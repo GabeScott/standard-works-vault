@@ -121,5 +121,5 @@ I testify that the plan of happiness works. It was created by your Heavenly Fath
 
 [^12]: The Lord has said, “No one can assist in this work except he shall be humble and full of love” ([[D&C 12.8|Doctrine and Covenants 12:8]]).
 
-[^13]: [[Alma 34.31|Alma 34:31]].
 
+#Adversity #Faith #Humility #Jesus_Christ #Plan_Of_Salvation #Repentance

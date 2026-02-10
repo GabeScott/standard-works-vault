@@ -53,3 +53,6 @@ And to this I testify in the name of our Lord and Savior, Jesus Christ. Amen.
 
 
 
+
+
+#Tithing

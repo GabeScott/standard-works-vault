@@ -71,3 +71,6 @@ We invite all to hear, accept, and embrace this gospel. This invitation is to al
 
 
 
+
+
+#Last_Days #Patriarchal_Blessings

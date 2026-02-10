@@ -85,3 +85,6 @@ I testify of the divinely inspired Constitution of the United States and pray th
 
 [^9]: See David B. Magleby, “The Necessity of Political Parties and the Importance of Compromise,” *BYU Studies*, vol. 54, no. 4 (2015), 7–23.
 
+
+
+#Agency #Freedom #Government #Laws #U.S._Constitution

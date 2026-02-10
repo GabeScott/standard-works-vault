@@ -83,3 +83,6 @@ I pray that each of us will read the Book of Mormon by the end of the year in re
 
 
 
+
+
+#Blessings #Book_Of_Mormon #Prophets #Scripture_Study

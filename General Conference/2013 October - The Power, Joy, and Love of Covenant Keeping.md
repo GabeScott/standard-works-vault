@@ -137,3 +137,6 @@ Let us remember that even those who have been wayward in the past or who are cur
 
 [^26]: [[John 10.11|John 10:11]].
 
+
+
+#Covenants #Love #Service

@@ -127,3 +127,6 @@ I testify that the efforts we make to teach and sing these Primary songs to our 
 
 [^24]: See “Jesus Wants Me for a Sunbeam,” *Children’s Songbook*, 60.
 
+
+
+#Children #Church_Doctrine #Music #Primary

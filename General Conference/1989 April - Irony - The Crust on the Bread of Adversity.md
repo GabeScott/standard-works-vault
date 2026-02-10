@@ -101,3 +101,6 @@ Glory be to the Father, in the name of Him who can succor us amid all our ironie
 
 
 
+
+
+#Adversity #Atonement #Jesus_Christ

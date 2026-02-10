@@ -79,5 +79,5 @@ I testify of all of this and pray that we all will remember what our Savior has 
 
 [^5]: See [[John 6.58|John 6:58]].
 
-[^6]: See Topical Guide, “[Follow](https://churchofjesuschrist.org/study/scriptures/tg/follow?lang=eng).”
 
+#Adversity #Atonement #Jesus_Christ #Love #Plan_Of_Salvation #Repentance #Resurrection

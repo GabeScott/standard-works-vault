@@ -103,3 +103,6 @@ He lives. He is our Savior, our Redeemer, our Lord. Of Him I bear an apostolic w
 
 
 
+
+
+#Book_Of_Mormon #Scriptures

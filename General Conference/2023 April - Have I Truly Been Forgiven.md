@@ -109,3 +109,6 @@ I testify that God lives and that He loves us. I further testify that Jesus Chri
 
 [^1]: Russell M. Nelson, “[Prepare for Blessings of the Temple](https://churchofjesuschrist.org/study/ensign/2002/03/prepare-for-blessings-of-the-temple?lang=eng&id=p50#p50),” *Ensign*, Mar. 2002, 21.
 
+
+
+#Atonement #Forgiveness #Healing #Jesus_Christ #Love #Repentance

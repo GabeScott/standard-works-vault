@@ -129,5 +129,5 @@ I pray that we can come to the Savior, like the woman at the well, and drink of 
 
 [^18]: See [[Psalms 27.1|Psalm 27:1]]; [[John 8.12|John 8:12]]; [[D&C 88.50|Doctrine and Covenants 88:50]]; see also Sharon Eubank, “[[2019 April - Christ - The Light That Shines in Darkness.md|Christ: The Light That Shines in Darkness]],” *Ensign* or *Liahona*, May 2019, 73–76.
 
-[^19]: [[John 4.42|John 4:42]].
 
+#Adversity #Divine_Nature #Jesus_Christ #Power

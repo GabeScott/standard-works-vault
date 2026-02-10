@@ -47,3 +47,6 @@ My beloved youth, I promise you that as you serve with faith as did Elder Coy, a
 
 
 
+
+
+#Faith #Missionary_Work #Spirituality #Testimony

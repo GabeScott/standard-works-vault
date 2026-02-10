@@ -83,3 +83,6 @@ Brothers and sisters, like the Saints of 1848, we can choose to follow the proph
 
 [^8]: Ezra Taft Benson, “Fourteen Fundamentals in Following the Prophet,” in *1980 Devotional Speeches of the Year* (1981), 30.
 
+
+
+#Faith #Obedience #Pioneers #Prophets #Trust

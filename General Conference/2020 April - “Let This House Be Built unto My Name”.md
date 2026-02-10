@@ -165,3 +165,6 @@ I solemnly testify that the Father and the Son appeared to Joseph Smith, and Eli
 
 [^27]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
+
+
+#Covenants #Ordinances #Temple_Work

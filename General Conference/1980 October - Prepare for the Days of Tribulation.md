@@ -75,3 +75,6 @@ May God bless us to be prepared for the days which lie ahead, which may be the m
 
 
 
+
+
+#Self-Reliance

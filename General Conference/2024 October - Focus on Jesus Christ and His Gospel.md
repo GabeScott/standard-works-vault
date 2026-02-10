@@ -93,5 +93,5 @@ He lovingly invites, “Come unto me, all ye that labour and are heavy laden, an
 
 [^17]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 92–95.
 
-[^18]: [[Matthew 11.28|Matthew 11:28]]; see also [[Matthew 11.29|verses 29–30]][[Matthew 11.30|]].
 
+#Adversity #Gospel #Jesus_Christ #Joy

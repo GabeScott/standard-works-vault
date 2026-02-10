@@ -41,3 +41,6 @@ And if those who hear will take the Savior’s name upon them and always remembe
 
 
 
+
+
+#Covenants #Humility #Jesus_Christ

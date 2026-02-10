@@ -39,3 +39,6 @@ My dear brothers and sisters, I know that God lives! Jesus is the Christ! This i
 
 [^2]: See [[D&C 93.40|Doctrine and Covenants 93:40]]; [[Moses 6.58|Moses 6:58–62]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]].
 
+
+
+#Curriculum #Home #Ministering #Sabbath

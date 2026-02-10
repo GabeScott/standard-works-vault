@@ -81,3 +81,6 @@ In his last tender letter to Moroni, Mormon concluded: “My son, be faithful in
 
 
 
+
+
+#Authority #Faith #Priesthood #Repentance #Service #Spirituality

@@ -119,3 +119,6 @@ Let us remember also that every disloyal person weakens our army, and pray that 
 
 
 
+
+
+#Covenants #Priesthood #Standards

@@ -61,3 +61,6 @@ May the Lord bless us to continue being valiant, humble, and faithful. In the na
 
 
 
+
+
+#Endurance #Faith #Humility #Prayer #Priesthood #Scripture_Study #Trust

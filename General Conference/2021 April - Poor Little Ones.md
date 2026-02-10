@@ -73,3 +73,6 @@ I bear witness of Him, even Jesus Christ, the Master Minister and Savior of us a
 
 
 
+
+
+#Church_Membership #Compassion #Covenants #Ministering

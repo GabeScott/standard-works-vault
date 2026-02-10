@@ -81,3 +81,6 @@ Of such was the faith of our fathers. Of such is our faith. “Faith of our fath
 
 
 
+
+
+#Book_Of_Mormon #Faith #Jesus_Christ #Joseph_Smith #Priesthood

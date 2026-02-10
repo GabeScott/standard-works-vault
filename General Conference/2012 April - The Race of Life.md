@@ -138,3 +138,6 @@ In one week we will celebrate Easter. Our thoughts will turn to the Savior’s l
 
 [^15]: [[1 Corinthians 15.40|1 Corinthians 15:40]].
 
+
+
+#Death #Jesus_Christ #Plan_Of_Salvation #Priorities #Resurrection

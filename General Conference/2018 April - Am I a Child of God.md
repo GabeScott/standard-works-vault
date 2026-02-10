@@ -147,5 +147,5 @@ That every one of us might truly understand and cherish our “noble birthright�
 
 [^39]: “Carry On,” *Hymns,* no. 255.
 
-[^40]: [[John 17.3|John 17:3]].
 
+#Adversity #Book_Of_Mormon #Children #Divine_Nature #God_The_Father #Jesus_Christ #Joseph_Smith #Motherhood

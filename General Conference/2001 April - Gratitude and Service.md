@@ -87,3 +87,6 @@ May you be so blessed. May you have a burning feeling in your heart. May you fee
 
 
 
+
+
+#Couple_Missionaries #Gratitude #Jesus_Christ #Miracles #Parents #Pioneers

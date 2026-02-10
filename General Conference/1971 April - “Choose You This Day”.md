@@ -117,3 +117,6 @@ I sincerely pray that we will have the courage and strength to humble ourselves,
 
 
 
+
+
+#Agency #Obedience #Plan_Of_Salvation #Repentance

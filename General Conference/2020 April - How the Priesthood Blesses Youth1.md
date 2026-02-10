@@ -39,3 +39,6 @@ I know that Joseph Smith was the prophet of the Restoration and that President N
 
 [^2]: Aaronic Priesthood quorum theme, in *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints,* 10.1.2, ChurchofJesusChrist.org.
 
+
+
+#Priesthood

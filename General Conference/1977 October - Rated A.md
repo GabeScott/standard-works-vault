@@ -73,3 +73,6 @@ For this I humbly pray in the worthy name of Jesus Christ, our Savior and Redeem
 
 
 
+
+
+#Character #Evil

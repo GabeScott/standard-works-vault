@@ -99,5 +99,5 @@ To President Monson’s powerful declaration I add my own. I testify that God is
 
 [^18]: [[D&C 98.37|Doctrine and Covenants 98:37]].
 
-[^19]: Thomas S. Monson, in Conference Report, Apr. 2009, 90; or *Ensign,* May 2009, 92.
 
+#Adversity #Faith #Obedience #Tithing

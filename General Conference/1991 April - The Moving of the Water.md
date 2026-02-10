@@ -105,3 +105,6 @@ I am a witness of the condition of those who have gone beyond the veil, and we a
 
 
 
+
+
+#Adversity #Disabilities #Resurrection #Spirituality

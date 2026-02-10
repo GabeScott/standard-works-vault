@@ -115,5 +115,5 @@ We have much reason to hope. Joy can be ours if we are willing to sacrifice all 
 
 [^20]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 345.
 
-[^21]: “Remarks,” *Deseret News,* May 31, 1871, 197.
 
+#Adversity #Faith #Perspective

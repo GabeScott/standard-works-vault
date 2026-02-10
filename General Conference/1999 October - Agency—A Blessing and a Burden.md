@@ -59,3 +59,6 @@ I close with the prayer of Nephi speaking for you and for me: “O Lord, wilt th
 
 
 
+
+
+#Agency #Atonement #Commitment #Faith #Holy_Ghost #Opposition #Satan

@@ -139,5 +139,5 @@ The Savior said, “I will not leave you comfortless: I will come to you.”[^25
 
 [^24]: See [[Helaman 7.9|Helaman 7:9]].
 
-[^25]: [[John 14.18|John 14:18]].
 
+#Adversity #Atonement #Obedience

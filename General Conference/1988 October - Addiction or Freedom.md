@@ -113,3 +113,6 @@ The Lord has revealed His sacred standard to guide people in a troubled world. Y
 
 [^11]: Ezra Taft Benson, in Conference Report, April 1983, pp. 69–72; or *Ensign,* May 1983, pp. 54–55. Spencer W. Kimball, in Conference Report, Apr. 1974, p. 8; or *Ensign,* May 1974, p. 7. Joseph Fielding Smith, in Conference Report, Apr. 1971, p. 47; or *Ensign,* June 1971, p. 49. Heber J. Grant, J. Reuben Clark, Jr., David O. McKay, “Message of the First Presidency,” in Conference Report, Oct. 1942, pp. 8–10.
 
+
+
+#Agency #Word_Of_Wisdom

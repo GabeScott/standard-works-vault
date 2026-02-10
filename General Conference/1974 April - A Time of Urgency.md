@@ -79,3 +79,6 @@ God lives. Jesus is the Christ. He is our Redeemer, and this is His kingdom here
 
 
 
+
+
+#Jesus_Christ #Preparation

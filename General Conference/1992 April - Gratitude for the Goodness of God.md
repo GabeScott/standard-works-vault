@@ -123,3 +123,6 @@ That we may feel true gratitude for the goodness of God for all the blessings th
 
 
 
+
+
+#Gratitude #Jesus_Christ #Prayer #Repentance

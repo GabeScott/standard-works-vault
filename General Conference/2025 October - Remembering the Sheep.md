@@ -43,3 +43,6 @@ In the Church of Jesus Christ, we have been instructed by prophets past and prop
 
 
 
+
+
+#Church_Callings #Individual_Worth #Ministering #Service

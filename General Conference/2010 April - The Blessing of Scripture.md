@@ -57,3 +57,6 @@ Consider the magnitude of our blessing to have the Holy Bible and some 900 addit
 
 [^2]: See interview of Richard Neitzel Holzapfel, in Michael De Groote, “Questioning the Alternative Jesus,” *Deseret News,* Nov. 26, 2009, M5.
 
+
+
+#Bible #Jesus_Christ #Scriptures #Truth

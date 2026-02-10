@@ -103,3 +103,6 @@ May the blessings of heaven come down upon your wives and your children. Someday
 
 
 
+
+
+#Bishops #Evil #Example #Honesty #Priesthood #Worldliness

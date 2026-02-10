@@ -131,3 +131,6 @@ I testify that Jesus Christ lives and has redeemed us. He is the One who said, â
 
 [^34]: [[Isaiah 43.1|Isaiah 43:1]].
 
+
+
+#Discipleship #Jesus_Christ

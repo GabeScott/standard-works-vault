@@ -45,3 +45,6 @@ I testify to you that God has known you individually, brethren, for a long, long
 
 
 
+
+
+#Dedication #Fatherhood #Humility #Mercy #Patience #Service

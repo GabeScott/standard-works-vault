@@ -101,3 +101,6 @@ Thank your Father in Heaven and His Beloved Son for the plan of happiness and th
 
 [^11]: See Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 177.
 
+
+
+#Adversity #Agency #Blessings #Children #Faith #Gratitude #Jesus_Christ #Joy #Prayer #Prophets #Repentance #Scriptures #Service #Talents #Temples

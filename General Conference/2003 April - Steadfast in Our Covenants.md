@@ -63,3 +63,6 @@ I testify to you that when I remember my covenants each day, I do feel hope and 
 
 
 
+
+
+#Adversity #Covenants #Endurance #Hope

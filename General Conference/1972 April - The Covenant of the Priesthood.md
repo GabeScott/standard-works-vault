@@ -65,3 +65,6 @@ God help us to understand this, and the great honor he has placed upon us by giv
 
 
 
+
+
+#Covenants #Priesthood

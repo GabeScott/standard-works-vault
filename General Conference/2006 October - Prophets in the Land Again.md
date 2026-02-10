@@ -73,3 +73,6 @@ I testify of this reaching, rescuing, merciful Jesus, that this is His redeeming
 
 [^15]: [[Ether 7.23|Ether 7:23]]; [[Ether 9.28|9:28]].
 
+
+
+#General_Conference #Pioneers #Prophets #Testimony

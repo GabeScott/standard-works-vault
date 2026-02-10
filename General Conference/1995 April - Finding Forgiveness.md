@@ -101,3 +101,6 @@ Obtain His forgiveness by repenting *now.* In the name of Jesus Christ, amen.
 
 [^19]: [[Helaman 3.35|Hel. 3:35]].
 
+
+
+#Agency #Atonement #Forgiveness #Healing #Jesus_Christ #Mercy #Morality #Obedience #Repentance #Sin #Temptation

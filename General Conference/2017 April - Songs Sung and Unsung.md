@@ -78,5 +78,5 @@ I testify that hour will come, that God our Eternal Father will again send to ea
 
 [^15]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 142.
 
-[^16]: *Hymns,* no. 227.
 
+#Adversity #Faith #Love #Mental_Illness #Music #Poverty #Unity

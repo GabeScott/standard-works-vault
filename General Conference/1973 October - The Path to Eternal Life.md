@@ -83,3 +83,6 @@ I hope, brothers and sisters, we will all be worthy of this wonderful gift and b
 
 
 
+
+
+#Faith #Plan_Of_Salvation #Standards

@@ -59,3 +59,6 @@ I say this in the name of the Lord Jesus Christ. Amen.
 
 
 
+
+
+#Atonement #Church_Doctrine #Plan_Of_Salvation #Restoration

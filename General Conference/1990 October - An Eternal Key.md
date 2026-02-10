@@ -47,3 +47,6 @@ May God bless all fathers to righteously obtain and maintain this patriarchal ke
 
 
 
+
+
+#Family #Obedience #Priesthood

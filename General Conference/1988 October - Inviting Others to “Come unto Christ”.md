@@ -112,4 +112,4 @@ May that gift, even charity, be ours. May we give of ourselves to the spirituall
 
 
 
-
+#Activation #Home_Teaching #Responsibility #Teaching

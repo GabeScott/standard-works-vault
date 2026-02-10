@@ -69,3 +69,6 @@ I pray that we will have the strength to decide now to do what we ought to do. I
 
 
 
+
+
+#Commitment #Obedience

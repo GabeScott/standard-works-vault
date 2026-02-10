@@ -69,3 +69,6 @@ In the name of Jesus Christ, amen.
 
 [^12]: “[Amazing Grace](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/amazing-grace?lang=eng&id=figure1_p1-figure1_p4#figure1_p1),” *Hymns—For Home and Church*, Gospel Library.
 
+
+
+#Book_Of_Mormon #Priesthood_Authority #Testimony #Truth

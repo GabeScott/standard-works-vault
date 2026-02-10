@@ -69,3 +69,6 @@ I testify that Jesus is the Christ and that He stands at the head of this Church
 
 
 
+
+
+#Charity #Jesus_Christ #Patience

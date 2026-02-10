@@ -153,3 +153,6 @@ I testify that these things are true, in the name of Jesus Christ. Amen.
 
 
 
+
+
+#Laws #Obedience

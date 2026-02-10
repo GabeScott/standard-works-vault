@@ -57,3 +57,6 @@ As one of the weakest of the weak, I testify that God lives. I testify and witne
 
 
 
+
+
+#Atonement #Grace #Humility #Quorum_Of_The_Twelve_Apostles #Testimony

@@ -141,3 +141,6 @@ I testify that the windows of heaven are indeed open. President Gordon B. Hinckl
 
 [^29]: [[D&C 76.112|D&C 76:112]].
 
+
+
+#Word_Of_Wisdom #Worship

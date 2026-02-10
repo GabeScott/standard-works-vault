@@ -119,3 +119,6 @@ Today we all stand as witnesses of the Lord revealing His will through His proph
 
 [^7]: “Behold! A Royal Army,” *Hymns,* no. 251.
 
+
+
+#Church_Organization #Ministering #Priesthood_Quorums #Unity

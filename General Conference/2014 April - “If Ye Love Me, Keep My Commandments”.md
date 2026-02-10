@@ -127,3 +127,6 @@ I bear my special witness that our Savior lives. Because He obeyed, “every kne
 
 [^22]: [[Mosiah 27.31|Mosiah 27:31]].
 
+
+
+#Agency #Jesus_Christ #Obedience

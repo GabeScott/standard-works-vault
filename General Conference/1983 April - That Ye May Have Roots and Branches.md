@@ -57,3 +57,6 @@ Who, then, can afford not to give the Lord his tenth? Surely neither you nor I; 
 
 
 
+
+
+#Tithing

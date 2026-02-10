@@ -115,3 +115,6 @@ In the name of Jesus Christ, amen.
 
 [^11]: [[James 1.22|James 1:22]].
 
+
+
+#Blessings #Faith #Missionary_Work #Prayer #Work

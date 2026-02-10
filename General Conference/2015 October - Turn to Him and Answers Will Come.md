@@ -111,5 +111,5 @@ I hope as you have listened this morning that the Spirit has impressed on your m
 
 [^20]: [[D&C 6.23|Doctrine and Covenants 6:23]].
 
-[^21]: See [[Alma 32.27|Alma 32:27–28]][[Alma 32.28|]].
 
+#Adversity #Conversion #Faith #Fasting #Obedience #Prayer #Revelation #Scriptures

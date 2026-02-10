@@ -143,5 +143,5 @@ My dear brothers and sisters, the diminishing love for unborn children worldwide
 
 [^22]: [[John 13.35|John 13:35]]; see also [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
-[^23]: Other resources that may be helpful: Topics and Questions, “[Unwed Pregnancy](https://churchofjesuschrist.org/study/manual/gospel-topics/unwed-pregnancy?lang=eng),” Gospel Library; “[Single Expectant Parents](https://churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title97#title97),” *General Handbook*, 38.6.19; Counseling Resources, “[Single Expectant Parents](https://churchofjesuschrist.org/study/manual/counseling-resources/single-expectant-parents?lang=eng),” Gospel Library.
 
+#Abortion #Children #Family #Love

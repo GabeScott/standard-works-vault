@@ -77,5 +77,5 @@ I testify that the Lord knows you. He knows your struggles and concerns. He know
 
 [^4]: [[Alma 36.3|Alma 36:3]]; [[Alma 37.35|37:35, 37]][[Alma 37.37|]].
 
-[^5]: [[Alma 36.20|Alma 36:20]].
 
+#Adversity #Disabilities #Missionary_Work #Service

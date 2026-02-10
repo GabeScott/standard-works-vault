@@ -41,3 +41,6 @@ I testify that this is true. He has not only marked the way, but He has even led
 
 
 
+
+
+#Covenants #Morality #Standards

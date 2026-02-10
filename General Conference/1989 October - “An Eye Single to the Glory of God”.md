@@ -57,3 +57,6 @@ Of these truths I testify, adding my own humble witness of the reality and goodn
 
 
 
+
+
+#Humility #Sacrifice

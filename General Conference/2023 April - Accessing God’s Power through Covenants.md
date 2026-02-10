@@ -107,3 +107,6 @@ As you come to Christ and are connected to Him and our Heavenly Father by covena
 
 [^28]: See [[D&C 132.19|Doctrine and Covenants 132:19–20]][[D&C 132.20|]].
 
+
+
+#Covenants #Discipleship #Jesus_Christ #Ordinances #Temples

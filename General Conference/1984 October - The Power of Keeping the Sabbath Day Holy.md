@@ -89,3 +89,6 @@ May we all live that someday, someway, somewhere, somehow, as we face that which
 
 
 
+
+
+#Commandments #Obedience #Sabbath

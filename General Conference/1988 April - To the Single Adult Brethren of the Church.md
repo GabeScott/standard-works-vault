@@ -97,3 +97,6 @@ Know, my good brethren, that I have spoken from my heart and by His Spirit becau
 
 
 
+
+
+#Marriage #Priorities #Single_Members

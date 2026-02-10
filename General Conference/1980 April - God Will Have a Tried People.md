@@ -71,3 +71,6 @@ May God bless us to endure well the purpose for which we were sent, I pray in th
 
 
 
+
+
+#Adversity #Endurance

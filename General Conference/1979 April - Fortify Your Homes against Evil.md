@@ -111,3 +111,6 @@ May the Lord bless us all in our homes and families as we strive to draw nearer 
 
 
 
+
+
+#Home #Obedience #Teaching

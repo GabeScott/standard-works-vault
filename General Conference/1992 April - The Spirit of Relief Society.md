@@ -117,3 +117,6 @@ In the name of the Prince of Peace, Jesus Christ the Lord, amen.
 
 [^6]: “Gifts,” in *The Complete Writings of Ralph Waldo Emerson* (New York: Wm. H. Wise and Co., 1929), p. 286.
 
+
+
+#Home #Relief_Society #Service #Talents

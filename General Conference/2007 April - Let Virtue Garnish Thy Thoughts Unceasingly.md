@@ -67,3 +67,6 @@ May the Lord bless you, my dear young sisters; may His blessings attend you at a
 
 
 
+
+
+#Faith #Prayer #Scriptures #Tithing

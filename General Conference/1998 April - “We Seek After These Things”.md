@@ -89,3 +89,6 @@ In His infinite wisdom, since the beginning of the earth, God has led His people
 
 [^16]: *Discourses of Brigham Young,* 280.
 
+
+
+#Character #Endurance #Honesty #Jesus_Christ #Missionary_Work #Morality #Priesthood

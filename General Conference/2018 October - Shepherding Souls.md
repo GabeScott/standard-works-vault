@@ -111,5 +111,5 @@ May we raise our sights to this prophetic vision so we can shepherd souls to the
 
 [^18]: Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” 118–19; emphasis added.
 
-[^19]: [[1 Peter 5.4|1 Peter 5:4]].
 
+#Activation #Jesus_Christ #Ministering

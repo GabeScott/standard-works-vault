@@ -177,3 +177,6 @@ I leave you my faith, my conviction, and my certain and unshakable witness that 
 
 [^14]: Deuteronomy 1:11, New International Version (2011).
 
+
+
+#Agency #Endurance #Faith #Trust

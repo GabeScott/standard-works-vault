@@ -61,3 +61,6 @@ I testify of Jesus Christ and of the effects of His Atonement and the other trut
 
 [^2]: See Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
+
+
+#Agency #Plan_Of_Salvation #Sacrifice

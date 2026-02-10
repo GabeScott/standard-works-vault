@@ -171,3 +171,6 @@ That we may do so is my humble prayer in the name of Jesus Christ, amen.
 
 [^12]: Albert Camus, in John Bartlett, comp., *Familiar Quotations,* 16th ed. (1980), 732.
 
+
+
+#Individual_Worth #Joy #Kindness #Love

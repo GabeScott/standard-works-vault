@@ -75,3 +75,6 @@ That we may all be “partakers of the glories” in our Father’s kingdom is m
 
 
 
+
+
+#Covenants #Gratitude #Holy_Ghost #Ordinances #Patriarchal_Blessings #Plan_Of_Salvation #Priesthood #Relief_Society #Temples

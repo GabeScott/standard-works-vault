@@ -155,3 +155,6 @@ I bear you my witness, my brothers and sisters, that this doctrine I’ve been q
 
 
 
+
+
+#Honesty

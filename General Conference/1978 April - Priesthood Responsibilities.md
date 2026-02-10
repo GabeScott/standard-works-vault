@@ -133,3 +133,6 @@ These great virtues, you young Aaronic Priesthood brothers, are worth following 
 
 
 
+
+
+#Character #Parenthood #Priesthood

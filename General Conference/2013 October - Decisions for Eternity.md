@@ -151,3 +151,6 @@ My dear brothers and sisters, each day is a day of decision, and our decisions d
 
 [^42]: We will be judged according to our deeds and the desire of our hearts (see [[D&C 137.9|Doctrine and Covenants 137:9]]; see also [[Hebrews 4.12|Hebrews 4:12]]; [[Alma 18.32|Alma 18:32]]; [[D&C 6.16|Doctrine and Covenants 6:16]]; [[D&C 88.109|88:109]]).
 
+
+
+#Agency #Family #Marriage #Plan_Of_Salvation

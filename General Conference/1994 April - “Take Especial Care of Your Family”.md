@@ -111,5 +111,5 @@ Praise be to Jesus for bearing the sins and pains of all “the family of Adam�
 
 [^12]: Jennifer Dixon, “A Youth Dies by Gunfire Every Two Hours,” *Deseret News,* 20 Jan. 1994, sec. A, p. 1.
 
-[^13]: In Neal A. Maxwell, *That My Family Should Partake* (Salt Lake City: Deseret Book Co., 1974), p. 56.
 
+#Accountability #Authority #Children #Family #Love #Parenthood #Perspective #Priorities #Violence

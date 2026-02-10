@@ -173,3 +173,6 @@ The path toward fulfilling our divine destiny as sons and daughters of God is an
 
 [^14]: [[Mosiah 16.8|Mosiah 16:8]]; see also [[1 Corinthians 15.54|1 Corinthians 15:54]].
 
+
+
+#Discipleship #Joy #Priorities

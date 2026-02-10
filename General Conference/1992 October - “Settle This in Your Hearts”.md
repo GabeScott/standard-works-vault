@@ -77,3 +77,6 @@ May we get settled and prepare now for that marvelous moment then, I pray in the
 
 
 
+
+
+#Commitment #Consecration #Obedience

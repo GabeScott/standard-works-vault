@@ -79,3 +79,6 @@ May we restore the concept of marriage as a covenant, even the new and everlasti
 
 [^16]: See [[2 Nephi 2.25|2 Ne. 2:25]].
 
+
+
+#Adversity #Children #Covenants #Marriage #Opposition #Self-Esteem

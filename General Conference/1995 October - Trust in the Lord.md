@@ -49,3 +49,6 @@ I testify that you have a Heavenly Father who loves you. I witness that the Savi
 
 
 
+
+
+#Adversity #Agency #Example #Jesus_Christ #Joy #Peace #Prayer #Repentance #Sin #Trust

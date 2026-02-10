@@ -105,5 +105,5 @@ The Lord Jesus Christ lives today. He can be an active, daily presence in our li
 
 [^21]: [[D&C 6.36|Doctrine and Covenants 6:36]].
 
-[^22]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 98.
 
+#Adversity #Covenants #Family #Jesus_Christ #Scripture_Study

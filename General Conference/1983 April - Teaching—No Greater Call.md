@@ -51,3 +51,6 @@ To the master teacher, the Lord Jesus Christ, whose resurrection we celebrate at
 
 
 
+
+
+#Curriculum #Scriptures #Teaching

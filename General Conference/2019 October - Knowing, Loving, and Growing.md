@@ -85,3 +85,6 @@ I testify to you that I know who I am, and I do know who you are. We are all chi
 
 [^10]: [[Joseph Smith History 1.25|Joseph Smith—History 1:25]].
 
+
+
+#Discipleship #Individual_Worth #Joseph_Smith #Love #Ministering #Missionary_Work

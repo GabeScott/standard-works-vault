@@ -93,3 +93,6 @@ I bear testimony that our priorities, tendencies, inclinations, desires, appetit
 
 [^9]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
+
+
+#Humility #Priorities #Worldliness

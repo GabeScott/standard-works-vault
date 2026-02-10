@@ -111,3 +111,6 @@ May we take joy in our faith, even our knowledge, that Jesus is the Christ, the 
 
 
 
+
+
+#Atonement #Joy

@@ -93,3 +93,6 @@ I know these things to be true and testify of them in the name of Jesus Christ, 
 
 [^6]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
 
+
+
+#Holy_Ghost #Inspiration #Knowledge #Revelation

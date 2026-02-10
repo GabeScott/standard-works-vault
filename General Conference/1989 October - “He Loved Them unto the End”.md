@@ -59,3 +59,6 @@ Of that divine sustaining vote for all of us I testify in this, his true and liv
 
 
 
+
+
+#Charity #Endurance #Jesus_Christ #Leadership #Love #Sacrifice

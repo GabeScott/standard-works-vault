@@ -71,3 +71,6 @@ May we follow the counsel to so labor and so live as to obtain the Spirit of God
 
 
 
+
+
+#Holy_Ghost #Missionary_Work #Spirituality

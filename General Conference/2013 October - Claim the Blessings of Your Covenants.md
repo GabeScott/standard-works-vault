@@ -69,5 +69,5 @@ I testify that Jesus Christ is our Savior and Redeemer. Because of His atoning s
 
 [^5]: See [[D&C 82.10|Doctrine and Covenants 82:10]].
 
-[^6]: See Russell M. Nelson, [“Divine Love,”](https://churchofjesuschrist.org/study/ensign/2003/02/divine-love?lang=eng) *Ensign,* Feb. 2003, 20–25; *Liahona,* Feb. 2003, 12–17.
 
+#Adversity #Covenants #Repentance #Sacrament

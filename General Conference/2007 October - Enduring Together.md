@@ -62,4 +62,4 @@ May we be an instrument in lightening the burden of others, I pray in the name o
 
 
 
-
+#Adversity #Endurance #Love #Service

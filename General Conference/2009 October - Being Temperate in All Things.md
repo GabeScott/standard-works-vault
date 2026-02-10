@@ -91,3 +91,6 @@ I leave my witness that our Redeemer lives and His divine gift of temperance is 
 
 [^15]: [[D&C 12.8|D&C 12:8]].
 
+
+
+#Financial_Management #Jesus_Christ

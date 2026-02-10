@@ -59,3 +59,6 @@ I bear my witness, my brethren, that the bishops of this Church have a stewardsh
 
 
 
+
+
+#Priesthood #Sacrifice #Service

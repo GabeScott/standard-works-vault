@@ -59,3 +59,6 @@ I testify that we are our Father in Heaven’s children, that He loves us, and t
 
 [^3]: [[D&C 64.34|Doctrine and Covenants 64:34]].
 
+
+
+#Conversion #Example #Love #Missionary_Work

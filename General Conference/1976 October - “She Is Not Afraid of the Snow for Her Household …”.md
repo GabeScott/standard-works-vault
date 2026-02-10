@@ -65,3 +65,6 @@ It is my prayer that the preparations of the women of the Church in the area of 
 
 
 
+
+
+#Preparation #Self-Reliance

@@ -57,3 +57,6 @@ We love you. We pray for you. We find comfort in your example. And I pray this d
 
 
 
+
+
+#Adversity #Joy

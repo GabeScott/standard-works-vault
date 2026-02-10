@@ -95,3 +95,6 @@ I testify that He whom we address as our Father in Heaven is indeed our Father, 
 
 [^14]: “[I’ll Walk with You](https://churchofjesuschrist.org/study/manual/childrens-songbook/ill-walk-with-you?lang=eng),” *Children’s Songbook*, 140–41.
 
+
+
+#Belonging #Divine_Nature #Love #Ministering #Perspective #Prejudice

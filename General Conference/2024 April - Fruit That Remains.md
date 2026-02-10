@@ -97,3 +97,6 @@ These promised blessings appertaining to our covenants can be sealed upon us by 
 
 [^19]: See [[John 15.16|John 15:16]].
 
+
+
+#Covenants #Holy_Ghost #Marriage #Plan_Of_Salvation #Sealings

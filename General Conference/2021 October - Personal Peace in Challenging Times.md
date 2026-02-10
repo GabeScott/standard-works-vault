@@ -135,5 +135,5 @@ I testify and provide my personal apostolic witness that Jesus Christ, the Savio
 
 [^31]: See Russell M. Nelson, “[[2020 April - Opening Message.md|Opening Message]],” *Ensign* or *Liahona*, May 2020, 6; see also Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 81–84.
 
-[^32]: Russell M. Nelson, “[[2020 April - Opening Message.md|Opening Message]],” 6.
 
+#Adversity #Agency #Contention #Family #Jesus_Christ #Love #Peace #Righteousness

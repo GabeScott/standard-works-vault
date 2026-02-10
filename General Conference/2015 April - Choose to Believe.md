@@ -71,5 +71,5 @@ I testify that Jesus Christ is the source of light and hope for all of us. I pra
 
 [^5]: [[3 Nephi 11.32|3 Nephi 11:32]].
 
-[^6]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
+#Adversity #Agency #Faith #Hope #Jesus_Christ

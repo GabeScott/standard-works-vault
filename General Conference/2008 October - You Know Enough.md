@@ -69,5 +69,5 @@ Jesus is the Christ. He is resurrected. He is our Savior and Redeemer. All will 
 
 [^5]: [[D&C 50.24|D&C 50:24]].
 
-[^6]: [[Matthew 18.3|Matthew 18:3]].
 
+#Adversity #Faith #Testimony

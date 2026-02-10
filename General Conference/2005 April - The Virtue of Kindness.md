@@ -109,3 +109,6 @@ May we be models of kindness. May we ever live up to the words of the Savior: â€
 
 [^7]: [[John 13.35|John 13:35]].
 
+
+
+#Atonement #Jesus_Christ #Kindness

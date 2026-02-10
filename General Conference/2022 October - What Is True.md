@@ -41,5 +41,5 @@ I love you, my dear brothers and sisters. I pray that this conference will provi
 
 [^4]: See [abuse.ChurchofJesusChrist.org](https://www.churchofjesuschrist.org/get-help/abuse).
 
-[^5]: [[D&C 123.12|Doctrine and Covenants 123:12]].
 
+#Abuse #Truth

@@ -67,3 +67,6 @@ It is my prayer that our hopes will lead to the fulfillment of our righteous dre
 
 
 
+
+
+#Atonement #Charity #Faith #Hope #Pioneers

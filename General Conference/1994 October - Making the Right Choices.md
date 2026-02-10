@@ -95,3 +95,6 @@ Please stay morally clean. The Lord will make that possible as you do your part 
 
 [^20]: See [[3 Nephi 18.20|3 Ne. 18:20]].
 
+
+
+#Agency #Friendship #Holy_Ghost #Love #Marriage #Media #Morality #Peer_Pressure #Repentance #Satan #Sin #Youth

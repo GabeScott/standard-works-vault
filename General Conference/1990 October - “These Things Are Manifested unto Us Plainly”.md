@@ -101,3 +101,6 @@ I pray for the blessings of our Father in Heaven, who loves us, to continue to b
 
 
 
+
+
+#Compassion #Family #Individual_Worth #Jesus_Christ #Testimony #Women

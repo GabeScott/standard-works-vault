@@ -77,3 +77,6 @@ The scriptures are priceless possessions. If we search the scriptures, seeking f
 
 
 
+
+
+#Jesus_Christ #Scripture_Study

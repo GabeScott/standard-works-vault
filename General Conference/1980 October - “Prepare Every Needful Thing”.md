@@ -67,3 +67,6 @@ May I again implore you priesthood and Relief Society leaders to see that all me
 
 
 
+
+
+#Preparation #Welfare

@@ -138,3 +138,6 @@ May the peace promised by the Savior be the gift of one and all this Sabbath day
 
 [^14]: [[James 1.27|James 1:27]].
 
+
+
+#Atonement #Charity #Compassion #Death #Elderly

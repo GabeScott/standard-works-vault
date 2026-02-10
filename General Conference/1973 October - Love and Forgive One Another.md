@@ -95,3 +95,6 @@ I leave my testimony with you today that I know the true gospel of Jesus Christ 
 
 
 
+
+
+#Love #Obedience

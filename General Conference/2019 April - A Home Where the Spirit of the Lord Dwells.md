@@ -117,3 +117,6 @@ I know that the priesthood keys restored to Joseph Smith were passed on in an un
 
 [^6]: See *Teachings of Presidents of the Church: Ezra Taft Benson* (2014), 167.
 
+
+
+#Faith #Family #Home #Prayer #Repentance #Temples

@@ -49,3 +49,6 @@ I pray all of us may appreciate the challenges we have and try to improve our at
 
 
 
+
+
+#Adversity #Attitude #Trust

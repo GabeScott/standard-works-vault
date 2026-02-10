@@ -101,3 +101,6 @@ The Lord desires to bless us with guidance, wisdom, and direction in our lives. 
 
 [^16]: David A. Bednar, in Conference Report, Apr. 2011, 84; or *Ensign,* May 2011, 90.
 
+
+
+#Holy_Ghost #Testimony

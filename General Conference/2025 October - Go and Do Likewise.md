@@ -151,3 +151,6 @@ Christ “went about doing good.”[^34] He ministered to the sick,[^35] gave si
 
 [^41]: See [[Matthew 25.34|Matthew 25:34]]; [[Romans 12.1|Romans 12:1]].
 
+
+
+#Jesus_Christ #Missionary_Service #Service

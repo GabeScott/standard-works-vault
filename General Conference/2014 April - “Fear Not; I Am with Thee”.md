@@ -73,5 +73,5 @@ I share my humble but certain witness that God our Father knows us personally an
 
 [^4]: Harry Emerson Fosdick, *Twelve Tests of Character* (1923), 88.
 
-[^5]: [[Isaiah 41.10|Isaiah 41:10]].
 
+#Adversity #Faith #God_The_Father #Prayer #Trust

@@ -67,3 +67,6 @@ Brethren, this work is true. Joseph Smith saw the Father and the Son, and he hea
 
 [^7]: [[Matthew 22.14|Matthew 22:14]].
 
+
+
+#Apostasy #Church_Callings #Financial_Management #Leadership #Priesthood #Prophets

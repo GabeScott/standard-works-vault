@@ -63,3 +63,6 @@ I am grateful for temples where we can go to be sealed together as families for 
 
 [^3]: Ibid., p. 88; emphasis added.
 
+
+
+#Covenants #Family #Holy_Ghost #Home #Temples

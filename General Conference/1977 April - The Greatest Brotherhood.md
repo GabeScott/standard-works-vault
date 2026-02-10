@@ -109,3 +109,6 @@ May we strive with all our hearts, minds, and strength to do what the Lord would
 
 
 
+
+
+#Brotherhood #Unity

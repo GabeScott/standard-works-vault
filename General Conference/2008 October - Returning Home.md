@@ -85,4 +85,4 @@ I bear my testimony of the love of our Father and Savior. He loved us first and 
 
 
 
-
+#Activation #Home #Missionary_Work #Service

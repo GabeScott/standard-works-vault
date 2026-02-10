@@ -86,4 +86,4 @@ My final entry in the binder I presented to my grandchildren was my personal tes
 
 
 
-
+#Accountability #Education #Family #Hope #Joy #Laws #Love #Self-Esteem #Self-Reliance #Service #Youth

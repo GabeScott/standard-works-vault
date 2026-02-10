@@ -103,3 +103,6 @@ I testify that Jesus Christ is our beloved Savior. He is the Only Begotten Son o
 
 [^15]: [[John 21.15|John 21:15]].
 
+
+
+#Discipleship #Jesus_Christ #Love #Priorities

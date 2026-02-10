@@ -87,3 +87,6 @@ I testify of Jesus Christ, who is the Light and Life of the World (see [[3 Nephi
 
 [^11]: M. Russell Ballard, “[[2000 October - Now Is the Time.md|Now Is the Time]],” *Ensign,* Nov. 2000, 75; *Liahona,* Jan. 2001, 89.
 
+
+
+#Conversion #Missionary_Work #Obedience #Prayer

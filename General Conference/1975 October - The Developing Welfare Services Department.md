@@ -83,3 +83,6 @@ In closing I would like to read a quote from President Marion G. Romney. This i
 
 [^*]: (*excerpts only*)
 
+
+
+#Welfare

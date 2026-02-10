@@ -153,5 +153,5 @@ Like the women visited by the angel on that first Easter morning, I wish to “g
 
 [^26]: See Dictionary.com, “relief.”
 
-[^27]: See [[Matthew 28.1|Matthew 28:1–8]][[Matthew 28.2|]][[Matthew 28.3|]][[Matthew 28.4|]][[Matthew 28.5|]][[Matthew 28.6|]][[Matthew 28.7|]][[Matthew 28.8|]].
 
+#Adversity #Atonement #Charity #Covenants #Forgiveness #Healing #Jesus_Christ #Peace

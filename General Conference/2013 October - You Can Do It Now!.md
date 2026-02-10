@@ -107,5 +107,5 @@ My dear friends and brethren, no matter how many times you have slipped or falle
 
 [^8]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
-[^9]: [[Colossians 3.23|Colossians 3:23]].
 
+#Adversity #Goals #Repentance

@@ -65,5 +65,5 @@ In this, the Church of Jesus Christ, I have had many opportunities to minister a
 
 [^8]: [[Matthew 14.12|Matthew 14:12–16]][[Matthew 14.13|]][[Matthew 14.14|]][[Matthew 14.15|]][[Matthew 14.16|]].
 
-[^9]: *Teachings of Presidents of the Church: Gordon B. Hinckley* (2016), 205.
 
+#Adversity #Jesus_Christ #Ministering #Service

@@ -101,3 +101,6 @@ I testify of the power and blessings of the priesthood of God, available for His
 
 [^16]: M. Russell Ballard, *New Era,* Apr. 2014, 4; *Liahona,* Apr. 2014, 48; see also Sheri L. Dew, *Women and the Priesthood* (2013), especially chapter 6, for a valuable elaboration of the doctrines stated here.
 
+
+
+#Priesthood #Women

@@ -59,3 +59,6 @@ Let us be conscious of the fact that our future is being fashioned by the decisi
 
 
 
+
+
+#Agency #Faith #Obedience

@@ -133,3 +133,6 @@ I testify that the doctrine of the Church of Jesus Christ is eternal and true. I
 
 [^33]: See [[John 17.20|John 17:20–22]][[John 17.21|]][[John 17.22|]].
 
+
+
+#Church_Growth #Conversion #Covenants #Discipleship #Fellowshipping

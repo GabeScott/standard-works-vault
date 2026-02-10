@@ -85,3 +85,6 @@ May the Lord bless us, my brothers and sisters, in doing his work, is my prayer 
 
 
 
+
+
+#Missionary_Work #Quorum_Of_The_Twelve_Apostles

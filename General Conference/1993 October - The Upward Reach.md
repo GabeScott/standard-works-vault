@@ -138,3 +138,6 @@ To all the Aaronic Priesthood assembled tonight with your fathers and your leade
 
 [^11]: Harry Kemp, “God the Architect,” in Caroline Miles Hill, ed., *The World’s Great Religious Poetry* (New York: Macmillan, 1923), p. 211.
 
+
+
+#Priesthood #Scouting #Youth

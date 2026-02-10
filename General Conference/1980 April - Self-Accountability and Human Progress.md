@@ -52,4 +52,4 @@ At the same time, our obedience to them preserves for us the elements of life wh
 
 
 
-
+#Accountability #Agency

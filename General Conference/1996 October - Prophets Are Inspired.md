@@ -31,3 +31,6 @@ I thank the Lord every day for the health and determination I have to make the b
 
 
 
+
+
+#Gordon_B._Hinckley #Prophets

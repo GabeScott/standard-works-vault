@@ -103,3 +103,6 @@ God be thanked for this glorious work, for this day of restored truth and light,
 
 
 
+
+
+#Atonement #Education #Prophets

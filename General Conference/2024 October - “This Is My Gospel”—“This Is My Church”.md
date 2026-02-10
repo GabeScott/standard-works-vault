@@ -127,3 +127,6 @@ I invite you to commit yourself more fully to the Savior, His gospel, and His Ch
 
 [^36]: [[Helaman 5.44|Helaman 5:44]].
 
+
+
+#Conversion #Covenants #Gospel #Jesus_Christ #Ordinances #Priesthood_Power

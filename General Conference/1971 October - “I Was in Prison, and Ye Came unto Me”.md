@@ -47,3 +47,6 @@ This freedom can only be found by accepting the divine plan and keeping the comm
 
 
 
+
+
+#Freedom #Repentance #Social_Services

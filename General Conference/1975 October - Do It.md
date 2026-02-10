@@ -69,3 +69,6 @@ May we be blessed with the ability to touch hearts and lift up as we follow the 
 
 
 
+
+
+#Obedience #Spirituality #Work

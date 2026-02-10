@@ -77,3 +77,6 @@ May we all love, care for, and serve each other that all may receive the bread o
 
 
 
+
+
+#Jesus_Christ #Spirituality

@@ -111,3 +111,6 @@ Gladly and firmly, I add my small voice of witness to these wonderful declaratio
 
 
 
+
+
+#Conscience #Holy_Ghost #Jesus_Christ #Love

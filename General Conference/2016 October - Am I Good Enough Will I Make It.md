@@ -95,3 +95,6 @@ I witness to you that if you will really try and will not rationalize or rebel�
 
 [^14]: See [[2 Nephi 2.6|2 Nephi 2:6–8]][[2 Nephi 2.7|]][[2 Nephi 2.8|]].
 
+
+
+#Atonement #Jesus_Christ #Repentance

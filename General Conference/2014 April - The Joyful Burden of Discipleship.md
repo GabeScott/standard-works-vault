@@ -107,5 +107,5 @@ May we all find the joy that comes from the sacred service of bearing one anothe
 
 [^10]: [[D&C 81.5|Doctrine and Covenants 81:5]].
 
-[^11]: [[Mosiah 2.17|Mosiah 2:17]].
 
+#Adversity #Discipleship #Service

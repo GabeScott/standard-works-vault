@@ -124,5 +124,5 @@ Brethren, my prayer tonight is that all of us, in whatever capacities we serve i
 
 [^8]: [[John 1.47|John 1:47]].
 
-[^9]: [[Matthew 25.21|Matt. 25:21]].
 
+#Activation #Bishops #Goals #Priesthood #Service #Spirituality

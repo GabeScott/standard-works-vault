@@ -41,3 +41,6 @@ If you don’t already have a testimony about the priesthood, I encourage you to
 
 [^2]: Robert D. Hales, “[Blessings of the Priesthood](https://churchofjesuschrist.org/study/ensign/1995/11/blessings-of-the-priesthood?lang=eng),” *Ensign,* Nov. 1995, 32.
 
+
+
+#Patriarchal_Blessings #Priesthood #Priesthood_Blessings

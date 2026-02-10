@@ -69,3 +69,6 @@ May God bless us that we may sow to the Spirit in order that our harvest will be
 
 
 
+
+
+#Commandments #Laws #Obedience

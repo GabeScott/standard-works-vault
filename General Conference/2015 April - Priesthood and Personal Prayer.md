@@ -103,3 +103,6 @@ I bear you my testimony that God the Father lives, loves us, and hears our every
 
 [^9]: [[Matthew 25.21|Matthew 25:21]].
 
+
+
+#Holy_Ghost #Home_Teaching #Prayer #Priesthood #Service

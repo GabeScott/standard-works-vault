@@ -88,3 +88,6 @@ If only we could live our lives as our prophet, Spencer W. Kimball, does—in t
 
 
 
+
+
+#Love #Service

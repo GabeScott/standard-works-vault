@@ -57,3 +57,6 @@ To the Savior’s call “Come, follow me”[^6] or to His admonition “If ye l
 
 [^7]: [[John 14.15|John 14:15]].
 
+
+
+#Adversity #Blessings #Book_Of_Mormon #Commandments #Family #Holy_Ghost #Jesus_Christ #Joy #Obedience #Priorities #Repentance

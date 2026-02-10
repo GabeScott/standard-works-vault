@@ -85,3 +85,6 @@ I testify to you of the importance of obedience. I also wish to testify to you, 
 
 [^10]: See Sidney Alvarus Hanks and Ephraim K. Hanks, *Scouting for the Mormons on the Great Frontier* (1948), 132–33, 135–36, 140.
 
+
+
+#Commandments #Creation #Freedom #Holy_Ghost #Jesus_Christ #Laws #Obedience #Word_Of_Wisdom

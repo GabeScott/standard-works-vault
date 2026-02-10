@@ -81,3 +81,6 @@ I testify of the truth of these things, and I testify of our Savior, Jesus Chris
 
 [^6]: Charles J. Chaput, “The Great Charter at 800: Why It Still Matters,” *First Things,* Jan. 23, 2015, firstthings.com/web-exclusives/2015/01/the-great-charter-at-800; see also Tad Walch, “At BYU, Catholic Archbishop Seeks Friends, Says U.S. Liberty Depends on Moral People,” *Deseret News,* Jan. 23, 2015, deseretnews.com/article/865620233/At-BYU-Catholic-archbishop-seeks-friends-says-US-liberty-depends-on-moral-people.html. Archbishop Chaput also said that “some of our best Catholic institutions have either lost or greatly softened their religious identity. … Brigham Young is an extraordinary university … because it’s a center of learning enriched by its religious identity. Never lose that” (“The Great Charter at 800”).
 
+
+
+#Conversion #Priorities #Worldliness

@@ -180,4 +180,4 @@ God grant that all little children will be safe with every one of us because the
 
 
 
-
+#Abuse #Children #Marriage #Parenthood #Repentance

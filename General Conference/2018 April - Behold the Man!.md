@@ -185,5 +185,5 @@ I leave you my testimony and blessing that as we “behold the man,” we will f
 
 [^18]: See Dieter F. Uchtdorf, “[The Adventure of Mortality](https://www.lds.org/broadcasts/article/worldwide-devotionals/2018/01/the-adventure-of-mortality)” (worldwide devotional for young adults, Jan. 14, 2018), broadcasts.lds.org.
 
-[^19]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
+#Adversity #Atonement #Death #Discipleship #Easter #Jesus_Christ #Repentance #Resurrection

@@ -45,3 +45,6 @@ I testify that as we obey His commandments, serve others, and submit our will to
 
 [^1]: See Joseph Stein, Jerry Bock, Sheldon Harnick, *Fiddler on the Roof* (1964), 61.
 
+
+
+#Discipleship #Obedience #Service

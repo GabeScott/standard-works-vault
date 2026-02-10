@@ -127,3 +127,6 @@ I joyfully witness that compensating blessings will come as we strive to fulfill
 
 [^20]: [[D&C 109.15|Doctrine and Covenants 109:15]].
 
+
+
+#Home #Learning #Preparation #Temples

@@ -73,5 +73,5 @@ The good news is that regardless of the trust we may or may not have chosen to p
 
 [^13]: God’s personal invitations to each of us come through reading the scriptures, from living prophets, and by the whisperings of the Holy Ghost.
 
-[^14]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
+#Adversity #Agency #God_The_Father #Trust

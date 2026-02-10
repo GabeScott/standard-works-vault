@@ -137,3 +137,6 @@ This promise, and my testimony, I leave with you in the name of Jesus Christ. Am
 
 
 
+
+
+#Charity #Criticism #Forgiveness #Judging #Love

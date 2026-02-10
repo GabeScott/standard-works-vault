@@ -83,3 +83,6 @@ God bless you, President Benson, in the name of Jesus Christ, amen.
 
 [^6]: “The Honored Place of Woman,” *Ensign,* Nov. 1981, p. 107; poem quoted from *The Writings of Charles Sprague* (New York: Charles S. Francis, 1841), p. 73.
 
+
+
+#Family #Parents #Prophets #Relief_Society #Service

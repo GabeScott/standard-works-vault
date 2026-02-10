@@ -115,5 +115,5 @@ I leave with you my blessing. I leave with you my gratitude for all the good you
 
 [^9]: “Did You Think to Pray?” *Hymns,* no. 140.
 
-[^10]: Gordon B. Hinckley, “Feasting upon the Scriptures,” *Ensign,* Dec. 1985, 45; or *Tambuli,* June 1986, 4.
 
+#Adversity #Love #Prayer #Scripture_Study

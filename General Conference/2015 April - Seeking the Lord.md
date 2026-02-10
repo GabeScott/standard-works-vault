@@ -91,3 +91,6 @@ I bear my testimony of the joy that exists when we keep the commandments and of 
 
 [^8]: [[John 15.9|John 15:9]].
 
+
+
+#Jesus_Christ #Joy #Priorities #Technology

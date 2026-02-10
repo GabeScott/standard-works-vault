@@ -131,3 +131,6 @@ I bear my apostolic witness that Jesus Christ is “the light … of the world.�
 
 [^28]: [[3 Nephi 11.11|3 Nephi 11:11]].
 
+
+
+#Jesus_Christ #Prophets #Sustaining #Temples

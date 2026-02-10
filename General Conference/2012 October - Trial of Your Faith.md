@@ -139,5 +139,5 @@ With faith come trials of faith, bringing increased faith. The Lord’s comforti
 
 [^27]: [[Ether 12.6|Ether 12:6]].
 
-[^28]: [[D&C 122.9|Doctrine and Covenants 122:9]]; President George Q. Cannon said: “No matter how serious the trial, how deep the distress, how great the affliction, \[God\] will never desert us. He never has, and He never will. He cannot do it. It is not His character. He is an unchangeable being; the same yesterday, the same today, and He will be the same throughout the eternal ages to come. We have found that God. We have made Him our friend, by obeying His Gospel; and He will stand by us. We may pass through the fiery furnace; we may pass through deep waters; but we shall not be consumed nor overwhelmed. We shall emerge from all these trials and difficulties the better and purer for them, if we only trust in our God and keep His commandments” (“Remarks,” *Deseret Evening News,* Mar. 7, 1891, 4); see also Jeffrey R. Holland, [“Come unto Me,”](https://churchofjesuschrist.org/study/ensign/1998/04/come-unto-me?lang=eng) *Ensign,* Apr. 1998, 16–23.
 
+#Adversity #Faith #Morality #Testimony

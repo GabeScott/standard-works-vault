@@ -53,3 +53,6 @@ God bless you, brothers and sisters, to know as I know that God lives, that Jesu
 
 
 
+
+
+#Humility #Obedience #Sacrifice

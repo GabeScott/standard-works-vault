@@ -63,3 +63,6 @@ I thank God for the blessing of good people in all of our lives and pray that we
 
 
 
+
+
+#Courage #Example #Joseph_Smith

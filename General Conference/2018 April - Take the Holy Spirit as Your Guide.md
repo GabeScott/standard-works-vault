@@ -95,3 +95,6 @@ Following the feet of the people ahead of you on the path is not enough. We cann
 
 [^16]: [[D&C 112.10|Doctrine and Covenants 112:10]].
 
+
+
+#Holy_Ghost #Jesus_Christ #Prayer #Repentance #Revelation

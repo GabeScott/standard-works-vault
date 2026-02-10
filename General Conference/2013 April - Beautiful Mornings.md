@@ -48,4 +48,4 @@ Of the triumph of Jesus Christ over sin and death, I bear witness. Of the mercif
 
 
 
-
+#Adversity #Hope #Jesus_Christ

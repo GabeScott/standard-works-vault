@@ -91,3 +91,6 @@ If you are despondent, racked by transgression, are ill, alone, or desperately i
 
 
 
+
+
+#Adversity #Faith #Obedience #Prayer #Spirituality

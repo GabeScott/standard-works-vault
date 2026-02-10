@@ -87,3 +87,6 @@ My call to you is the same as Moroni’s call: “Awake, and arise … , O dau
 
 [^20]: [[Moroni 10.31|Moroni 10:31]].
 
+
+
+#Example #Obedience #Spirituality

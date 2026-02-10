@@ -63,3 +63,6 @@ In conclusion, I wish to repeat that I do not believe that God’s purposes on e
 
 
 
+
+
+#Marriage #Priesthood #Women

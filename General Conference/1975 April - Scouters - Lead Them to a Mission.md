@@ -72,3 +72,6 @@ Boys like adventure—a mission is the highest type of adventure. Boys want to b
 
 
 
+
+
+#Missionary_Work #Preparation #Scouting

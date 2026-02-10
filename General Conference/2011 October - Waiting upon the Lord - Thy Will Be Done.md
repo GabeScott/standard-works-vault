@@ -163,5 +163,5 @@ On this Sabbath morning, I express gratitude that “in my Gethsemane”[^43] an
 
 [^46]: [[Isaiah 40.31|Isaiah 40:31]].
 
-[^47]: [[Matthew 26.42|Matthew 26:42]].
 
+#Adversity #Endurance #Faith #Hope #Opposition #Patience #Trust

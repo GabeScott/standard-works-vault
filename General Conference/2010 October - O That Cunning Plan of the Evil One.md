@@ -75,5 +75,5 @@ I have seen the marvelous blessing of recovery that can set one free from the ch
 
 [^3]: See Erika Potter, “Drug Deaths Overtake Auto Deaths in Utah,” *Universe,* Nov. 29, 2009, universe.byu.edu/node/4477.
 
-[^4]: See National Institute on Drug Abuse, “The Neurobiology of Drug Addiction,” section IV, no. 30, drugabuse.gov/pubs/teaching/teaching2/teaching5.html; see also drugabuse.gov/funding/budget08.html.
 
+#Addiction #Atonement #Prayer #Word_Of_Wisdom

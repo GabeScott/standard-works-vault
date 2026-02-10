@@ -83,3 +83,6 @@ I learned then, as I know now, that our Savior, Jesus Christ, directs our feet t
 
 [^21]: See [[Jeremiah 29.13|Jeremiah 29:13]].
 
+
+
+#Commandments #Discipleship #Jesus_Christ #Testimony

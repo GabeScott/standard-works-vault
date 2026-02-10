@@ -123,3 +123,6 @@ May this be our year for enjoying the light and truth of the gospel in our homes
 
 [^8]: [[D&C 93.36|D&C 93:36–37, 39–40]][[D&C 93.37|]][[D&C 93.39|]][[D&C 93.40|]].
 
+
+
+#Family #Family_Home_Evening #Home #Media #Sabbath

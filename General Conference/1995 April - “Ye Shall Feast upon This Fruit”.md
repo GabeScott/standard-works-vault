@@ -61,3 +61,6 @@ This is our Heavenly Father’s promise to us if we respond to the invitation to
 
 
 
+
+
+#Scripture_Study #Young_Women

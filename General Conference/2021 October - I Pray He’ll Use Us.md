@@ -119,5 +119,5 @@ Let me conclude by repeating the question Jesus asked His Apostle Simon Peter: �
 
 [^11]: See [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].
 
-[^12]: [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].
 
+#Adversity #Humanitarian_Aid #Love #Service

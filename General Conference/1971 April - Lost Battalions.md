@@ -119,3 +119,6 @@ As his witness I testify to you that he lives. In the name of Jesus Christ. Amen
 
 
 
+
+
+#Disabilities #Elderly #Service

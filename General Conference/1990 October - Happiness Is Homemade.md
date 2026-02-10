@@ -55,3 +55,6 @@ I testify that Jesus is the Christ. I love him; my wife loves him; and we deeply
 
 
 
+
+
+#Family #Obedience

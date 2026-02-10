@@ -99,3 +99,6 @@ Brothers and sisters, I am grateful for our Heavenly Father’s plan of salvatio
 
 [^23]: [[2 Nephi 32.3|2 Nephi 32:3]]; see also [[2 Nephi 32.5|verse 5]].
 
+
+
+#Divine_Nature #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Prayer #Truth

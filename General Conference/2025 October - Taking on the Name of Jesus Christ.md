@@ -113,3 +113,6 @@ He lives. I absolutely know it. He loves you. He gave His life for you. He plead
 
 [^31]: See [[Romans 8.17|Romans 8:17]].
 
+
+
+#Covenants #Discipleship #Jesus_Christ #Priesthood_Power

@@ -123,5 +123,5 @@ To these truths I share my witness. In the name of Jesus Christ, amen.
 
 [^13]: [[Alma 36.3|Alma 36:3]].
 
-[^14]: Richard G. Scott, “[[1995 October - Trust in the Lord.md|Trust in the Lord]],” *Ensign,* Nov. 1995, 17.
 
+#Adversity #Agency #Atonement #Healing #Jesus_Christ #Trust

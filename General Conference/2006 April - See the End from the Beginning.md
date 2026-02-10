@@ -65,3 +65,6 @@ Of this I testify as an Apostle of the Lord, our Savior, and in the sacred name 
 
 
 
+
+
+#Perspective #Standards #Worthiness

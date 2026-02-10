@@ -115,3 +115,6 @@ My prayer is that as a body of priesthood holders, we will make our conduct cons
 
 [^23]: [[D&C 76.79|Doctrine and Covenants 76:79]].
 
+
+
+#Agency

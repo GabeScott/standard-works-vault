@@ -105,3 +105,6 @@ I bear testimony of the divine nature of your calling and of the magnificent way
 
 
 
+
+
+#Bishops #Leadership #Service

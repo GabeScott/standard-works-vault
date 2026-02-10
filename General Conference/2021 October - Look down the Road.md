@@ -89,5 +89,5 @@ I invite you to be intentional about “looking down the road” and increase yo
 
 [^13]: See Dale G. Renlund, “[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona*, Nov. 2016, 121–24.
 
-[^14]: See [[D&C 18.13|Doctrine and Covenants 18:13]].
 
+#Adversity #Faith #Hope #Jesus_Christ #Repentance

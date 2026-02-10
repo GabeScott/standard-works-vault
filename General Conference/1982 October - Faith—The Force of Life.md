@@ -89,3 +89,6 @@ May each of us develop faith in God sufficient to fight the battles of life vict
 
 
 
+
+
+#Adversity #Faith

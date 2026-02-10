@@ -41,3 +41,6 @@ I know that God lives and responds to our petition. I know that Jesus Christ is 
 
 
 
+
+
+#Duty #Humility #Service

@@ -97,3 +97,6 @@ And now in line with these remarks, for three things I pray:
 
 
 
+
+
+#Consecration #Welfare

@@ -99,5 +99,5 @@ I testify that Jesus Christ paid the price so that we can be made whole. But we 
 
 [^16]: [[Alma 34.31|Alma 34:31]]; emphasis added.
 
-[^17]: Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
+#Adversity #Healing #Jesus_Christ #Repentance

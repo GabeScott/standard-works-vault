@@ -121,3 +121,6 @@ Orson and Parley Pratt experienced the healing and sealing effects of family his
 
 [^18]: Lewis, *The Great Divorce,* 69.
 
+
+
+#Family_History #Healing #Sealings #Temple_Work

@@ -45,3 +45,6 @@ Basically, we limit our vision to the events that happen in this life with the g
 
 
 
+
+
+#Adversity #Faith #Humility #Obedience

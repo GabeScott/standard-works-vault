@@ -79,5 +79,5 @@ I bear my witness that because of Heavenly Father’s great plan of happiness, e
 
 [^6]: See [[Alma 5.33|Alma 5:33]].
 
-[^7]: See [[D&C 58.42|Doctrine and Covenants 58:42]].
 
+#Accountability #Agency

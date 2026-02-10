@@ -65,3 +65,6 @@ It is my prayer that women may, with discernment, minister to the poor and needy
 
 
 
+
+
+#Service #Women

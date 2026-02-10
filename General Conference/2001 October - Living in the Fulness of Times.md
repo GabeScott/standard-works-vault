@@ -65,3 +65,6 @@ I invoke the blessings of heaven upon you as I express my love for you and comme
 
 
 
+
+
+#Contention #Evil #Faith #Love #Neighbors

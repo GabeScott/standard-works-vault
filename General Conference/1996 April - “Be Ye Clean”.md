@@ -121,3 +121,6 @@ In conclusion I return to where I started with the dream of a poor boy who was s
 
 
 
+
+
+#Honesty #Joseph_Smith #Morality #Priesthood #Repentance #Temptation #Word_Of_Wisdom #Youth

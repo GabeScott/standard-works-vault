@@ -83,3 +83,6 @@ Joseph was the prophet of the Restoration. I testify to you of his divinity and 
 
 
 
+
+
+#Joseph_Smith #Restoration

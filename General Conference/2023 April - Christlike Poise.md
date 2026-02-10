@@ -95,5 +95,5 @@ May we seek the blessings of Christlike poise, not only to help ourselves in cha
 
 [^19]: See [[Mark 4.35|Mark 4:35–39]][[Mark 4.36|]][[Mark 4.37|]][[Mark 4.38|]][[Mark 4.39|]].
 
-[^20]: [[Mark 4.40|Mark 4:40]].
 
+#Adversity #Atonement #Discipleship #Divine_Nature #Jesus_Christ #Plan_Of_Salvation

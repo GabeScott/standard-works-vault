@@ -119,3 +119,6 @@ Most of all, I know that God lives, and I know that his Only Begotten Son, Jesus
 
 
 
+
+
+#Duty #Love #Plan_Of_Salvation #Service

@@ -59,5 +59,5 @@ If you deacons quorum presidents will magnify your calling, you will be instrume
 
 
 
-[^1]: In Henry B. Eyring, “Waiting Upon the Lord,” in *Brigham Young University 1990–91 Devotional and Fireside Speeches* (1991), 17; available at speeches.byu.edu.
 
+#Activation #Leadership #Priesthood #Trust

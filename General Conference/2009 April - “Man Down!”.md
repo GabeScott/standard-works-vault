@@ -111,5 +111,5 @@ I testify that you were called of God and you are sent to serve His children. He
 
 [^8]: See [[Mosiah 28.1|Mosiah 28:1–8]][[Mosiah 28.2|]][[Mosiah 28.3|]][[Mosiah 28.4|]][[Mosiah 28.5|]][[Mosiah 28.6|]][[Mosiah 28.7|]][[Mosiah 28.8|]].
 
-[^9]: See [[Abraham 3.27|Abraham 3:27]].
 
+#Activation #Brotherhood #Priesthood #Service

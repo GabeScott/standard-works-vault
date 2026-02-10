@@ -169,3 +169,6 @@ This work of Almighty God is true. He lives. Jesus is the Christ. This is His Ch
 
 [^43]: [[D&C 97.21|D&C 97:21]].
 
+
+
+#Apostasy #Covenants #House_Of_Israel #Restoration

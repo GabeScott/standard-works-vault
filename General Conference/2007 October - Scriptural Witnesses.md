@@ -191,3 +191,6 @@ I know that God lives. Jesus is the Christ. His gospel has been restored in thes
 
 [^44]: See [[3 Nephi 9.14|3 Nephi 9:14]]; [[D&C 30.8|D&C 30:8]].
 
+
+
+#Bible #Book_Of_Mormon #Scriptures #Testimony

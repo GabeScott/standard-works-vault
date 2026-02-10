@@ -131,3 +131,6 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
+
+
+#Adversity #Last_Days

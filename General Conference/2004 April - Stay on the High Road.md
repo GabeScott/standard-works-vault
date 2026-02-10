@@ -91,3 +91,6 @@ For this I pray in the sacred name of Him who gave His life to make it possible 
 
 
 
+
+
+#Education #Faith #Forgiveness #Friendship #God_The_Father #Morality #Prayer #Repentance #Temptation

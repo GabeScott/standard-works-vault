@@ -59,3 +59,6 @@ In discussing our various longings for more, I’m not suggesting we adopt Scroo
 
 
 
+
+
+#Charity #Gratitude #Humility #Parenthood #Service #Worldliness

@@ -110,3 +110,6 @@ Our testimony to the world is that Jesus is the Christ, our Savior and our Redee
 
 
 
+
+
+#Duty #Endurance

@@ -75,5 +75,5 @@ My most profound gratitude is for my Savior—an obedient Son, who did all that 
 
 [^9]: *Pathways to Happiness,* comp. Llewelyn R. McKay (1957), 318.
 
-[^10]: [[2 Corinthians 9.15|2 Corinthians 9:15]].
 
+#Adversity #Gratitude #Love

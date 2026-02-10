@@ -35,3 +35,6 @@ God bless all of us, I humbly pray. May we strive to walk in righteousness befor
 
 
 
+
+
+#Joseph_Smith #Restoration

@@ -158,3 +158,6 @@ To all of you noble pioneers who go before, showing others the way to follow, I 
 
 [^15]: “Carry On,” *Hymns,* no. 255.
 
+
+
+#Faith #Friendship #Gratitude #Jesus_Christ #Love #Parents #Pioneers #Temples #Testimony

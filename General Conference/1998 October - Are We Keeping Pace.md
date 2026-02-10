@@ -85,3 +85,6 @@ I pray that we may join together, brothers and sisters, to do our part to prepar
 
 [^10]: [[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]].
 
+
+
+#Commitment #Conversion #Councils #Covenants #Divine_Nature #Fellowshipping #Jesus_Christ #Last_Days #Priesthood #Temples #Women #Youth

@@ -71,3 +71,6 @@ Of this I testify in the name of Jesus Christ, amen.
 
 
 
+
+
+#Agency #Conversion #Faith #Jesus_Christ #Obedience

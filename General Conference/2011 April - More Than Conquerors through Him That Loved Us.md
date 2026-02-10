@@ -87,5 +87,5 @@ I know that God lives and that His Son, Jesus Christ, lives. I also know that th
 
 [^19]: [[Matthew 25.21|Matthew 25:21]].
 
-[^20]: [[Romans 8.35|Romans 8:35, 37]][[Romans 8.37|]].
 
+#Adversity #Faith #Jesus_Christ #Patience

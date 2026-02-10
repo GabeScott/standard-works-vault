@@ -73,3 +73,6 @@ May we be generous with our time and liberal in our contributions for the care o
 
 
 
+
+
+#Bishops #Fasting #Good_Samaritan #Jesus_Christ #Joy #Neighbors #Service #Welfare

@@ -92,4 +92,4 @@ I so testify and leave you my blessing and my love. In the sacred name of Jesus 
 
 
 
-
+#Adversity #Book_Of_Mormon #Courage #Faith #Fear #Jesus_Christ #Love #Service #Testimony

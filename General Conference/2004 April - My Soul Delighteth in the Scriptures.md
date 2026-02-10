@@ -37,3 +37,6 @@ If reading the scriptures is not already a habit with you, today is a great day 
 
 
 
+
+
+#Education #Scripture_Study

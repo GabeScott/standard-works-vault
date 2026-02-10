@@ -73,3 +73,6 @@ That we may understand and fulfill our roles as the governing ones, in lockstep 
 
 
 
+
+
+#Family #Leadership #Priesthood #Teaching

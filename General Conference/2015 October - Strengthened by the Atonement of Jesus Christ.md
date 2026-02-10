@@ -97,5 +97,5 @@ One day all of these mortal burdens will pass away and there will be no more pai
 
 [^7]: “Where Can I Turn for Peace?” *Hymns,* no. 129.
 
-[^8]: Neal A. Maxwell, “Apply the Atoning Blood of Christ,” *Ensign,* Nov. 1997, 23.
 
+#Addiction #Atonement #Disabilities #Healing #Jesus_Christ

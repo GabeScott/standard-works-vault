@@ -41,3 +41,6 @@ As we go to our homes, sisters, may we ponder what has been said. How can we as 
 
 
 
+
+
+#Obedience #Scripture_Study #Women

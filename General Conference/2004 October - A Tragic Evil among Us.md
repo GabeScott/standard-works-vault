@@ -113,3 +113,6 @@ May heaven’s blessings attend you, my dear brethren. May all of us reach out t
 
 
 
+
+
+#Media #Morality #Repentance #Temptation

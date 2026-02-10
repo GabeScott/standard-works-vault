@@ -53,3 +53,6 @@ I am persuaded that only this charity, this pure love of Christ, this love plus 
 
 
 
+
+
+#Charity #Conversion #Endurance #Obedience #Repentance #Service

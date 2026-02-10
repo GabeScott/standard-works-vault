@@ -167,3 +167,6 @@ It is my prayer and blessing that you will succeed in fulfilling your destiny as
 
 [^18]: [[Alma 19.6|Alma 19:6]].
 
+
+
+#Healing #Jesus_Christ #Light_Of_Christ #Service #Testimony #Truth

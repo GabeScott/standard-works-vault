@@ -67,3 +67,6 @@ I believe that few things in life deserve one’s complete confidence. I testify
 
 
 
+
+
+#Criticism

@@ -141,3 +141,6 @@ God help us, as free men, to recognize the source of our blessings, the threat t
 
 
 
+
+
+#Freedom #Patriotism #Prayer #Standards #Youth

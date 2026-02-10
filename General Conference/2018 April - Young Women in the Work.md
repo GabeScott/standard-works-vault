@@ -51,3 +51,6 @@ I testify that the work of our Heavenly Father is to bring about the immortality
 
 [^6]: See [[Moses 1.39|Moses 1:39]].
 
+
+
+#Covenants #Discipleship #Kingdom_Of_God #Responsibility #Service #Young_Women

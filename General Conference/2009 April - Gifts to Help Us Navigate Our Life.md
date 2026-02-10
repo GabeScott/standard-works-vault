@@ -119,3 +119,6 @@ We have been taught this weekend by prophets, seers, and revelators. I am gratef
 
 [^14]: “Follow the Prophet,” *Children’s Songbook,* 110–11.
 
+
+
+#Agency #Holy_Ghost #Prophets
