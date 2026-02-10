@@ -117,4 +117,4 @@ I leave you my witness that President Spencer W. Kimball is a prophet, preserved
 
 
 
-#Spencer_W._Kimball
+#Spencer_W_Kimball

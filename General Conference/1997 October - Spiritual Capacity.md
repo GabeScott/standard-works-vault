@@ -117,4 +117,4 @@ While we follow prophetic teachings, we can develop our spiritual capacities by 
 
 
 
-#Agency #Attitude #Commandments #General_Conference #Gordon_B._Hinckley #Jesus_Christ #Prophets #Spirituality
+#Agency #Attitude #Commandments #General_Conference #Gordon_B_Hinckley #Jesus_Christ #Prophets #Spirituality

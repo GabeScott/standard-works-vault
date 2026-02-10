@@ -71,4 +71,4 @@ So it is that real, personal sacrifice never was placing an animal on the altar.
 
 
 
-#Atonement #Commandments #Family #Fatherhood #Financial_Management #Gordon_B._Hinckley #Jesus_Christ #Morality #Parents #Perspective #Sacrifice #Sin
+#Atonement #Commandments #Family #Fatherhood #Financial_Management #Gordon_B_Hinckley #Jesus_Christ #Morality #Parents #Perspective #Sacrifice #Sin
