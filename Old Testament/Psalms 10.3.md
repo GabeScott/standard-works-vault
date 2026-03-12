@@ -1,6 +1,6 @@
 # Psalms 10:3
 
-> For the wicked <u>boasteth</u>[^a] of his heart’s desire, and blesseth the covetous, *whom* the LORD abhorreth.
+> For the wicked <u>boasteth</u>[^a] of his heart’s desire, and blesseth the covetous, <i>whom</i> the LORD abhorreth.
 
 [Psalms 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.3?lang=eng#p3)
 

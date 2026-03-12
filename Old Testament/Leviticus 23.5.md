@@ -1,6 +1,6 @@
 # Leviticus 23:5
 
-> In the <u>fourteenth</u>[^a] *day* of the first month <u>at even</u>[^b] *is* the LORD’s <u>passover</u>[^c].
+> In the <u>fourteenth</u>[^a] <i>day</i> of the first month <u>at even</u>[^b] <i>is</i> the LORD’s <u>passover</u>[^c].
 
 [Leviticus 23:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.5?lang=eng#p5)
 

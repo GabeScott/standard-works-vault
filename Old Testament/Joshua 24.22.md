@@ -1,6 +1,6 @@
 # Joshua 24:22
 
-> And Joshua said unto the people, Ye *are* witnesses against yourselves that ye have chosen you the LORD, to <u>serve</u>[^a] him. And they said, *We are* witnesses.
+> And Joshua said unto the people, Ye <i>are</i> witnesses against yourselves that ye have chosen you the LORD, to <u>serve</u>[^a] him. And they said, <i>We are</i> witnesses.
 
 [Joshua 24:22](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.22?lang=eng#p22)
 

@@ -1,6 +1,6 @@
 # Jeremiah 50:1
 
-> The <u>word</u>[^a] that the LORD spake against Babylon *and* against the land of the Chaldeans by Jeremiah the prophet.
+> The <u>word</u>[^a] that the LORD spake against Babylon <i>and</i> against the land of the Chaldeans by Jeremiah the prophet.
 
 [Jeremiah 50:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.1?lang=eng#p1)
 

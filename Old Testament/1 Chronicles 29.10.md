@@ -1,6 +1,6 @@
 # 1 Chronicles 29:10
 
-> ¶ Wherefore David blessed the LORD before all the congregation: and David said, Blessed *be* thou, LORD God of Israel our <u>father</u>[^a], for ever and ever.
+> ¶ Wherefore David blessed the LORD before all the congregation: and David said, Blessed <i>be</i> thou, LORD God of Israel our <u>father</u>[^a], for ever and ever.
 
 [1 Chronicles 29:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.10?lang=eng#p10)
 

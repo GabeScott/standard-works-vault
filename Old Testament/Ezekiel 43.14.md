@@ -1,6 +1,6 @@
 # Ezekiel 43:14
 
-> And from the bottom *upon* the ground *even* to the lower <u>settle</u>[^a] *shall be* two cubits, and the breadth one cubit; and from the lesser settle *even* to the greater settle *shall be* four cubits, and the breadth *one* cubit.
+> And from the bottom <i>upon</i> the ground <i>even</i> to the lower <u>settle</u>[^a] <i>shall be</i> two cubits, and the breadth one cubit; and from the lesser settle <i>even</i> to the greater settle <i>shall be</i> four cubits, and the breadth <i>one</i> cubit.
 
 [Ezekiel 43:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # Jonah 4:11
 
-> And should not I <u>spare</u>[^a] Nineveh, that great city, wherein are more than sixscore thousand <u>persons</u>[^b] that cannot <u>discern</u>[^c] between their right hand and their left hand; and *also* much cattle?
+> And should not I <u>spare</u>[^a] Nineveh, that great city, wherein are more than sixscore thousand <u>persons</u>[^b] that cannot <u>discern</u>[^c] between their right hand and their left hand; and <i>also</i> much cattle?
 
 [Jonah 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/4.11?lang=eng#p11)
 

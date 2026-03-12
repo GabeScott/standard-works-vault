@@ -1,6 +1,6 @@
 # Ephesians 1:20
 
-> Which he wrought in Christ, when he <u>raised</u>[^a] him from the dead, and set *him* at his own right hand in the <u>heavenly</u>[^b] *places,*
+> Which he wrought in Christ, when he <u>raised</u>[^a] him from the dead, and set <i>him</i> at his own right hand in the <u>heavenly</u>[^b] <i>places,</i>
 
 [Ephesians 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.20?lang=eng#p20)
 

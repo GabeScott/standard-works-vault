@@ -1,6 +1,6 @@
 # Luke 1:79
 
-> To give <u>light</u>[^a] to them that sit in <u>darkness</u>[^b] and *in* the shadow of <u>death</u>[^c], to guide our feet into the way of peace.
+> To give <u>light</u>[^a] to them that sit in <u>darkness</u>[^b] and <i>in</i> the shadow of <u>death</u>[^c], to guide our feet into the way of peace.
 
 [Luke 1:79](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.79?lang=eng#p79)
 

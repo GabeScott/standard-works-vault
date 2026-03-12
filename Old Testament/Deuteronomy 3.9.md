@@ -1,6 +1,6 @@
 # Deuteronomy 3:9
 
-> (*Which* <u>Hermon</u>[^a] the Sidonians call Sirion; and the Amorites call it <u>Shenir</u>[^b];)
+> (<i>Which</i> <u>Hermon</u>[^a] the Sidonians call Sirion; and the Amorites call it <u>Shenir</u>[^b];)
 
 [Deuteronomy 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.9?lang=eng#p9)
 

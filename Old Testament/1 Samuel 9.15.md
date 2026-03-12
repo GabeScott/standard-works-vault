@@ -5,4 +5,5 @@
 [1 Samuel 9:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.15?lang=eng#p15)
 
 
-[^b]: [[D&C 88.66|D&C 88:66]].  
+[^a]: [[1 Samuel 3.19|1 Sam. 3:19 (19–21)]][[1 Samuel 3.20|]][[1 Samuel 3.21|]].
+[^b]: [[D&C 88.66|D&C 88:66]].

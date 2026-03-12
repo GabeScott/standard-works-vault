@@ -1,6 +1,6 @@
 # 2 Kings 20:8
 
-> ¶ And Hezekiah said unto Isaiah, What *shall be* the <u>sign</u>[^a] that the LORD will heal me, and that I shall go up into the house of the LORD the third day?
+> ¶ And Hezekiah said unto Isaiah, What <i>shall be</i> the <u>sign</u>[^a] that the LORD will heal me, and that I shall go up into the house of the LORD the third day?
 
 [2 Kings 20:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.8?lang=eng#p8)
 

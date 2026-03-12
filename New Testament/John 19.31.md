@@ -1,6 +1,6 @@
 # John 19:31
 
-> The Jews therefore, because it was the preparation, that the bodies should not remain upon the <u>cross</u>[^a] on the sabbath day, (for that <u>sabbath</u>[^b] day was an <u>high</u>[^c] <u>day</u>[^d],) besought Pilate that their legs might be <u>broken</u>[^e], and *that* they might be taken away.
+> The Jews therefore, because it was the preparation, that the bodies should not remain upon the <u>cross</u>[^a] on the sabbath day, (for that <u>sabbath</u>[^b] day was an <u>high</u>[^c] <u>day</u>[^d],) besought Pilate that their legs might be <u>broken</u>[^e], and <i>that</i> they might be taken away.
 
 [John 19:31](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.31?lang=eng#p31)
 

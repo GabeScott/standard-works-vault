@@ -1,6 +1,6 @@
 # Deuteronomy 6:15
 
-> (For the LORD thy God *is* a <u>jealous</u>[^a] God among you) lest the <u>anger</u>[^b] of the LORD thy God be kindled against thee, and destroy thee from off the face of the earth.
+> (For the LORD thy God <i>is</i> a <u>jealous</u>[^a] God among you) lest the <u>anger</u>[^b] of the LORD thy God be kindled against thee, and destroy thee from off the face of the earth.
 
 [Deuteronomy 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.15?lang=eng#p15)
 

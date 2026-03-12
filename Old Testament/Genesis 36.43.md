@@ -1,6 +1,6 @@
 # Genesis 36:43
 
-> Duke Magdiel, duke Iram: these *be* the dukes of Edom, according to their habitations in the land of their possession: he *is* <u>Esau</u>[^a] the father of the <u>Edomites</u>[^b].
+> Duke Magdiel, duke Iram: these <i>be</i> the dukes of Edom, according to their habitations in the land of their possession: he <i>is</i> <u>Esau</u>[^a] the father of the <u>Edomites</u>[^b].
 
 [Genesis 36:43](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/36.43?lang=eng#p43)
 

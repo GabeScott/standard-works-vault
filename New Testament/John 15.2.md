@@ -1,6 +1,6 @@
 # John 15:2
 
-> Every <u>branch</u>[^a] in me that beareth not <u>fruit</u>[^b] he taketh away: and every *branch* that beareth fruit, he <u>purgeth</u>[^c] it, that it may bring forth more fruit.
+> Every <u>branch</u>[^a] in me that beareth not <u>fruit</u>[^b] he taketh away: and every <i>branch</i> that beareth fruit, he <u>purgeth</u>[^c] it, that it may bring forth more fruit.
 
 [John 15:2](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.2?lang=eng#p2)
 

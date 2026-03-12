@@ -1,6 +1,6 @@
 # 1 Samuel 25:38
 
-> And it came to pass about ten days *after,* that the LORD <u>smote</u>[^a] Nabal, that he died.
+> And it came to pass about ten days <i>after,</i> that the LORD <u>smote</u>[^a] Nabal, that he died.
 
 [1 Samuel 25:38](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/25.38?lang=eng#p38)
 

@@ -1,6 +1,6 @@
 # Exodus 5:22
 
-> And Moses <u>returned</u>[^a] unto the LORD, and said, Lord, wherefore hast thou *so* <u>evil entreated</u>[^b] this people? why *is* it *that* thou hast sent me?
+> And Moses <u>returned</u>[^a] unto the LORD, and said, Lord, wherefore hast thou <i>so</i> <u>evil entreated</u>[^b] this people? why <i>is</i> it <i>that</i> thou hast sent me?
 
 [Exodus 5:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/5.22?lang=eng#p22)
 

@@ -1,6 +1,6 @@
 # 1 Samuel 7:6
 
-> And they gathered together to Mizpeh, and drew water, and poured *it* out before the LORD, and fasted on that day, and said there, We have <u>sinned</u>[^a] against the LORD. And Samuel judged the children of Israel in Mizpeh.
+> And they gathered together to Mizpeh, and drew water, and poured <i>it</i> out before the LORD, and fasted on that day, and said there, We have <u>sinned</u>[^a] against the LORD. And Samuel judged the children of Israel in Mizpeh.
 
 [1 Samuel 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/7.6?lang=eng#p6)
 

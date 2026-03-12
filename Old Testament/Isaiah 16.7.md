@@ -1,6 +1,6 @@
 # Isaiah 16:7
 
-> Therefore shall Moab <u>howl</u>[^a] for Moab, every one shall howl: for the foundations of <u>Kir-hareseth</u>[^b] shall ye mourn; surely *they are* stricken.
+> Therefore shall Moab <u>howl</u>[^a] for Moab, every one shall howl: for the foundations of <u>Kir-hareseth</u>[^b] shall ye mourn; surely <i>they are</i> stricken.
 
 [Isaiah 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.7?lang=eng#p7)
 

@@ -1,6 +1,6 @@
 # 2 Kings 25:28
 
-> And he spake <u>kindly</u>[^a] to him, and set his throne above the throne of the kings that *were* with him in Babylon;
+> And he spake <u>kindly</u>[^a] to him, and set his throne above the throne of the kings that <i>were</i> with him in Babylon;
 
 [2 Kings 25:28](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.28?lang=eng#p28)
 

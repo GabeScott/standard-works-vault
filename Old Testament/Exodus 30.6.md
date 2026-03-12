@@ -1,6 +1,6 @@
 # Exodus 30:6
 
-> And thou shalt put it before the veil that *is* by the <u>ark</u>[^a] of the testimony, before the <u>mercy seat</u>[^b] that *is* over the testimony, where I will meet with thee.
+> And thou shalt put it before the veil that <i>is</i> by the <u>ark</u>[^a] of the testimony, before the <u>mercy seat</u>[^b] that <i>is</i> over the testimony, where I will meet with thee.
 
 [Exodus 30:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.6?lang=eng#p6)
 

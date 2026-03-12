@@ -1,6 +1,6 @@
 # 2 Chronicles 30:16
 
-> And they stood in their place after their manner, according to the law of Moses the man of God: the priests sprinkled the <u>blood</u>[^a], *which they received* of the hand of the Levites.
+> And they stood in their place after their manner, according to the law of Moses the man of God: the priests sprinkled the <u>blood</u>[^a], <i>which they received</i> of the hand of the Levites.
 
 [2 Chronicles 30:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.16?lang=eng#p16)
 

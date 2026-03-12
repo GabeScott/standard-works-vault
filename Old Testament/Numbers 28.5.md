@@ -1,6 +1,6 @@
 # Numbers 28:5
 
-> And a tenth *part* of an ephah of flour for a <u>meat</u>[^a] offering, mingled with the fourth *part* of an hin of beaten oil.
+> And a tenth <i>part</i> of an ephah of flour for a <u>meat</u>[^a] offering, mingled with the fourth <i>part</i> of an hin of beaten oil.
 
 [Numbers 28:5](https://www.churchofjesuschrist.org/study/scriptures/ot/num/28.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Psalms 46:7
 
-> The <u>Lord of hosts</u>[^a] *is* with us; the God of Jacob *is* our refuge. Selah.
+> The <u>Lord of hosts</u>[^a] <i>is</i> with us; the God of Jacob <i>is</i> our refuge. Selah.
 
 [Psalms 46:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/46.7?lang=eng#p7)
 

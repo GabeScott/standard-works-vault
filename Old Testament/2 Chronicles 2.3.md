@@ -1,6 +1,6 @@
 # 2 Chronicles 2:3
 
-> ¶ And Solomon sent to <u>Huram</u>[^a] the king of Tyre, saying, As thou didst deal with David my father, and didst send him cedars to build him an house to dwell therein, *even so deal with me.*
+> ¶ And Solomon sent to <u>Huram</u>[^a] the king of Tyre, saying, As thou didst deal with David my father, and didst send him cedars to build him an house to dwell therein, <i>even so deal with me.</i>
 
 [2 Chronicles 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/2.3?lang=eng#p3)
 

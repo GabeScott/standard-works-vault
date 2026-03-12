@@ -1,6 +1,6 @@
 # 2 Kings 8:19
 
-> Yet the LORD would not <u>destroy</u>[^a] Judah for <u>David</u>[^b] his servant’s sake, as he promised him to give him alway a light, *and* to his children.
+> Yet the LORD would not <u>destroy</u>[^a] Judah for <u>David</u>[^b] his servant’s sake, as he promised him to give him alway a light, <i>and</i> to his children.
 
 [2 Kings 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/8.19?lang=eng#p19)
 

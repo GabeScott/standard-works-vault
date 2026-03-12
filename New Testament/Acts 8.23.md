@@ -1,6 +1,6 @@
 # Acts 8:23
 
-> For I perceive that thou art in the <u>gall of bitterness</u>[^a], and *in* the <u>bond</u>[^b] of iniquity.
+> For I perceive that thou art in the <u>gall of bitterness</u>[^a], and <i>in</i> the <u>bond</u>[^b] of iniquity.
 
 [Acts 8:23](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.23?lang=eng#p23)
 

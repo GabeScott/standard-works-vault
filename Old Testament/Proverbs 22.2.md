@@ -1,6 +1,6 @@
 # Proverbs 22:2
 
-> The <u>rich</u>[^a] and poor meet together: the LORD *is* the maker of them all.
+> The <u>rich</u>[^a] and poor meet together: the LORD <i>is</i> the maker of them all.
 
 [Proverbs 22:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.2?lang=eng#p2)
 

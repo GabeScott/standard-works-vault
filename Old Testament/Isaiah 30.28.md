@@ -1,6 +1,6 @@
 # Isaiah 30:28
 
-> And his <u>breath</u>[^a], as an overflowing stream, shall reach to the midst of the <u>neck</u>[^b], to sift the nations with the sieve of <u>vanity</u>[^c]: and *there shall be* a bridle in the jaws of the people, causing *them* to err.
+> And his <u>breath</u>[^a], as an overflowing stream, shall reach to the midst of the <u>neck</u>[^b], to sift the nations with the sieve of <u>vanity</u>[^c]: and <i>there shall be</i> a bridle in the jaws of the people, causing <i>them</i> to err.
 
 [Isaiah 30:28](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.28?lang=eng#p28)
 

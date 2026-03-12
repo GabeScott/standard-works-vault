@@ -1,6 +1,6 @@
 # Luke 13:29
 
-> And <u>they</u>[^a] shall come from the east, and *from* the west, and from the north, and *from* the south, and shall sit down in the kingdom of God.
+> And <u>they</u>[^a] shall come from the east, and <i>from</i> the west, and from the north, and <i>from</i> the south, and shall sit down in the kingdom of God.
 
 [Luke 13:29](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.29?lang=eng#p29)
 

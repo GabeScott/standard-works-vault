@@ -1,6 +1,6 @@
 # Matthew 5:12
 
-> <u>Rejoice</u>[^a], and be exceeding glad: for great *is* your <u>reward</u>[^b] in heaven: for so <u>persecuted</u>[^c] they the prophets which were before you.
+> <u>Rejoice</u>[^a], and be exceeding glad: for great <i>is</i> your <u>reward</u>[^b] in heaven: for so <u>persecuted</u>[^c] they the prophets which were before you.
 
 [Matthew 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.12?lang=eng#p12)
 

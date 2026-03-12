@@ -1,6 +1,6 @@
 # Isaiah 40:28
 
-> ¶ Hast thou not known? hast thou not heard, *that* the <u>everlasting</u>[^a] God, the LORD, the <u>Creator</u>[^b] of the ends of the earth, fainteth not, neither is weary? *there is* no <u>searching</u>[^c] of his understanding.
+> ¶ Hast thou not known? hast thou not heard, <i>that</i> the <u>everlasting</u>[^a] God, the LORD, the <u>Creator</u>[^b] of the ends of the earth, fainteth not, neither is weary? <i>there is</i> no <u>searching</u>[^c] of his understanding.
 
 [Isaiah 40:28](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.28?lang=eng#p28)
 

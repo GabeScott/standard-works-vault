@@ -1,6 +1,6 @@
 # Psalms 95:7
 
-> For he *is* our God; and we *are* the people of his pasture, and the <u>sheep</u>[^a] of his hand. <u>To day</u>[^b] if ye will <u>hear</u>[^c] his <u>voice</u>[^d],
+> For he <i>is</i> our God; and we <i>are</i> the people of his pasture, and the <u>sheep</u>[^a] of his hand. <u>To day</u>[^b] if ye will <u>hear</u>[^c] his <u>voice</u>[^d],
 
 [Psalms 95:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/95.7?lang=eng#p7)
 

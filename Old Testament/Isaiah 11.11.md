@@ -1,6 +1,6 @@
 # Isaiah 11:11
 
-> And it shall come to pass in that day, *that* the Lord shall set his hand again the <u>second</u>[^a] time to <u>recover</u>[^b] the <u>remnant</u>[^c] of his people, which shall be left, from Assyria, and from Egypt, and from Pathros, and from Cush, and from Elam, and from Shinar, and from Hamath, and from the <u>islands</u>[^d] of the sea.
+> And it shall come to pass in that day, <i>that</i> the Lord shall set his hand again the <u>second</u>[^a] time to <u>recover</u>[^b] the <u>remnant</u>[^c] of his people, which shall be left, from Assyria, and from Egypt, and from Pathros, and from Cush, and from Elam, and from Shinar, and from Hamath, and from the <u>islands</u>[^d] of the sea.
 
 [Isaiah 11:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.11?lang=eng#p11)
 

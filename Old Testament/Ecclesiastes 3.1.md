@@ -1,6 +1,6 @@
 # Ecclesiastes 3:1
 
-> To every *thing there is* a <u>season</u>[^a], and a <u>time</u>[^b] to every purpose under the heaven:
+> To every <i>thing there is</i> a <u>season</u>[^a], and a <u>time</u>[^b] to every purpose under the heaven:
 
 [Ecclesiastes 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.1?lang=eng#p1)
 

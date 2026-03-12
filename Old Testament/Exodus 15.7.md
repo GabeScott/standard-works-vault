@@ -1,6 +1,6 @@
 # Exodus 15:7
 
-> And in the greatness of thine excellency thou hast overthrown them that rose up against thee: thou sentest forth thy wrath, *which* consumed them as <u>stubble</u>[^a].
+> And in the greatness of thine excellency thou hast overthrown them that rose up against thee: thou sentest forth thy wrath, <i>which</i> consumed them as <u>stubble</u>[^a].
 
 [Exodus 15:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.7?lang=eng#p7)
 

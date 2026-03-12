@@ -1,6 +1,6 @@
 # Jeremiah 5:10
 
-> ¶ Go ye up upon her walls, and <u>destroy</u>[^a]; but make not a full <u>end</u>[^b]: take away her battlements; for they *are* not the LORD’s.
+> ¶ Go ye up upon her walls, and <u>destroy</u>[^a]; but make not a full <u>end</u>[^b]: take away her battlements; for they <i>are</i> not the LORD’s.
 
 [Jeremiah 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.10?lang=eng#p10)
 

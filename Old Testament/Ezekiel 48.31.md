@@ -1,6 +1,6 @@
 # Ezekiel 48:31
 
-> And the <u>gates</u>[^a] of the <u>city</u>[^b] *shall be* after the names of the tribes of Israel: three gates northward; one gate of <u>Reuben</u>[^c], one gate of Judah, one gate of Levi.
+> And the <u>gates</u>[^a] of the <u>city</u>[^b] <i>shall be</i> after the names of the tribes of Israel: three gates northward; one gate of <u>Reuben</u>[^c], one gate of Judah, one gate of Levi.
 
 [Ezekiel 48:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.31?lang=eng#p31)
 

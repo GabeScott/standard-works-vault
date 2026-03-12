@@ -1,6 +1,6 @@
 # Revelation 2:18
 
-> And unto the <u>angel</u>[^a] of the church in <u>Thyatira</u>[^b] write; These things saith the Son of God, who hath his <u>eyes</u>[^c] like unto a flame of fire, and his feet *are* like fine brass;
+> And unto the <u>angel</u>[^a] of the church in <u>Thyatira</u>[^b] write; These things saith the Son of God, who hath his <u>eyes</u>[^c] like unto a flame of fire, and his feet <i>are</i> like fine brass;
 
 [Revelation 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.18?lang=eng#p18)
 

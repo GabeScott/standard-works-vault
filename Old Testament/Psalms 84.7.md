@@ -1,6 +1,6 @@
 # Psalms 84:7
 
-> They go from strength to strength, *every one of them* in Zion <u>appeareth</u>[^a] before God.
+> They go from strength to strength, <i>every one of them</i> in Zion <u>appeareth</u>[^a] before God.
 
 [Psalms 84:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/84.7?lang=eng#p7)
 

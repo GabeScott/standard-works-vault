@@ -1,6 +1,6 @@
 # Hebrews 11:21
 
-> By faith <u>Jacob</u>[^a], when he was a dying, blessed both the sons of Joseph; and worshipped, *leaning* upon the top of his staff.
+> By faith <u>Jacob</u>[^a], when he was a dying, blessed both the sons of Joseph; and worshipped, <i>leaning</i> upon the top of his staff.
 
 [Hebrews 11:21](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.21?lang=eng#p21)
 

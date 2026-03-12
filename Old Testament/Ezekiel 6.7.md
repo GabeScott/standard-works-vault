@@ -1,6 +1,6 @@
 # Ezekiel 6:7
 
-> And the slain shall fall in the midst of you, and ye shall <u>know</u>[^a] that I *am* the LORD.
+> And the slain shall fall in the midst of you, and ye shall <u>know</u>[^a] that I <i>am</i> the LORD.
 
 [Ezekiel 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/6.7?lang=eng#p7)
 

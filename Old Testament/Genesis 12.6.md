@@ -1,6 +1,6 @@
 # Genesis 12:6
 
-> ¶ And Abram passed through the land unto the place of Sichem, unto the plain of Moreh. And the <u>Canaanite</u>[^a] *was* then in the land.
+> ¶ And Abram passed through the land unto the place of Sichem, unto the plain of Moreh. And the <u>Canaanite</u>[^a] <i>was</i> then in the land.
 
 [Genesis 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.6?lang=eng#p6)
 

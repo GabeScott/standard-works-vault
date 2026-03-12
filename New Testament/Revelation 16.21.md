@@ -1,6 +1,6 @@
 # Revelation 16:21
 
-> And there fell upon men a great <u>hail</u>[^a] out of heaven, *every stone* about the weight of a talent: and men blasphemed God because of the plague of the hail; for the plague thereof was exceeding great.
+> And there fell upon men a great <u>hail</u>[^a] out of heaven, <i>every stone</i> about the weight of a talent: and men blasphemed God because of the plague of the hail; for the plague thereof was exceeding great.
 
 [Revelation 16:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.21?lang=eng#p21)
 

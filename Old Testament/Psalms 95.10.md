@@ -1,6 +1,6 @@
 # Psalms 95:10
 
-> <u>Forty</u>[^a] years long was I <u>grieved</u>[^b] with *this* <u>generation</u>[^c], and said, It *is* a people that do err in their heart, and they have not known my ways:
+> <u>Forty</u>[^a] years long was I <u>grieved</u>[^b] with <i>this</i> <u>generation</u>[^c], and said, It <i>is</i> a people that do err in their heart, and they have not known my ways:
 
 [Psalms 95:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/95.10?lang=eng#p10)
 

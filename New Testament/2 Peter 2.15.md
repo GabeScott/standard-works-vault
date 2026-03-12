@@ -1,6 +1,6 @@
 # 2 Peter 2:15
 
-> Which have <u>forsaken</u>[^a] the right <u>way</u>[^b], and are gone <u>astray</u>[^c], following the way of <u>Balaam</u>[^d] *the son* of Bosor, who loved the <u>wages</u>[^e] of unrighteousness;
+> Which have <u>forsaken</u>[^a] the right <u>way</u>[^b], and are gone <u>astray</u>[^c], following the way of <u>Balaam</u>[^d] <i>the son</i> of Bosor, who loved the <u>wages</u>[^e] of unrighteousness;
 
 [2 Peter 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.15?lang=eng#p15)
 

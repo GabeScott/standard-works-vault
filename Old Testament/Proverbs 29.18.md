@@ -1,6 +1,6 @@
 # Proverbs 29:18
 
-> Where *there is* no <u>vision</u>[^a], the people <u>perish</u>[^b]: but he that <u>keepeth</u>[^c] the <u>law</u>[^d], <u>happy</u>[^e] *is* he.
+> Where <i>there is</i> no <u>vision</u>[^a], the people <u>perish</u>[^b]: but he that <u>keepeth</u>[^c] the <u>law</u>[^d], <u>happy</u>[^e] <i>is</i> he.
 
 [Proverbs 29:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.18?lang=eng#p18)
 

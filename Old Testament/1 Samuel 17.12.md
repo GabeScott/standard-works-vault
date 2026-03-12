@@ -1,6 +1,6 @@
 # 1 Samuel 17:12
 
-> ¶ Now <u>David</u>[^a] *was* the son of that Ephrathite of Beth-lehem-judah, whose name *was* Jesse; and he had eight sons: and the man went among men *for* an old man in the days of Saul.
+> ¶ Now <u>David</u>[^a] <i>was</i> the son of that Ephrathite of Beth-lehem-judah, whose name <i>was</i> Jesse; and he had eight sons: and the man went among men <i>for</i> an old man in the days of Saul.
 
 [1 Samuel 17:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.12?lang=eng#p12)
 

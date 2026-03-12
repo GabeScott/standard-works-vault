@@ -1,6 +1,6 @@
 # Psalms 28:3
 
-> Draw me not away with the wicked, and with the workers of iniquity, which <u>speak</u>[^a] <u>peace</u>[^b] to their neighbours, but <u>mischief</u>[^c] *is* in their hearts.
+> Draw me not away with the wicked, and with the workers of iniquity, which <u>speak</u>[^a] <u>peace</u>[^b] to their neighbours, but <u>mischief</u>[^c] <i>is</i> in their hearts.
 
 [Psalms 28:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/28.3?lang=eng#p3)
 

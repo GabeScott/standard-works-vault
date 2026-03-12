@@ -1,6 +1,6 @@
 # Genesis 1:16
 
-> And God made two great lights; the <u>greater</u>[^a] light to rule the day, and the lesser light to rule the night: *he made* the <u>stars</u>[^b] also.
+> And God made two great lights; the <u>greater</u>[^a] light to rule the day, and the lesser light to rule the night: <i>he made</i> the <u>stars</u>[^b] also.
 
 [Genesis 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.16?lang=eng#p16)
 

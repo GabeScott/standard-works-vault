@@ -1,6 +1,6 @@
 # Esther 1:22
 
-> For he sent letters into all the king’s provinces, into every province according to the writing thereof, and to every people after their <u>language</u>[^a], that every man should bear <u>rule</u>[^b] in his own house, and that *it* should be published according to the language of every people.
+> For he sent letters into all the king’s provinces, into every province according to the writing thereof, and to every people after their <u>language</u>[^a], that every man should bear <u>rule</u>[^b] in his own house, and that <i>it</i> should be published according to the language of every people.
 
 [Esther 1:22](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.22?lang=eng#p22)
 

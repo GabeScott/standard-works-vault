@@ -1,6 +1,6 @@
 # Jeremiah 5:5
 
-> I will get me unto the great men, and will speak unto them; for they have known the way of the LORD, *and* the judgment of their God: but these have altogether broken the <u>yoke</u>[^a], *and* burst the bonds.
+> I will get me unto the great men, and will speak unto them; for they have known the way of the LORD, <i>and</i> the judgment of their God: but these have altogether broken the <u>yoke</u>[^a], <i>and</i> burst the bonds.
 
 [Jeremiah 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.5?lang=eng#p5)
 

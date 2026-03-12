@@ -1,6 +1,6 @@
 # 2 Samuel 24:9
 
-> And Joab gave up the sum of the <u>number</u>[^a] of the people unto the king: and there were in Israel <u>eight</u>[^b] hundred thousand valiant men that drew the sword; and the men of Judah *were* five hundred thousand men.
+> And Joab gave up the sum of the <u>number</u>[^a] of the people unto the king: and there were in Israel <u>eight</u>[^b] hundred thousand valiant men that drew the sword; and the men of Judah <i>were</i> five hundred thousand men.
 
 [2 Samuel 24:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/24.9?lang=eng#p9)
 

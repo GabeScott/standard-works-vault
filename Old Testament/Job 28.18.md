@@ -1,6 +1,6 @@
 # Job 28:18
 
-> No mention shall be made of coral, or of pearls: for the price of wisdom *is* above <u>rubies</u>[^a].
+> No mention shall be made of coral, or of pearls: for the price of wisdom <i>is</i> above <u>rubies</u>[^a].
 
 [Job 28:18](https://www.churchofjesuschrist.org/study/scriptures/ot/job/28.18?lang=eng#p18)
 

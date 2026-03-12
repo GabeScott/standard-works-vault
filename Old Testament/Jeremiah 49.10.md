@@ -1,6 +1,6 @@
 # Jeremiah 49:10
 
-> But I have made <u>Esau</u>[^a] bare, I have uncovered his secret places, and he shall not be able to hide himself: his <u>seed</u>[^b] is spoiled, and his brethren, and his neighbours, and he *is* not.
+> But I have made <u>Esau</u>[^a] bare, I have uncovered his secret places, and he shall not be able to hide himself: his <u>seed</u>[^b] is spoiled, and his brethren, and his neighbours, and he <i>is</i> not.
 
 [Jeremiah 49:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.10?lang=eng#p10)
 

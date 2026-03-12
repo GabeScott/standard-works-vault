@@ -1,6 +1,6 @@
 # Exodus 20:11
 
-> For *in* <u>six</u>[^a] days the LORD made heaven and earth, the sea, and all that in them *is,* and rested the seventh day: wherefore the LORD <u>blessed</u>[^b] the sabbath day, and <u>hallowed</u>[^c] it.
+> For <i>in</i> <u>six</u>[^a] days the LORD made heaven and earth, the sea, and all that in them <i>is,</i> and rested the seventh day: wherefore the LORD <u>blessed</u>[^b] the sabbath day, and <u>hallowed</u>[^c] it.
 
 [Exodus 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.11?lang=eng#p11)
 

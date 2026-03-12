@@ -1,6 +1,6 @@
 # Ezekiel 21:25
 
-> ¶ And thou, profane <u>wicked</u>[^a] prince of Israel, whose <u>day</u>[^b] is come, when iniquity *shall have* an end,
+> ¶ And thou, profane <u>wicked</u>[^a] prince of Israel, whose <u>day</u>[^b] is come, when iniquity <i>shall have</i> an end,
 
 [Ezekiel 21:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.25?lang=eng#p25)
 

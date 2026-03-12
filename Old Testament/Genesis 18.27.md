@@ -1,6 +1,6 @@
 # Genesis 18:27
 
-> And Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, which *am but* <u>dust</u>[^a] and ashes:
+> And Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, which <i>am but</i> <u>dust</u>[^a] and ashes:
 
 [Genesis 18:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.27?lang=eng#p27)
 

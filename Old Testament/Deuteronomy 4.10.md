@@ -1,6 +1,6 @@
 # Deuteronomy 4:10
 
-> *Specially* the day that thou stoodest before the LORD thy God in <u>Horeb</u>[^a], when the LORD said unto me, <u>Gather</u>[^b] me the people together, and I will make them <u>hear</u>[^c] my words, that they may learn to <u>fear</u>[^d] me all the days that they shall live upon the earth, and *that* they may teach their <u>children</u>[^e].
+> <i>Specially</i> the day that thou stoodest before the LORD thy God in <u>Horeb</u>[^a], when the LORD said unto me, <u>Gather</u>[^b] me the people together, and I will make them <u>hear</u>[^c] my words, that they may learn to <u>fear</u>[^d] me all the days that they shall live upon the earth, and <i>that</i> they may teach their <u>children</u>[^e].
 
 [Deuteronomy 4:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.10?lang=eng#p10)
 

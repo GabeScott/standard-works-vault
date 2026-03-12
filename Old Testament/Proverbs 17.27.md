@@ -1,6 +1,6 @@
 # Proverbs 17:27
 
-> He that hath knowledge <u>spareth</u>[^a] his words: *and* a man of <u>understanding</u>[^b] <u>is</u>[^c] of an excellent spirit.
+> He that hath knowledge <u>spareth</u>[^a] his words: <i>and</i> a man of <u>understanding</u>[^b] <u>is</u>[^c] of an excellent spirit.
 
 [Proverbs 17:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.27?lang=eng#p27)
 

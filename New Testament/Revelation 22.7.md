@@ -1,6 +1,6 @@
 # Revelation 22:7
 
-> Behold, I <u>come</u>[^a] quickly: <u>blessed</u>[^b] *is* he that keepeth the <u>sayings</u>[^c] of the prophecy of this book.
+> Behold, I <u>come</u>[^a] quickly: <u>blessed</u>[^b] <i>is</i> he that keepeth the <u>sayings</u>[^c] of the prophecy of this book.
 
 [Revelation 22:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.7?lang=eng#p7)
 

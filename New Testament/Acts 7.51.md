@@ -1,6 +1,6 @@
 # Acts 7:51
 
-> ¶ Ye <u>stiffnecked</u>[^a] and <u>uncircumcised</u>[^b] in heart and ears, ye do always <u>resist</u>[^c] the <u>Holy Ghost</u>[^d]: as your <u>fathers</u>[^e] *did,* so *do* ye.
+> ¶ Ye <u>stiffnecked</u>[^a] and <u>uncircumcised</u>[^b] in heart and ears, ye do always <u>resist</u>[^c] the <u>Holy Ghost</u>[^d]: as your <u>fathers</u>[^e] <i>did,</i> so <i>do</i> ye.
 
 [Acts 7:51](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.51?lang=eng#p51)
 

@@ -1,6 +1,6 @@
 # 2 Samuel 11:3
 
-> And David sent and inquired after the woman. And *one* said, *Is* not this <u>Bath-sheba</u>[^a], the daughter of Eliam, the wife of <u>Uriah</u>[^b] the Hittite?
+> And David sent and inquired after the woman. And <i>one</i> said, <i>Is</i> not this <u>Bath-sheba</u>[^a], the daughter of Eliam, the wife of <u>Uriah</u>[^b] the Hittite?
 
 [2 Samuel 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/11.3?lang=eng#p3)
 

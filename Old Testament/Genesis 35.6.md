@@ -1,6 +1,6 @@
 # Genesis 35:6
 
-> ¶ So Jacob came to <u>Luz</u>[^a], which *is* in the land of Canaan, that *is,* Beth-el, he and all the people that *were* with him.
+> ¶ So Jacob came to <u>Luz</u>[^a], which <i>is</i> in the land of Canaan, that <i>is,</i> Beth-el, he and all the people that <i>were</i> with him.
 
 [Genesis 35:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.6?lang=eng#p6)
 

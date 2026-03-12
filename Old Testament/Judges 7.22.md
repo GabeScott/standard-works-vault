@@ -1,6 +1,6 @@
 # Judges 7:22
 
-> And the three hundred blew the trumpets, and the LORD set every man’s sword against his <u>fellow</u>[^a], even throughout all the host: and the host fled to Beth-shittah in Zererath, *and* to the border of Abel-meholah, unto Tabbath.
+> And the three hundred blew the trumpets, and the LORD set every man’s sword against his <u>fellow</u>[^a], even throughout all the host: and the host fled to Beth-shittah in Zererath, <i>and</i> to the border of Abel-meholah, unto Tabbath.
 
 [Judges 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7.22?lang=eng#p22)
 

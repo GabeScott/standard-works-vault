@@ -1,6 +1,6 @@
 # Ezekiel 37:25
 
-> And they shall dwell in the <u>land</u>[^a] that I have given unto Jacob my servant, wherein your fathers have dwelt; and they shall dwell therein, *even* they, and their children, and their children’s children for <u>ever</u>[^b]: and my servant David *shall be* their <u>prince</u>[^c] for ever.
+> And they shall dwell in the <u>land</u>[^a] that I have given unto Jacob my servant, wherein your fathers have dwelt; and they shall dwell therein, <i>even</i> they, and their children, and their children’s children for <u>ever</u>[^b]: and my servant David <i>shall be</i> their <u>prince</u>[^c] for ever.
 
 [Ezekiel 37:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.25?lang=eng#p25)
 

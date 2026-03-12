@@ -1,6 +1,6 @@
 # Luke 6:20
 
-> ¶ And he lifted up his eyes on his disciples, and said, Blessed *be ye* <u>poor</u>[^a]: for yours is the <u>kingdom</u>[^b] of God.
+> ¶ And he lifted up his eyes on his disciples, and said, Blessed <i>be ye</i> <u>poor</u>[^a]: for yours is the <u>kingdom</u>[^b] of God.
 
 [Luke 6:20](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.20?lang=eng#p20)
 

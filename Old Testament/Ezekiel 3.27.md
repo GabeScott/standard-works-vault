@@ -1,6 +1,6 @@
 # Ezekiel 3:27
 
-> But when I speak with thee, I will open thy <u>mouth</u>[^a], and thou shalt say unto them, Thus <u>saith</u>[^b] the Lord GOD; He that heareth, let him hear; and he that forbeareth, let him forbear: for they *are* a rebellious house.
+> But when I speak with thee, I will open thy <u>mouth</u>[^a], and thou shalt say unto them, Thus <u>saith</u>[^b] the Lord GOD; He that heareth, let him hear; and he that forbeareth, let him forbear: for they <i>are</i> a rebellious house.
 
 [Ezekiel 3:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.27?lang=eng#p27)
 

@@ -1,6 +1,6 @@
 # Genesis 27:38
 
-> And Esau said unto his father, Hast thou but one blessing, my father? bless me, *even* me also, O my father. And Esau lifted up his voice, and <u>wept</u>[^a].
+> And Esau said unto his father, Hast thou but one blessing, my father? bless me, <i>even</i> me also, O my father. And Esau lifted up his voice, and <u>wept</u>[^a].
 
 [Genesis 27:38](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.38?lang=eng#p38)
 

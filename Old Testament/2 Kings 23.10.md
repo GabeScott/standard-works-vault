@@ -1,6 +1,6 @@
 # 2 Kings 23:10
 
-> And he defiled <u>Topheth</u>[^a], which *is* in the valley of the children of <u>Hinnom</u>[^b], that no man might make his son or his daughter to pass through the fire to <u>Molech</u>[^c].
+> And he defiled <u>Topheth</u>[^a], which <i>is</i> in the valley of the children of <u>Hinnom</u>[^b], that no man might make his son or his daughter to pass through the fire to <u>Molech</u>[^c].
 
 [2 Kings 23:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.10?lang=eng#p10)
 

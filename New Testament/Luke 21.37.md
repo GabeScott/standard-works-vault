@@ -1,6 +1,6 @@
 # Luke 21:37
 
-> And in the day time he was <u>teaching</u>[^a] in the temple; and at night he went out, and abode in the mount that is called *the mount* of Olives.
+> And in the day time he was <u>teaching</u>[^a] in the temple; and at night he went out, and abode in the mount that is called <i>the mount</i> of Olives.
 
 [Luke 21:37](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.37?lang=eng#p37)
 

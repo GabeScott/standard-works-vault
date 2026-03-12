@@ -1,6 +1,6 @@
 # Exodus 3:5
 
-> And he said, Draw not nigh hither: put off thy <u>shoes</u>[^a] from off thy feet, for the place whereon thou standest *is* <u>holy</u>[^b] ground.
+> And he said, Draw not nigh hither: put off thy <u>shoes</u>[^a] from off thy feet, for the place whereon thou standest <i>is</i> <u>holy</u>[^b] ground.
 
 [Exodus 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.5?lang=eng#p5)
 

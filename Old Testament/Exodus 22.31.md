@@ -1,6 +1,6 @@
 # Exodus 22:31
 
-> ¶ And ye shall be <u>holy</u>[^a] men unto me: neither shall ye eat *any* flesh *that is* <u>torn</u>[^b] of beasts in the field; ye shall cast it to the dogs.
+> ¶ And ye shall be <u>holy</u>[^a] men unto me: neither shall ye eat <i>any</i> flesh <i>that is</i> <u>torn</u>[^b] of beasts in the field; ye shall cast it to the dogs.
 
 [Exodus 22:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.31?lang=eng#p31)
 

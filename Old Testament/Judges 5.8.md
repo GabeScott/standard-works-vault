@@ -1,6 +1,6 @@
 # Judges 5:8
 
-> They chose new <u>gods</u>[^a]; then *was* war in the gates: was there a shield or spear seen among forty thousand in Israel?
+> They chose new <u>gods</u>[^a]; then <i>was</i> war in the gates: was there a shield or spear seen among forty thousand in Israel?
 
 [Judges 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Numbers 29:35
 
-> ¶ On the eighth day ye shall have a <u>solemn assembly</u>[^a]: ye shall do no servile work *therein:*
+> ¶ On the eighth day ye shall have a <u>solemn assembly</u>[^a]: ye shall do no servile work <i>therein:</i>
 
 [Numbers 29:35](https://www.churchofjesuschrist.org/study/scriptures/ot/num/29.35?lang=eng#p35)
 

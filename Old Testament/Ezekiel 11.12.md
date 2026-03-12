@@ -1,6 +1,6 @@
 # Ezekiel 11:12
 
-> And ye shall know that I *am* the LORD: for ye have not walked in my statutes, neither executed my <u>judgments</u>[^a], but have done after the <u>manners</u>[^b] of the <u>heathen</u>[^c] that *are* round about you.
+> And ye shall know that I <i>am</i> the LORD: for ye have not walked in my statutes, neither executed my <u>judgments</u>[^a], but have done after the <u>manners</u>[^b] of the <u>heathen</u>[^c] that <i>are</i> round about you.
 
 [Ezekiel 11:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.12?lang=eng#p12)
 

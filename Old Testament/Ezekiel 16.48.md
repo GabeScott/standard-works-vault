@@ -1,6 +1,6 @@
 # Ezekiel 16:48
 
-> *As* I live, saith the Lord GOD, <u>Sodom</u>[^a] thy sister hath not done, she nor her daughters, as thou hast done, thou and thy daughters.
+> <i>As</i> I live, saith the Lord GOD, <u>Sodom</u>[^a] thy sister hath not done, she nor her daughters, as thou hast done, thou and thy daughters.
 
 [Ezekiel 16:48](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.48?lang=eng#p48)
 

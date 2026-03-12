@@ -1,6 +1,6 @@
 # 2 Samuel 23:3
 
-> The God of Israel said, the <u>Rock</u>[^a] of Israel spake to me, He that <u>ruleth</u>[^b] over men *must be* just, ruling in the <u>fear</u>[^c] of God.
+> The God of Israel said, the <u>Rock</u>[^a] of Israel spake to me, He that <u>ruleth</u>[^b] over men <i>must be</i> just, ruling in the <u>fear</u>[^c] of God.
 
 [2 Samuel 23:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/23.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Hosea 4:1
 
-> Hear the word of the LORD, ye children of Israel: for the LORD hath a <u>controversy</u>[^a] with the inhabitants of the land, because *there is* no <u>truth</u>[^b], nor mercy, nor <u>knowledge</u>[^c] of God in the land.
+> Hear the word of the LORD, ye children of Israel: for the LORD hath a <u>controversy</u>[^a] with the inhabitants of the land, because <i>there is</i> no <u>truth</u>[^b], nor mercy, nor <u>knowledge</u>[^c] of God in the land.
 
 [Hosea 4:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.1?lang=eng#p1)
 

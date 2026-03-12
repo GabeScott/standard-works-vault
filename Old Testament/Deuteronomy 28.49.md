@@ -1,6 +1,6 @@
 # Deuteronomy 28:49
 
-> The LORD shall bring a nation against thee from <u>far</u>[^a], from the <u>end</u>[^b] of the earth, *as swift* as the <u>eagle</u>[^c] flieth; a nation whose <u>tongue</u>[^d] thou shalt not understand;
+> The LORD shall bring a nation against thee from <u>far</u>[^a], from the <u>end</u>[^b] of the earth, <i>as swift</i> as the <u>eagle</u>[^c] flieth; a nation whose <u>tongue</u>[^d] thou shalt not understand;
 
 [Deuteronomy 28:49](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.49?lang=eng#p49)
 

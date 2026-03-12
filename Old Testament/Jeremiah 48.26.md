@@ -1,6 +1,6 @@
 # Jeremiah 48:26
 
-> ¶ Make ye him <u>drunken</u>[^a]: for he magnified *himself* against the LORD: Moab also shall wallow in his vomit, and he also shall be in derision.
+> ¶ Make ye him <u>drunken</u>[^a]: for he magnified <i>himself</i> against the LORD: Moab also shall wallow in his vomit, and he also shall be in derision.
 
 [Jeremiah 48:26](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.26?lang=eng#p26)
 

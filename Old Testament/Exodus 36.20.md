@@ -1,6 +1,6 @@
 # Exodus 36:20
 
-> ¶ And he made <u>boards</u>[^a] for the tabernacle *of* <u>shittim</u>[^b] wood, standing up.
+> ¶ And he made <u>boards</u>[^a] for the tabernacle <i>of</i> <u>shittim</u>[^b] wood, standing up.
 
 [Exodus 36:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.20?lang=eng#p20)
 

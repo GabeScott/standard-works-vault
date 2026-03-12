@@ -1,6 +1,6 @@
 # Acts 28:3
 
-> And when Paul had gathered a bundle of sticks, and laid *them* on the fire, there came a <u>viper</u>[^a] out of the heat, and fastened on his hand.
+> And when Paul had gathered a bundle of sticks, and laid <i>them</i> on the fire, there came a <u>viper</u>[^a] out of the heat, and fastened on his hand.
 
 [Acts 28:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.3?lang=eng#p3)
 

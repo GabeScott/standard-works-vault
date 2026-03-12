@@ -1,6 +1,6 @@
 # Deuteronomy 4:13
 
-> And he declared unto you his <u>covenant</u>[^a], which he commanded you to perform, *even* <u>ten</u>[^b] <u>commandments</u>[^c]; and he <u>wrote</u>[^d] them upon two <u>tables</u>[^e] of stone.
+> And he declared unto you his <u>covenant</u>[^a], which he commanded you to perform, <i>even</i> <u>ten</u>[^b] <u>commandments</u>[^c]; and he <u>wrote</u>[^d] them upon two <u>tables</u>[^e] of stone.
 
 [Deuteronomy 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Jeremiah 8:15
 
-> We looked for <u>peace</u>[^a], but no good *came; and* for a time of health, and behold trouble!
+> We looked for <u>peace</u>[^a], but no good <i>came; and</i> for a time of health, and behold trouble!
 
 [Jeremiah 8:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.15?lang=eng#p15)
 

@@ -1,11 +1,12 @@
 # 1 Corinthians 14:33
 
-> For God is not *the author* of <u>confusion</u>[^b], but of <u>peace</u>[^c], as in all <u>churches</u>[^d] of the <u>saints</u>[^e].
+> For God is not <i>the </i><i><u>author</u></i>[^a] of <u>confusion</u>[^b], but of <u>peace</u>[^c], as in all <u>churches</u>[^d] of the <u>saints</u>[^e].
 
 [1 Corinthians 14:33](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.33?lang=eng#p33)
 
 
-[^b]: [[Ephesians 4.3|Eph. 4:5 (3–6)]][[Ephesians 4.4|]][[Ephesians 4.5|]][[Ephesians 4.6|]], [[Ephesians 4.13|13]]; [[D&C 1.30|D&C 1:30]].  
-[^c]: [[Peace|TG Peace]]; [[Peace of God|Peace of God]].  
-[^d]: [[Church|TG Church]].  
-[^e]: [[Saints|TG Saints]].  
+[^a]: [[1 Corinthians 11.16|1 Cor. 11:16 (16–19)]][[1 Corinthians 11.17|]][[1 Corinthians 11.18|]][[1 Corinthians 11.19|]].
+[^b]: [[Ephesians 4.3|Eph. 4:5 (3–6)]][[Ephesians 4.4|]][[Ephesians 4.5|]][[Ephesians 4.6|]], [[Ephesians 4.13|13]]; [[D&C 1.30|D&C 1:30]].
+[^c]: [[Peace|TG Peace]]; [[Peace of God|Peace of God]].
+[^d]: [[Church|TG Church]].
+[^e]: [[Saints|TG Saints]].

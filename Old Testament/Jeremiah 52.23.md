@@ -1,6 +1,6 @@
 # Jeremiah 52:23
 
-> And there were <u>ninety</u>[^a] and six pomegranates on a side; *and* all the pomegranates upon the network *were* an hundred round about.
+> And there were <u>ninety</u>[^a] and six pomegranates on a side; <i>and</i> all the pomegranates upon the network <i>were</i> an hundred round about.
 
 [Jeremiah 52:23](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.23?lang=eng#p23)
 

@@ -1,6 +1,6 @@
 # 1 Chronicles 9:33
 
-> And these *are* the <u>singers</u>[^a], chief of the fathers of the Levites, *who remaining* in the chambers *were* free: for they were employed in *that* work day and <u>night</u>[^b].
+> And these <i>are</i> the <u>singers</u>[^a], chief of the fathers of the Levites, <i>who remaining</i> in the chambers <i>were</i> free: for they were employed in <i>that</i> work day and <u>night</u>[^b].
 
 [1 Chronicles 9:33](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/9.33?lang=eng#p33)
 

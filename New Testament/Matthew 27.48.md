@@ -1,6 +1,6 @@
 # Matthew 27:48
 
-> And straightway one of them ran, and took a sponge, and filled *it* with <u>vinegar</u>[^a], and put *it* on a reed, and gave him to drink.
+> And straightway one of them ran, and took a sponge, and filled <i>it</i> with <u>vinegar</u>[^a], and put <i>it</i> on a reed, and gave him to drink.
 
 [Matthew 27:48](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.48?lang=eng#p48)
 

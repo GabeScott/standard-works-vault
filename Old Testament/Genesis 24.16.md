@@ -1,6 +1,6 @@
 # Genesis 24:16
 
-> And the damsel *was* very <u>fair</u>[^a] to look upon, a virgin, neither had any man <u>known her</u>[^b]: and she went down to the well, and filled her pitcher, and came up.
+> And the damsel <i>was</i> very <u>fair</u>[^a] to look upon, a virgin, neither had any man <u>known her</u>[^b]: and she went down to the well, and filled her pitcher, and came up.
 
 [Genesis 24:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.16?lang=eng#p16)
 

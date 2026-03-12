@@ -1,6 +1,6 @@
 # Psalms 102:13
 
-> Thou shalt arise, *and* have <u>mercy</u>[^a] upon <u>Zion</u>[^b]: for the time to favour her, yea, the set time, is come.
+> Thou shalt arise, <i>and</i> have <u>mercy</u>[^a] upon <u>Zion</u>[^b]: for the time to favour her, yea, the set time, is come.
 
 [Psalms 102:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/102.13?lang=eng#p13)
 

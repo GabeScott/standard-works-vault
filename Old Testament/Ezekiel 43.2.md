@@ -1,6 +1,6 @@
 # Ezekiel 43:2
 
-> And, behold, the <u>glory</u>[^a] of the God of Israel came from the way of the <u>east</u>[^b]: and his <u>voice</u>[^c] *was* like a noise of many <u>waters</u>[^d]: and the earth <u>shined</u>[^e] with his <u>glory</u>[^f].
+> And, behold, the <u>glory</u>[^a] of the God of Israel came from the way of the <u>east</u>[^b]: and his <u>voice</u>[^c] <i>was</i> like a noise of many <u>waters</u>[^d]: and the earth <u>shined</u>[^e] with his <u>glory</u>[^f].
 
 [Ezekiel 43:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.2?lang=eng#p2)
 

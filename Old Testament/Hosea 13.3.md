@@ -1,6 +1,6 @@
 # Hosea 13:3
 
-> Therefore they shall be as the morning cloud, and as the early dew that passeth away, as the <u>chaff</u>[^a] *that* is driven with the whirlwind out of the floor, and as the smoke out of the chimney.
+> Therefore they shall be as the morning cloud, and as the early dew that passeth away, as the <u>chaff</u>[^a] <i>that</i> is driven with the whirlwind out of the floor, and as the smoke out of the chimney.
 
 [Hosea 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Leviticus 11:2
 
-> Speak unto the children of Israel, saying, These *are* the beasts which ye shall <u>eat</u>[^a] among all the beasts that *are* on the earth.
+> Speak unto the children of Israel, saying, These <i>are</i> the beasts which ye shall <u>eat</u>[^a] among all the beasts that <i>are</i> on the earth.
 
 [Leviticus 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.2?lang=eng#p2)
 

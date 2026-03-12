@@ -1,6 +1,6 @@
 # Jonah 4:9
 
-> And God said to Jonah, Doest thou well to be <u>angry</u>[^a] for the gourd? And he said, I do well to be angry, *even* unto death.
+> And God said to Jonah, Doest thou well to be <u>angry</u>[^a] for the gourd? And he said, I do well to be angry, <i>even</i> unto death.
 
 [Jonah 4:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/4.9?lang=eng#p9)
 

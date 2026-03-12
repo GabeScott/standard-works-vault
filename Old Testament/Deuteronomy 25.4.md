@@ -1,8 +1,9 @@
 # Deuteronomy 25:4
 
-> ¶ Thou shalt not <u>muzzle</u>[^a] the ox when he treadeth out *the *<u>corn</u>[^b]*.*
+> ¶ Thou shalt not <u>muzzle</u>[^a] the ox when he treadeth out <i>the </i><i><u>corn</u></i>[^b]<i>.</i>
 
 [Deuteronomy 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.4?lang=eng#p4)
 
 
-[^a]: [[1 Corinthians 9.9|1 Cor. 9:9]]; [[1 Timothy 5.18|1 Tim. 5:18]].  
+[^a]: [[1 Corinthians 9.9|1 Cor. 9:9]]; [[1 Timothy 5.18|1 Tim. 5:18]].
+[^b]: IE grain.

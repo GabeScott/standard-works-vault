@@ -1,6 +1,6 @@
 # Jeremiah 52:20
 
-> The two pillars, one <u>sea</u>[^a], and <u>twelve</u>[^b] brasen <u>bulls</u>[^c] that *were* under the bases, which king Solomon had made in the house of the LORD: the brass of all these vessels was without weight.
+> The two pillars, one <u>sea</u>[^a], and <u>twelve</u>[^b] brasen <u>bulls</u>[^c] that <i>were</i> under the bases, which king Solomon had made in the house of the LORD: the brass of all these vessels was without weight.
 
 [Jeremiah 52:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.20?lang=eng#p20)
 

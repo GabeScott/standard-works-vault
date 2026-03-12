@@ -1,6 +1,6 @@
 # 1 Kings 18:37
 
-> Hear me, O LORD, hear me, that this people may know <u>that</u>[^a] thou *art* the LORD God, and *that* thou hast turned their <u>heart</u>[^b] back again.
+> Hear me, O LORD, hear me, that this people may know <u>that</u>[^a] thou <i>art</i> the LORD God, and <i>that</i> thou hast turned their <u>heart</u>[^b] back again.
 
 [1 Kings 18:37](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.37?lang=eng#p37)
 

@@ -1,6 +1,6 @@
 # Acts 22:3
 
-> I am verily a man *which am* a <u>Jew</u>[^a], born in Tarsus, *a city* in Cilicia, yet brought up in this city at the <u>feet</u>[^b] of <u>Gamaliel</u>[^c], *and* taught according to the perfect manner of the <u>law</u>[^d] of the fathers, and was <u>zealous</u>[^e] toward God, as ye all are this day.
+> I am verily a man <i>which am</i> a <u>Jew</u>[^a], born in Tarsus, <i>a city</i> in Cilicia, yet brought up in this city at the <u>feet</u>[^b] of <u>Gamaliel</u>[^c], <i>and</i> taught according to the perfect manner of the <u>law</u>[^d] of the fathers, and was <u>zealous</u>[^e] toward God, as ye all are this day.
 
 [Acts 22:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.3?lang=eng#p3)
 

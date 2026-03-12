@@ -1,6 +1,6 @@
 # Psalms 68:18
 
-> Thou hast <u>ascended</u>[^a] on high, thou hast led <u>captivity</u>[^b] captive: thou hast received gifts for men; yea, *for* the rebellious also, that the LORD God might dwell *among them.*
+> Thou hast <u>ascended</u>[^a] on high, thou hast led <u>captivity</u>[^b] captive: thou hast received gifts for men; yea, <i>for</i> the rebellious also, that the LORD God might dwell <i>among them.</i>
 
 [Psalms 68:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.18?lang=eng#p18)
 

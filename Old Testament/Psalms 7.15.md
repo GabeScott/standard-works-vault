@@ -1,6 +1,6 @@
 # Psalms 7:15
 
-> He made a pit, and digged it, and is <u>fallen</u>[^a] into the ditch *which* he made.
+> He made a pit, and digged it, and is <u>fallen</u>[^a] into the ditch <i>which</i> he made.
 
 [Psalms 7:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/7.15?lang=eng#p15)
 

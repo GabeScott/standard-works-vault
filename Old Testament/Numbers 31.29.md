@@ -1,6 +1,6 @@
 # Numbers 31:29
 
-> Take *it* of their half, and give *it* unto Eleazar the priest, *for* an <u>heave offering</u>[^a] of the LORD.
+> Take <i>it</i> of their half, and give <i>it</i> unto Eleazar the priest, <i>for</i> an <u>heave offering</u>[^a] of the LORD.
 
 [Numbers 31:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.29?lang=eng#p29)
 

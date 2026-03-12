@@ -1,6 +1,6 @@
 # Acts 9:25
 
-> Then the disciples took him by night, and let *him* down by the wall in a <u>basket</u>[^a].
+> Then the disciples took him by night, and let <i>him</i> down by the wall in a <u>basket</u>[^a].
 
 [Acts 9:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.25?lang=eng#p25)
 

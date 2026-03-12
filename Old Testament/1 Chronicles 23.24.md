@@ -1,6 +1,6 @@
 # 1 Chronicles 23:24
 
-> ¶ These *were* the sons of <u>Levi</u>[^a] after the house of their fathers; *even* the chief of the fathers, as they were counted by <u>number</u>[^b] of names by their <u>polls</u>[^c], that did the work for the service of the house of the LORD, from the age of twenty years and upward.
+> ¶ These <i>were</i> the sons of <u>Levi</u>[^a] after the house of their fathers; <i>even</i> the chief of the fathers, as they were counted by <u>number</u>[^b] of names by their <u>polls</u>[^c], that did the work for the service of the house of the LORD, from the age of twenty years and upward.
 
 [1 Chronicles 23:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/23.24?lang=eng#p24)
 

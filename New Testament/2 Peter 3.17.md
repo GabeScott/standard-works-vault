@@ -1,6 +1,6 @@
 # 2 Peter 3:17
 
-> Ye therefore, beloved, <u>seeing</u>[^a] ye know *these things* before, beware lest ye also, being <u>led</u>[^b] <u>away</u>[^c] with the error of the wicked, fall from your own <u>steadfastness</u>[^d].
+> Ye therefore, beloved, <u>seeing</u>[^a] ye know <i>these things</i> before, beware lest ye also, being <u>led</u>[^b] <u>away</u>[^c] with the error of the wicked, fall from your own <u>steadfastness</u>[^d].
 
 [2 Peter 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.17?lang=eng#p17)
 

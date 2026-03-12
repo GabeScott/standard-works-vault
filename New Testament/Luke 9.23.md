@@ -1,6 +1,6 @@
 # Luke 9:23
 
-> ¶ And he said to *them* all, If any *man* will come after me, let him deny himself, and take up his <u>cross</u>[^a] daily, and <u>follow</u>[^b] me.
+> ¶ And he said to <i>them</i> all, If any <i>man</i> will come after me, let him deny himself, and take up his <u>cross</u>[^a] daily, and <u>follow</u>[^b] me.
 
 [Luke 9:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.23?lang=eng#p23)
 

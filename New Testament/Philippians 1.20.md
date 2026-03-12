@@ -1,6 +1,6 @@
 # Philippians 1:20
 
-> According to my earnest expectation and *my* <u>hope</u>[^a], that in nothing I shall be ashamed, but *that* with all boldness, as always, *so* now also Christ shall be <u>magnified</u>[^b] in my body, whether *it be* by life, or by death.
+> According to my earnest expectation and <i>my</i> <u>hope</u>[^a], that in nothing I shall be ashamed, but <i>that</i> with all boldness, as always, <i>so</i> now also Christ shall be <u>magnified</u>[^b] in my body, whether <i>it be</i> by life, or by death.
 
 [Philippians 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.20?lang=eng#p20)
 

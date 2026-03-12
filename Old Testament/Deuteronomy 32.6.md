@@ -1,6 +1,6 @@
 # Deuteronomy 32:6
 
-> Do ye thus <u>requite</u>[^a] the LORD, O foolish people and unwise? *is* not he thy <u>father</u>[^b] *that* hath <u>bought</u>[^c] thee? hath he not <u>made</u>[^d] thee, and established thee?
+> Do ye thus <u>requite</u>[^a] the LORD, O foolish people and unwise? <i>is</i> not he thy <u>father</u>[^b] <i>that</i> hath <u>bought</u>[^c] thee? hath he not <u>made</u>[^d] thee, and established thee?
 
 [Deuteronomy 32:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.6?lang=eng#p6)
 

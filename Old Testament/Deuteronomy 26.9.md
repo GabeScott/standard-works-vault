@@ -1,6 +1,6 @@
 # Deuteronomy 26:9
 
-> And he hath brought us into this place, and hath given us this land, *even* a <u>land</u>[^a] that floweth with milk and honey.
+> And he hath brought us into this place, and hath given us this land, <i>even</i> a <u>land</u>[^a] that floweth with milk and honey.
 
 [Deuteronomy 26:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Ezekiel 44:7
 
-> In that ye have brought *into my sanctuary* <u>strangers</u>[^a], uncircumcised in heart, and uncircumcised in flesh, to be in my sanctuary, to <u>pollute</u>[^b] it, *even* my house, when ye offer my <u>bread</u>[^c], the <u>fat</u>[^d] and the <u>blood</u>[^e], and they have broken my <u>covenant</u>[^f] because of all your abominations.
+> In that ye have brought <i>into my sanctuary</i> <u>strangers</u>[^a], uncircumcised in heart, and uncircumcised in flesh, to be in my sanctuary, to <u>pollute</u>[^b] it, <i>even</i> my house, when ye offer my <u>bread</u>[^c], the <u>fat</u>[^d] and the <u>blood</u>[^e], and they have broken my <u>covenant</u>[^f] because of all your abominations.
 
 [Ezekiel 44:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.7?lang=eng#p7)
 

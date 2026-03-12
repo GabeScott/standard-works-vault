@@ -1,6 +1,6 @@
 # Leviticus 24:9
 
-> And it shall be Aaron’s and his sons’; and they shall <u>eat</u>[^a] it in the holy place: for it *is* most holy unto him of the offerings of the LORD made by fire by a perpetual statute.
+> And it shall be Aaron’s and his sons’; and they shall <u>eat</u>[^a] it in the holy place: for it <i>is</i> most holy unto him of the offerings of the LORD made by fire by a perpetual statute.
 
 [Leviticus 24:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Ezekiel 20:39
 
-> As for you, O house of Israel, thus saith the Lord GOD; Go ye, serve ye every one his idols, and hereafter *also,* if ye will not hearken unto me: but <u>pollute</u>[^a] ye my holy name no more with your gifts, and with your <u>idols</u>[^b].
+> As for you, O house of Israel, thus saith the Lord GOD; Go ye, serve ye every one his idols, and hereafter <i>also,</i> if ye will not hearken unto me: but <u>pollute</u>[^a] ye my holy name no more with your gifts, and with your <u>idols</u>[^b].
 
 [Ezekiel 20:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.39?lang=eng#p39)
 

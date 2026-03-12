@@ -1,6 +1,6 @@
 # Colossians 3:11
 
-> Where there is neither <u>Greek</u>[^a] nor Jew, <u>circumcision</u>[^b] nor uncircumcision, Barbarian, Scythian, bond *nor* free: but Christ *is* all, and in all.
+> Where there is neither <u>Greek</u>[^a] nor Jew, <u>circumcision</u>[^b] nor uncircumcision, Barbarian, Scythian, bond <i>nor</i> free: but Christ <i>is</i> all, and in all.
 
 [Colossians 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.11?lang=eng#p11)
 

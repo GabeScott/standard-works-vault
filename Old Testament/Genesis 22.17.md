@@ -1,6 +1,6 @@
 # Genesis 22:17
 
-> That in blessing I will bless thee, and in multiplying I will multiply thy <u>seed</u>[^a] as the stars of the heaven, and as the <u>sand</u>[^b] which *is* upon the sea shore; and thy seed shall possess the <u>gate</u>[^c] of his enemies;
+> That in blessing I will bless thee, and in multiplying I will multiply thy <u>seed</u>[^a] as the stars of the heaven, and as the <u>sand</u>[^b] which <i>is</i> upon the sea shore; and thy seed shall possess the <u>gate</u>[^c] of his enemies;
 
 [Genesis 22:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.17?lang=eng#p17)
 

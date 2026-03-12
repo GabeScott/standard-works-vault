@@ -1,6 +1,6 @@
 # Genesis 6:4
 
-> There were <u>giants</u>[^a] in the earth in those days; and also after that, when the sons of God came in unto the daughters of men, and they bare *children* to them, the same *became* mighty men which *were* of old, men of renown.
+> There were <u>giants</u>[^a] in the earth in those days; and also after that, when the sons of God came in unto the daughters of men, and they bare <i>children</i> to them, the same <i>became</i> mighty men which <i>were</i> of old, men of renown.
 
 [Genesis 6:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.4?lang=eng#p4)
 

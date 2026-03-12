@@ -1,6 +1,6 @@
 # Ezekiel 17:12
 
-> Say now to the <u>rebellious</u>[^a] house, Know ye not what these *things mean?* tell *them,* Behold, the <u>king</u>[^b] of Babylon is come to Jerusalem, and hath taken the king thereof, and the princes thereof, and led them with him to Babylon;
+> Say now to the <u>rebellious</u>[^a] house, Know ye not what these <i>things mean?</i> tell <i>them,</i> Behold, the <u>king</u>[^b] of Babylon is come to Jerusalem, and hath taken the king thereof, and the princes thereof, and led them with him to Babylon;
 
 [Ezekiel 17:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.12?lang=eng#p12)
 

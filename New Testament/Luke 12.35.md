@@ -1,6 +1,6 @@
 # Luke 12:35
 
-> Let your loins be girded about, and *your* <u>lights</u>[^a] burning;
+> Let your loins be girded about, and <i>your</i> <u>lights</u>[^a] burning;
 
 [Luke 12:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.35?lang=eng#p35)
 

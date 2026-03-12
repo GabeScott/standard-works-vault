@@ -1,6 +1,6 @@
 # Isaiah 55:3
 
-> Incline your ear, and <u>come</u>[^a] unto me: hear, and your <u>soul</u>[^b] shall live; and I will make an everlasting <u>covenant</u>[^c] with you, *even* the <u>sure</u>[^d] mercies of David.
+> Incline your ear, and <u>come</u>[^a] unto me: hear, and your <u>soul</u>[^b] shall live; and I will make an everlasting <u>covenant</u>[^c] with you, <i>even</i> the <u>sure</u>[^d] mercies of David.
 
 [Isaiah 55:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.3?lang=eng#p3)
 

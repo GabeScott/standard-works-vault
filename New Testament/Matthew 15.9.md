@@ -1,6 +1,6 @@
 # Matthew 15:9
 
-> But in vain they do <u>worship</u>[^a] me, teaching *for* <u>doctrines</u>[^b] the <u>commandments</u>[^c] of men.
+> But in vain they do <u>worship</u>[^a] me, teaching <i>for</i> <u>doctrines</u>[^b] the <u>commandments</u>[^c] of men.
 
 [Matthew 15:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.9?lang=eng#p9)
 

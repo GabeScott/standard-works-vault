@@ -1,6 +1,6 @@
 # 2 Samuel 8:16
 
-> And <u>Joab</u>[^a] the son of Zeruiah *was* over the host; and Jehoshaphat the son of Ahilud *was* recorder;
+> And <u>Joab</u>[^a] the son of Zeruiah <i>was</i> over the host; and Jehoshaphat the son of Ahilud <i>was</i> recorder;
 
 [2 Samuel 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/8.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Psalms 82:6
 
-> I have said, Ye *are* gods; and all of you *are* <u>children</u>[^a] of the most High.
+> I have said, Ye <i>are</i> gods; and all of you <i>are</i> <u>children</u>[^a] of the most High.
 
 [Psalms 82:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/82.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Leviticus 19:28
 
-> Ye shall not make any <u>cuttings</u>[^a] in your <u>flesh</u>[^b] for the dead, nor print any marks upon you: I *am* the LORD.
+> Ye shall not make any <u>cuttings</u>[^a] in your <u>flesh</u>[^b] for the dead, nor print any marks upon you: I <i>am</i> the LORD.
 
 [Leviticus 19:28](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.28?lang=eng#p28)
 

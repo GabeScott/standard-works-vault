@@ -1,6 +1,6 @@
 # John 17:21
 
-> That they all may be <u>one</u>[^a]; as thou, <u>Father</u>[^b], *art* in me, and I in thee, that they also may be <u>one</u>[^c] in us: that the world may believe that thou hast sent me.
+> That they all may be <u>one</u>[^a]; as thou, <u>Father</u>[^b], <i>art</i> in me, and I in thee, that they also may be <u>one</u>[^c] in us: that the world may believe that thou hast sent me.
 
 [John 17:21](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.21?lang=eng#p21)
 

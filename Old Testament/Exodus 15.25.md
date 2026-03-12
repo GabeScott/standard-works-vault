@@ -1,6 +1,6 @@
 # Exodus 15:25
 
-> And he cried unto the LORD; and the LORD shewed him a tree, *which* when he had cast into the waters, the <u>waters</u>[^a] were made sweet: there he made for them a statute and an ordinance, and there he <u>proved</u>[^b] them,
+> And he cried unto the LORD; and the LORD shewed him a tree, <i>which</i> when he had cast into the waters, the <u>waters</u>[^a] were made sweet: there he made for them a statute and an ordinance, and there he <u>proved</u>[^b] them,
 
 [Exodus 15:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.25?lang=eng#p25)
 

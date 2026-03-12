@@ -1,6 +1,6 @@
 # Job 19:25
 
-> For I <u>know</u>[^a] *that* my <u>redeemer</u>[^b] liveth, and *that* <u>he</u>[^c] shall <u>stand</u>[^d] at the latter *day* upon the earth:
+> For I <u>know</u>[^a] <i>that</i> my <u>redeemer</u>[^b] liveth, and <i>that</i> <u>he</u>[^c] shall <u>stand</u>[^d] at the latter <i>day</i> upon the earth:
 
 [Job 19:25](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.25?lang=eng#p25)
 

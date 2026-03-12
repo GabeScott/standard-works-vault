@@ -1,6 +1,6 @@
 # Psalms 74:12
 
-> For God *is* my <u>King</u>[^a] of old, working salvation in the midst of the earth.
+> For God <i>is</i> my <u>King</u>[^a] of old, working salvation in the midst of the earth.
 
 [Psalms 74:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.12?lang=eng#p12)
 

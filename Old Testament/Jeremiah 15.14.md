@@ -1,6 +1,6 @@
 # Jeremiah 15:14
 
-> And I will make *thee* to pass with thine enemies into a <u>land</u>[^a] *which* thou knowest not: for a fire is kindled in mine anger, *which* shall burn upon you.
+> And I will make <i>thee</i> to pass with thine enemies into a <u>land</u>[^a] <i>which</i> thou knowest not: for a fire is kindled in mine anger, <i>which</i> shall burn upon you.
 
 [Jeremiah 15:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/15.14?lang=eng#p14)
 

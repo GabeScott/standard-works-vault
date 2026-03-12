@@ -1,6 +1,6 @@
 # Ezekiel 10:4
 
-> Then the glory of the LORD went up from the cherub, *and stood* over the threshold of the house; and the house was filled with the <u>cloud</u>[^a], and the court was full of the brightness of the LORD’s glory.
+> Then the glory of the LORD went up from the cherub, <i>and stood</i> over the threshold of the house; and the house was filled with the <u>cloud</u>[^a], and the court was full of the brightness of the LORD’s glory.
 
 [Ezekiel 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/10.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Exodus 40:38
 
-> For the <u>cloud</u>[^a] of the LORD *was* upon the tabernacle by day, and fire was on it by night, in the sight of all the house of Israel, throughout all their journeys.
+> For the <u>cloud</u>[^a] of the LORD <i>was</i> upon the tabernacle by day, and fire was on it by night, in the sight of all the house of Israel, throughout all their journeys.
 
 [Exodus 40:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.38?lang=eng#p38)
 

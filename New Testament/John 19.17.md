@@ -1,6 +1,6 @@
 # John 19:17
 
-> And he <u>bearing</u>[^a] his <u>cross</u>[^b] went forth into a place called *the place* of a <u>skull</u>[^c], which is called in the Hebrew Golgotha:
+> And he <u>bearing</u>[^a] his <u>cross</u>[^b] went forth into a place called <i>the place</i> of a <u>skull</u>[^c], which is called in the Hebrew Golgotha:
 
 [John 19:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.17?lang=eng#p17)
 

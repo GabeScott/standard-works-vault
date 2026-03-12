@@ -1,6 +1,6 @@
 # 1 Corinthians 7:31
 
-> And they that use this world, as not abusing *it:* for the <u>fashion</u>[^a] of this <u>world</u>[^b] passeth away.
+> And they that use this world, as not abusing <i>it:</i> for the <u>fashion</u>[^a] of this <u>world</u>[^b] passeth away.
 
 [1 Corinthians 7:31](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.31?lang=eng#p31)
 

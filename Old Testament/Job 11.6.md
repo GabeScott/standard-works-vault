@@ -1,6 +1,6 @@
 # Job 11:6
 
-> And that he would shew thee the secrets of wisdom, that *they are* double to that which is! Know therefore that God <u>exacteth</u>[^a] of thee *less* than thine iniquity *deserveth.*
+> And that he would shew thee the secrets of wisdom, that <i>they are</i> double to that which is! Know therefore that God <u>exacteth</u>[^a] of thee <i>less</i> than thine iniquity <i>deserveth.</i>
 
 [Job 11:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/11.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Ezekiel 43:25
 
-> <u>Seven</u>[^a] days shalt thou prepare every day a goat *for* a sin offering: they shall also prepare a young bullock, and a ram out of the flock, without blemish.
+> <u>Seven</u>[^a] days shalt thou prepare every day a goat <i>for</i> a sin offering: they shall also prepare a young bullock, and a ram out of the flock, without blemish.
 
 [Ezekiel 43:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.25?lang=eng#p25)
 

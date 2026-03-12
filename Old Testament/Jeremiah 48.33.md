@@ -1,6 +1,6 @@
 # Jeremiah 48:33
 
-> And joy and <u>gladness</u>[^a] is taken from the plentiful field, and from the land of Moab; and I have caused wine to fail from the winepresses: none shall tread with shouting; *their* <u>shouting</u>[^b] *shall be* no shouting.
+> And joy and <u>gladness</u>[^a] is taken from the plentiful field, and from the land of Moab; and I have caused wine to fail from the winepresses: none shall tread with shouting; <i>their</i> <u>shouting</u>[^b] <i>shall be</i> no shouting.
 
 [Jeremiah 48:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.33?lang=eng#p33)
 

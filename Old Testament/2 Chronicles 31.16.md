@@ -1,6 +1,6 @@
 # 2 Chronicles 31:16
 
-> Beside their genealogy of males, from <u>three</u>[^a] years old and upward, *even* unto every one that entereth into the house of the LORD, his daily <u>portion</u>[^b] for their service in their charges according to their courses;
+> Beside their genealogy of males, from <u>three</u>[^a] years old and upward, <i>even</i> unto every one that entereth into the house of the LORD, his daily <u>portion</u>[^b] for their service in their charges according to their courses;
 
 [2 Chronicles 31:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/31.16?lang=eng#p16)
 

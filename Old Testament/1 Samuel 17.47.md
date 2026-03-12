@@ -1,6 +1,6 @@
 # 1 Samuel 17:47
 
-> And all this assembly shall know that the LORD saveth not with sword and spear: for the <u>battle</u>[^a] *is* the LORD’s, and he will give you into our hands.
+> And all this assembly shall know that the LORD saveth not with sword and spear: for the <u>battle</u>[^a] <i>is</i> the LORD’s, and he will give you into our hands.
 
 [1 Samuel 17:47](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.47?lang=eng#p47)
 

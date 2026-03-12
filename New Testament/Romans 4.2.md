@@ -1,6 +1,6 @@
 # Romans 4:2
 
-> <u>For</u>[^a] if Abraham were justified by works, he hath <u>whereof to glory</u>[^b]; but not before God.
+> <u>For</u>[^a] if Abraham were justified by works, he hath <i><u>whereof to glory</u></i>[^b]; but not before God.
 
 [Romans 4:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.2?lang=eng#p2)
 

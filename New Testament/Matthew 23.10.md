@@ -1,6 +1,6 @@
 # Matthew 23:10
 
-> Neither be ye called masters: for one is your Master, <u>even Christ</u>[^a].
+> Neither be ye called masters: for one is your Master, <i><u>even Christ</u></i>[^a].
 
 [Matthew 23:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # Ruth 4:6
 
-> ¶ And the kinsman said, I cannot <u>redeem</u>[^a] *it* for myself, lest I <u>mar</u>[^b] mine own inheritance: redeem thou my right to thyself; for I cannot redeem *it.*
+> ¶ And the kinsman said, I cannot <u>redeem</u>[^a] <i>it</i> for myself, lest I <u>mar</u>[^b] mine own inheritance: redeem thou my right to thyself; for I cannot redeem <i>it.</i>
 
 [Ruth 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.6?lang=eng#p6)
 

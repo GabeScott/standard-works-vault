@@ -1,6 +1,6 @@
 # Psalms 35:5
 
-> Let them be as chaff before the wind: and let the angel of the Lord chase them.
+> Let them be as chaff before the wind: and let the angel of the LORD chase <i>them.</i>
 
 [Psalms 35:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.5?lang=eng#p5)
 

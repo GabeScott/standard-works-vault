@@ -1,6 +1,6 @@
 # Jeremiah 29:13
 
-> And ye shall <u>seek</u>[^a] me, and find *me,* when ye shall <u>search</u>[^b] for me with all your <u>heart</u>[^c].
+> And ye shall <u>seek</u>[^a] me, and find <i>me,</i> when ye shall <u>search</u>[^b] for me with all your <u>heart</u>[^c].
 
 [Jeremiah 29:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.13?lang=eng#p13)
 

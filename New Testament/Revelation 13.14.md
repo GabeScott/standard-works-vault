@@ -1,6 +1,6 @@
 # Revelation 13:14
 
-> And <u>deceiveth</u>[^a] them that dwell on the earth by *the means of* those <u>miracles</u>[^b] which he had power to do in the sight of the beast; saying to them that dwell on the earth, that they should make an image to the beast, which had the wound by a sword, and did live.
+> And <u>deceiveth</u>[^a] them that dwell on the earth by <i>the means of</i> those <u>miracles</u>[^b] which he had power to do in the sight of the beast; saying to them that dwell on the earth, that they should make an image to the beast, which had the wound by a sword, and did live.
 
 [Revelation 13:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/13.14?lang=eng#p14)
 

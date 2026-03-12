@@ -1,6 +1,6 @@
 # 2 Samuel 5:4
 
-> ¶ David *was* thirty years old when he began to <u>reign</u>[^a], *and* he <u>reigned</u>[^b] forty years.
+> ¶ David <i>was</i> thirty years old when he began to <u>reign</u>[^a], <i>and</i> he <u>reigned</u>[^b] forty years.
 
 [2 Samuel 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.4?lang=eng#p4)
 

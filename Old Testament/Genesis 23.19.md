@@ -1,6 +1,6 @@
 # Genesis 23:19
 
-> And after this, Abraham buried Sarah his wife in the cave of the field of Machpelah before Mamre: the same *is* <u>Hebron</u>[^a] in the land of Canaan.
+> And after this, Abraham buried Sarah his wife in the cave of the field of Machpelah before Mamre: the same <i>is</i> <u>Hebron</u>[^a] in the land of Canaan.
 
 [Genesis 23:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.19?lang=eng#p19)
 

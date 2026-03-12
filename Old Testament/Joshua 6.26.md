@@ -1,6 +1,6 @@
 # Joshua 6:26
 
-> ¶ And Joshua <u>adjured</u>[^a] *them* at that time, saying, Cursed *be* the man before the LORD, that riseth up and buildeth this city <u>Jericho</u>[^b]: he shall lay the foundation thereof in his firstborn, and in his youngest *son* shall he set up the gates of it.
+> ¶ And Joshua <u>adjured</u>[^a] <i>them</i> at that time, saying, Cursed <i>be</i> the man before the LORD, that riseth up and buildeth this city <u>Jericho</u>[^b]: he shall lay the foundation thereof in his firstborn, and in his youngest <i>son</i> shall he set up the gates of it.
 
 [Joshua 6:26](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.26?lang=eng#p26)
 

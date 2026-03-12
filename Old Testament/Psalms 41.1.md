@@ -1,6 +1,6 @@
 # Psalms 41:1
 
-> Blessed *is* he that considereth the <u>poor</u>[^a]: the LORD will deliver him in time of trouble.
+> Blessed <i>is</i> he that considereth the <u>poor</u>[^a]: the LORD will deliver him in time of trouble.
 
 [Psalms 41:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/41.1?lang=eng#p1)
 

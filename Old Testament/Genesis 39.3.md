@@ -1,6 +1,6 @@
 # Genesis 39:3
 
-> And his master saw that the LORD *was* with him, and that the LORD made all that he did to <u>prosper</u>[^a] in his hand.
+> And his master saw that the LORD <i>was</i> with him, and that the LORD made all that he did to <u>prosper</u>[^a] in his hand.
 
 [Genesis 39:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.3?lang=eng#p3)
 

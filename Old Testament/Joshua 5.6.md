@@ -1,6 +1,6 @@
 # Joshua 5:6
 
-> For the children of Israel walked forty years in the wilderness, till all the people *that were* men of war, which came out of Egypt, were consumed, because they <u>obeyed not</u>[^a] the voice of the LORD: unto whom the LORD sware that he would not shew them the <u>land</u>[^b], which the LORD <u>sware</u>[^c] unto their fathers that he would give us, a land that floweth with milk and honey.
+> For the children of Israel walked forty years in the wilderness, till all the people <i>that were</i> men of war, which came out of Egypt, were consumed, because they <u>obeyed not</u>[^a] the voice of the LORD: unto whom the LORD sware that he would not shew them the <u>land</u>[^b], which the LORD <u>sware</u>[^c] unto their fathers that he would give us, a land that floweth with milk and honey.
 
 [Joshua 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.6?lang=eng#p6)
 

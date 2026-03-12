@@ -1,6 +1,6 @@
 # Jeremiah 37:13
 
-> And when he was in the gate of Benjamin, a captain of the ward *was* there, whose name *was* Irijah, the son of Shelemiah, the son of Hananiah; and he took Jeremiah the prophet, saying, Thou <u>fallest away</u>[^a] to the Chaldeans.
+> And when he was in the gate of Benjamin, a captain of the ward <i>was</i> there, whose name <i>was</i> Irijah, the son of Shelemiah, the son of Hananiah; and he took Jeremiah the prophet, saying, Thou <u>fallest away</u>[^a] to the Chaldeans.
 
 [Jeremiah 37:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/37.13?lang=eng#p13)
 

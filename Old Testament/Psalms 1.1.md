@@ -1,6 +1,6 @@
 # Psalms 1:1
 
-> <u>Blessed</u>[^a] *is* the man that <u>walketh</u>[^b] not in the <u>counsel</u>[^c] of the ungodly, nor standeth in the way of sinners, nor sitteth in the seat of the <u>scornful</u>[^d].
+> <u>Blessed</u>[^a] <i>is</i> the man that <u>walketh</u>[^b] not in the <u>counsel</u>[^c] of the ungodly, nor standeth in the way of sinners, nor sitteth in the seat of the <u>scornful</u>[^d].
 
 [Psalms 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/1.1?lang=eng#p1)
 

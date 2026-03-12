@@ -1,6 +1,6 @@
 # Ezra 8:22
 
-> For I was ashamed to require of the king a band of soldiers and horsemen to help us against the enemy in the way: because we had spoken unto the king, saying, The hand of our God *is* upon all them for <u>good</u>[^a] that <u>seek</u>[^b] him; but his power and his wrath *is* against all them that forsake him.
+> For I was ashamed to require of the king a band of soldiers and horsemen to help us against the enemy in the way: because we had spoken unto the king, saying, The hand of our God <i>is</i> upon all them for <u>good</u>[^a] that <u>seek</u>[^b] him; but his power and his wrath <i>is</i> against all them that forsake him.
 
 [Ezra 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/8.22?lang=eng#p22)
 

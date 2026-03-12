@@ -1,6 +1,6 @@
 # Exodus 16:7
 
-> And in the morning, then ye shall see the <u>glory</u>[^a] of the LORD; for that he heareth your murmurings against the LORD: and what *are* we, that ye murmur against us?
+> And in the morning, then ye shall see the <u>glory</u>[^a] of the LORD; for that he heareth your murmurings against the LORD: and what <i>are</i> we, that ye murmur against us?
 
 [Exodus 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.7?lang=eng#p7)
 

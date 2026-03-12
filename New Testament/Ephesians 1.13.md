@@ -1,6 +1,6 @@
 # Ephesians 1:13
 
-> In whom ye also *trusted,* after that ye heard the word of truth, the <u>gospel</u>[^a] of your salvation: in whom also after that ye believed, ye were <u>sealed</u>[^b] with that holy Spirit of <u>promise</u>[^c],
+> In whom ye also <i>trusted,</i> after that ye heard the word of truth, the <u>gospel</u>[^a] of your salvation: in whom also after that ye believed, ye were <u>sealed</u>[^b] with that holy Spirit of <u>promise</u>[^c],
 
 [Ephesians 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Leviticus 21:6
 
-> They shall be <u>holy</u>[^a] unto their God, and not <u>profane</u>[^b] the name of their God: for the offerings of the LORD made by <u>fire</u>[^c], *and* the bread of their God, they do offer: therefore they shall be holy.
+> They shall be <u>holy</u>[^a] unto their God, and not <u>profane</u>[^b] the name of their God: for the offerings of the LORD made by <u>fire</u>[^c], <i>and</i> the bread of their God, they do offer: therefore they shall be holy.
 
 [Leviticus 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/21.6?lang=eng#p6)
 

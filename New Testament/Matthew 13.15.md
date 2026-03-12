@@ -1,6 +1,6 @@
 # Matthew 13:15
 
-> For this people’s <u>heart</u>[^a] is waxed gross, and *their* ears are dull of hearing, and their <u>eyes</u>[^b] they have <u>closed</u>[^c]; lest at any time they should see with *their* eyes, and hear with *their* ears, and should understand with *their* heart, and should be converted, and I should <u>heal</u>[^d] them.
+> For this people’s <u>heart</u>[^a] is waxed gross, and <i>their</i> ears are dull of hearing, and their <u>eyes</u>[^b] they have <u>closed</u>[^c]; lest at any time they should see with <i>their</i> eyes, and hear with <i>their</i> ears, and should understand with <i>their</i> heart, and should be converted, and I should <u>heal</u>[^d] them.
 
 [Matthew 13:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.15?lang=eng#p15)
 

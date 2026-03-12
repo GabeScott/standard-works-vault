@@ -1,6 +1,6 @@
 # 1 Corinthians 15:36
 
-> *Thou* fool, that which thou sowest is not quickened, except it <u>die</u>[^a]:
+> <i>Thou</i> fool, that which thou sowest is not quickened, except it <u>die</u>[^a]:
 
 [1 Corinthians 15:36](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.36?lang=eng#p36)
 

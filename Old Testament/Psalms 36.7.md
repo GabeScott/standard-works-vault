@@ -1,6 +1,6 @@
 # Psalms 36:7
 
-> How excellent *is* thy lovingkindness, O God! therefore the children of men put their <u>trust</u>[^a] under the shadow of thy wings.
+> How excellent <i>is</i> thy lovingkindness, O God! therefore the children of men put their <u>trust</u>[^a] under the shadow of thy wings.
 
 [Psalms 36:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/36.7?lang=eng#p7)
 

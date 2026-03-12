@@ -1,6 +1,6 @@
 # Isaiah 45:3
 
-> And I will give thee the <u>treasures of darkness</u>[^a], and hidden riches of secret places, that thou mayest know that I, the LORD, which call *thee* by thy <u>name</u>[^b], *am* the <u>God</u>[^c] of Israel.
+> And I will give thee the <u>treasures of darkness</u>[^a], and hidden riches of secret places, that thou mayest know that I, the LORD, which call <i>thee</i> by thy <u>name</u>[^b], <i>am</i> the <u>God</u>[^c] of Israel.
 
 [Isaiah 45:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.3?lang=eng#p3)
 

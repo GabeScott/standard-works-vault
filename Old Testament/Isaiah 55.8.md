@@ -1,6 +1,6 @@
 # Isaiah 55:8
 
-> ¶ For my <u>thoughts</u>[^a] *are* not <u>your</u>[^b] thoughts, neither *are* your <u>ways</u>[^c] my <u>ways</u>[^d], saith the LORD.
+> ¶ For my <u>thoughts</u>[^a] <i>are</i> not <u>your</u>[^b] thoughts, neither <i>are</i> your <u>ways</u>[^c] my <u>ways</u>[^d], saith the LORD.
 
 [Isaiah 55:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.8?lang=eng#p8)
 

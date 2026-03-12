@@ -1,6 +1,6 @@
 # 1 Kings 14:10
 
-> Therefore, behold, I will bring evil upon the house of <u>Jeroboam</u>[^a], and will cut off from Jeroboam him that pisseth against the wall, *and* him that is shut up and left in Israel, and will <u>take away</u>[^b] the remnant of the house of <u>Jeroboam</u>[^c], as a man taketh away dung, till it be all gone.
+> Therefore, behold, I will bring evil upon the house of <u>Jeroboam</u>[^a], and will cut off from Jeroboam him that pisseth against the wall, <i>and</i> him that is shut up and left in Israel, and will <u>take away</u>[^b] the remnant of the house of <u>Jeroboam</u>[^c], as a man taketh away dung, till it be all gone.
 
 [1 Kings 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.10?lang=eng#p10)
 

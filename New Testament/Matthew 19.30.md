@@ -1,6 +1,6 @@
 # Matthew 19:30
 
-> But many *that are* <u>first</u>[^a] shall be last; and the last *shall be* first.
+> But many <i>that are</i> <u>first</u>[^a] shall be last; and the last <i>shall be</i> first.
 
 [Matthew 19:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.30?lang=eng#p30)
 

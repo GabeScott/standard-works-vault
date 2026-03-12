@@ -1,6 +1,6 @@
 # Exodus 31:15
 
-> Six days may work be done; but in the seventh *is* the sabbath of <u>rest</u>[^a], holy to the LORD: whosoever doeth *any* <u>work</u>[^b] in the sabbath day, he shall surely be put to death.
+> Six days may work be done; but in the seventh <i>is</i> the sabbath of <u>rest</u>[^a], holy to the LORD: whosoever doeth <i>any</i> <u>work</u>[^b] in the sabbath day, he shall surely be put to death.
 
 [Exodus 31:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.15?lang=eng#p15)
 

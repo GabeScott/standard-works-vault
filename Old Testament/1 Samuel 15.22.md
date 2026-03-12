@@ -1,6 +1,6 @@
 # 1 Samuel 15:22
 
-> And Samuel said, Hath the LORD *as great* <u>delight</u>[^a] in burnt offerings and sacrifices, as in obeying the <u>voice</u>[^b] of the LORD? Behold, to <u>obey</u>[^c] *is* better than <u>sacrifice</u>[^d], *and* to hearken than the fat of <u>rams</u>[^e].
+> And Samuel said, Hath the LORD <i>as great</i> <u>delight</u>[^a] in burnt offerings and sacrifices, as in obeying the <u>voice</u>[^b] of the LORD? Behold, to <u>obey</u>[^c] <i>is</i> better than <u>sacrifice</u>[^d], <i>and</i> to hearken than the fat of <u>rams</u>[^e].
 
 [1 Samuel 15:22](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.22?lang=eng#p22)
 

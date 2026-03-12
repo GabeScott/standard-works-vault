@@ -1,6 +1,6 @@
 # 1 Corinthians 8:4
 
-> As concerning therefore the eating of those things <u>that</u>[^a] are offered in sacrifice unto <u>idols</u>[^b], we know that an <u>idol</u>[^c] *is* nothing in the world, and that *there is* none other God but one.
+> As concerning therefore the eating of those things <u>that</u>[^a] are offered in sacrifice unto <u>idols</u>[^b], we know that an <u>idol</u>[^c] <i>is</i> nothing in the world, and that <i>there is</i> none other God but one.
 
 [1 Corinthians 8:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/8.4?lang=eng#p4)
 

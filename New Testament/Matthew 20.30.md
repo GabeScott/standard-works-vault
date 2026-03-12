@@ -1,6 +1,6 @@
 # Matthew 20:30
 
-> ¶ And, behold, two <u>blind men</u>[^a] sitting by the way side, when they heard that Jesus passed by, cried out, saying, Have mercy on us, O Lord, *thou* Son of David.
+> ¶ And, behold, two <u>blind men</u>[^a] sitting by the way side, when they heard that Jesus passed by, cried out, saying, Have mercy on us, O Lord, <i>thou</i> Son of David.
 
 [Matthew 20:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.30?lang=eng#p30)
 

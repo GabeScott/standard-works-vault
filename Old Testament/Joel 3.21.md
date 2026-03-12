@@ -1,6 +1,6 @@
 # Joel 3:21
 
-> For I will cleanse their blood *that* I have not cleansed: for the LORD dwelleth in <u>Zion</u>[^a].
+> For I will cleanse their blood <i>that</i> I have not cleansed: for the LORD dwelleth in <u>Zion</u>[^a].
 
 [Joel 3:21](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.21?lang=eng#p21)
 

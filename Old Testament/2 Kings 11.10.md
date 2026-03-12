@@ -1,6 +1,6 @@
 # 2 Kings 11:10
 
-> And to the captains over hundreds did the priest give king David’s spears and <u>shields</u>[^a], that *were* in the temple of the LORD.
+> And to the captains over hundreds did the priest give king David’s spears and <u>shields</u>[^a], that <i>were</i> in the temple of the LORD.
 
 [2 Kings 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/11.10?lang=eng#p10)
 

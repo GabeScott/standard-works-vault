@@ -1,6 +1,6 @@
 # Romans 1:4
 
-> And <u>declared</u>[^a] *to be* the <u>Son of God</u>[^b] with <u>power</u>[^c], according to the spirit of holiness, by the resurrection <u>from the dead</u>[^d]:
+> And <u>declared</u>[^a] <i>to be</i> the <u>Son of God</u>[^b] with <u>power</u>[^c], according to the spirit of holiness, by the resurrection <u>from the dead</u>[^d]:
 
 [Romans 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.4?lang=eng#p4)
 

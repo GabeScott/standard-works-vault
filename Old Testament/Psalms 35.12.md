@@ -1,6 +1,6 @@
 # Psalms 35:12
 
-> They <u>rewarded</u>[^a] me evil for good *to* the spoiling of my soul.
+> They <u>rewarded</u>[^a] me evil for good <i>to</i> the spoiling of my soul.
 
 [Psalms 35:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.12?lang=eng#p12)
 

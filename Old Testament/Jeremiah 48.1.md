@@ -1,6 +1,6 @@
 # Jeremiah 48:1
 
-> Against <u>Moab</u>[^a] thus saith the LORD of hosts, the God of Israel; Woe unto Nebo! for it is spoiled: Kiriathaim is confounded *and* taken: Misgab is confounded and dismayed.
+> Against <u>Moab</u>[^a] thus saith the LORD of hosts, the God of Israel; Woe unto Nebo! for it is spoiled: Kiriathaim is confounded <i>and</i> taken: Misgab is confounded and dismayed.
 
 [Jeremiah 48:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.1?lang=eng#p1)
 

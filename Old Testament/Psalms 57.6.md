@@ -1,6 +1,6 @@
 # Psalms 57:6
 
-> They have prepared a <u>net</u>[^a] for my steps; my soul is bowed down: they have <u>digged</u>[^b] a <u>pit</u>[^c] before me, into the midst whereof they are fallen *themselves.* Selah.
+> They have prepared a <u>net</u>[^a] for my steps; my soul is bowed down: they have <u>digged</u>[^b] a <u>pit</u>[^c] before me, into the midst whereof they are fallen <i>themselves.</i> Selah.
 
 [Psalms 57:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/57.6?lang=eng#p6)
 

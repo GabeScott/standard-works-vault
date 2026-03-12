@@ -1,6 +1,6 @@
 # Jeremiah 18:7
 
-> *At what* instant I shall speak concerning a nation, and concerning a kingdom, to pluck up, and to <u>pull</u>[^a] down, and to destroy *it;*
+> <i>At what</i> instant I shall speak concerning a nation, and concerning a kingdom, to pluck up, and to <u>pull</u>[^a] down, and to destroy <i>it;</i>
 
 [Jeremiah 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/18.7?lang=eng#p7)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 33:4
 
-> Moses commanded us a <u>law</u>[^a], *even* the inheritance of the congregation of Jacob.
+> Moses commanded us a <u>law</u>[^a], <i>even</i> the inheritance of the congregation of Jacob.
 
 [Deuteronomy 33:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.4?lang=eng#p4)
 

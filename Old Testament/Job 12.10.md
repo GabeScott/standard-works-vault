@@ -1,6 +1,6 @@
 # Job 12:10
 
-> In whose hand *is* the soul of every <u>living</u>[^a] thing, and the <u>breath</u>[^b] of all mankind.
+> In whose hand <i>is</i> the soul of every <u>living</u>[^a] thing, and the <u>breath</u>[^b] of all mankind.
 
 [Job 12:10](https://www.churchofjesuschrist.org/study/scriptures/ot/job/12.10?lang=eng#p10)
 

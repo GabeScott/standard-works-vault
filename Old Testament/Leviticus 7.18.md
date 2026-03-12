@@ -1,6 +1,6 @@
 # Leviticus 7:18
 
-> And if *any* of the flesh of the sacrifice of his peace offerings be eaten at all on the third day, it shall not be <u>accepted</u>[^a], neither shall it be imputed unto him that offereth it: it shall be an <u>abomination</u>[^b], and the soul that eateth of it shall <u>bear</u>[^c] his iniquity.
+> And if <i>any</i> of the flesh of the sacrifice of his peace offerings be eaten at all on the third day, it shall not be <u>accepted</u>[^a], neither shall it be imputed unto him that offereth it: it shall be an <u>abomination</u>[^b], and the soul that eateth of it shall <u>bear</u>[^c] his iniquity.
 
 [Leviticus 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.18?lang=eng#p18)
 

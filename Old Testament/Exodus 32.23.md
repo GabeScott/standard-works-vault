@@ -1,6 +1,6 @@
 # Exodus 32:23
 
-> For they said unto me, <u>Make</u>[^a] us <u>gods</u>[^b], which shall go before us: for *as for* this Moses, the man that brought us up out of the land of Egypt, we wot not what is become of him.
+> For they said unto me, <u>Make</u>[^a] us <u>gods</u>[^b], which shall go before us: for <i>as for</i> this Moses, the man that brought us up out of the land of Egypt, we wot not what is become of him.
 
 [Exodus 32:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.23?lang=eng#p23)
 

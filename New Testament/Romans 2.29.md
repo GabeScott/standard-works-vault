@@ -1,6 +1,6 @@
 # Romans 2:29
 
-> But he *is* a Jew, which is one inwardly; and <u>circumcision</u>[^a] *is that* of the heart, in the <u>spirit</u>[^b], *and* not in the letter; whose praise *is* not of men, but of God.
+> But he <i>is</i> a Jew, which is one inwardly; and <u>circumcision</u>[^a] <i>is that</i> of the heart, in the <u>spirit</u>[^b], <i>and</i> not in the letter; whose praise <i>is</i> not of men, but of God.
 
 [Romans 2:29](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.29?lang=eng#p29)
 

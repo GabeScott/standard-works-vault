@@ -1,6 +1,6 @@
 # Leviticus 23:34
 
-> Speak unto the children of Israel, saying, The fifteenth day of this <u>seventh</u>[^a] month *shall be* the <u>feast</u>[^b] of <u>tabernacles</u>[^c] *for* seven days unto the LORD.
+> Speak unto the children of Israel, saying, The fifteenth day of this <u>seventh</u>[^a] month <i>shall be</i> the <u>feast</u>[^b] of <u>tabernacles</u>[^c] <i>for</i> seven days unto the LORD.
 
 [Leviticus 23:34](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.34?lang=eng#p34)
 

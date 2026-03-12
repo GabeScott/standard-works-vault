@@ -1,6 +1,6 @@
 # Proverbs 1:9
 
-> For they *shall be* an <u>ornament</u>[^a] of <u>grace</u>[^b] unto thy head, and chains about thy neck.
+> For they <i>shall be</i> an <u>ornament</u>[^a] of <u>grace</u>[^b] unto thy head, and chains about thy neck.
 
 [Proverbs 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.9?lang=eng#p9)
 

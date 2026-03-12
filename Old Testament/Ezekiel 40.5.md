@@ -1,6 +1,6 @@
 # Ezekiel 40:5
 
-> And behold a wall on the outside of the <u>house</u>[^a] round about, and in the man’s hand a measuring reed of six <u>cubits</u>[^b] *long* <u>by</u>[^c] the cubit and an hand breadth: so he <u>measured</u>[^d] the <u>breadth</u>[^e] of the building, one reed; and the height, one reed.
+> And behold a wall on the outside of the <u>house</u>[^a] round about, and in the man’s hand a measuring reed of six <u>cubits</u>[^b] <i>long</i> <u>by</u>[^c] the cubit and an hand breadth: so he <u>measured</u>[^d] the <u>breadth</u>[^e] of the building, one reed; and the height, one reed.
 
 [Ezekiel 40:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.5?lang=eng#p5)
 

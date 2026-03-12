@@ -1,6 +1,6 @@
 # Amos 5:11
 
-> Forasmuch therefore as your treading *is* upon the poor, and ye take from him burdens of wheat: ye have <u>built</u>[^a] houses of hewn stone, but ye shall not <u>dwell</u>[^b] in them; ye have planted pleasant vineyards, but ye shall not drink wine of them.
+> Forasmuch therefore as your treading <i>is</i> upon the poor, and ye take from him burdens of wheat: ye have <u>built</u>[^a] houses of hewn stone, but ye shall not <u>dwell</u>[^b] in them; ye have planted pleasant vineyards, but ye shall not drink wine of them.
 
 [Amos 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.11?lang=eng#p11)
 

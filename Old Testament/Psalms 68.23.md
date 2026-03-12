@@ -1,6 +1,6 @@
 # Psalms 68:23
 
-> That thy foot may be dipped in the <u>blood</u>[^a] of *thine* enemies, *and* the tongue of thy dogs in the same.
+> That thy foot may be dipped in the <u>blood</u>[^a] of <i>thine</i> enemies, <i>and</i> the tongue of thy dogs in the same.
 
 [Psalms 68:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/68.23?lang=eng#p23)
 

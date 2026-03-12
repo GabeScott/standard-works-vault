@@ -1,6 +1,6 @@
 # Isaiah 66:23
 
-> And it shall come to pass, *that* from one new moon to another, and from one sabbath to another, shall all flesh come to <u>worship</u>[^a] before me, saith the LORD.
+> And it shall come to pass, <i>that</i> from one new moon to another, and from one sabbath to another, shall all flesh come to <u>worship</u>[^a] before me, saith the LORD.
 
 [Isaiah 66:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.23?lang=eng#p23)
 

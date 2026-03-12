@@ -1,6 +1,6 @@
 # Matthew 15:37
 
-> And they did all eat, and were filled: and they <u>took</u>[^a] up of the <u>broken meat</u>[^b] that was left seven baskets full.
+> And they did all eat, and were filled: and they <u>took</u>[^a] up of the <i><u>broken meat</u></i>[^b] that was left seven baskets full.
 
 [Matthew 15:37](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.37?lang=eng#p37)
 

@@ -1,6 +1,6 @@
 # Matthew 26:15
 
-> And said *unto them,* What will ye give me, and I will deliver him unto you? And they covenanted with him for <u>thirty</u>[^a] pieces of silver.
+> And said <i>unto them,</i> What will ye give me, and I will deliver him unto you? And they covenanted with him for <u>thirty</u>[^a] pieces of silver.
 
 [Matthew 26:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.15?lang=eng#p15)
 

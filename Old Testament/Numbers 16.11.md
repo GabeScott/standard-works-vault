@@ -1,6 +1,6 @@
 # Numbers 16:11
 
-> For which cause *both* thou and all thy company *are* gathered together <u>against</u>[^a] the LORD: and what *is* Aaron, that ye <u>murmur</u>[^b] against him?
+> For which cause <i>both</i> thou and all thy company <i>are</i> gathered together <u>against</u>[^a] the LORD: and what <i>is</i> Aaron, that ye <u>murmur</u>[^b] against him?
 
 [Numbers 16:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.11?lang=eng#p11)
 

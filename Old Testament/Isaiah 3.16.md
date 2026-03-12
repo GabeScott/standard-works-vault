@@ -1,6 +1,6 @@
 # Isaiah 3:16
 
-> ¶ Moreover the LORD saith, Because the <u>daughters</u>[^a] of Zion are <u>haughty</u>[^b], and <u>walk</u>[^c] with stretched forth necks and <u>wanton</u>[^d] eyes, walking and <u>mincing</u>[^e] *as* they go, and making a tinkling with their feet:
+> ¶ Moreover the LORD saith, Because the <u>daughters</u>[^a] of Zion are <u>haughty</u>[^b], and <u>walk</u>[^c] with stretched forth necks and <u>wanton</u>[^d] eyes, walking and <u>mincing</u>[^e] <i>as</i> they go, and making a tinkling with their feet:
 
 [Isaiah 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.16?lang=eng#p16)
 

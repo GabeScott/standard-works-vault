@@ -1,6 +1,6 @@
 # 1 Corinthians 7:38
 
-> <u>So</u>[^a] then he that giveth *her* in marriage doeth well; but he that giveth *her* not in marriage doeth better.
+> <u>So</u>[^a] then he that giveth <i>her</i> in marriage doeth well; but he that giveth <i>her</i> not in marriage doeth better.
 
 [1 Corinthians 7:38](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.38?lang=eng#p38)
 

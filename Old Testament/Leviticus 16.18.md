@@ -1,6 +1,6 @@
 # Leviticus 16:18
 
-> And he shall go out unto the altar that *is* before the LORD, and make an atonement for it; and shall take of the blood of the bullock, and of the blood of the goat, and put *it* upon the <u>horns</u>[^a] of the altar round about.
+> And he shall go out unto the altar that <i>is</i> before the LORD, and make an atonement for it; and shall take of the blood of the bullock, and of the blood of the goat, and put <i>it</i> upon the <u>horns</u>[^a] of the altar round about.
 
 [Leviticus 16:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.18?lang=eng#p18)
 

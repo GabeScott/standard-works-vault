@@ -1,6 +1,6 @@
 # Isaiah 59:2
 
-> But your iniquities have <u>separated</u>[^a] between you and your God, and your <u>sins</u>[^b] <u>have hid</u>[^c] *his* face from you, that he will not <u>hear</u>[^d].
+> But your iniquities have <u>separated</u>[^a] between you and your God, and your <u>sins</u>[^b] <u>have hid</u>[^c] <i>his</i> face from you, that he will not <u>hear</u>[^d].
 
 [Isaiah 59:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.2?lang=eng#p2)
 

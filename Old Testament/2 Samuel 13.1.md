@@ -1,6 +1,6 @@
 # 2 Samuel 13:1
 
-> And it came to pass after this, that <u>Absalom</u>[^a] the son of David had a fair sister, whose name *was* <u>Tamar</u>[^b]; and Amnon the son of David loved her.
+> And it came to pass after this, that <u>Absalom</u>[^a] the son of David had a fair sister, whose name <i>was</i> <u>Tamar</u>[^b]; and Amnon the son of David loved her.
 
 [2 Samuel 13:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/13.1?lang=eng#p1)
 

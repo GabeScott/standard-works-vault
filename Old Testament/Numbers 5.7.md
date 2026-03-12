@@ -1,6 +1,6 @@
 # Numbers 5:7
 
-> Then they shall <u>confess</u>[^a] their sin which they have done: and he shall <u>recompense</u>[^b] his trespass with the principal thereof, and add unto it the fifth *part* thereof, and give *it* unto *him* against whom he hath trespassed.
+> Then they shall <u>confess</u>[^a] their sin which they have done: and he shall <u>recompense</u>[^b] his trespass with the principal thereof, and add unto it the fifth <i>part</i> thereof, and give <i>it</i> unto <i>him</i> against whom he hath trespassed.
 
 [Numbers 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/5.7?lang=eng#p7)
 

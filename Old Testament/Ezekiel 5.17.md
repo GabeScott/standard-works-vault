@@ -1,6 +1,6 @@
 # Ezekiel 5:17
 
-> So will I send upon you famine and evil beasts, and they shall <u>bereave thee</u>[^a]; and pestilence and blood shall pass through thee; and I will bring the <u>sword</u>[^b] upon thee. I the LORD have spoken *it.*
+> So will I send upon you famine and evil beasts, and they shall <u>bereave thee</u>[^a]; and pestilence and blood shall pass through thee; and I will bring the <u>sword</u>[^b] upon thee. I the LORD have spoken <i>it.</i>
 
 [Ezekiel 5:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/5.17?lang=eng#p17)
 

@@ -1,6 +1,6 @@
 # 1 Chronicles 5:1
 
-> Now the sons of <u>Reuben</u>[^a] the firstborn of Israel, (for he *was* the firstborn; but, forasmuch as he defiled his father’s <u>bed</u>[^b], his birthright was given unto the <u>sons</u>[^c] of <u>Joseph</u>[^d] the son of Israel: and the genealogy is not to be reckoned after the birthright.
+> Now the sons of <u>Reuben</u>[^a] the firstborn of Israel, (for he <i>was</i> the firstborn; but, forasmuch as he defiled his father’s <u>bed</u>[^b], his birthright was given unto the <u>sons</u>[^c] of <u>Joseph</u>[^d] the son of Israel: and the genealogy is not to be reckoned after the birthright.
 
 [1 Chronicles 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/5.1?lang=eng#p1)
 

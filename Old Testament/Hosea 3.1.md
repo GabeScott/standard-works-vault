@@ -1,6 +1,6 @@
 # Hosea 3:1
 
-> Then said the LORD unto me, Go yet, love a woman beloved of *her* friend, yet an <u>adulteress</u>[^a], according to the love of the LORD toward the children of Israel, who look to other gods, and love <u>flagons of wine</u>[^b].
+> Then said the LORD unto me, Go yet, love a woman beloved of <i>her</i> friend, yet an <u>adulteress</u>[^a], according to the love of the LORD toward the children of Israel, who look to other gods, and love <u>flagons of wine</u>[^b].
 
 [Hosea 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/3.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Joshua 8:13
 
-> And when they had set the people, *even* all the host that *was* on the north of the city, and <u>their liers in wait</u>[^a] on the west of the city, Joshua went that night into the midst of the valley.
+> And when they had set the people, <i>even</i> all the host that <i>was</i> on the north of the city, and <u>their liers in wait</u>[^a] on the west of the city, Joshua went that night into the midst of the valley.
 
 [Joshua 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.13?lang=eng#p13)
 

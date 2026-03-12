@@ -1,6 +1,6 @@
 # 1 Kings 7:14
 
-> He *was* a widow’s son of the tribe of Naphtali, and his father *was* a man of Tyre, a worker in brass: and he was filled with <u>wisdom</u>[^a], and understanding, and cunning to work all works in brass. And he came to king Solomon, and <u>wrought</u>[^b] all his work.
+> He <i>was</i> a widow’s son of the tribe of Naphtali, and his father <i>was</i> a man of Tyre, a worker in brass: and he was filled with <u>wisdom</u>[^a], and understanding, and cunning to work all works in brass. And he came to king Solomon, and <u>wrought</u>[^b] all his work.
 
 [1 Kings 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.14?lang=eng#p14)
 

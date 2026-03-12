@@ -1,6 +1,6 @@
 # Psalms 95:3
 
-> For the LORD *is* a <u>great</u>[^a] God, and a great <u>King</u>[^b] above all gods.
+> For the LORD <i>is</i> a <u>great</u>[^a] God, and a great <u>King</u>[^b] above all gods.
 
 [Psalms 95:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/95.3?lang=eng#p3)
 

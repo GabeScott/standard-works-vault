@@ -1,6 +1,6 @@
 # Proverbs 15:23
 
-> A man hath joy by the answer of his mouth: and a <u>word</u>[^a] *spoken* in due <u>season</u>[^b], how good *is it!*
+> A man hath joy by the answer of his mouth: and a <u>word</u>[^a] <i>spoken</i> in due <u>season</u>[^b], how good <i>is it!</i>
 
 [Proverbs 15:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.23?lang=eng#p23)
 

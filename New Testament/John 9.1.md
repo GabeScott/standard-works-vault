@@ -1,6 +1,6 @@
 # John 9:1
 
-> And as *Jesus* passed by, he saw a man which was <u>blind</u>[^a] from *his* birth.
+> And as <i>Jesus</i> passed by, he saw a man which was <u>blind</u>[^a] from <i>his</i> birth.
 
 [John 9:1](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Proverbs 26:12
 
-> Seest thou a man wise in his own <u>conceit</u>[^a]? *there is* more hope of a <u>fool</u>[^b] than of him.
+> Seest thou a man wise in his own <u>conceit</u>[^a]? <i>there is</i> more hope of a <u>fool</u>[^b] than of him.
 
 [Proverbs 26:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.12?lang=eng#p12)
 

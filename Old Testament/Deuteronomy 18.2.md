@@ -1,6 +1,6 @@
 # Deuteronomy 18:2
 
-> Therefore shall they have no inheritance among their brethren: the LORD *is* their <u>inheritance</u>[^a], as he hath said unto them.
+> Therefore shall they have no inheritance among their brethren: the LORD <i>is</i> their <u>inheritance</u>[^a], as he hath said unto them.
 
 [Deuteronomy 18:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.2?lang=eng#p2)
 

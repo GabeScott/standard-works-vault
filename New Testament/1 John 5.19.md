@@ -1,6 +1,6 @@
 # 1 John 5:19
 
-> *And* we know that we are of <u>God</u>[^a], and the whole <u>world</u>[^b] lieth in <u>wickedness</u>[^c].
+> <i>And</i> we know that we are of <u>God</u>[^a], and the whole <u>world</u>[^b] lieth in <u>wickedness</u>[^c].
 
 [1 John 5:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.19?lang=eng#p19)
 

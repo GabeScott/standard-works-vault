@@ -1,6 +1,6 @@
 # 1 Chronicles 24:1
 
-> Now *these are* the <u>divisions</u>[^a] of the sons of Aaron. The <u>sons</u>[^b] of Aaron; Nadab, and Abihu, Eleazar, and Ithamar.
+> Now <i>these are</i> the <u>divisions</u>[^a] of the sons of Aaron. The <u>sons</u>[^b] of Aaron; Nadab, and Abihu, Eleazar, and Ithamar.
 
 [1 Chronicles 24:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/24.1?lang=eng#p1)
 

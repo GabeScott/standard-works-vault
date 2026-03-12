@@ -1,6 +1,6 @@
 # Luke 11:44
 
-> Woe unto you, <u>scribes</u>[^a] and Pharisees, hypocrites! for ye are as <u>graves</u>[^b] which appear not, and the men that walk over *them* are not aware *of them.*
+> Woe unto you, <u>scribes</u>[^a] and Pharisees, hypocrites! for ye are as <u>graves</u>[^b] which appear not, and the men that walk over <i>them</i> are not aware <i>of them.</i>
 
 [Luke 11:44](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.44?lang=eng#p44)
 

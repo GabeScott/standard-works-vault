@@ -1,6 +1,6 @@
 # Isaiah 66:17
 
-> They that sanctify themselves, and purify themselves in the gardens behind one *tree* in the midst, eating swine’s flesh, and the <u>abomination</u>[^a], and the <u>mouse</u>[^b], shall be consumed together, saith the LORD.
+> They that sanctify themselves, and purify themselves in the gardens behind one <i>tree</i> in the midst, eating swine’s flesh, and the <u>abomination</u>[^a], and the <u>mouse</u>[^b], shall be consumed together, saith the LORD.
 
 [Isaiah 66:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.17?lang=eng#p17)
 

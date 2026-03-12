@@ -1,6 +1,6 @@
 # Job 23:13
 
-> But he is in one mind, and who can turn him? and what his soul desireth, even that he doeth.
+> But he <i>is</i> in one <i>mind,</i> and who can turn him? and <i>what</i> his soul desireth, even <i>that</i> he doeth.
 
 [Job 23:13](https://www.churchofjesuschrist.org/study/scriptures/ot/job/23.13?lang=eng#p13)
 

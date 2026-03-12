@@ -1,6 +1,6 @@
 # Isaiah 65:5
 
-> Which say, Stand by thyself, come not near to me; for I am <u>holier</u>[^a] than thou. These *are* a smoke in my nose, a fire that burneth all the day.
+> Which say, Stand by thyself, come not near to me; for I am <u>holier</u>[^a] than thou. These <i>are</i> a smoke in my nose, a fire that burneth all the day.
 
 [Isaiah 65:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.5?lang=eng#p5)
 

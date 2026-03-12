@@ -1,6 +1,6 @@
 # Exodus 12:2
 
-> This <u>month</u>[^a] *shall be* unto you the <u>beginning</u>[^b] of months: it *shall be* the first month of the year to you.
+> This <u>month</u>[^a] <i>shall be</i> unto you the <u>beginning</u>[^b] of months: it <i>shall be</i> the first month of the year to you.
 
 [Exodus 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.2?lang=eng#p2)
 

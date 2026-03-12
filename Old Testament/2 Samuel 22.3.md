@@ -1,6 +1,6 @@
 # 2 Samuel 22:3
 
-> The God of my rock; in him will I <u>trust</u>[^a]: *he is* my <u>shield</u>[^b], and the horn of my salvation, my high <u>tower</u>[^c], and my <u>refuge</u>[^d], my saviour; thou savest me from violence.
+> The God of my rock; in him will I <u>trust</u>[^a]: <i>he is</i> my <u>shield</u>[^b], and the horn of my salvation, my high <u>tower</u>[^c], and my <u>refuge</u>[^d], my saviour; thou savest me from violence.
 
 [2 Samuel 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.3?lang=eng#p3)
 

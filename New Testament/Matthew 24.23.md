@@ -1,6 +1,6 @@
 # Matthew 24:23
 
-> Then if any man shall say unto you, Lo, here *is* Christ, or there; <u>believe</u>[^a] *it* not.
+> Then if any man shall say unto you, Lo, here <i>is</i> Christ, or there; <u>believe</u>[^a] <i>it</i> not.
 
 [Matthew 24:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.23?lang=eng#p23)
 

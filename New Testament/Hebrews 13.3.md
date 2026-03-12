@@ -1,6 +1,6 @@
 # Hebrews 13:3
 
-> Remember them that are in <u>bonds</u>[^a], as bound with them; *and* them which <u>suffer</u>[^b] adversity, as being yourselves also in the body.
+> Remember them that are in <u>bonds</u>[^a], as bound with them; <i>and</i> them which <u>suffer</u>[^b] adversity, as being yourselves also in the body.
 
 [Hebrews 13:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.3?lang=eng#p3)
 

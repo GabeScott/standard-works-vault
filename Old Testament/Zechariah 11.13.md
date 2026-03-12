@@ -1,6 +1,6 @@
 # Zechariah 11:13
 
-> And the LORD said unto me, Cast it unto the <u>potter</u>[^a]: a goodly price that I was <u>prised</u>[^b] at of them. And I took the thirty *pieces* of silver, and cast them to the potter in the house of the LORD.
+> And the LORD said unto me, Cast it unto the <u>potter</u>[^a]: a goodly price that I was <u>prised</u>[^b] at of them. And I took the thirty <i>pieces</i> of silver, and cast them to the potter in the house of the LORD.
 
 [Zechariah 11:13](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/11.13?lang=eng#p13)
 

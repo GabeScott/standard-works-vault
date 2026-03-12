@@ -1,6 +1,6 @@
 # Jeremiah 10:10
 
-> But the LORD *is* the true <u>God</u>[^a], he *is* the <u>living God</u>[^b], and an everlasting <u>king</u>[^c]: at his wrath the earth shall tremble, and the nations shall not be able to abide his <u>indignation</u>[^d].
+> But the LORD <i>is</i> the true <u>God</u>[^a], he <i>is</i> the <u>living God</u>[^b], and an everlasting <u>king</u>[^c]: at his wrath the earth shall tremble, and the nations shall not be able to abide his <u>indignation</u>[^d].
 
 [Jeremiah 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.10?lang=eng#p10)
 

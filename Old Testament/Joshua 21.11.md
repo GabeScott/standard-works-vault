@@ -1,6 +1,6 @@
 # Joshua 21:11
 
-> And they gave them the city of <u>Arba</u>[^a] the father of Anak, which *city is* Hebron, in the hill *country* of Judah, with the suburbs thereof round about it.
+> And they gave them the city of <u>Arba</u>[^a] the father of Anak, which <i>city is</i> Hebron, in the hill <i>country</i> of Judah, with the suburbs thereof round about it.
 
 [Joshua 21:11](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.11?lang=eng#p11)
 

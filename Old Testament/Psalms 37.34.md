@@ -1,6 +1,6 @@
 # Psalms 37:34
 
-> <u>Wait</u>[^a] on the LORD, and keep his way, and he shall exalt thee to inherit the land: when the wicked are cut off, thou shalt see *it.*
+> <u>Wait</u>[^a] on the LORD, and keep his way, and he shall exalt thee to inherit the land: when the wicked are cut off, thou shalt see <i>it.</i>
 
 [Psalms 37:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.34?lang=eng#p34)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 32:18
 
-> Then they cried with a loud voice in the Jews’ <u>speech</u>[^a] unto the people of Jerusalem that *were* on the wall, to affright them, and to trouble them; that they might take the city.
+> Then they cried with a loud voice in the Jews’ <u>speech</u>[^a] unto the people of Jerusalem that <i>were</i> on the wall, to affright them, and to trouble them; that they might take the city.
 
 [2 Chronicles 32:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/32.18?lang=eng#p18)
 

@@ -1,6 +1,6 @@
 # Zechariah 13:6
 
-> And *one* shall say unto him, What *are* these <u>wounds</u>[^a] in thine hands? Then he shall answer, *Those* with which I was <u>wounded</u>[^b] *in* the house of my friends.
+> And <i>one</i> shall say unto him, What <i>are</i> these <u>wounds</u>[^a] in thine hands? Then he shall answer, <i>Those</i> with which I was <u>wounded</u>[^b] <i>in</i> the house of my friends.
 
 [Zechariah 13:6](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/13.6?lang=eng#p6)
 

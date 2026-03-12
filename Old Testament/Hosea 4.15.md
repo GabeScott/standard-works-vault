@@ -1,6 +1,6 @@
 # Hosea 4:15
 
-> ¶ Though thou, Israel, play the <u>harlot</u>[^a], *yet* let not Judah offend; and come not ye unto Gilgal, neither go ye up to <u>Beth-aven</u>[^b], nor swear, The LORD liveth.
+> ¶ Though thou, Israel, play the <u>harlot</u>[^a], <i>yet</i> let not Judah offend; and come not ye unto Gilgal, neither go ye up to <u>Beth-aven</u>[^b], nor swear, The LORD liveth.
 
 [Hosea 4:15](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.15?lang=eng#p15)
 

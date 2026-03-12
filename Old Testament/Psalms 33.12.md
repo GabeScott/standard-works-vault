@@ -1,6 +1,6 @@
 # Psalms 33:12
 
-> Blessed *is* the nation whose God *is* the LORD; *and* the people *whom* he hath <u>chosen</u>[^a] for his own inheritance.
+> Blessed <i>is</i> the nation whose God <i>is</i> the LORD; <i>and</i> the people <i>whom</i> he hath <u>chosen</u>[^a] for his own inheritance.
 
 [Psalms 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.12?lang=eng#p12)
 

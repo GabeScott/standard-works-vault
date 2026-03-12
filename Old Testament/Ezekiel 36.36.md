@@ -1,6 +1,6 @@
 # Ezekiel 36:36
 
-> Then the heathen that are left round about you shall know that I the LORD <u>build</u>[^a] the ruined *places, and* plant that that was desolate: I the LORD have spoken *it,* and I will <u>do</u>[^b] *it.*
+> Then the heathen that are left round about you shall know that I the LORD <u>build</u>[^a] the ruined <i>places, and</i> plant that that was desolate: I the LORD have spoken <i>it,</i> and I will <u>do</u>[^b] <i>it.</i>
 
 [Ezekiel 36:36](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.36?lang=eng#p36)
 

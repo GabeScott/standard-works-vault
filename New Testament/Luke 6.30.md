@@ -1,6 +1,6 @@
 # Luke 6:30
 
-> <u>Give</u>[^a] to every man that <u>asketh</u>[^b] of thee; and of him that taketh away thy goods ask *them* not again.
+> <u>Give</u>[^a] to every man that <u>asketh</u>[^b] of thee; and of him that taketh away thy goods ask <i>them</i> not again.
 
 [Luke 6:30](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.30?lang=eng#p30)
 

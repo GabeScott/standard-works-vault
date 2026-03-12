@@ -1,6 +1,6 @@
 # Jeremiah 10:3
 
-> For the <u>customs</u>[^a] of the people *are* vain: for *one* cutteth a tree out of the forest, the work of the hands of the workman, with the axe.
+> For the <u>customs</u>[^a] of the people <i>are</i> vain: for <i>one</i> cutteth a tree out of the forest, the work of the hands of the workman, with the axe.
 
 [Jeremiah 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.3?lang=eng#p3)
 

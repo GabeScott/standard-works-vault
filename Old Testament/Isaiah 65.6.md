@@ -1,6 +1,6 @@
 # Isaiah 65:6
 
-> Behold, *it is* written before me: I will not keep silence, but will <u>recompense</u>[^a], even recompense into their bosom,
+> Behold, <i>it is</i> written before me: I will not keep silence, but will <u>recompense</u>[^a], even recompense into their bosom,
 
 [Isaiah 65:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.6?lang=eng#p6)
 

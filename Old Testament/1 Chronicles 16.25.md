@@ -1,6 +1,6 @@
 # 1 Chronicles 16:25
 
-> For <u>great</u>[^a] *is* the LORD, and greatly to be praised: he also *is* to be feared above all gods.
+> For <u>great</u>[^a] <i>is</i> the LORD, and greatly to be praised: he also <i>is</i> to be feared above all gods.
 
 [1 Chronicles 16:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.25?lang=eng#p25)
 

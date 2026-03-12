@@ -1,6 +1,6 @@
 # Zechariah 14:4
 
-> ¶ And his <u>feet</u>[^a] shall <u>stand</u>[^b] in that day upon the <u>mount of Olives</u>[^c], which *is* before Jerusalem on the east, and the mount of Olives shall cleave in the midst thereof toward the east and toward the west, *and there shall be* a very great valley; and half of the mountain shall remove toward the north, and half of it toward the south.
+> ¶ And his <u>feet</u>[^a] shall <u>stand</u>[^b] in that day upon the <u>mount of Olives</u>[^c], which <i>is</i> before Jerusalem on the east, and the mount of Olives shall cleave in the midst thereof toward the east and toward the west, <i>and there shall be</i> a very great valley; and half of the mountain shall remove toward the north, and half of it toward the south.
 
 [Zechariah 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.4?lang=eng#p4)
 

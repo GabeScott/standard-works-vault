@@ -1,6 +1,6 @@
 # Genesis 30:27
 
-> And Laban said unto him, I pray thee, if I have found favour in thine eyes, *tarry: for* I have learned by experience that the LORD hath <u>blessed</u>[^a] me for thy <u>sake</u>[^b].
+> And Laban said unto him, I pray thee, if I have found favour in thine eyes, <i>tarry: for</i> I have learned by experience that the LORD hath <u>blessed</u>[^a] me for thy <u>sake</u>[^b].
 
 [Genesis 30:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.27?lang=eng#p27)
 

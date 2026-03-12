@@ -1,6 +1,6 @@
 # Galatians 2:1
 
-> Then fourteen years after I went up again to <u>Jerusalem</u>[^a] with <u>Barnabas</u>[^b], and took Titus with *me* also.
+> Then fourteen years after I went up again to <u>Jerusalem</u>[^a] with <u>Barnabas</u>[^b], and took Titus with <i>me</i> also.
 
 [Galatians 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.1?lang=eng#p1)
 

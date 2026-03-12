@@ -1,6 +1,6 @@
 # 2 Chronicles 33:13
 
-> And prayed unto him: and he was <u>entreated</u>[^a] of him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then <u>Manasseh</u>[^b] knew that the LORD he *was* God.
+> And prayed unto him: and he was <u>entreated</u>[^a] of him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then <u>Manasseh</u>[^b] knew that the LORD he <i>was</i> God.
 
 [2 Chronicles 33:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.13?lang=eng#p13)
 

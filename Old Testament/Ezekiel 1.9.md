@@ -1,6 +1,6 @@
 # Ezekiel 1:9
 
-> Their wings *were* joined one to another; they turned not when they went; they went every one <u>straight</u>[^a] forward.
+> Their wings <i>were</i> joined one to another; they turned not when they went; they went every one <u>straight</u>[^a] forward.
 
 [Ezekiel 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.9?lang=eng#p9)
 

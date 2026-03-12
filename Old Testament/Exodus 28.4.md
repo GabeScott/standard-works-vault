@@ -1,6 +1,6 @@
 # Exodus 28:4
 
-> And these *are* the <u>garments</u>[^a] which they shall make; a breastplate, and an <u>ephod</u>[^b], and a robe, and a broidered <u>coat</u>[^c], a <u>mitre</u>[^d], and a girdle: and they shall make holy garments for Aaron thy brother, and his sons, that he may minister unto me in the <u>priest’s</u>[^e] office.
+> And these <i>are</i> the <u>garments</u>[^a] which they shall make; a breastplate, and an <u>ephod</u>[^b], and a robe, and a broidered <u>coat</u>[^c], a <u>mitre</u>[^d], and a girdle: and they shall make holy garments for Aaron thy brother, and his sons, that he may minister unto me in the <u>priest’s</u>[^e] office.
 
 [Exodus 28:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.4?lang=eng#p4)
 

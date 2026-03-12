@@ -1,6 +1,6 @@
 # Isaiah 49:22
 
-> Thus saith the Lord GOD, Behold, I will <u>lift up</u>[^a] mine hand to the <u>Gentiles</u>[^b], and set up my <u>standard</u>[^c] to the people: and they shall bring thy <u>sons</u>[^d] in *their* arms, and thy daughters shall be carried upon *their* shoulders.
+> Thus saith the Lord GOD, Behold, I will <u>lift up</u>[^a] mine hand to the <u>Gentiles</u>[^b], and set up my <u>standard</u>[^c] to the people: and they shall bring thy <u>sons</u>[^d] in <i>their</i> arms, and thy daughters shall be carried upon <i>their</i> shoulders.
 
 [Isaiah 49:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.22?lang=eng#p22)
 

@@ -1,6 +1,6 @@
 # Isaiah 4:2
 
-> In that day shall the <u>branch</u>[^a] of the LORD be <u>beautiful</u>[^b] and glorious, and the <u>fruit</u>[^c] of the earth *shall be* excellent and comely for them that are <u>escaped</u>[^d] of Israel.
+> In that day shall the <u>branch</u>[^a] of the LORD be <u>beautiful</u>[^b] and glorious, and the <u>fruit</u>[^c] of the earth <i>shall be</i> excellent and comely for them that are <u>escaped</u>[^d] of Israel.
 
 [Isaiah 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/4.2?lang=eng#p2)
 

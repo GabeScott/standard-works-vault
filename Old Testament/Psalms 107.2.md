@@ -1,6 +1,6 @@
 # Psalms 107:2
 
-> Let the redeemed of the LORD say *so,* whom he hath <u>redeemed</u>[^a] from the hand of the enemy;
+> Let the redeemed of the LORD say <i>so,</i> whom he hath <u>redeemed</u>[^a] from the hand of the enemy;
 
 [Psalms 107:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.2?lang=eng#p2)
 

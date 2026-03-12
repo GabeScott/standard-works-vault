@@ -1,6 +1,6 @@
 # Ezekiel 1:1
 
-> Now it came to pass in the thirtieth year, in the fourth *month,* in the fifth *day* of the month, as I *was* among the <u>captives</u>[^a] by the river of <u>Chebar</u>[^b], *that* the heavens were <u>opened</u>[^c], and I saw <u>visions</u>[^d] of God.
+> Now it came to pass in the thirtieth year, in the fourth <i>month,</i> in the fifth <i>day</i> of the month, as I <i>was</i> among the <u>captives</u>[^a] by the river of <u>Chebar</u>[^b], <i>that</i> the heavens were <u>opened</u>[^c], and I saw <u>visions</u>[^d] of God.
 
 [Ezekiel 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.1?lang=eng#p1)
 

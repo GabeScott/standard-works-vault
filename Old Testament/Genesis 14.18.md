@@ -1,6 +1,6 @@
 # Genesis 14:18
 
-> And <u>Melchizedek</u>[^a] king of <u>Salem</u>[^b] brought forth <u>bread and wine</u>[^c]: <u>and</u>[^d] he *was* the <u>priest</u>[^e] of the most high God.
+> And <u>Melchizedek</u>[^a] king of <u>Salem</u>[^b] brought forth <u>bread and wine</u>[^c]: <u>and</u>[^d] he <i>was</i> the <u>priest</u>[^e] of the most high God.
 
 [Genesis 14:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.18?lang=eng#p18)
 

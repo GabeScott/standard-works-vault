@@ -1,6 +1,6 @@
 # 2 Kings 20:17
 
-> Behold, the days come, that all that *is* in thine house, and that which thy fathers have laid up in store unto this day, shall be <u>carried</u>[^a] into Babylon: nothing shall be left, saith the LORD.
+> Behold, the days come, that all that <i>is</i> in thine house, and that which thy fathers have laid up in store unto this day, shall be <u>carried</u>[^a] into Babylon: nothing shall be left, saith the LORD.
 
 [2 Kings 20:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.17?lang=eng#p17)
 

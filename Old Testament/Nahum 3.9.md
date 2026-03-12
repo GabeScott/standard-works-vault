@@ -1,6 +1,6 @@
 # Nahum 3:9
 
-> Ethiopia and Egypt *were* her strength, and *it was* <u>infinite</u>[^a]; <u>Put</u>[^b] and <u>Lubim</u>[^c] were thy helpers.
+> Ethiopia and Egypt <i>were</i> her strength, and <i>it was</i> <u>infinite</u>[^a]; <u>Put</u>[^b] and <u>Lubim</u>[^c] were thy helpers.
 
 [Nahum 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/3.9?lang=eng#p9)
 

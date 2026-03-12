@@ -1,6 +1,6 @@
 # Exodus 18:3
 
-> And her two <u>sons</u>[^a]; of which the name of the one *was* <u>Gershom</u>[^b]; for he said, <u>I</u>[^c] have been an alien in a strange land:
+> And her two <u>sons</u>[^a]; of which the name of the one <i>was</i> <u>Gershom</u>[^b]; for he said, <u>I</u>[^c] have been an alien in a strange land:
 
 [Exodus 18:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.3?lang=eng#p3)
 

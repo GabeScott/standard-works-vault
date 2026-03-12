@@ -1,6 +1,6 @@
 # Jeremiah 46:7
 
-> Who *is* this *that* cometh up as a <u>flood</u>[^a], whose waters are moved as the rivers?
+> Who <i>is</i> this <i>that</i> cometh up as a <u>flood</u>[^a], whose waters are moved as the rivers?
 
 [Jeremiah 46:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.7?lang=eng#p7)
 

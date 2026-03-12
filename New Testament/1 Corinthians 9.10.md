@@ -1,6 +1,6 @@
 # 1 Corinthians 9:10
 
-> Or saith he *it* altogether for our sakes? For our sakes, no doubt, *this* is <u>written</u>[^a]: that he that ploweth should plow in hope; and that he that thresheth in hope should be <u>partaker</u>[^b] of his hope.
+> Or saith he <i>it</i> altogether for our sakes? For our sakes, no doubt, <i>this</i> is <u>written</u>[^a]: that he that ploweth should plow in hope; and that he that thresheth in hope should be <u>partaker</u>[^b] of his hope.
 
 [1 Corinthians 9:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.10?lang=eng#p10)
 

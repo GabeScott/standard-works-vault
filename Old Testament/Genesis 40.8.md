@@ -1,6 +1,6 @@
 # Genesis 40:8
 
-> And they said unto him, We have dreamed a <u>dream</u>[^a], and *there is* no interpreter of it. And Joseph said unto them, *Do* not <u>interpretations</u>[^b] *belong* to God? tell me *them,* I pray you.
+> And they said unto him, We have dreamed a <u>dream</u>[^a], and <i>there is</i> no interpreter of it. And Joseph said unto them, <i>Do</i> not <u>interpretations</u>[^b] <i>belong</i> to God? tell me <i>them,</i> I pray you.
 
 [Genesis 40:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/40.8?lang=eng#p8)
 

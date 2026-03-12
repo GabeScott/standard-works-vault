@@ -1,6 +1,6 @@
 # Nehemiah 10:33
 
-> For the <u>shewbread</u>[^a], and for the continual <u>meat offering</u>[^b], and for the continual burnt offering, of the sabbaths, of the new moons, for the set feasts, and for the holy *things,* and for the sin offerings to make an <u>atonement</u>[^c] for Israel, and *for* all the work of the house of our God.
+> For the <u>shewbread</u>[^a], and for the continual <u>meat offering</u>[^b], and for the continual burnt offering, of the sabbaths, of the new moons, for the set feasts, and for the holy <i>things,</i> and for the sin offerings to make an <u>atonement</u>[^c] for Israel, and <i>for</i> all the work of the house of our God.
 
 [Nehemiah 10:33](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.33?lang=eng#p33)
 

@@ -1,6 +1,6 @@
 # Lamentations 3:24
 
-> The LORD *is* my <u>portion</u>[^a], saith my soul; therefore will I hope in him.
+> The LORD <i>is</i> my <u>portion</u>[^a], saith my soul; therefore will I hope in him.
 
 [Lamentations 3:24](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/3.24?lang=eng#p24)
 

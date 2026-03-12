@@ -1,6 +1,6 @@
 # Genesis 2:7
 
-> And the LORD God <u>formed</u>[^a] <u>man</u>[^b] *of* the <u>dust</u>[^c] of the ground, and breathed into his nostrils the <u>breath of life</u>[^d]; and <u>man</u>[^e] became a living <u>soul</u>[^f].
+> And the LORD God <u>formed</u>[^a] <u>man</u>[^b] <i>of</i> the <u>dust</u>[^c] of the ground, and breathed into his nostrils the <u>breath of life</u>[^d]; and <u>man</u>[^e] became a living <u>soul</u>[^f].
 
 [Genesis 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.7?lang=eng#p7)
 

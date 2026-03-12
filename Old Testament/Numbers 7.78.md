@@ -1,6 +1,6 @@
 # Numbers 7:78
 
-> ¶ On the twelfth day Ahira the son of Enan, prince of the children of Naphtali, offered:
+> ¶ On the twelfth day Ahira the son of Enan, prince of the children of Naphtali, <i>offered:</i>
 
 [Numbers 7:78](https://www.churchofjesuschrist.org/study/scriptures/ot/num/7.78?lang=eng#p78)
 

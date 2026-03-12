@@ -1,6 +1,6 @@
 # Hosea 2:16
 
-> And it shall be at that <u>day</u>[^a], saith the LORD, *that* thou shalt call me <u>Ishi</u>[^b]; and shalt call me no more <u>Baali</u>[^c].
+> And it shall be at that <u>day</u>[^a], saith the LORD, <i>that</i> thou shalt call me <u>Ishi</u>[^b]; and shalt call me no more <u>Baali</u>[^c].
 
 [Hosea 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/2.16?lang=eng#p16)
 

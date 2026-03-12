@@ -1,6 +1,6 @@
 # Luke 3:36
 
-> Which was *the son* of Cainan, which was *the son* of Arphaxad, which was *the son* of <u>Sem</u>[^a], which was *the son* of Noe, which was *the son* of Lamech,
+> Which was <i>the son</i> of Cainan, which was <i>the son</i> of Arphaxad, which was <i>the son</i> of <u>Sem</u>[^a], which was <i>the son</i> of Noe, which was <i>the son</i> of Lamech,
 
 [Luke 3:36](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.36?lang=eng#p36)
 

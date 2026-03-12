@@ -1,6 +1,6 @@
 # Psalms 109:4
 
-> <u>For</u>[^a] my love they are my adversaries: but I *give myself unto* prayer.
+> <u>For</u>[^a] my love they are my adversaries: but I <i>give myself unto</i> prayer.
 
 [Psalms 109:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.4?lang=eng#p4)
 

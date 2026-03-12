@@ -1,6 +1,6 @@
 # Zephaniah 2:11
 
-> The LORD *will be* <u>terrible</u>[^a] unto them: for he will famish all the gods of the earth; and *men* shall <u>worship</u>[^b] him, every one from his place, *even* all the isles of the <u>heathen</u>[^c].
+> The LORD <i>will be</i> <u>terrible</u>[^a] unto them: for he will famish all the gods of the earth; and <i>men</i> shall <u>worship</u>[^b] him, every one from his place, <i>even</i> all the isles of the <u>heathen</u>[^c].
 
 [Zephaniah 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/2.11?lang=eng#p11)
 

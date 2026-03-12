@@ -1,6 +1,6 @@
 # Exodus 7:17
 
-> Thus saith the LORD, In this thou shalt know that I *am* the LORD: behold, I will smite with the rod that *is* in mine hand upon the waters which *are* in the <u>river</u>[^a], and they shall be <u>turned</u>[^b] to <u>blood</u>[^c].
+> Thus saith the LORD, In this thou shalt know that I <i>am</i> the LORD: behold, I will smite with the rod that <i>is</i> in mine hand upon the waters which <i>are</i> in the <u>river</u>[^a], and they shall be <u>turned</u>[^b] to <u>blood</u>[^c].
 
 [Exodus 7:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.17?lang=eng#p17)
 

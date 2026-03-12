@@ -1,6 +1,6 @@
 # Exodus 3:1
 
-> Now Moses kept the flock of <u>Jethro</u>[^a] his father in law, the <u>priest</u>[^b] of Midian: and he led the flock to the backside of the desert, and came to the <u>mountain of God</u>[^c], *even* to <u>Horeb</u>[^d].
+> Now Moses kept the flock of <u>Jethro</u>[^a] his father in law, the <u>priest</u>[^b] of Midian: and he led the flock to the backside of the desert, and came to the <u>mountain of God</u>[^c], <i>even</i> to <u>Horeb</u>[^d].
 
 [Exodus 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.1?lang=eng#p1)
 

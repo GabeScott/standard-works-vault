@@ -1,6 +1,6 @@
 # James 2:16
 
-> And one of you say unto them, Depart in peace, be *ye* warmed and filled; notwithstanding ye <u>give</u>[^a] them not those things which are needful to the body; what *doth it* profit?
+> And one of you say unto them, Depart in peace, be <i>ye</i> warmed and filled; notwithstanding ye <u>give</u>[^a] them not those things which are needful to the body; what <i>doth it</i> profit?
 
 [James 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.16?lang=eng#p16)
 

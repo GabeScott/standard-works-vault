@@ -1,6 +1,6 @@
 # Hebrews 12:14
 
-> Follow <u>peace</u>[^a] with all *men,* and <u>holiness</u>[^b], without which no man shall <u>see</u>[^c] the Lord:
+> Follow <u>peace</u>[^a] with all <i>men,</i> and <u>holiness</u>[^b], without which no man shall <u>see</u>[^c] the Lord:
 
 [Hebrews 12:14](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.14?lang=eng#p14)
 

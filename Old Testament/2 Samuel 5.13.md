@@ -1,6 +1,6 @@
 # 2 Samuel 5:13
 
-> ¶ And David took *him* more concubines and <u>wives</u>[^a] out of Jerusalem, after he was come from Hebron: and there were yet <u>sons</u>[^b] and daughters born to David.
+> ¶ And David took <i>him</i> more concubines and <u>wives</u>[^a] out of Jerusalem, after he was come from Hebron: and there were yet <u>sons</u>[^b] and daughters born to David.
 
 [2 Samuel 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/5.13?lang=eng#p13)
 

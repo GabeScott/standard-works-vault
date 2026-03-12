@@ -1,6 +1,6 @@
 # Job 17:13
 
-> If I wait, the grave *is* mine <u>house</u>[^a]: I have made my bed in the darkness.
+> If I wait, the grave <i>is</i> mine <u>house</u>[^a]: I have made my bed in the darkness.
 
 [Job 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/job/17.13?lang=eng#p13)
 

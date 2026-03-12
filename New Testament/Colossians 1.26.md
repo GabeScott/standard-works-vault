@@ -1,6 +1,6 @@
 # Colossians 1:26
 
-> *Even* the <u>mystery</u>[^a] which hath been hid from ages and from generations, but now is made <u>manifest</u>[^b] to his saints:
+> <i>Even</i> the <u>mystery</u>[^a] which hath been hid from ages and from generations, but now is made <u>manifest</u>[^b] to his saints:
 
 [Colossians 1:26](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.26?lang=eng#p26)
 

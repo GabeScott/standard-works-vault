@@ -1,6 +1,6 @@
 # Exodus 29:42
 
-> *This shall be* a continual burnt <u>offering</u>[^a] throughout your generations *at* the door of the <u>tabernacle</u>[^b] of the congregation before the LORD: where I will meet you, to <u>speak</u>[^c] there unto thee.
+> <i>This shall be</i> a continual burnt <u>offering</u>[^a] throughout your generations <i>at</i> the door of the <u>tabernacle</u>[^b] of the congregation before the LORD: where I will meet you, to <u>speak</u>[^c] there unto thee.
 
 [Exodus 29:42](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.42?lang=eng#p42)
 

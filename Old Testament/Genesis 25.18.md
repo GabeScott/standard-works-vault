@@ -1,6 +1,6 @@
 # Genesis 25:18
 
-> And they dwelt from <u>Havilah</u>[^a] unto <u>Shur</u>[^b], that *is* before Egypt, as thou goest toward Assyria: *and* he died in the presence of all his brethren.
+> And they dwelt from <u>Havilah</u>[^a] unto <u>Shur</u>[^b], that <i>is</i> before Egypt, as thou goest toward Assyria: <i>and</i> he died in the presence of all his brethren.
 
 [Genesis 25:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.18?lang=eng#p18)
 

@@ -1,6 +1,6 @@
 # 2 Corinthians 11:22
 
-> Are they <u>Hebrews</u>[^a]? so *am* I. Are they <u>Israelites</u>[^b]? so *am* I. Are they the seed of Abraham? so *am* I.
+> Are they <u>Hebrews</u>[^a]? so <i>am</i> I. Are they <u>Israelites</u>[^b]? so <i>am</i> I. Are they the seed of Abraham? so <i>am</i> I.
 
 [2 Corinthians 11:22](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.22?lang=eng#p22)
 

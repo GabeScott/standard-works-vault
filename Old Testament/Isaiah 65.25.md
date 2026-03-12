@@ -1,6 +1,6 @@
 # Isaiah 65:25
 
-> The <u>wolf</u>[^a] and the lamb shall <u>feed</u>[^b] together, and the lion shall eat straw like the bullock: and dust *shall be* the serpent’s meat. They shall not <u>hurt</u>[^c] nor destroy in all my holy mountain, saith the LORD.
+> The <u>wolf</u>[^a] and the lamb shall <u>feed</u>[^b] together, and the lion shall eat straw like the bullock: and dust <i>shall be</i> the serpent’s meat. They shall not <u>hurt</u>[^c] nor destroy in all my holy mountain, saith the LORD.
 
 [Isaiah 65:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.25?lang=eng#p25)
 

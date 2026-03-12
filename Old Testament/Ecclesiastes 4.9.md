@@ -1,6 +1,6 @@
 # Ecclesiastes 4:9
 
-> ¶ <u>Two</u>[^a] *are* better than one; because they have a good <u>reward</u>[^b] for their labour.
+> ¶ <u>Two</u>[^a] <i>are</i> better than one; because they have a good <u>reward</u>[^b] for their labour.
 
 [Ecclesiastes 4:9](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/4.9?lang=eng#p9)
 

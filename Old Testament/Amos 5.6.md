@@ -1,6 +1,6 @@
 # Amos 5:6
 
-> <u>Seek</u>[^a] the LORD, and ye shall live; lest he break out like fire in the house of Joseph, and devour *it,* and *there be* none to quench *it* in Beth-el.
+> <u>Seek</u>[^a] the LORD, and ye shall live; lest he break out like fire in the house of Joseph, and devour <i>it,</i> and <i>there be</i> none to quench <i>it</i> in Beth-el.
 
 [Amos 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.6?lang=eng#p6)
 

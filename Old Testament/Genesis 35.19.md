@@ -1,6 +1,6 @@
 # Genesis 35:19
 
-> And <u>Rachel</u>[^a] died, and was buried in the way to <u>Ephrath</u>[^b], which *is* Beth-lehem.
+> And <u>Rachel</u>[^a] died, and was buried in the way to <u>Ephrath</u>[^b], which <i>is</i> Beth-lehem.
 
 [Genesis 35:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.19?lang=eng#p19)
 

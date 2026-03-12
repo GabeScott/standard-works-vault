@@ -1,6 +1,6 @@
 # 1 Corinthians 7:10
 
-> And unto the married I command, *yet* not I, but the Lord, Let not the <u>wife</u>[^a] <u>depart</u>[^b] from *her* husband:
+> And unto the married I command, <i>yet</i> not I, but the Lord, Let not the <u>wife</u>[^a] <u>depart</u>[^b] from <i>her</i> husband:
 
 [1 Corinthians 7:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.10?lang=eng#p10)
 

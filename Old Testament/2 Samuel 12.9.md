@@ -1,6 +1,6 @@
 # 2 Samuel 12:9
 
-> Wherefore hast thou <u>despised</u>[^a] the commandment of the LORD, to do evil in his sight? thou hast <u>killed</u>[^b] <u>Uriah</u>[^c] the Hittite with the sword, and hast taken his <u>wife</u>[^d] *to be* thy wife, and hast slain him with the sword of the children of Ammon.
+> Wherefore hast thou <u>despised</u>[^a] the commandment of the LORD, to do evil in his sight? thou hast <u>killed</u>[^b] <u>Uriah</u>[^c] the Hittite with the sword, and hast taken his <u>wife</u>[^d] <i>to be</i> thy wife, and hast slain him with the sword of the children of Ammon.
 
 [2 Samuel 12:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.9?lang=eng#p9)
 

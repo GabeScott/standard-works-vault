@@ -1,6 +1,6 @@
 # Proverbs 25:18
 
-> A man that <u>beareth</u>[^a] <u>false witness</u>[^b] against his neighbour *is* a <u>maul</u>[^c], and a <u>sword</u>[^d], and a sharp arrow.
+> A man that <u>beareth</u>[^a] <u>false witness</u>[^b] against his neighbour <i>is</i> a <u>maul</u>[^c], and a <u>sword</u>[^d], and a sharp arrow.
 
 [Proverbs 25:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/25.18?lang=eng#p18)
 

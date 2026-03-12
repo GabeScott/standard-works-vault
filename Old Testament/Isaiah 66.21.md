@@ -1,6 +1,6 @@
 # Isaiah 66:21
 
-> And I will also take of them for <u>priests</u>[^a] *and* for Levites, saith the LORD.
+> And I will also take of them for <u>priests</u>[^a] <i>and</i> for Levites, saith the LORD.
 
 [Isaiah 66:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.21?lang=eng#p21)
 

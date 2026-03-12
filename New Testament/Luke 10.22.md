@@ -1,6 +1,6 @@
 # Luke 10:22
 
-> All things are <u>delivered</u>[^a] to me of my Father: and no man knoweth <u>who</u>[^b] the Son is, but the Father; and who the Father is, but the Son, and *he* to whom the Son will <u>reveal</u>[^c] *him.*
+> All things are <u>delivered</u>[^a] to me of my Father: and no man knoweth <u>who</u>[^b] the Son is, but the Father; and who the Father is, but the Son, and <i>he</i> to whom the Son will <u>reveal</u>[^c] <i>him.</i>
 
 [Luke 10:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.22?lang=eng#p22)
 

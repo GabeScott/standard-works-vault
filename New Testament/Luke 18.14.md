@@ -1,6 +1,6 @@
 # Luke 18:14
 
-> I tell you, this man went down to his house justified *rather* than the other: for every one that <u>exalteth</u>[^a] himself shall be abased; and he that <u>humbleth</u>[^b] himself shall be exalted.
+> I tell you, this man went down to his house justified <i>rather</i> than the other: for every one that <u>exalteth</u>[^a] himself shall be abased; and he that <u>humbleth</u>[^b] himself shall be exalted.
 
 [Luke 18:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.14?lang=eng#p14)
 

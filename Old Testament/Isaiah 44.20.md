@@ -1,6 +1,6 @@
 # Isaiah 44:20
 
-> He feedeth on ashes: a <u>deceived</u>[^a] heart hath turned him aside, that he cannot deliver his soul, nor say, *Is there* not a <u>lie</u>[^b] in my right hand?
+> He feedeth on ashes: a <u>deceived</u>[^a] heart hath turned him aside, that he cannot deliver his soul, nor say, <i>Is there</i> not a <u>lie</u>[^b] in my right hand?
 
 [Isaiah 44:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 19:7
 
-> Wherefore now let the fear of the LORD be upon you; take heed and do *it:* for *there is* no iniquity with the LORD our God, nor <u>respect</u>[^a] of persons, nor taking of <u>gifts</u>[^b].
+> Wherefore now let the fear of the LORD be upon you; take heed and do <i>it:</i> for <i>there is</i> no iniquity with the LORD our God, nor <u>respect</u>[^a] of persons, nor taking of <u>gifts</u>[^b].
 
 [2 Chronicles 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/19.7?lang=eng#p7)
 

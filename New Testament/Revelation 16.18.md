@@ -1,6 +1,6 @@
 # Revelation 16:18
 
-> And there were voices, and thunders, and lightnings; and there was a great <u>earthquake</u>[^a], such as was not since men were upon the earth, so mighty an earthquake, *and* so great.
+> And there were voices, and thunders, and lightnings; and there was a great <u>earthquake</u>[^a], such as was not since men were upon the earth, so mighty an earthquake, <i>and</i> so great.
 
 [Revelation 16:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.18?lang=eng#p18)
 

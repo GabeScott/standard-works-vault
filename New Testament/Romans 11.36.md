@@ -1,6 +1,6 @@
 # Romans 11:36
 
-> For of him, and <u>through</u>[^a] him, and to him, *are* all things: to whom *be* glory for ever. Amen.
+> For of him, and <u>through</u>[^a] him, and to him, <i>are</i> all things: to whom <i>be</i> glory for ever. Amen.
 
 [Romans 11:36](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.36?lang=eng#p36)
 

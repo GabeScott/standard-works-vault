@@ -1,6 +1,6 @@
 # Leviticus 7:21
 
-> Moreover the soul that shall touch any unclean *thing, as* the uncleanness of man, or *any* unclean beast, or any abominable unclean *thing,* and eat of the flesh of the sacrifice of peace offerings, which *pertain* unto the LORD, even that soul shall be <u>cut off</u>[^a] from his people.
+> Moreover the soul that shall touch any unclean <i>thing, as</i> the uncleanness of man, or <i>any</i> unclean beast, or any abominable unclean <i>thing,</i> and eat of the flesh of the sacrifice of peace offerings, which <i>pertain</i> unto the LORD, even that soul shall be <u>cut off</u>[^a] from his people.
 
 [Leviticus 7:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.21?lang=eng#p21)
 

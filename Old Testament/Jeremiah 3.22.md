@@ -1,6 +1,6 @@
 # Jeremiah 3:22
 
-> Return, ye backsliding children, *and* I will <u>heal</u>[^a] your backslidings. Behold, we come unto thee; for thou *art* the LORD our God.
+> Return, ye backsliding children, <i>and</i> I will <u>heal</u>[^a] your backslidings. Behold, we come unto thee; for thou <i>art</i> the LORD our God.
 
 [Jeremiah 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.22?lang=eng#p22)
 

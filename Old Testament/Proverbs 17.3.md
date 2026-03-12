@@ -1,6 +1,6 @@
 # Proverbs 17:3
 
-> The <u>fining pot</u>[^a] *is* for silver, and the furnace for gold: but the LORD <u>trieth</u>[^b] the <u>hearts</u>[^c].
+> The <u>fining pot</u>[^a] <i>is</i> for silver, and the furnace for gold: but the LORD <u>trieth</u>[^b] the <u>hearts</u>[^c].
 
 [Proverbs 17:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.3?lang=eng#p3)
 

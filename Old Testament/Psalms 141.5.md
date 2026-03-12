@@ -1,6 +1,6 @@
 # Psalms 141:5
 
-> <u>Let</u>[^a] the righteous <u>smite</u>[^b] me; *it shall be* a <u>kindness</u>[^c]: and let him reprove me; *it shall be* an excellent oil, *which* shall not break my head: for yet my prayer also *shall be* in their calamities.
+> <u>Let</u>[^a] the righteous <u>smite</u>[^b] me; <i>it shall be</i> a <u>kindness</u>[^c]: and let him reprove me; <i>it shall be</i> an excellent oil, <i>which</i> shall not break my head: for yet my prayer also <i>shall be</i> in their calamities.
 
 [Psalms 141:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/141.5?lang=eng#p5)
 

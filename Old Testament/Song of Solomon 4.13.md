@@ -1,6 +1,6 @@
 # Song of Solomon 4:13
 
-> Thy plants *are* an orchard of pomegranates, with pleasant fruits; <u>camphire</u>[^a], with <u>spikenard</u>[^b],
+> Thy plants <i>are</i> an orchard of pomegranates, with pleasant fruits; <u>camphire</u>[^a], with <u>spikenard</u>[^b],
 
 [Song of Solomon 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/song/4.13?lang=eng#p13)
 

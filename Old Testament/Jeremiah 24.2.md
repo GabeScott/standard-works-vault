@@ -1,6 +1,6 @@
 # Jeremiah 24:2
 
-> One basket *had* very good figs, *even* like the <u>figs</u>[^a] *that are* first ripe: and the other basket *had* very <u>naughty</u>[^b] figs, which could not be eaten, they were so bad.
+> One basket <i>had</i> very good figs, <i>even</i> like the <u>figs</u>[^a] <i>that are</i> first ripe: and the other basket <i>had</i> very <u>naughty</u>[^b] figs, which could not be eaten, they were so bad.
 
 [Jeremiah 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/24.2?lang=eng#p2)
 

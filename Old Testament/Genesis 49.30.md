@@ -1,6 +1,6 @@
 # Genesis 49:30
 
-> In the cave that *is* in the field of <u>Machpelah</u>[^a], which *is* before Mamre, in the land of Canaan, which Abraham bought with the field of <u>Ephron</u>[^b] the Hittite for a possession of a buryingplace.
+> In the cave that <i>is</i> in the field of <u>Machpelah</u>[^a], which <i>is</i> before Mamre, in the land of Canaan, which Abraham bought with the field of <u>Ephron</u>[^b] the Hittite for a possession of a buryingplace.
 
 [Genesis 49:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.30?lang=eng#p30)
 

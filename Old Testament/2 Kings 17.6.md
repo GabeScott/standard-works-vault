@@ -1,6 +1,6 @@
 # 2 Kings 17:6
 
-> ¶ In the ninth year of Hoshea the king of Assyria took <u>Samaria</u>[^a], and <u>carried</u>[^b] <u>Israel</u>[^c] away into <u>Assyria</u>[^d], and placed them in Halah and in Habor *by* the river of Gozan, and in the cities of the Medes.
+> ¶ In the ninth year of Hoshea the king of Assyria took <u>Samaria</u>[^a], and <u>carried</u>[^b] <u>Israel</u>[^c] away into <u>Assyria</u>[^d], and placed them in Halah and in Habor <i>by</i> the river of Gozan, and in the cities of the Medes.
 
 [2 Kings 17:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.6?lang=eng#p6)
 

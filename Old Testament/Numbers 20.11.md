@@ -1,6 +1,6 @@
 # Numbers 20:11
 
-> And Moses lifted up his hand, and with his rod he <u>smote</u>[^a] the <u>rock</u>[^b] twice: and the <u>water</u>[^c] came out abundantly, and the congregation drank, and their beasts *also.*
+> And Moses lifted up his hand, and with his rod he <u>smote</u>[^a] the <u>rock</u>[^b] twice: and the <u>water</u>[^c] came out abundantly, and the congregation drank, and their beasts <i>also.</i>
 
 [Numbers 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.11?lang=eng#p11)
 

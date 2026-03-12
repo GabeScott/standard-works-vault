@@ -1,6 +1,6 @@
 # Psalms 34:17
 
-> *The righteous* cry, and the LORD heareth, and <u>delivereth</u>[^a] them out of all their troubles.
+> <i>The righteous</i> cry, and the LORD heareth, and <u>delivereth</u>[^a] them out of all their troubles.
 
 [Psalms 34:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.17?lang=eng#p17)
 

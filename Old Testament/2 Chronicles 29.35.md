@@ -1,6 +1,6 @@
 # 2 Chronicles 29:35
 
-> And also the burnt offerings *were* in abundance, with the fat of the peace <u>offerings</u>[^a], and the drink <u>offerings</u>[^b] for *every* burnt offering. So the service of the house of the LORD was set in <u>order</u>[^c].
+> And also the burnt offerings <i>were</i> in abundance, with the fat of the peace <u>offerings</u>[^a], and the drink <u>offerings</u>[^b] for <i>every</i> burnt offering. So the service of the house of the LORD was set in <u>order</u>[^c].
 
 [2 Chronicles 29:35](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.35?lang=eng#p35)
 

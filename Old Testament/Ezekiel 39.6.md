@@ -1,6 +1,6 @@
 # Ezekiel 39:6
 
-> And I will send a <u>fire</u>[^a] on Magog, and among them that dwell <u>carelessly</u>[^b] in the <u>isles</u>[^c]: and they shall know that I *am* the LORD.
+> And I will send a <u>fire</u>[^a] on Magog, and among them that dwell <u>carelessly</u>[^b] in the <u>isles</u>[^c]: and they shall know that I <i>am</i> the LORD.
 
 [Ezekiel 39:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.6?lang=eng#p6)
 

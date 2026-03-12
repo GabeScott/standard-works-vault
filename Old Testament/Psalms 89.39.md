@@ -1,6 +1,6 @@
 # Psalms 89:39
 
-> Thou hast made void the covenant of thy servant: thou hast profaned his crown *by *<u>casting</u>[^a]* it* to the ground.
+> Thou hast made void the covenant of thy servant: thou hast profaned his crown <i>by </i><i><u>casting</u></i>[^a]<i> it</i> to the ground.
 
 [Psalms 89:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.39?lang=eng#p39)
 

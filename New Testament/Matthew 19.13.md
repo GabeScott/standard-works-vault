@@ -1,6 +1,6 @@
 # Matthew 19:13
 
-> ¶ Then were there brought unto him little children, that he should put *his* <u>hands</u>[^a] on them, and pray: and the disciples rebuked <u>them</u>[^b].
+> ¶ Then were there brought unto him little children, that he should put <i>his</i> <u>hands</u>[^a] on them, and pray: and the disciples rebuked <u>them</u>[^b].
 
 [Matthew 19:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.13?lang=eng#p13)
 

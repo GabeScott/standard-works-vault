@@ -1,6 +1,6 @@
 # 1 Corinthians 15:56
 
-> The sting of <u>death</u>[^a] *is* sin; and the <u>strength</u>[^b] of sin *is* the law.
+> The sting of <u>death</u>[^a] <i>is</i> sin; and the <u>strength</u>[^b] of sin <i>is</i> the law.
 
 [1 Corinthians 15:56](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.56?lang=eng#p56)
 

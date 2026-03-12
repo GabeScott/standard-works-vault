@@ -1,6 +1,6 @@
 # 1 Chronicles 24:23
 
-> And the sons *of *<u>Hebron</u>[^a]*;* Jeriah *the first,* Amariah the second, Jahaziel the third, Jekameam the fourth.
+> And the sons <i>of </i><i><u>Hebron</u></i>[^a]<i>;</i> Jeriah <i>the first,</i> Amariah the second, Jahaziel the third, Jekameam the fourth.
 
 [1 Chronicles 24:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/24.23?lang=eng#p23)
 

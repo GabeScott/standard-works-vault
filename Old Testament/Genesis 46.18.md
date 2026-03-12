@@ -1,6 +1,6 @@
 # Genesis 46:18
 
-> These *are* the sons of <u>Zilpah</u>[^a], whom Laban gave to Leah his daughter, and these she bare unto Jacob, *even* sixteen souls.
+> These <i>are</i> the sons of <u>Zilpah</u>[^a], whom Laban gave to Leah his daughter, and these she bare unto Jacob, <i>even</i> sixteen souls.
 
 [Genesis 46:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.18?lang=eng#p18)
 

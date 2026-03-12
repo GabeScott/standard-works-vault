@@ -1,6 +1,6 @@
 # 1 Samuel 2:18
 
-> ¶ But Samuel ministered before the LORD, *being* a child, girded with a linen <u>ephod</u>[^a].
+> ¶ But Samuel ministered before the LORD, <i>being</i> a child, girded with a linen <u>ephod</u>[^a].
 
 [1 Samuel 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.18?lang=eng#p18)
 

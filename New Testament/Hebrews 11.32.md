@@ -1,6 +1,6 @@
 # Hebrews 11:32
 
-> And what shall I more say? for the time would fail me to tell of Gedeon, and *of* <u>Barak</u>[^a], and *of* Samson, and *of* <u>Jephthae</u>[^b]; *of* David also, and Samuel, and *of* the prophets:
+> And what shall I more say? for the time would fail me to tell of Gedeon, and <i>of</i> <u>Barak</u>[^a], and <i>of</i> Samson, and <i>of</i> <u>Jephthae</u>[^b]; <i>of</i> David also, and Samuel, and <i>of</i> the prophets:
 
 [Hebrews 11:32](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.32?lang=eng#p32)
 

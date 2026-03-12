@@ -1,6 +1,6 @@
 # Jeremiah 7:19
 
-> Do they provoke me to anger? saith the LORD: *do they* not *provoke* themselves <u>to the confusion</u>[^a] of their own faces?
+> Do they provoke me to anger? saith the LORD: <i>do they</i> not <i>provoke</i> themselves <u>to the confusion</u>[^a] of their own faces?
 
 [Jeremiah 7:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.19?lang=eng#p19)
 

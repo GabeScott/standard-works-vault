@@ -1,6 +1,6 @@
 # Acts 1:16
 
-> Men *and* brethren, this scripture must needs have been fulfilled, which the Holy Ghost by the mouth of David <u>spake</u>[^a] before concerning <u>Judas</u>[^b], which was guide to them that took Jesus.
+> Men <i>and</i> brethren, this scripture must needs have been fulfilled, which the Holy Ghost by the mouth of David <u>spake</u>[^a] before concerning <u>Judas</u>[^b], which was guide to them that took Jesus.
 
 [Acts 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.16?lang=eng#p16)
 

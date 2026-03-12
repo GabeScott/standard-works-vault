@@ -1,6 +1,6 @@
 # Matthew 27:26
 
-> ¶ Then released he Barabbas unto them: and when he had <u>scourged</u>[^a] Jesus, he delivered *him* to be crucified.
+> ¶ Then released he Barabbas unto them: and when he had <u>scourged</u>[^a] Jesus, he delivered <i>him</i> to be crucified.
 
 [Matthew 27:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.26?lang=eng#p26)
 

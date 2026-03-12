@@ -1,6 +1,6 @@
 # Isaiah 6:7
 
-> And he laid *it* upon my <u>mouth</u>[^a], and said, Lo, this hath touched thy lips; and thine iniquity is <u>taken</u>[^b] away, and thy sin purged.
+> And he laid <i>it</i> upon my <u>mouth</u>[^a], and said, Lo, this hath touched thy lips; and thine iniquity is <u>taken</u>[^b] away, and thy sin purged.
 
 [Isaiah 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.7?lang=eng#p7)
 

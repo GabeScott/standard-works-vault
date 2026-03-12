@@ -1,6 +1,6 @@
 # Deuteronomy 33:1
 
-> And this *is* the blessing, wherewith <u>Moses</u>[^a] the <u>man</u>[^b] of God <u>blessed</u>[^c] the children of <u>Israel</u>[^d] before his death.
+> And this <i>is</i> the blessing, wherewith <u>Moses</u>[^a] the <u>man</u>[^b] of God <u>blessed</u>[^c] the children of <u>Israel</u>[^d] before his death.
 
 [Deuteronomy 33:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.1?lang=eng#p1)
 

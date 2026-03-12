@@ -1,6 +1,6 @@
 # Exodus 32:1
 
-> And when the people saw that Moses <u>delayed</u>[^a] to come down out of the mount, the people gathered themselves together unto Aaron, and said unto him, Up, make us <u>gods</u>[^b], which shall <u>go</u>[^c] before us; for *as for* this Moses, the man that brought us up out of the land of Egypt, we <u>wot</u>[^d] not what is become of him.
+> And when the people saw that Moses <u>delayed</u>[^a] to come down out of the mount, the people gathered themselves together unto Aaron, and said unto him, Up, make us <u>gods</u>[^b], which shall <u>go</u>[^c] before us; for <i>as for</i> this Moses, the man that brought us up out of the land of Egypt, we <u>wot</u>[^d] not what is become of him.
 
 [Exodus 32:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.1?lang=eng#p1)
 

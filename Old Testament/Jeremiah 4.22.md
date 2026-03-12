@@ -1,6 +1,6 @@
 # Jeremiah 4:22
 
-> For my people *is* <u>foolish</u>[^a], they have not <u>known</u>[^b] me; they *are* sottish children, and they have none understanding: they *are* wise to do <u>evil</u>[^c], but to do good they have no knowledge.
+> For my people <i>is</i> <u>foolish</u>[^a], they have not <u>known</u>[^b] me; they <i>are</i> sottish children, and they have none understanding: they <i>are</i> wise to do <u>evil</u>[^c], but to do good they have no knowledge.
 
 [Jeremiah 4:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.22?lang=eng#p22)
 

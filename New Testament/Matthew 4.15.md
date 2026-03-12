@@ -1,6 +1,6 @@
 # Matthew 4:15
 
-> The land of <u>Zabulon</u>[^a], and the land of Nephthalim, *by* the way of the sea, beyond Jordan, Galilee of the Gentiles;
+> The land of <u>Zabulon</u>[^a], and the land of Nephthalim, <i>by</i> the way of the sea, beyond Jordan, Galilee of the Gentiles;
 
 [Matthew 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.15?lang=eng#p15)
 

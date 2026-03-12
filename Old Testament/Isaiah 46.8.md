@@ -1,6 +1,6 @@
 # Isaiah 46:8
 
-> Remember this, and shew yourselves <u>men</u>[^a]: bring *it* again to mind, O ye transgressors.
+> Remember this, and shew yourselves <u>men</u>[^a]: bring <i>it</i> again to mind, O ye transgressors.
 
 [Isaiah 46:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Psalms 34:10
 
-> The young lions do lack, and suffer hunger: but they that seek the LORD shall not <u>want</u>[^a] any good *thing.*
+> The young lions do lack, and suffer hunger: but they that seek the LORD shall not <u>want</u>[^a] any good <i>thing.</i>
 
 [Psalms 34:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.10?lang=eng#p10)
 

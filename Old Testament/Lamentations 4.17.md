@@ -1,6 +1,6 @@
 # Lamentations 4:17
 
-> As for us, our eyes as yet failed for our vain help: in our watching we have watched for a <u>nation</u>[^a] *that* could not save *us.*
+> As for us, our eyes as yet failed for our vain help: in our watching we have watched for a <u>nation</u>[^a] <i>that</i> could not save <i>us.</i>
 
 [Lamentations 4:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/4.17?lang=eng#p17)
 

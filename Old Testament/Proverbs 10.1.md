@@ -1,6 +1,6 @@
 # Proverbs 10:1
 
-> The <u>proverbs</u>[^a] of Solomon. A <u>wise</u>[^b] son maketh a <u>glad</u>[^c] <u>father</u>[^d]: but a <u>foolish</u>[^e] son *is* the <u>heaviness</u>[^f] of his <u>mother</u>[^g].
+> The <u>proverbs</u>[^a] of Solomon. A <u>wise</u>[^b] son maketh a <u>glad</u>[^c] <u>father</u>[^d]: but a <u>foolish</u>[^e] son <i>is</i> the <u>heaviness</u>[^f] of his <u>mother</u>[^g].
 
 [Proverbs 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.1?lang=eng#p1)
 

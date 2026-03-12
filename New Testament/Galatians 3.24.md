@@ -1,6 +1,6 @@
 # Galatians 3:24
 
-> Wherefore the <u>law</u>[^a] was our <u>schoolmaster</u>[^b] *to bring us* unto Christ, that we might be <u>justified</u>[^c] by faith.
+> Wherefore the <u>law</u>[^a] was our <u>schoolmaster</u>[^b] <i>to bring us</i> unto Christ, that we might be <u>justified</u>[^c] by faith.
 
 [Galatians 3:24](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.24?lang=eng#p24)
 

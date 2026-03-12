@@ -1,6 +1,6 @@
 # Ephesians 2:20
 
-> And are built upon the foundation of the <u>apostles</u>[^a] and <u>prophets</u>[^b], Jesus Christ himself being the chief <u>corner stone</u>[^c]*;*
+> And are built upon the foundation of the <u>apostles</u>[^a] and <u>prophets</u>[^b], Jesus Christ himself being the chief <i><u>corner stone</u></i>[^c]<i>;</i>
 
 [Ephesians 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.20?lang=eng#p20)
 

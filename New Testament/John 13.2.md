@@ -1,6 +1,6 @@
 # John 13:2
 
-> And supper being ended, the devil having now put into the <u>heart</u>[^a] of Judas Iscariot, Simon’s *son,* to betray him;
+> And supper being ended, the devil having now put into the <u>heart</u>[^a] of Judas Iscariot, Simon’s <i>son,</i> to betray him;
 
 [John 13:2](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.2?lang=eng#p2)
 

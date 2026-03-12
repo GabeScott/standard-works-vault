@@ -1,6 +1,6 @@
 # 1 Thessalonians 4:17
 
-> <u>Then</u>[^a] we which are alive *and* remain shall be <u>caught up</u>[^b] together with them in the clouds, to meet the <u>Lord</u>[^c] in the <u>air</u>[^d]: and so shall we <u>ever</u>[^e] be with the <u>Lord</u>[^f].
+> <u>Then</u>[^a] we which are alive <i>and</i> remain shall be <u>caught up</u>[^b] together with them in the clouds, to meet the <u>Lord</u>[^c] in the <u>air</u>[^d]: and so shall we <u>ever</u>[^e] be with the <u>Lord</u>[^f].
 
 [1 Thessalonians 4:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/4.17?lang=eng#p17)
 

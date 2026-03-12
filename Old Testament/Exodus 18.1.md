@@ -1,6 +1,6 @@
 # Exodus 18:1
 
-> When <u>Jethro</u>[^a], the <u>priest</u>[^b] of <u>Midian</u>[^c], Moses’ father in law, heard of all that <u>God</u>[^d] had done for Moses, and for Israel his people, *and* that the LORD had brought Israel out of Egypt;
+> When <u>Jethro</u>[^a], the <u>priest</u>[^b] of <u>Midian</u>[^c], Moses’ father in law, heard of all that <u>God</u>[^d] had done for Moses, and for Israel his people, <i>and</i> that the LORD had brought Israel out of Egypt;
 
 [Exodus 18:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.1?lang=eng#p1)
 

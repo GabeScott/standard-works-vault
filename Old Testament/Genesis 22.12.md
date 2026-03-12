@@ -1,6 +1,6 @@
 # Genesis 22:12
 
-> And he said, <u>Lay</u>[^a] not thine hand upon the lad, neither do thou any thing unto him: for now I know that thou <u>fearest</u>[^b] God, seeing thou hast not <u>withheld</u>[^c] thy son, thine only *son* from me.
+> And he said, <u>Lay</u>[^a] not thine hand upon the lad, neither do thou any thing unto him: for now I know that thou <u>fearest</u>[^b] God, seeing thou hast not <u>withheld</u>[^c] thy son, thine only <i>son</i> from me.
 
 [Genesis 22:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/22.12?lang=eng#p12)
 

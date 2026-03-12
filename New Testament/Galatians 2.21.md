@@ -1,6 +1,6 @@
 # Galatians 2:21
 
-> I do not frustrate the <u>grace</u>[^a] of God: for if righteousness *come* by the <u>law</u>[^b], then Christ is dead in vain.
+> I do not frustrate the <u>grace</u>[^a] of God: for if righteousness <i>come</i> by the <u>law</u>[^b], then Christ is dead in vain.
 
 [Galatians 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.21?lang=eng#p21)
 

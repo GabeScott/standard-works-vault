@@ -1,6 +1,6 @@
 # Matthew 7:29
 
-> For he taught them as *one* having <u>authority</u>[^a], and not as <u>the scribes</u>[^b].
+> For he taught them as <i>one</i> having <u>authority</u>[^a], and not as <u>the scribes</u>[^b].
 
 [Matthew 7:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.29?lang=eng#p29)
 

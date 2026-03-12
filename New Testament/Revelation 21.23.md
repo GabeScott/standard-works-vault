@@ -1,6 +1,6 @@
 # Revelation 21:23
 
-> And the city had no need of the <u>sun</u>[^a], neither of the moon, to shine in it: for the glory of God did lighten it, and the <u>Lamb</u>[^b] *is* the <u>light</u>[^c] thereof.
+> And the city had no need of the <u>sun</u>[^a], neither of the moon, to shine in it: for the glory of God did lighten it, and the <u>Lamb</u>[^b] <i>is</i> the <u>light</u>[^c] thereof.
 
 [Revelation 21:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.23?lang=eng#p23)
 

@@ -1,6 +1,6 @@
 # Revelation 16:14
 
-> For they are the <u>spirits</u>[^a] of <u>devils</u>[^b], working <u>miracles</u>[^c], *which* go forth unto the kings of the earth and of the whole world, to gather them to the <u>battle</u>[^d] of that great day of God Almighty.
+> For they are the <u>spirits</u>[^a] of <u>devils</u>[^b], working <u>miracles</u>[^c], <i>which</i> go forth unto the kings of the earth and of the whole world, to gather them to the <u>battle</u>[^d] of that great day of God Almighty.
 
 [Revelation 16:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # Daniel 9:14
 
-> Therefore hath the LORD watched upon the <u>evil</u>[^a], and brought it upon us: for the LORD our God *is* righteous in all his works which he doeth: for we <u>obeyed not</u>[^b] his voice.
+> Therefore hath the LORD watched upon the <u>evil</u>[^a], and brought it upon us: for the LORD our God <i>is</i> righteous in all his works which he doeth: for we <u>obeyed not</u>[^b] his voice.
 
 [Daniel 9:14](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.14?lang=eng#p14)
 

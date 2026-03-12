@@ -1,6 +1,6 @@
 # Exodus 29:38
 
-> ¶ Now this *is that* which thou shalt <u>offer</u>[^a] upon the altar; two lambs <u>of the first year</u>[^b] <u>day</u>[^c] by day continually.
+> ¶ Now this <i>is that</i> which thou shalt <u>offer</u>[^a] upon the altar; two lambs <u>of the first year</u>[^b] <u>day</u>[^c] by day continually.
 
 [Exodus 29:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.38?lang=eng#p38)
 

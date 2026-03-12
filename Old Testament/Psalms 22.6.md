@@ -1,6 +1,6 @@
 # Psalms 22:6
 
-> But I *am* a worm, and no man; a <u>reproach</u>[^a] of men, and <u>despised</u>[^b] of the people.
+> But I <i>am</i> a worm, and no man; a <u>reproach</u>[^a] of men, and <u>despised</u>[^b] of the people.
 
 [Psalms 22:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.6?lang=eng#p6)
 

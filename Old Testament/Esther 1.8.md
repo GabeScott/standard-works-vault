@@ -1,6 +1,6 @@
 # Esther 1:8
 
-> And the <u>drinking</u>[^a] *was* according to the law; none did compel: for so the king had appointed to all the officers of his house, that they should do according to every man’s <u>pleasure</u>[^b].
+> And the <u>drinking</u>[^a] <i>was</i> according to the law; none did compel: for so the king had appointed to all the officers of his house, that they should do according to every man’s <u>pleasure</u>[^b].
 
 [Esther 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.8?lang=eng#p8)
 

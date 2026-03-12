@@ -1,6 +1,6 @@
 # Isaiah 29:13
 
-> ¶ Wherefore the Lord said, Forasmuch as this people <u>draw near</u>[^a] *me* with their <u>mouth</u>[^b], and with their lips do <u>honour</u>[^c] me, but have <u>removed</u>[^d] their <u>heart</u>[^e] far from me, and their <u>fear toward me</u>[^f] is taught by the <u>precept</u>[^g] of men:
+> ¶ Wherefore the Lord said, Forasmuch as this people <u>draw near</u>[^a] <i>me</i> with their <u>mouth</u>[^b], and with their lips do <u>honour</u>[^c] me, but have <u>removed</u>[^d] their <u>heart</u>[^e] far from me, and their <u>fear toward me</u>[^f] is taught by the <u>precept</u>[^g] of men:
 
 [Isaiah 29:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.13?lang=eng#p13)
 

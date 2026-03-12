@@ -1,6 +1,6 @@
 # Hosea 9:12
 
-> Though they bring up their children, yet will I bereave them, *that there shall* not *be* a man *left:* yea, woe also to them when I <u>depart</u>[^a] from them!
+> Though they bring up their children, yet will I bereave them, <i>that there shall</i> not <i>be</i> a man <i>left:</i> yea, woe also to them when I <u>depart</u>[^a] from them!
 
 [Hosea 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/9.12?lang=eng#p12)
 

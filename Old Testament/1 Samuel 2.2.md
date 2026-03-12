@@ -1,6 +1,6 @@
 # 1 Samuel 2:2
 
-> *There is* <u>none</u>[^a] holy as the LORD: for *there is* none beside thee: neither *is there* any <u>rock</u>[^b] like our God.
+> <i>There is</i> <u>none</u>[^a] holy as the LORD: for <i>there is</i> none beside thee: neither <i>is there</i> any <u>rock</u>[^b] like our God.
 
 [1 Samuel 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.2?lang=eng#p2)
 

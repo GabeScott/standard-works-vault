@@ -1,6 +1,6 @@
 # Isaiah 60:8
 
-> Who *are* <u>these</u>[^a] *that* fly as a cloud, and as the doves to their windows?
+> Who <i>are</i> <u>these</u>[^a] <i>that</i> fly as a cloud, and as the doves to their windows?
 
 [Isaiah 60:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.8?lang=eng#p8)
 

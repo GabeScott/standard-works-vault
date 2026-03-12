@@ -1,6 +1,6 @@
 # 2 Timothy 4:22
 
-> The <u>Lord Jesus Christ</u>[^a] *be* with thy spirit. Grace *be* with you. Amen.
+> The <u>Lord Jesus Christ</u>[^a] <i>be</i> with thy spirit. Grace <i>be</i> with you. Amen.
 
 [2 Timothy 4:22](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.22?lang=eng#p22)
 

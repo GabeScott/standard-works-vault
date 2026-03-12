@@ -1,6 +1,6 @@
 # 1 Kings 6:1
 
-> And it came to pass in the four hundred and eightieth year after the children of Israel were come out of the land of Egypt, in the <u>fourth</u>[^a] year of Solomon’s reign over Israel, in the month Zif, which *is* the second month, that he began to <u>build</u>[^b] the <u>house</u>[^c] of the LORD.
+> And it came to pass in the four hundred and eightieth year after the children of Israel were come out of the land of Egypt, in the <u>fourth</u>[^a] year of Solomon’s reign over Israel, in the month Zif, which <i>is</i> the second month, that he began to <u>build</u>[^b] the <u>house</u>[^c] of the LORD.
 
 [1 Kings 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/6.1?lang=eng#p1)
 

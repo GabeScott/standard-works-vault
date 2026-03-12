@@ -1,6 +1,6 @@
 # Psalms 86:15
 
-> But thou, O <u>Lord</u>[^a], *art* a God full of <u>compassion</u>[^b], and gracious, longsuffering, and plenteous in <u>mercy</u>[^c] and truth.
+> But thou, O <u>Lord</u>[^a], <i>art</i> a God full of <u>compassion</u>[^b], and gracious, longsuffering, and plenteous in <u>mercy</u>[^c] and truth.
 
 [Psalms 86:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/86.15?lang=eng#p15)
 

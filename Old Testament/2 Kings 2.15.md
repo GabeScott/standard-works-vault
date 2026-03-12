@@ -1,6 +1,6 @@
 # 2 Kings 2:15
 
-> And when the sons of the prophets which *were* to view at Jericho saw him, they said, The spirit of <u>Elijah</u>[^a] doth <u>rest</u>[^b] on Elisha. And they came to meet him, and bowed themselves to the ground before him.
+> And when the sons of the prophets which <i>were</i> to view at Jericho saw him, they said, The spirit of <u>Elijah</u>[^a] doth <u>rest</u>[^b] on Elisha. And they came to meet him, and bowed themselves to the ground before him.
 
 [2 Kings 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.15?lang=eng#p15)
 

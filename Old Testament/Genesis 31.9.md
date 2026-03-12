@@ -1,6 +1,6 @@
 # Genesis 31:9
 
-> Thus God hath taken away the cattle of your father, and given them to me.
+> Thus God hath taken away the cattle of your father, and given <i>them</i> to me.
 
 [Genesis 31:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.9?lang=eng#p9)
 

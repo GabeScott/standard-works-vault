@@ -1,6 +1,6 @@
 # Daniel 8:20
 
-> The <u>ram</u>[^a] which thou sawest having *two* horns *are* the kings of Media and Persia.
+> The <u>ram</u>[^a] which thou sawest having <i>two</i> horns <i>are</i> the kings of Media and Persia.
 
 [Daniel 8:20](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/8.20?lang=eng#p20)
 

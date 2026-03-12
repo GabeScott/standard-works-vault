@@ -1,6 +1,6 @@
 # 1 Chronicles 17:13
 
-> I will be his <u>father</u>[^a], and he shall be my son: and I will not take my mercy away from him, as I took *it* from *him* that was before thee:
+> I will be his <u>father</u>[^a], and he shall be my son: and I will not take my mercy away from him, as I took <i>it</i> from <i>him</i> that was before thee:
 
 [1 Chronicles 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/17.13?lang=eng#p13)
 

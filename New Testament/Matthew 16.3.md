@@ -1,6 +1,6 @@
 # Matthew 16:3
 
-> And in the morning, *It will be* foul weather to day: for the sky is red and <u>lowring</u>[^a]. O *ye* <u>hypocrites</u>[^b], ye can discern the face of the sky; but can ye not *discern* the <u>signs</u>[^c] of the <u>times</u>[^d]?
+> And in the morning, <i>It will be</i> foul weather to day: for the sky is red and <u>lowring</u>[^a]. O <i>ye</i> <u>hypocrites</u>[^b], ye can discern the face of the sky; but can ye not <i>discern</i> the <u>signs</u>[^c] of the <u>times</u>[^d]?
 
 [Matthew 16:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.3?lang=eng#p3)
 

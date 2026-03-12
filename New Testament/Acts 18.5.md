@@ -1,6 +1,6 @@
 # Acts 18:5
 
-> And when Silas and <u>Timotheus</u>[^a] were come from Macedonia, Paul was pressed in the spirit, and <u>testified</u>[^b] to the Jews *that* Jesus *was* <u>Christ</u>[^c].
+> And when Silas and <u>Timotheus</u>[^a] were come from Macedonia, Paul was pressed in the spirit, and <u>testified</u>[^b] to the Jews <i>that</i> Jesus <i>was</i> <u>Christ</u>[^c].
 
 [Acts 18:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.5?lang=eng#p5)
 

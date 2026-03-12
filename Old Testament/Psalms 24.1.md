@@ -1,6 +1,6 @@
 # Psalms 24:1
 
-> The <u>earth</u>[^a] *is* the <u>Lord’s</u>[^b], and the fulness thereof; the world, and they that dwell therein.
+> The <u>earth</u>[^a] <i>is</i> the <u>Lord’s</u>[^b], and the fulness thereof; the world, and they that dwell therein.
 
 [Psalms 24:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/24.1?lang=eng#p1)
 

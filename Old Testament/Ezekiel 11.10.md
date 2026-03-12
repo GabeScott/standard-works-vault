@@ -1,6 +1,6 @@
 # Ezekiel 11:10
 
-> Ye shall <u>fall</u>[^a] by the sword; I will judge you in the border of Israel; and ye shall know that I *am* the LORD.
+> Ye shall <u>fall</u>[^a] by the sword; I will judge you in the border of Israel; and ye shall know that I <i>am</i> the LORD.
 
 [Ezekiel 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.10?lang=eng#p10)
 

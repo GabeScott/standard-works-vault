@@ -1,6 +1,6 @@
 # Ezra 6:5
 
-> And also let the golden and silver vessels of the house of God, which Nebuchadnezzar took forth out of the temple which is at Jerusalem, and brought unto Babylon, be restored, and brought again unto the temple which is at Jerusalem, every one to his place, and place them in the house of God.
+> And also let the golden and silver vessels of the house of God, which Nebuchadnezzar took forth out of the temple which <i>is</i> at Jerusalem, and brought unto Babylon, be restored, and brought again unto the temple which <i>is</i> at Jerusalem, <i>every one</i> to his place, and place <i>them</i> in the house of God.
 
 [Ezra 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.5?lang=eng#p5)
 

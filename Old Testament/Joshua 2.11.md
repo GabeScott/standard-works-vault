@@ -1,6 +1,6 @@
 # Joshua 2:11
 
-> And as soon as we had <u>heard</u>[^a] *these things,* our <u>hearts</u>[^b] did melt, neither did there remain any more courage in any man, because of you: for the LORD your God, he *is* <u>God</u>[^c] in <u>heaven</u>[^d] above, and in earth beneath.
+> And as soon as we had <u>heard</u>[^a] <i>these things,</i> our <u>hearts</u>[^b] did melt, neither did there remain any more courage in any man, because of you: for the LORD your God, he <i>is</i> <u>God</u>[^c] in <u>heaven</u>[^d] above, and in earth beneath.
 
 [Joshua 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/2.11?lang=eng#p11)
 

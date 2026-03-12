@@ -1,6 +1,6 @@
 # 2 Samuel 7:22
 
-> Wherefore thou art great, O LORD God: for *there is* none <u>like</u>[^a] thee, neither *is there any* God beside thee, according to all that we have heard with our ears.
+> Wherefore thou art great, O LORD God: for <i>there is</i> none <u>like</u>[^a] thee, neither <i>is there any</i> God beside thee, according to all that we have heard with our ears.
 
 [2 Samuel 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.22?lang=eng#p22)
 

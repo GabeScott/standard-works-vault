@@ -1,6 +1,6 @@
 # 2 Corinthians 10:7
 
-> Do ye look on things after the outward <u>appearance</u>[^a]? If any man trust to himself that he is Christ’s, let him of himself think this again, that, as he *is* Christ’s, even so *are* we <u>Christ’s</u>[^b].
+> Do ye look on things after the outward <u>appearance</u>[^a]? If any man trust to himself that he is Christ’s, let him of himself think this again, that, as he <i>is</i> Christ’s, even so <i>are</i> we <u>Christ’s</u>[^b].
 
 [2 Corinthians 10:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.7?lang=eng#p7)
 

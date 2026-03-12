@@ -1,6 +1,6 @@
 # Numbers 1:33
 
-> Those that were numbered of them, *even* of the tribe of Ephraim, *were* forty <u>thousand</u>[^a] and five hundred.
+> Those that were numbered of them, <i>even</i> of the tribe of Ephraim, <i>were</i> forty <u>thousand</u>[^a] and five hundred.
 
 [Numbers 1:33](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.33?lang=eng#p33)
 

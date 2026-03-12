@@ -1,6 +1,6 @@
 # Jeremiah 35:15
 
-> I have sent also unto you all my servants the <u>prophets</u>[^a], rising up early and sending *them,* saying, <u>Return</u>[^b] ye now every man from his evil way, and amend your doings, and go not after other gods to serve them, and ye shall dwell in the land which I have given to you and to your fathers: but ye have not inclined your ear, nor hearkened unto me.
+> I have sent also unto you all my servants the <u>prophets</u>[^a], rising up early and sending <i>them,</i> saying, <u>Return</u>[^b] ye now every man from his evil way, and amend your doings, and go not after other gods to serve them, and ye shall dwell in the land which I have given to you and to your fathers: but ye have not inclined your ear, nor hearkened unto me.
 
 [Jeremiah 35:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/35.15?lang=eng#p15)
 

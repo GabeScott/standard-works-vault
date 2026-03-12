@@ -1,6 +1,6 @@
 # Isaiah 51:16
 
-> And I have put my <u>words</u>[^a] in thy mouth, and I have covered thee in the shadow of mine hand, that I may plant the heavens, and lay the foundations of the earth, and say unto Zion, Thou *art* my people.
+> And I have put my <u>words</u>[^a] in thy mouth, and I have covered thee in the shadow of mine hand, that I may plant the heavens, and lay the foundations of the earth, and say unto Zion, Thou <i>art</i> my people.
 
 [Isaiah 51:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/51.16?lang=eng#p16)
 

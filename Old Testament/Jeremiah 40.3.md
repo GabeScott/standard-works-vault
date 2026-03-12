@@ -1,6 +1,6 @@
 # Jeremiah 40:3
 
-> Now the LORD hath brought *it,* and done according as he hath said: because ye have <u>sinned</u>[^a] against the LORD, and have not obeyed his voice, therefore this <u>thing</u>[^b] is come upon you.
+> Now the LORD hath brought <i>it,</i> and done according as he hath said: because ye have <u>sinned</u>[^a] against the LORD, and have not obeyed his voice, therefore this <u>thing</u>[^b] is come upon you.
 
 [Jeremiah 40:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/40.3?lang=eng#p3)
 

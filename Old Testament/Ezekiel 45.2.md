@@ -1,6 +1,6 @@
 # Ezekiel 45:2
 
-> Of this there shall be for the sanctuary five hundred *in length,* with five hundred *in breadth,* <u>square</u>[^a] round about; and fifty cubits round about for the <u>suburbs</u>[^b] thereof.
+> Of this there shall be for the sanctuary five hundred <i>in length,</i> with five hundred <i>in breadth,</i> <u>square</u>[^a] round about; and fifty cubits round about for the <u>suburbs</u>[^b] thereof.
 
 [Ezekiel 45:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.2?lang=eng#p2)
 

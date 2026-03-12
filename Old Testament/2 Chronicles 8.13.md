@@ -1,6 +1,6 @@
 # 2 Chronicles 8:13
 
-> Even after a certain rate <u>every</u>[^a] day, offering according to the commandment of Moses, on the sabbaths, and on the new moons, and on the solemn feasts, <u>three</u>[^b] times in the year, *even* in the feast of unleavened bread, and in the feast of weeks, and in the feast of tabernacles.
+> Even after a certain rate <u>every</u>[^a] day, offering according to the commandment of Moses, on the sabbaths, and on the new moons, and on the solemn feasts, <u>three</u>[^b] times in the year, <i>even</i> in the feast of unleavened bread, and in the feast of weeks, and in the feast of tabernacles.
 
 [2 Chronicles 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/8.13?lang=eng#p13)
 

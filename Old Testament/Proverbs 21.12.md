@@ -1,6 +1,6 @@
 # Proverbs 21:12
 
-> The righteous *man* wisely considereth the house of the <u>wicked</u>[^a]: *but God* overthroweth the wicked for *their* wickedness.
+> The righteous <i>man</i> wisely considereth the house of the <u>wicked</u>[^a]: <i>but God</i> overthroweth the wicked for <i>their</i> wickedness.
 
 [Proverbs 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.12?lang=eng#p12)
 

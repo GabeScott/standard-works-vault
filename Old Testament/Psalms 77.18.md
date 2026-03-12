@@ -1,6 +1,6 @@
 # Psalms 77:18
 
-> The voice of thy thunder *was* in the heaven: the lightnings <u>lightened</u>[^a] the world: the earth trembled and shook.
+> The voice of thy thunder <i>was</i> in the heaven: the lightnings <u>lightened</u>[^a] the world: the earth trembled and shook.
 
 [Psalms 77:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/77.18?lang=eng#p18)
 

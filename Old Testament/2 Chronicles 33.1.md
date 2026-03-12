@@ -1,6 +1,6 @@
 # 2 Chronicles 33:1
 
-> <u>Manasseh</u>[^a] *was* twelve years old when he began to reign, and he reigned fifty and five years in Jerusalem:
+> <u>Manasseh</u>[^a] <i>was</i> twelve years old when he began to reign, and he reigned fifty and five years in Jerusalem:
 
 [2 Chronicles 33:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.1?lang=eng#p1)
 

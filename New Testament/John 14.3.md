@@ -1,6 +1,6 @@
 # John 14:3
 
-> And if I go and prepare a place for you, I will <u>come</u>[^a] again, and receive you unto myself; that <u>where</u>[^b] <u>I</u>[^c] am, *there* ye may be also.
+> And if I go and prepare a place for you, I will <u>come</u>[^a] again, and receive you unto myself; that <u>where</u>[^b] <u>I</u>[^c] am, <i>there</i> ye may be also.
 
 [John 14:3](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.3?lang=eng#p3)
 

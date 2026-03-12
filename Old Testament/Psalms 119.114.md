@@ -1,6 +1,6 @@
 # Psalms 119:114
 
-> Thou *art* my <u>hiding place</u>[^a] and my shield: I hope in thy word.
+> Thou <i>art</i> my <u>hiding place</u>[^a] and my shield: I hope in thy word.
 
 [Psalms 119:114](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.114?lang=eng#p114)
 

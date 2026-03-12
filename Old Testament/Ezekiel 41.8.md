@@ -1,6 +1,6 @@
 # Ezekiel 41:8
 
-> I saw also the height of the house round about: the foundations of the side chambers *were* a full reed of six great <u>cubits</u>[^a].
+> I saw also the height of the house round about: the foundations of the side chambers <i>were</i> a full reed of six great <u>cubits</u>[^a].
 
 [Ezekiel 41:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Isaiah 65:23
 
-> They shall not <u>labour</u>[^a] in vain, nor bring forth for trouble; for they *are* the <u>seed</u>[^b] of the blessed of the LORD, and their <u>offspring</u>[^c] with them.
+> They shall not <u>labour</u>[^a] in vain, nor bring forth for trouble; for they <i>are</i> the <u>seed</u>[^b] of the blessed of the LORD, and their <u>offspring</u>[^c] with them.
 
 [Isaiah 65:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.23?lang=eng#p23)
 

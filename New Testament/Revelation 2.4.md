@@ -1,6 +1,6 @@
 # Revelation 2:4
 
-> Nevertheless I have *somewhat* against thee, because thou hast left thy first <u>love</u>[^a].
+> Nevertheless I have <i>somewhat</i> against thee, because thou hast left thy first <u>love</u>[^a].
 
 [Revelation 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.4?lang=eng#p4)
 

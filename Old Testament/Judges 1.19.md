@@ -1,6 +1,6 @@
 # Judges 1:19
 
-> And the LORD was with <u>Judah</u>[^a]; and he drave out *the inhabitants of* the mountain; but could not drive out the inhabitants of the valley, because they had <u>chariots</u>[^b] of iron.
+> And the LORD was with <u>Judah</u>[^a]; and he drave out <i>the inhabitants of</i> the mountain; but could not drive out the inhabitants of the valley, because they had <u>chariots</u>[^b] of iron.
 
 [Judges 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/1.19?lang=eng#p19)
 

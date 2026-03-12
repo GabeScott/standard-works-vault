@@ -1,6 +1,6 @@
 # Deuteronomy 23:7
 
-> ¶ Thou shalt not abhor an <u>Edomite</u>[^a]; for he *is* thy brother: thou shalt not abhor an Egyptian; because thou wast a <u>stranger</u>[^b] in his land.
+> ¶ Thou shalt not abhor an <u>Edomite</u>[^a]; for he <i>is</i> thy brother: thou shalt not abhor an Egyptian; because thou wast a <u>stranger</u>[^b] in his land.
 
 [Deuteronomy 23:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.7?lang=eng#p7)
 

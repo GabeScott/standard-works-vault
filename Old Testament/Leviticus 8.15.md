@@ -1,6 +1,6 @@
 # Leviticus 8:15
 
-> And he slew *it;* and Moses took the blood, and put *it* upon the <u>horns</u>[^a] of the altar round about with his finger, and purified the <u>altar</u>[^b], and <u>poured</u>[^c] the blood at the bottom of the altar, and sanctified it, <u>to</u>[^d] make reconciliation upon it.
+> And he slew <i>it;</i> and Moses took the blood, and put <i>it</i> upon the <u>horns</u>[^a] of the altar round about with his finger, and purified the <u>altar</u>[^b], and <u>poured</u>[^c] the blood at the bottom of the altar, and sanctified it, <u>to</u>[^d] make reconciliation upon it.
 
 [Leviticus 8:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.15?lang=eng#p15)
 

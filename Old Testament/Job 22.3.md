@@ -1,6 +1,6 @@
 # Job 22:3
 
-> *Is it* any pleasure to the Almighty, that thou art <u>righteous</u>[^a]? or *is it* gain *to him,* that thou makest thy ways <u>perfect</u>[^b]?
+> <i>Is it</i> any pleasure to the Almighty, that thou art <u>righteous</u>[^a]? or <i>is it</i> gain <i>to him,</i> that thou makest thy ways <u>perfect</u>[^b]?
 
 [Job 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/job/22.3?lang=eng#p3)
 

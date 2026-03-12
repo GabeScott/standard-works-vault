@@ -1,6 +1,6 @@
 # Hebrews 10:1
 
-> For the <u>law</u>[^a] having a <u>shadow</u>[^b] of good things to come, *and* not the very image of the things, can never with those sacrifices which they offered <u>year</u>[^c] by year continually make the comers thereunto perfect.
+> For the <u>law</u>[^a] having a <u>shadow</u>[^b] of good things to come, <i>and</i> not the very image of the things, can never with those sacrifices which they offered <u>year</u>[^c] by year continually make the comers thereunto perfect.
 
 [Hebrews 10:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.1?lang=eng#p1)
 

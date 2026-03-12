@@ -1,6 +1,6 @@
 # James 2:10
 
-> For whosoever shall keep the <u>whole</u>[^a] law, and yet <u>offend</u>[^b] in one *point,* he is <u>guilty</u>[^c] of all.
+> For whosoever shall keep the <u>whole</u>[^a] law, and yet <u>offend</u>[^b] in one <i>point,</i> he is <u>guilty</u>[^c] of all.
 
 [James 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.10?lang=eng#p10)
 

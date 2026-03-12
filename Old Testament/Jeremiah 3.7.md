@@ -1,6 +1,6 @@
 # Jeremiah 3:7
 
-> And I said after she had done all these *things,* Turn thou unto me. But she returned not. And her treacherous <u>sister</u>[^a] Judah saw *it.*
+> And I said after she had done all these <i>things,</i> Turn thou unto me. But she returned not. And her treacherous <u>sister</u>[^a] Judah saw <i>it.</i>
 
 [Jeremiah 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.7?lang=eng#p7)
 

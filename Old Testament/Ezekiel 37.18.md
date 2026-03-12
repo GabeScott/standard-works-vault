@@ -1,6 +1,6 @@
 # Ezekiel 37:18
 
-> ¶ And when the children of thy people shall speak unto thee, saying, Wilt thou not shew us <u>what</u>[^a] thou *meanest* by these?
+> ¶ And when the children of thy people shall speak unto thee, saying, Wilt thou not shew us <u>what</u>[^a] thou <i>meanest</i> by these?
 
 [Ezekiel 37:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.18?lang=eng#p18)
 

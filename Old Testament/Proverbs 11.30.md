@@ -1,6 +1,6 @@
 # Proverbs 11:30
 
-> The fruit of the righteous *is* a <u>tree of life</u>[^a]; and he that winneth souls *is* wise.
+> The fruit of the righteous <i>is</i> a <u>tree of life</u>[^a]; and he that winneth souls <i>is</i> wise.
 
 [Proverbs 11:30](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.30?lang=eng#p30)
 

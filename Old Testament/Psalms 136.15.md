@@ -1,6 +1,6 @@
 # Psalms 136:15
 
-> But <u>overthrew</u>[^a] Pharaoh and his host in the Red sea: for his mercy *endureth* for ever.
+> But <u>overthrew</u>[^a] Pharaoh and his host in the Red sea: for his mercy <i>endureth</i> for ever.
 
 [Psalms 136:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.15?lang=eng#p15)
 

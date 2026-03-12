@@ -1,6 +1,6 @@
 # Psalms 119:57
 
-> *Thou art* my <u>portion</u>[^a], O LORD: I have said that I would keep thy words.
+> <i>Thou art</i> my <u>portion</u>[^a], O LORD: I have said that I would keep thy words.
 
 [Psalms 119:57](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.57?lang=eng#p57)
 

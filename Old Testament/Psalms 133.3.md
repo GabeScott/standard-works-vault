@@ -1,6 +1,6 @@
 # Psalms 133:3
 
-> As the dew of <u>Hermon</u>[^a], *and as the dew* that descended upon the mountains of Zion: for there the LORD <u>commanded</u>[^b] the blessing, *even* life for evermore.
+> As the dew of <u>Hermon</u>[^a], <i>and as the dew</i> that descended upon the mountains of Zion: for there the LORD <u>commanded</u>[^b] the blessing, <i>even</i> life for evermore.
 
 [Psalms 133:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/133.3?lang=eng#p3)
 

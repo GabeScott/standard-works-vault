@@ -1,6 +1,6 @@
 # Psalms 141:2
 
-> Let my <u>prayer</u>[^a] be set forth before thee *as* <u>incense</u>[^b]; *and* the lifting up of my hands *as* the <u>evening sacrifice</u>[^c].
+> Let my <u>prayer</u>[^a] be set forth before thee <i>as</i> <u>incense</u>[^b]; <i>and</i> the lifting up of my hands <i>as</i> the <u>evening sacrifice</u>[^c].
 
 [Psalms 141:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/141.2?lang=eng#p2)
 

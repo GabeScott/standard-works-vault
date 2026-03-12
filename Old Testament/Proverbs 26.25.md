@@ -1,6 +1,6 @@
 # Proverbs 26:25
 
-> When he <u>speaketh</u>[^a] fair, believe him not: for *there are* seven abominations in his heart.
+> When he <u>speaketh</u>[^a] fair, believe him not: for <i>there are</i> seven abominations in his heart.
 
 [Proverbs 26:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.25?lang=eng#p25)
 

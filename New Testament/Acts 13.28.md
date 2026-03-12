@@ -1,6 +1,6 @@
 # Acts 13:28
 
-> And though they found no cause of death *in him,* yet desired they Pilate that he should be <u>slain</u>[^a].
+> And though they found no cause of death <i>in him,</i> yet desired they Pilate that he should be <u>slain</u>[^a].
 
 [Acts 13:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.28?lang=eng#p28)
 

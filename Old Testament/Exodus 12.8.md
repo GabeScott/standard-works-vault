@@ -1,6 +1,6 @@
 # Exodus 12:8
 
-> And they shall eat the flesh in that night, roast with fire, and <u>unleavened</u>[^a] bread; *and* with bitter *herbs* they shall eat it.
+> And they shall eat the flesh in that night, roast with fire, and <u>unleavened</u>[^a] bread; <i>and</i> with bitter <i>herbs</i> they shall eat it.
 
 [Exodus 12:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.8?lang=eng#p8)
 

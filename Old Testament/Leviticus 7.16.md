@@ -1,6 +1,6 @@
 # Leviticus 7:16
 
-> But if the sacrifice of his offering *be* a vow, or a <u>voluntary</u>[^a] offering, it shall be eaten the same day that he offereth his sacrifice: and on the morrow also the remainder of it shall be eaten:
+> But if the sacrifice of his offering <i>be</i> a vow, or a <u>voluntary</u>[^a] offering, it shall be eaten the same day that he offereth his sacrifice: and on the morrow also the remainder of it shall be eaten:
 
 [Leviticus 7:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.16?lang=eng#p16)
 

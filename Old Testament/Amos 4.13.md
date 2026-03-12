@@ -1,6 +1,6 @@
 # Amos 4:13
 
-> For, lo, he that <u>formeth</u>[^a] the mountains, and createth the wind, and declareth unto man what *is* his <u>thought</u>[^b], that maketh the <u>morning</u>[^c] <u>darkness</u>[^d], and treadeth upon the high places of the earth, The LORD, The God of hosts, *is* his name.
+> For, lo, he that <u>formeth</u>[^a] the mountains, and createth the wind, and declareth unto man what <i>is</i> his <u>thought</u>[^b], that maketh the <u>morning</u>[^c] <u>darkness</u>[^d], and treadeth upon the high places of the earth, The LORD, The God of hosts, <i>is</i> his name.
 
 [Amos 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/4.13?lang=eng#p13)
 

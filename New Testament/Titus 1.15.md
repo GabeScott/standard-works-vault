@@ -1,6 +1,6 @@
 # Titus 1:15
 
-> <u>Unto</u>[^a] the pure all things *are* <u>pure</u>[^b]: but unto them that are <u>defiled</u>[^c] and unbelieving *is* nothing pure; but even their <u>mind</u>[^d] and <u>conscience</u>[^e] is <u>defiled</u>[^f].
+> <u>Unto</u>[^a] the pure all things <i>are</i> <u>pure</u>[^b]: but unto them that are <u>defiled</u>[^c] and unbelieving <i>is</i> nothing pure; but even their <u>mind</u>[^d] and <u>conscience</u>[^e] is <u>defiled</u>[^f].
 
 [Titus 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.15?lang=eng#p15)
 

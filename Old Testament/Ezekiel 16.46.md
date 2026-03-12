@@ -1,6 +1,6 @@
 # Ezekiel 16:46
 
-> And thine elder <u>sister</u>[^a] *is* Samaria, she and her daughters that dwell at thy left hand: and thy younger sister, that dwelleth at thy right hand, *is* <u>Sodom</u>[^b] and her daughters.
+> And thine elder <u>sister</u>[^a] <i>is</i> Samaria, she and her daughters that dwell at thy left hand: and thy younger sister, that dwelleth at thy right hand, <i>is</i> <u>Sodom</u>[^b] and her daughters.
 
 [Ezekiel 16:46](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.46?lang=eng#p46)
 

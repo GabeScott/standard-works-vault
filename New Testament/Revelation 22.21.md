@@ -1,6 +1,6 @@
 # Revelation 22:21
 
-> The <u>grace</u>[^a] of our <u>Lord Jesus Christ</u>[^b] *be* with you all. Amen.
+> The <u>grace</u>[^a] of our <u>Lord Jesus Christ</u>[^b] <i>be</i> with you all. Amen.
 
 [Revelation 22:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.21?lang=eng#p21)
 

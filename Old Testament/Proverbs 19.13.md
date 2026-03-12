@@ -1,6 +1,6 @@
 # Proverbs 19:13
 
-> A foolish son *is* the calamity of his <u>father</u>[^a]: and the contentions of a <u>wife</u>[^b] *are* a <u>continual</u>[^c] dropping.
+> A foolish son <i>is</i> the calamity of his <u>father</u>[^a]: and the contentions of a <u>wife</u>[^b] <i>are</i> a <u>continual</u>[^c] dropping.
 
 [Proverbs 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.13?lang=eng#p13)
 

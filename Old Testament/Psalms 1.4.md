@@ -1,6 +1,6 @@
 # Psalms 1:4
 
-> The ungodly *are* not so: but *are* like the <u>chaff</u>[^a] which the wind driveth away.
+> The ungodly <i>are</i> not so: but <i>are</i> like the <u>chaff</u>[^a] which the wind driveth away.
 
 [Psalms 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/1.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 10:15
 
-> <u>Only</u>[^a] the LORD had a delight in thy fathers to <u>love</u>[^b] them, and he <u>chose</u>[^c] their seed after them, *even* you above all people, as *it is* this day.
+> <u>Only</u>[^a] the LORD had a delight in thy fathers to <u>love</u>[^b] them, and he <u>chose</u>[^c] their seed after them, <i>even</i> you above all people, as <i>it is</i> this day.
 
 [Deuteronomy 10:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.15?lang=eng#p15)
 

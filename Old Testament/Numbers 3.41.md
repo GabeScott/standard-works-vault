@@ -1,6 +1,6 @@
 # Numbers 3:41
 
-> And thou shalt take the <u>Levites</u>[^a] for me (I *am* the LORD) instead of all the <u>firstborn</u>[^b] among the children of Israel; and the cattle of the Levites instead of all the firstlings among the cattle of the children of Israel.
+> And thou shalt take the <u>Levites</u>[^a] for me (I <i>am</i> the LORD) instead of all the <u>firstborn</u>[^b] among the children of Israel; and the cattle of the Levites instead of all the firstlings among the cattle of the children of Israel.
 
 [Numbers 3:41](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.41?lang=eng#p41)
 

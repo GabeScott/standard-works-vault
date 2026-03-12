@@ -1,6 +1,6 @@
 # Hebrews 10:23
 
-> Let us hold fast the <u>profession</u>[^a] of *our* <u>faith</u>[^b] without wavering; (for he *is* faithful that promised;)
+> Let us hold fast the <u>profession</u>[^a] of <i>our</i> <u>faith</u>[^b] without wavering; (for he <i>is</i> faithful that promised;)
 
 [Hebrews 10:23](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.23?lang=eng#p23)
 

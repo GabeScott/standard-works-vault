@@ -1,6 +1,6 @@
 # Jeremiah 5:16
 
-> Their quiver is as an open sepulchre, they are all mighty men.
+> Their quiver <i>is</i> as an open sepulchre, they <i>are</i> all mighty men.
 
 [Jeremiah 5:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.16?lang=eng#p16)
 

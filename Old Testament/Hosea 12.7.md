@@ -1,6 +1,6 @@
 # Hosea 12:7
 
-> ¶ *He is* a merchant, the <u>balances</u>[^a] of deceit *are* in his hand: he loveth to oppress.
+> ¶ <i>He is</i> a merchant, the <u>balances</u>[^a] of deceit <i>are</i> in his hand: he loveth to oppress.
 
 [Hosea 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.7?lang=eng#p7)
 

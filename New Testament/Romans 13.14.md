@@ -1,6 +1,6 @@
 # Romans 13:14
 
-> But <u>put</u>[^a] ye on the Lord Jesus Christ, and make not provision for the flesh, to *fulfil* the <u>lusts</u>[^b] *thereof.*
+> But <u>put</u>[^a] ye on the Lord Jesus Christ, and make not provision for the flesh, to <i>fulfil</i> the <u>lusts</u>[^b] <i>thereof.</i>
 
 [Romans 13:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.14?lang=eng#p14)
 

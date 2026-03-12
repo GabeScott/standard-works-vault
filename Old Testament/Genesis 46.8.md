@@ -1,6 +1,6 @@
 # Genesis 46:8
 
-> ¶ And these *are* the <u>names</u>[^a] of the <u>children of Israel</u>[^b], which came into Egypt, Jacob and his sons: Reuben, Jacob’s firstborn.
+> ¶ And these <i>are</i> the <u>names</u>[^a] of the <u>children of Israel</u>[^b], which came into Egypt, Jacob and his sons: Reuben, Jacob’s firstborn.
 
 [Genesis 46:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.8?lang=eng#p8)
 

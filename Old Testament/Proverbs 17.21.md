@@ -1,6 +1,6 @@
 # Proverbs 17:21
 
-> He that begetteth a <u>fool</u>[^a] *doeth it* to his sorrow: and the father of a fool hath no joy.
+> He that begetteth a <u>fool</u>[^a] <i>doeth it</i> to his sorrow: and the father of a fool hath no joy.
 
 [Proverbs 17:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.21?lang=eng#p21)
 

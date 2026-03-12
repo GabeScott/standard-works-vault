@@ -1,6 +1,6 @@
 # Isaiah 54:5
 
-> For thy Maker *is* thine <u>husband</u>[^a]; the <u>Lord of hosts</u>[^b] *is* his name; and thy <u>Redeemer</u>[^c] the Holy One of Israel; The <u>God</u>[^d] of the whole earth shall he be called.
+> For thy Maker <i>is</i> thine <u>husband</u>[^a]; the <u>Lord of hosts</u>[^b] <i>is</i> his name; and thy <u>Redeemer</u>[^c] the Holy One of Israel; The <u>God</u>[^d] of the whole earth shall he be called.
 
 [Isaiah 54:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.5?lang=eng#p5)
 

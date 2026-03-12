@@ -1,6 +1,6 @@
 # 2 Chronicles 21:6
 
-> And he walked in the way of the kings of Israel, like as did the house of <u>Ahab</u>[^a]: for he had the daughter of Ahab to wife: and he wrought *that which was* evil in the eyes of the LORD.
+> And he walked in the way of the kings of Israel, like as did the house of <u>Ahab</u>[^a]: for he had the daughter of Ahab to wife: and he wrought <i>that which was</i> evil in the eyes of the LORD.
 
 [2 Chronicles 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/21.6?lang=eng#p6)
 

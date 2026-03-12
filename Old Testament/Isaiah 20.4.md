@@ -1,6 +1,6 @@
 # Isaiah 20:4
 
-> So shall the <u>king</u>[^a] of Assyria lead away the Egyptians prisoners, and the <u>Ethiopians</u>[^b] captives, young and old, naked and barefoot, even with *their* buttocks uncovered, to the shame of Egypt.
+> So shall the <u>king</u>[^a] of Assyria lead away the Egyptians prisoners, and the <u>Ethiopians</u>[^b] captives, young and old, naked and barefoot, even with <i>their</i> buttocks uncovered, to the shame of Egypt.
 
 [Isaiah 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/20.4?lang=eng#p4)
 

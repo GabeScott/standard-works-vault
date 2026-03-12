@@ -1,6 +1,6 @@
 # 2 Kings 16:7
 
-> So Ahaz sent messengers to <u>Tiglath-pileser</u>[^a] king of <u>Assyria</u>[^b], saying, I *am* thy servant and thy son: come up, and <u>save</u>[^c] me out of the hand of the king of Syria, and out of the hand of the king of Israel, which rise up against me.
+> So Ahaz sent messengers to <u>Tiglath-pileser</u>[^a] king of <u>Assyria</u>[^b], saying, I <i>am</i> thy servant and thy son: come up, and <u>save</u>[^c] me out of the hand of the king of Syria, and out of the hand of the king of Israel, which rise up against me.
 
 [2 Kings 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/16.7?lang=eng#p7)
 

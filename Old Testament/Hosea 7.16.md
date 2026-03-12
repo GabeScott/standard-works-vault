@@ -1,6 +1,6 @@
 # Hosea 7:16
 
-> They return, *but* not to the <u>most</u>[^a] High: they are like a <u>deceitful</u>[^b] bow: their princes shall <u>fall</u>[^c] by the sword for the rage of their tongue: this *shall be* their derision in the land of Egypt.
+> They return, <i>but</i> not to the <u>most</u>[^a] High: they are like a <u>deceitful</u>[^b] bow: their princes shall <u>fall</u>[^c] by the sword for the rage of their tongue: this <i>shall be</i> their derision in the land of Egypt.
 
 [Hosea 7:16](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/7.16?lang=eng#p16)
 

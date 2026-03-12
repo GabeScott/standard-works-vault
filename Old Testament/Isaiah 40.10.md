@@ -1,6 +1,6 @@
 # Isaiah 40:10
 
-> Behold, the Lord GOD will come with strong *hand,* and his <u>arm</u>[^a] shall rule for him: behold, his <u>reward</u>[^b] *is* with him, and his work before him.
+> Behold, the Lord GOD will come with strong <i>hand,</i> and his <u>arm</u>[^a] shall rule for him: behold, his <u>reward</u>[^b] <i>is</i> with him, and his work before him.
 
 [Isaiah 40:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.10?lang=eng#p10)
 

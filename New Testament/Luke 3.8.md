@@ -1,6 +1,6 @@
 # Luke 3:8
 
-> Bring forth therefore <u>fruits</u>[^a] <u>worthy</u>[^b] of <u>repentance</u>[^c], and begin not to say within yourselves, <u>We</u>[^d] have <u>Abraham</u>[^e] to *our* father: for I say unto you, That God is able of these stones to raise up children unto Abraham.
+> Bring forth therefore <u>fruits</u>[^a] <u>worthy</u>[^b] of <u>repentance</u>[^c], and begin not to say within yourselves, <u>We</u>[^d] have <u>Abraham</u>[^e] to <i>our</i> father: for I say unto you, That God is able of these stones to raise up children unto Abraham.
 
 [Luke 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.8?lang=eng#p8)
 

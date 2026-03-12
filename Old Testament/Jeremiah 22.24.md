@@ -1,6 +1,6 @@
 # Jeremiah 22:24
 
-> *As* I live, saith the LORD, though <u>Coniah</u>[^a] the son of <u>Jehoiakim</u>[^b] king of Judah were the signet upon my right hand, yet would I pluck thee thence;
+> <i>As</i> I live, saith the LORD, though <u>Coniah</u>[^a] the son of <u>Jehoiakim</u>[^b] king of Judah were the signet upon my right hand, yet would I pluck thee thence;
 
 [Jeremiah 22:24](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.24?lang=eng#p24)
 

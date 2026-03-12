@@ -1,6 +1,6 @@
 # 1 Peter 1:18
 
-> Forasmuch as ye know that ye were not <u>redeemed</u>[^a] with corruptible things, *as* silver and gold, from your <u>vain conversation</u>[^b] *received* by <u>tradition</u>[^c] from your fathers;
+> Forasmuch as ye know that ye were not <u>redeemed</u>[^a] with corruptible things, <i>as</i> silver and gold, from your <u>vain conversation</u>[^b] <i>received</i> by <u>tradition</u>[^c] from your fathers;
 
 [1 Peter 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.18?lang=eng#p18)
 

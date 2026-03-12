@@ -1,6 +1,6 @@
 # Numbers 14:13
 
-> ¶ And Moses said unto the LORD, Then the <u>Egyptians</u>[^a] shall hear *it,* (for thou broughtest up this people in thy might from among them;)
+> ¶ And Moses said unto the LORD, Then the <u>Egyptians</u>[^a] shall hear <i>it,</i> (for thou broughtest up this people in thy might from among them;)
 
 [Numbers 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Hebrews 9:4
 
-> Which had the golden censer, and the <u>ark</u>[^a] of the covenant overlaid round about with gold, wherein *was* the golden <u>pot</u>[^b] that had manna, and <u>Aaron’s</u>[^c] rod that budded, and the <u>tables</u>[^d] of the covenant;
+> Which had the golden censer, and the <u>ark</u>[^a] of the covenant overlaid round about with gold, wherein <i>was</i> the golden <u>pot</u>[^b] that had manna, and <u>Aaron’s</u>[^c] rod that budded, and the <u>tables</u>[^d] of the covenant;
 
 [Hebrews 9:4](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.4?lang=eng#p4)
 

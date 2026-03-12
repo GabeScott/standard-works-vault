@@ -1,6 +1,6 @@
 # Job 12:13
 
-> With him *is* <u>wisdom</u>[^a] and <u>strength</u>[^b], he hath counsel and understanding.
+> With him <i>is</i> <u>wisdom</u>[^a] and <u>strength</u>[^b], he hath counsel and understanding.
 
 [Job 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/job/12.13?lang=eng#p13)
 

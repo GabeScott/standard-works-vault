@@ -1,6 +1,6 @@
 # 2 Timothy 3:14
 
-> But <u>continue</u>[^a] thou in the things which thou hast learned and hast been assured of, knowing of whom thou hast learned *them;*
+> But <u>continue</u>[^a] thou in the things which thou hast learned and hast been assured of, knowing of whom thou hast learned <i>them;</i>
 
 [2 Timothy 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.14?lang=eng#p14)
 

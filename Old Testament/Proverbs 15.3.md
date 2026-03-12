@@ -1,6 +1,6 @@
 # Proverbs 15:3
 
-> The <u>eyes</u>[^a] of the LORD *are* in every place, beholding the evil and the good.
+> The <u>eyes</u>[^a] of the LORD <i>are</i> in every place, beholding the evil and the good.
 
 [Proverbs 15:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.3?lang=eng#p3)
 

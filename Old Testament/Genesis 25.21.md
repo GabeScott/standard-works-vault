@@ -1,6 +1,6 @@
 # Genesis 25:21
 
-> And Isaac entreated the LORD for his <u>wife</u>[^a], because she *was* <u>barren</u>[^b]: and the LORD was <u>entreated</u>[^c] of him, and Rebekah his wife conceived.
+> And Isaac entreated the LORD for his <u>wife</u>[^a], because she <i>was</i> <u>barren</u>[^b]: and the LORD was <u>entreated</u>[^c] of him, and Rebekah his wife conceived.
 
 [Genesis 25:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.21?lang=eng#p21)
 

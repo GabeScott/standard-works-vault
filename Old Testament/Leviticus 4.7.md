@@ -1,6 +1,6 @@
 # Leviticus 4:7
 
-> And the priest shall put *some* of the blood upon the <u>horns</u>[^a] of the altar of sweet incense before the LORD, which *is* in the tabernacle of the congregation; and shall <u>pour</u>[^b] all the blood of the bullock at the bottom of the altar of the burnt offering, which *is at* the door of the tabernacle of the congregation.
+> And the priest shall put <i>some</i> of the blood upon the <u>horns</u>[^a] of the altar of sweet incense before the LORD, which <i>is</i> in the tabernacle of the congregation; and shall <u>pour</u>[^b] all the blood of the bullock at the bottom of the altar of the burnt offering, which <i>is at</i> the door of the tabernacle of the congregation.
 
 [Leviticus 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.7?lang=eng#p7)
 

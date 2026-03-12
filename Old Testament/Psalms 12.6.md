@@ -1,6 +1,6 @@
 # Psalms 12:6
 
-> The <u>words</u>[^a] of the LORD *are* <u>pure</u>[^b] words: *as* silver tried in a furnace of earth, purified seven times.
+> The <u>words</u>[^a] of the LORD <i>are</i> <u>pure</u>[^b] words: <i>as</i> silver tried in a furnace of earth, purified seven times.
 
 [Psalms 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/12.6?lang=eng#p6)
 

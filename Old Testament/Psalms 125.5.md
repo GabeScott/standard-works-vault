@@ -1,6 +1,6 @@
 # Psalms 125:5
 
-> As for such as turn aside unto their crooked ways, the LORD shall lead them forth with the workers of iniquity: *but* <u>peace</u>[^a] *shall be* upon Israel.
+> As for such as turn aside unto their crooked ways, the LORD shall lead them forth with the workers of iniquity: <i>but</i> <u>peace</u>[^a] <i>shall be</i> upon Israel.
 
 [Psalms 125:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/125.5?lang=eng#p5)
 

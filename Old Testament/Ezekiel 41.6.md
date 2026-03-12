@@ -1,6 +1,6 @@
 # Ezekiel 41:6
 
-> And the side chambers *were* three, one over another, and thirty in order; and they entered into the wall which *was* of the house for the side <u>chambers</u>[^a] round about, that they might have hold, but they had not hold in the wall of the house.
+> And the side chambers <i>were</i> three, one over another, and thirty in order; and they entered into the wall which <i>was</i> of the house for the side <u>chambers</u>[^a] round about, that they might have hold, but they had not hold in the wall of the house.
 
 [Ezekiel 41:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.6?lang=eng#p6)
 

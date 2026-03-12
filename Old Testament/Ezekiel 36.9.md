@@ -1,6 +1,6 @@
 # Ezekiel 36:9
 
-> For, behold, I *am* for you, and I will <u>turn</u>[^a] unto you, and ye shall be tilled and sown:
+> For, behold, I <i>am</i> for you, and I will <u>turn</u>[^a] unto you, and ye shall be tilled and sown:
 
 [Ezekiel 36:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.9?lang=eng#p9)
 

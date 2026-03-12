@@ -1,6 +1,6 @@
 # Exodus 34:19
 
-> All that <u>openeth</u>[^a] the <u>matrix</u>[^b] *is* mine; and every firstling among thy cattle, *whether* ox or sheep, *that is male.*
+> All that <u>openeth</u>[^a] the <u>matrix</u>[^b] <i>is</i> mine; and every firstling among thy cattle, <i>whether</i> ox or sheep, <i>that is male.</i>
 
 [Exodus 34:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.19?lang=eng#p19)
 

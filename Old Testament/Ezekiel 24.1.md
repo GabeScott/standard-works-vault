@@ -1,6 +1,6 @@
 # Ezekiel 24:1
 
-> Again in the <u>ninth</u>[^a] year, in the tenth month, in the tenth *day* of the month, the word of the LORD came unto me, saying,
+> Again in the <u>ninth</u>[^a] year, in the tenth month, in the tenth <i>day</i> of the month, the word of the LORD came unto me, saying,
 
 [Ezekiel 24:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.1?lang=eng#p1)
 

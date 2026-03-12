@@ -1,6 +1,6 @@
 # Philippians 2:10
 
-> That at the <u>name</u>[^a] of Jesus every <u>knee</u>[^b] should bow, of *things* in heaven, and *things* in earth, and *things* under the earth;
+> That at the <u>name</u>[^a] of Jesus every <u>knee</u>[^b] should bow, of <i>things</i> in heaven, and <i>things</i> in earth, and <i>things</i> under the earth;
 
 [Philippians 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.10?lang=eng#p10)
 

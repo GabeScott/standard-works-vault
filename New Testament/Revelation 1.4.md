@@ -1,6 +1,6 @@
 # Revelation 1:4
 
-> John to the <u>seven</u>[^a] churches which are in Asia: Grace *be* unto you, and peace, from him which <u>is</u>[^b], and which was, and which is to come; and from the seven <u>Spirits</u>[^c] which are before his throne;
+> John to the <u>seven</u>[^a] churches which are in Asia: Grace <i>be</i> unto you, and peace, from him which <u>is</u>[^b], and which was, and which is to come; and from the seven <u>Spirits</u>[^c] which are before his throne;
 
 [Revelation 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.4?lang=eng#p4)
 

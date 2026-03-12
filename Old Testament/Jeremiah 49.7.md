@@ -1,6 +1,6 @@
 # Jeremiah 49:7
 
-> ¶ Concerning <u>Edom</u>[^a], thus saith the LORD of hosts; *Is* wisdom no more in Teman? is counsel perished from the <u>prudent</u>[^b]? is their wisdom vanished?
+> ¶ Concerning <u>Edom</u>[^a], thus saith the LORD of hosts; <i>Is</i> wisdom no more in Teman? is counsel perished from the <u>prudent</u>[^b]? is their wisdom vanished?
 
 [Jeremiah 49:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/49.7?lang=eng#p7)
 

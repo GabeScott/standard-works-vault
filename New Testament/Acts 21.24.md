@@ -1,6 +1,6 @@
 # Acts 21:24
 
-> Them take, and purify thyself with them, and <u>be</u>[^a] at charges with them, that they may <u>shave</u>[^b] *their* heads: and all may know that those things, whereof they were informed concerning thee, are nothing; but *that* thou thyself also walkest orderly, and keepest the law.
+> Them take, and purify thyself with them, and <u>be</u>[^a] at charges with them, that they may <u>shave</u>[^b] <i>their</i> heads: and all may know that those things, whereof they were informed concerning thee, are nothing; but <i>that</i> thou thyself also walkest orderly, and keepest the law.
 
 [Acts 21:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.24?lang=eng#p24)
 

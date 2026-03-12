@@ -1,6 +1,6 @@
 # Amos 6:5
 
-> That chant to the sound of the viol, *and* invent to themselves <u>instruments</u>[^a] of <u>musick</u>[^b], like David;
+> That chant to the sound of the viol, <i>and</i> invent to themselves <u>instruments</u>[^a] of <u>musick</u>[^b], like David;
 
 [Amos 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/6.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Exodus 26:15
 
-> ¶ And thou shalt make <u>boards</u>[^a] for the tabernacle *of* shittim <u>wood</u>[^b] standing up.
+> ¶ And thou shalt make <u>boards</u>[^a] for the tabernacle <i>of</i> shittim <u>wood</u>[^b] standing up.
 
 [Exodus 26:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/26.15?lang=eng#p15)
 

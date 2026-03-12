@@ -1,6 +1,6 @@
 # Exodus 15:26
 
-> And said, If thou wilt <u>diligently</u>[^a] <u>hearken</u>[^b] to the voice of the LORD thy God, and wilt do that which is right in his sight, and wilt give ear to his commandments, and <u>keep</u>[^c] all his statutes, I will put none of these <u>diseases</u>[^d] upon thee, which I have brought upon the Egyptians: for I *am* the LORD that <u>healeth</u>[^e] thee.
+> And said, If thou wilt <u>diligently</u>[^a] <u>hearken</u>[^b] to the voice of the LORD thy God, and wilt do that which is right in his sight, and wilt give ear to his commandments, and <u>keep</u>[^c] all his statutes, I will put none of these <u>diseases</u>[^d] upon thee, which I have brought upon the Egyptians: for I <i>am</i> the LORD that <u>healeth</u>[^e] thee.
 
 [Exodus 15:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.26?lang=eng#p26)
 

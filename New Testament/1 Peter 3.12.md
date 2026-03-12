@@ -1,6 +1,6 @@
 # 1 Peter 3:12
 
-> For the <u>eyes</u>[^a] of the Lord *are* over the <u>righteous</u>[^b], and his ears *are open* unto their <u>prayers</u>[^c]: but the face of the Lord *is* against them that do <u>evil</u>[^d].
+> For the <u>eyes</u>[^a] of the Lord <i>are</i> over the <u>righteous</u>[^b], and his ears <i>are open</i> unto their <u>prayers</u>[^c]: but the face of the Lord <i>is</i> against them that do <u>evil</u>[^d].
 
 [1 Peter 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.12?lang=eng#p12)
 

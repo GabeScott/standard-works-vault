@@ -1,6 +1,6 @@
 # Numbers 35:16
 
-> And if he smite him with an instrument of iron, so that he die, he *is* a murderer: the <u>murderer</u>[^a] shall surely be put to <u>death</u>[^b].
+> And if he smite him with an instrument of iron, so that he die, he <i>is</i> a murderer: the <u>murderer</u>[^a] shall surely be put to <u>death</u>[^b].
 
 [Numbers 35:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.16?lang=eng#p16)
 

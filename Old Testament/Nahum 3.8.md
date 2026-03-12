@@ -1,6 +1,6 @@
 # Nahum 3:8
 
-> Art thou better than <u>populous No</u>[^a], that was situate among the rivers, *that had* the waters round about it, whose rampart *was* the sea, *and* her <u>wall</u>[^b] *was* from the sea?
+> Art thou better than <u>populous No</u>[^a], that was situate among the rivers, <i>that had</i> the waters round about it, whose rampart <i>was</i> the sea, <i>and</i> her <u>wall</u>[^b] <i>was</i> from the sea?
 
 [Nahum 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/3.8?lang=eng#p8)
 

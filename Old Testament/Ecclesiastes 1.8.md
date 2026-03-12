@@ -1,6 +1,6 @@
 # Ecclesiastes 1:8
 
-> All things *are* full of labour; man cannot utter *it:* the eye is not <u>satisfied</u>[^a] with seeing, nor the ear filled with hearing.
+> All things <i>are</i> full of labour; man cannot utter <i>it:</i> the eye is not <u>satisfied</u>[^a] with seeing, nor the ear filled with hearing.
 
 [Ecclesiastes 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Psalms 136:12
 
-> With a <u>strong</u>[^a] hand, and with a stretched out arm: for his mercy *endureth* for ever.
+> With a <u>strong</u>[^a] hand, and with a stretched out arm: for his mercy <i>endureth</i> for ever.
 
 [Psalms 136:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.12?lang=eng#p12)
 

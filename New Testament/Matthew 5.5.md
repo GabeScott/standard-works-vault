@@ -1,6 +1,6 @@
 # Matthew 5:5
 
-> Blessed *are* the <u>meek</u>[^a]: for they shall inherit the <u>earth</u>[^b].
+> Blessed <i>are</i> the <u>meek</u>[^a]: for they shall inherit the <u>earth</u>[^b].
 
 [Matthew 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.5?lang=eng#p5)
 

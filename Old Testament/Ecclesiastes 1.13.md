@@ -1,6 +1,6 @@
 # Ecclesiastes 1:13
 
-> And I gave my heart to seek and search out by <u>wisdom</u>[^a] concerning all *things* that are done under heaven: this <u>sore travail</u>[^b] hath God given to the sons of man to be exercised therewith.
+> And I gave my heart to seek and search out by <u>wisdom</u>[^a] concerning all <i>things</i> that are done under heaven: this <u>sore travail</u>[^b] hath God given to the sons of man to be exercised therewith.
 
 [Ecclesiastes 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.13?lang=eng#p13)
 

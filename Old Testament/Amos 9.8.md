@@ -1,6 +1,6 @@
 # Amos 9:8
 
-> Behold, the <u>eyes</u>[^a] of the Lord GOD *are* upon the sinful kingdom, and I will <u>destroy</u>[^b] it from off the face of the earth; saving that I will not utterly <u>destroy</u>[^c] the house of Jacob, saith the LORD.
+> Behold, the <u>eyes</u>[^a] of the Lord GOD <i>are</i> upon the sinful kingdom, and I will <u>destroy</u>[^b] it from off the face of the earth; saving that I will not utterly <u>destroy</u>[^c] the house of Jacob, saith the LORD.
 
 [Amos 9:8](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.8?lang=eng#p8)
 

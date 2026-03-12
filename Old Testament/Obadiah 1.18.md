@@ -1,6 +1,6 @@
 # Obadiah 1:18
 
-> And the house of Jacob shall be a <u>fire</u>[^a], and the house of Joseph a flame, and the house of <u>Esau</u>[^b] for stubble, and they shall kindle in them, and devour them; and there shall not be *any* remaining of the house of Esau; for the LORD hath spoken *it.*
+> And the house of Jacob shall be a <u>fire</u>[^a], and the house of Joseph a flame, and the house of <u>Esau</u>[^b] for stubble, and they shall kindle in them, and devour them; and there shall not be <i>any</i> remaining of the house of Esau; for the LORD hath spoken <i>it.</i>
 
 [Obadiah 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/obad/1.18?lang=eng#p18)
 

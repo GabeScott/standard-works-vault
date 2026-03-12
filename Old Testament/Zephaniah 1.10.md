@@ -1,6 +1,6 @@
 # Zephaniah 1:10
 
-> And it shall come to pass in that day, saith the LORD, *that there shall be* the noise of a cry from the fish <u>gate</u>[^a], and an howling from <u>the second</u>[^b], and a great crashing from the hills.
+> And it shall come to pass in that day, saith the LORD, <i>that there shall be</i> the noise of a cry from the fish <u>gate</u>[^a], and an howling from <u>the second</u>[^b], and a great crashing from the hills.
 
 [Zephaniah 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # 1 Kings 16:25
 
-> ¶ But <u>Omri</u>[^a] wrought <u>evil</u>[^b] in the eyes of the LORD, and did worse than all that *were* before him.
+> ¶ But <u>Omri</u>[^a] wrought <u>evil</u>[^b] in the eyes of the LORD, and did worse than all that <i>were</i> before him.
 
 [1 Kings 16:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.25?lang=eng#p25)
 

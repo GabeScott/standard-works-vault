@@ -1,6 +1,6 @@
 # Leviticus 19:18
 
-> ¶ Thou shalt not <u>avenge</u>[^a], nor bear any <u>grudge</u>[^b] against the children of thy people, but thou shalt <u>love</u>[^c] thy <u>neighbour</u>[^d] as thyself: I *am* the LORD.
+> ¶ Thou shalt not <u>avenge</u>[^a], nor bear any <u>grudge</u>[^b] against the children of thy people, but thou shalt <u>love</u>[^c] thy <u>neighbour</u>[^d] as thyself: I <i>am</i> the LORD.
 
 [Leviticus 19:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.18?lang=eng#p18)
 

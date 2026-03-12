@@ -1,6 +1,6 @@
 # Exodus 30:10
 
-> And Aaron shall make an atonement upon the horns of it <u>once</u>[^a] in a year with the <u>blood</u>[^b] of the sin offering of <u>atonements</u>[^c]: once in the year shall he make atonement upon it throughout your generations: it *is* most holy unto the LORD.
+> And Aaron shall make an atonement upon the horns of it <u>once</u>[^a] in a year with the <u>blood</u>[^b] of the sin offering of <u>atonements</u>[^c]: once in the year shall he make atonement upon it throughout your generations: it <i>is</i> most holy unto the LORD.
 
 [Exodus 30:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.10?lang=eng#p10)
 

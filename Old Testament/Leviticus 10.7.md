@@ -1,6 +1,6 @@
 # Leviticus 10:7
 
-> And ye shall not go out from the door of the tabernacle of the congregation, lest ye die: for the <u>anointing oil</u>[^a] of the LORD *is* upon you. And they did according to the word of Moses.
+> And ye shall not go out from the door of the tabernacle of the congregation, lest ye die: for the <u>anointing oil</u>[^a] of the LORD <i>is</i> upon you. And they did according to the word of Moses.
 
 [Leviticus 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.7?lang=eng#p7)
 

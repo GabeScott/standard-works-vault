@@ -1,6 +1,6 @@
 # Ezekiel 20:13
 
-> But the house of Israel <u>rebelled</u>[^a] against me in the wilderness: they walked not in my statutes, and they <u>despised</u>[^b] my judgments, which *if* a man do, he shall even live in them; and my sabbaths they greatly polluted: then I said, I would pour out my fury upon them in the <u>wilderness</u>[^c], to consume them.
+> But the house of Israel <u>rebelled</u>[^a] against me in the wilderness: they walked not in my statutes, and they <u>despised</u>[^b] my judgments, which <i>if</i> a man do, he shall even live in them; and my sabbaths they greatly polluted: then I said, I would pour out my fury upon them in the <u>wilderness</u>[^c], to consume them.
 
 [Ezekiel 20:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.13?lang=eng#p13)
 

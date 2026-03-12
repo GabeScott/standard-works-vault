@@ -1,6 +1,6 @@
 # Matthew 7:14
 
-> Because <u>strait</u>[^a] *is* the <u>gate</u>[^b], and narrow *is* the way, which leadeth unto <u>life</u>[^c], and few there be that find it.
+> Because <u>strait</u>[^a] <i>is</i> the <u>gate</u>[^b], and narrow <i>is</i> the way, which leadeth unto <u>life</u>[^c], and few there be that find it.
 
 [Matthew 7:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.14?lang=eng#p14)
 

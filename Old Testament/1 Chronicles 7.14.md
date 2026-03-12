@@ -1,6 +1,6 @@
 # 1 Chronicles 7:14
 
-> ¶ The sons of <u>Manasseh</u>[^a]; Ashriel, whom she bare: (*but* his concubine the Aramitess bare Machir the father of Gilead:
+> ¶ The sons of <u>Manasseh</u>[^a]; Ashriel, whom she bare: (<i>but</i> his concubine the Aramitess bare Machir the father of Gilead:
 
 [1 Chronicles 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/7.14?lang=eng#p14)
 

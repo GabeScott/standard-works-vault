@@ -1,6 +1,6 @@
 # Psalms 53:1
 
-> The <u>fool</u>[^a] hath said in his heart, *There is* no God. Corrupt are they, and have done abominable iniquity: *there is* <u>none</u>[^b] that doeth good.
+> The <u>fool</u>[^a] hath said in his heart, <i>There is</i> no God. Corrupt are they, and have done abominable iniquity: <i>there is</i> <u>none</u>[^b] that doeth good.
 
 [Psalms 53:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/53.1?lang=eng#p1)
 

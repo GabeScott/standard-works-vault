@@ -1,6 +1,6 @@
 # Ezekiel 29:12
 
-> And I will make the land of Egypt desolate in the midst of the countries *that are* desolate, and her cities among the cities *that are* laid waste shall be desolate forty years: and I will <u>scatter</u>[^a] the Egyptians among the nations, and will disperse them through the countries.
+> And I will make the land of Egypt desolate in the midst of the countries <i>that are</i> desolate, and her cities among the cities <i>that are</i> laid waste shall be desolate forty years: and I will <u>scatter</u>[^a] the Egyptians among the nations, and will disperse them through the countries.
 
 [Ezekiel 29:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # 1 Kings 8:51
 
-> For they *be* thy <u>people</u>[^a], and thine <u>inheritance</u>[^b], which thou broughtest forth out of Egypt, from the midst of the furnace of iron:
+> For they <i>be</i> thy <u>people</u>[^a], and thine <u>inheritance</u>[^b], which thou broughtest forth out of Egypt, from the midst of the furnace of iron:
 
 [1 Kings 8:51](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.51?lang=eng#p51)
 

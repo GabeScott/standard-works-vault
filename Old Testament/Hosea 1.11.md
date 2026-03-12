@@ -1,6 +1,6 @@
 # Hosea 1:11
 
-> Then shall the children of Judah and the children of Israel be <u>gathered</u>[^a] together, and appoint themselves one head, and they shall come up out of the land: for great *shall be* the day of Jezreel.
+> Then shall the children of Judah and the children of Israel be <u>gathered</u>[^a] together, and appoint themselves one head, and they shall come up out of the land: for great <i>shall be</i> the day of Jezreel.
 
 [Hosea 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/1.11?lang=eng#p11)
 

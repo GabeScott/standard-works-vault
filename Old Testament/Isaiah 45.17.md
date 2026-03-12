@@ -1,9 +1,10 @@
 # Isaiah 45:17
 
-> *But* Israel shall be <u>saved</u>[^a] in the <u>Lord</u>[^b] with an everlasting <u>salvation</u>[^c]: ye shall not be ashamed nor confounded world without end.
+> <i>But</i> Israel shall be <u>saved</u>[^a] in the <u>Lord</u>[^b] with an everlasting <u>salvation</u>[^c]: ye shall not be ashamed nor confounded world without end.
 
 [Isaiah 45:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.17?lang=eng#p17)
 
 
-[^a]: [[D&C 35.25|D&C 35:25]]; [[D&C 38.33|38:33]].  
-[^c]: [[Salvation, Plan of|TG Salvation, Plan of]].  
+[^a]: [[D&C 35.25|D&C 35:25]]; [[D&C 38.33|38:33]].
+[^b]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].
+[^c]: [[Salvation, Plan of|TG Salvation, Plan of]].

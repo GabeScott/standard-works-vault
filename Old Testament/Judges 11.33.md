@@ -1,6 +1,6 @@
 # Judges 11:33
 
-> And he smote them from Aroer, even till thou come to <u>Minnith</u>[^a], *even* twenty cities, and unto the plain of the vineyards, with a very great slaughter. Thus the children of Ammon were subdued before the children of Israel.
+> And he smote them from Aroer, even till thou come to <u>Minnith</u>[^a], <i>even</i> twenty cities, and unto the plain of the vineyards, with a very great slaughter. Thus the children of Ammon were subdued before the children of Israel.
 
 [Judges 11:33](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.33?lang=eng#p33)
 

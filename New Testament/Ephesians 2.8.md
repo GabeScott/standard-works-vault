@@ -1,6 +1,6 @@
 # Ephesians 2:8
 
-> For by <u>grace</u>[^a] are ye <u>saved</u>[^b] through <u>faith</u>[^c]; and that not of yourselves: *it is* the <u>gift</u>[^d] of God:
+> For by <u>grace</u>[^a] are ye <u>saved</u>[^b] through <u>faith</u>[^c]; and that not of yourselves: <i>it is</i> the <u>gift</u>[^d] of God:
 
 [Ephesians 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.8?lang=eng#p8)
 

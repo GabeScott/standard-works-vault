@@ -1,6 +1,6 @@
 # Hebrews 7:14
 
-> For *it is* evident that our Lord sprang out of <u>Juda</u>[^a]; of which tribe Moses spake nothing concerning priesthood.
+> For <i>it is</i> evident that our Lord sprang out of <u>Juda</u>[^a]; of which tribe Moses spake nothing concerning priesthood.
 
 [Hebrews 7:14](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.14?lang=eng#p14)
 

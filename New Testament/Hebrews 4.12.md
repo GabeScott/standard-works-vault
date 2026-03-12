@@ -1,6 +1,6 @@
 # Hebrews 4:12
 
-> For the <u>word</u>[^a] of God *is* <u>quick</u>[^b], and powerful, and sharper than any twoedged <u>sword</u>[^c], <u>piercing</u>[^d] even to the dividing asunder of <u>soul</u>[^e] and spirit, and of the joints and marrow, and *is* a <u>discerner</u>[^f] of the <u>thoughts</u>[^g] and <u>intents</u>[^h] of the heart.
+> For the <u>word</u>[^a] of God <i>is</i> <u>quick</u>[^b], and powerful, and sharper than any twoedged <u>sword</u>[^c], <u>piercing</u>[^d] even to the dividing asunder of <u>soul</u>[^e] and spirit, and of the joints and marrow, and <i>is</i> a <u>discerner</u>[^f] of the <u>thoughts</u>[^g] and <u>intents</u>[^h] of the heart.
 
 [Hebrews 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.12?lang=eng#p12)
 

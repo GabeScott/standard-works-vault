@@ -1,6 +1,6 @@
 # Matthew 8:3
 
-> And Jesus put forth *his* hand, and touched him, saying, I will; be thou clean. And immediately his leprosy was <u>cleansed</u>[^a].
+> And Jesus put forth <i>his</i> hand, and touched him, saying, I will; be thou clean. And immediately his leprosy was <u>cleansed</u>[^a].
 
 [Matthew 8:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.3?lang=eng#p3)
 

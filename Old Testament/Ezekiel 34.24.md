@@ -1,6 +1,6 @@
 # Ezekiel 34:24
 
-> And I <u>the Lord</u>[^a] will be their <u>God</u>[^b], and my servant <u>David</u>[^c] a <u>prince</u>[^d] among them; I the LORD have spoken *it.*
+> And I <u>the Lord</u>[^a] will be their <u>God</u>[^b], and my servant <u>David</u>[^c] a <u>prince</u>[^d] among them; I the LORD have spoken <i>it.</i>
 
 [Ezekiel 34:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.24?lang=eng#p24)
 

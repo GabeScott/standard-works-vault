@@ -1,6 +1,6 @@
 # Isaiah 55:5
 
-> Behold, thou shalt call a nation *that* thou knowest not, and <u>nations</u>[^a] *that* knew not thee shall run unto thee because of the LORD thy God, and for the Holy One of Israel; for he hath glorified thee.
+> Behold, thou shalt call a nation <i>that</i> thou knowest not, and <u>nations</u>[^a] <i>that</i> knew not thee shall run unto thee because of the LORD thy God, and for the Holy One of Israel; for he hath glorified thee.
 
 [Isaiah 55:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.5?lang=eng#p5)
 

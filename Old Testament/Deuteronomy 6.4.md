@@ -1,6 +1,6 @@
 # Deuteronomy 6:4
 
-> <u>Hear</u>[^a], O Israel: The LORD our God *is* <u>one</u>[^b] LORD:
+> <u>Hear</u>[^a], O Israel: The LORD our God <i>is</i> <u>one</u>[^b] LORD:
 
 [Deuteronomy 6:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.4?lang=eng#p4)
 

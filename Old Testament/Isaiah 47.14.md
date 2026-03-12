@@ -1,6 +1,6 @@
 # Isaiah 47:14
 
-> Behold, they shall be as <u>stubble</u>[^a]; the fire shall burn them; they shall not deliver themselves from the power of the flame: *there shall* not *be* a coal to warm at, *nor* fire to sit before it.
+> Behold, they shall be as <u>stubble</u>[^a]; the fire shall burn them; they shall not deliver themselves from the power of the flame: <i>there shall</i> not <i>be</i> a coal to warm at, <i>nor</i> fire to sit before it.
 
 [Isaiah 47:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.14?lang=eng#p14)
 

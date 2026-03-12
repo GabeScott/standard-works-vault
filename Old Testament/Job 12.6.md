@@ -1,6 +1,6 @@
 # Job 12:6
 
-> The <u>tabernacles</u>[^a] of robbers <u>prosper</u>[^b], and they that provoke God are secure; into whose hand God bringeth *abundantly.*
+> The <u>tabernacles</u>[^a] of robbers <u>prosper</u>[^b], and they that provoke God are secure; into whose hand God bringeth <i>abundantly.</i>
 
 [Job 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/12.6?lang=eng#p6)
 

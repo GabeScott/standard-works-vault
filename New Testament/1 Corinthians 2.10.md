@@ -1,6 +1,6 @@
 # 1 Corinthians 2:10
 
-> But God hath <u>revealed</u>[^a] *them* unto us by his <u>Spirit</u>[^b]: for the <u>Spirit</u>[^c] <u>searcheth</u>[^d] all things, yea, the deep things of God.
+> But God hath <u>revealed</u>[^a] <i>them</i> unto us by his <u>Spirit</u>[^b]: for the <u>Spirit</u>[^c] <u>searcheth</u>[^d] all things, yea, the deep things of God.
 
 [1 Corinthians 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.10?lang=eng#p10)
 

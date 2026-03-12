@@ -1,6 +1,6 @@
 # Jeremiah 10:9
 
-> Silver spread into plates is brought from Tarshish, and gold from Uphaz, the work of the workman, and of the hands of the founder: blue and purple *is* their clothing: they *are* all the <u>work</u>[^a] of <u>cunning</u>[^b] *men.*
+> Silver spread into plates is brought from Tarshish, and gold from Uphaz, the work of the workman, and of the hands of the founder: blue and purple <i>is</i> their clothing: they <i>are</i> all the <u>work</u>[^a] of <u>cunning</u>[^b] <i>men.</i>
 
 [Jeremiah 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.9?lang=eng#p9)
 

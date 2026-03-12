@@ -1,6 +1,6 @@
 # Matthew 12:41
 
-> The men of <u>Nineveh</u>[^a] shall rise in judgment with this generation, and shall condemn it: because they <u>repented</u>[^b] at the preaching of Jonas; and, behold, a greater than Jonas *is* here.
+> The men of <u>Nineveh</u>[^a] shall rise in judgment with this generation, and shall condemn it: because they <u>repented</u>[^b] at the preaching of Jonas; and, behold, a greater than Jonas <i>is</i> here.
 
 [Matthew 12:41](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.41?lang=eng#p41)
 

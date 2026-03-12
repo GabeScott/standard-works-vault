@@ -1,6 +1,6 @@
 # Psalms 2:7
 
-> I will declare the decree: the LORD hath said unto me, Thou *art* my <u>Son</u>[^a]; this day have I begotten thee.
+> I will declare the decree: the LORD hath said unto me, Thou <i>art</i> my <u>Son</u>[^a]; this day have I begotten thee.
 
 [Psalms 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/2.7?lang=eng#p7)
 

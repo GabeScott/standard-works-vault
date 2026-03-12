@@ -1,6 +1,6 @@
 # Isaiah 22:23
 
-> And I will fasten him *as* a <u>nail</u>[^a] in a sure place; and he shall be for a glorious throne to his father’s house.
+> And I will fasten him <i>as</i> a <u>nail</u>[^a] in a sure place; and he shall be for a glorious throne to his father’s house.
 
 [Isaiah 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.23?lang=eng#p23)
 

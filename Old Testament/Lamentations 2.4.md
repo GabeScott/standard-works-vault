@@ -1,6 +1,6 @@
 # Lamentations 2:4
 
-> He hath bent his bow like an <u>enemy</u>[^a]: he stood with his right hand as an adversary, and slew all *that were* pleasant to the eye in the tabernacle of the daughter of Zion: he poured out his fury like fire.
+> He hath bent his bow like an <u>enemy</u>[^a]: he stood with his right hand as an adversary, and slew all <i>that were</i> pleasant to the eye in the tabernacle of the daughter of Zion: he poured out his fury like fire.
 
 [Lamentations 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.4?lang=eng#p4)
 

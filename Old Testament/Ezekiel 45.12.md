@@ -1,6 +1,6 @@
 # Ezekiel 45:12
 
-> And the <u>shekel</u>[^a] *shall be* twenty gerahs: twenty shekels, five and twenty shekels, fifteen shekels, shall be your maneh.
+> And the <u>shekel</u>[^a] <i>shall be</i> twenty gerahs: twenty shekels, five and twenty shekels, fifteen shekels, shall be your maneh.
 
 [Ezekiel 45:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # 2 Samuel 13:3
 
-> But Amnon had a friend, whose name *was* <u>Jonadab</u>[^a], the son of Shimeah David’s brother: and Jonadab *was* a very subtil man.
+> But Amnon had a friend, whose name <i>was</i> <u>Jonadab</u>[^a], the son of Shimeah David’s brother: and Jonadab <i>was</i> a very subtil man.
 
 [2 Samuel 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/13.3?lang=eng#p3)
 

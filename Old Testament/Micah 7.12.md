@@ -1,6 +1,6 @@
 # Micah 7:12
 
-> *In* that day *also* he shall <u>come</u>[^a] even to thee from Assyria, and *from* the fortified cities, and from the fortress even to the river, and from sea to sea, and *from* mountain to mountain.
+> <i>In</i> that day <i>also</i> he shall <u>come</u>[^a] even to thee from Assyria, and <i>from</i> the fortified cities, and from the fortress even to the river, and from sea to sea, and <i>from</i> mountain to mountain.
 
 [Micah 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.12?lang=eng#p12)
 

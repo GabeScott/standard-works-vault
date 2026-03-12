@@ -1,6 +1,6 @@
 # Matthew 5:30
 
-> And if thy right <u>hand</u>[^a] offend thee, cut it off, and cast *it* from thee: for it is profitable for thee that one of thy members should perish, and not *that* thy whole body should be cast into <u>hell</u>[^b].
+> And if thy right <u>hand</u>[^a] offend thee, cut it off, and cast <i>it</i> from thee: for it is profitable for thee that one of thy members should perish, and not <i>that</i> thy whole body should be cast into <u>hell</u>[^b].
 
 [Matthew 5:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.30?lang=eng#p30)
 

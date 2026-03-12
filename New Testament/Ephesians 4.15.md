@@ -1,6 +1,6 @@
 # Ephesians 4:15
 
-> But speaking the <u>truth</u>[^a] in love, may grow up into him in all things, which is the <u>head</u>[^b], *even* Christ:
+> But speaking the <u>truth</u>[^a] in love, may grow up into him in all things, which is the <u>head</u>[^b], <i>even</i> Christ:
 
 [Ephesians 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.15?lang=eng#p15)
 

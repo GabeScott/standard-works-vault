@@ -1,6 +1,6 @@
 # Proverbs 28:21
 
-> To have <u>respect</u>[^a] of persons *is* not good: for for a <u>piece</u>[^b] of <u>bread</u>[^c] *that* man will transgress.
+> To have <u>respect</u>[^a] of persons <i>is</i> not good: for for a <u>piece</u>[^b] of <u>bread</u>[^c] <i>that</i> man will transgress.
 
 [Proverbs 28:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.21?lang=eng#p21)
 

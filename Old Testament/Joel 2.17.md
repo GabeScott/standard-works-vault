@@ -1,6 +1,6 @@
 # Joel 2:17
 
-> Let the priests, the ministers of the LORD, <u>weep</u>[^a] between the porch and the altar, and let them say, Spare thy <u>people</u>[^b], O LORD, and give not thine heritage to <u>reproach</u>[^c], that the heathen should rule over them: wherefore should they say among the people, Where *is* their God?
+> Let the priests, the ministers of the LORD, <u>weep</u>[^a] between the porch and the altar, and let them say, Spare thy <u>people</u>[^b], O LORD, and give not thine heritage to <u>reproach</u>[^c], that the heathen should rule over them: wherefore should they say among the people, Where <i>is</i> their God?
 
 [Joel 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.17?lang=eng#p17)
 

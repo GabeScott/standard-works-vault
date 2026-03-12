@@ -1,6 +1,6 @@
 # Psalms 102:11
 
-> My days *are* like a <u>shadow</u>[^a] that declineth; and I am withered like <u>grass</u>[^b].
+> My days <i>are</i> like a <u>shadow</u>[^a] that declineth; and I am withered like <u>grass</u>[^b].
 
 [Psalms 102:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/102.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Hosea 1:10
 
-> ¶ Yet the <u>number</u>[^a] of the children of Israel shall be as the <u>sand</u>[^b] of the sea, which cannot be measured nor numbered; and it shall come to pass, *that* in the place where it was said unto them, Ye *are* not my people, *there* it shall be said unto them, *Ye are* the <u>sons</u>[^c] of the <u>living God</u>[^d].
+> ¶ Yet the <u>number</u>[^a] of the children of Israel shall be as the <u>sand</u>[^b] of the sea, which cannot be measured nor numbered; and it shall come to pass, <i>that</i> in the place where it was said unto them, Ye <i>are</i> not my people, <i>there</i> it shall be said unto them, <i>Ye are</i> the <u>sons</u>[^c] of the <u>living God</u>[^d].
 
 [Hosea 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/1.10?lang=eng#p10)
 

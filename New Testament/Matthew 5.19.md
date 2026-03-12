@@ -1,6 +1,6 @@
 # Matthew 5:19
 
-> <u>Whosoever</u>[^a] therefore shall <u>break</u>[^b] one of these least commandments, and shall <u>teach</u>[^c] men so, he shall be called the least in the kingdom of heaven: but whosoever shall do and <u>teach</u>[^d] *them,* the same shall be called great in the kingdom of heaven.
+> <u>Whosoever</u>[^a] therefore shall <u>break</u>[^b] one of these least commandments, and shall <u>teach</u>[^c] men so, he shall be called the least in the kingdom of heaven: but whosoever shall do and <u>teach</u>[^d] <i>them,</i> the same shall be called great in the kingdom of heaven.
 
 [Matthew 5:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.19?lang=eng#p19)
 

@@ -1,6 +1,6 @@
 # 1 Corinthians 1:3
 
-> Grace *be* unto you, and <u>peace</u>[^a], from God our Father, and *from* the Lord Jesus Christ.
+> Grace <i>be</i> unto you, and <u>peace</u>[^a], from God our Father, and <i>from</i> the Lord Jesus Christ.
 
 [1 Corinthians 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Psalms 51:4
 
-> Against thee, thee only, have I <u>sinned</u>[^a], and done *this* evil in thy sight: that thou mightest be <u>justified</u>[^b] when thou speakest, *and* be clear when thou judgest.
+> Against thee, thee only, have I <u>sinned</u>[^a], and done <i>this</i> evil in thy sight: that thou mightest be <u>justified</u>[^b] when thou speakest, <i>and</i> be clear when thou judgest.
 
 [Psalms 51:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.4?lang=eng#p4)
 

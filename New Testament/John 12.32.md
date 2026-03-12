@@ -1,6 +1,6 @@
 # John 12:32
 
-> And I, if I be <u>lifted up</u>[^a] from the earth, will <u>draw</u>[^b] all *men* unto me.
+> And I, if I be <u>lifted up</u>[^a] from the earth, will <u>draw</u>[^b] all <i>men</i> unto me.
 
 [John 12:32](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.32?lang=eng#p32)
 

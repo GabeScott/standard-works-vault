@@ -1,6 +1,6 @@
 # Isaiah 61:10
 
-> I will greatly rejoice in the LORD, my soul shall be joyful in my God; for he hath <u>clothed</u>[^a] me with the <u>garments</u>[^b] of salvation, he hath covered me with the robe of righteousness, as a bridegroom decketh *himself* with ornaments, and as a bride adorneth *herself* with her jewels.
+> I will greatly rejoice in the LORD, my soul shall be joyful in my God; for he hath <u>clothed</u>[^a] me with the <u>garments</u>[^b] of salvation, he hath covered me with the robe of righteousness, as a bridegroom decketh <i>himself</i> with ornaments, and as a bride adorneth <i>herself</i> with her jewels.
 
 [Isaiah 61:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.10?lang=eng#p10)
 

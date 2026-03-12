@@ -1,6 +1,6 @@
 # Ezekiel 6:8
 
-> ¶ Yet will I leave a <u>remnant</u>[^a], that ye may have *some* that shall <u>escape</u>[^b] the sword among the nations, when ye shall be <u>scattered</u>[^c] through the countries.
+> ¶ Yet will I leave a <u>remnant</u>[^a], that ye may have <i>some</i> that shall <u>escape</u>[^b] the sword among the nations, when ye shall be <u>scattered</u>[^c] through the countries.
 
 [Ezekiel 6:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/6.8?lang=eng#p8)
 

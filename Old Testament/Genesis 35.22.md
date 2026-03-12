@@ -1,6 +1,6 @@
 # Genesis 35:22
 
-> And it came to pass, when Israel dwelt in that land, that Reuben went and <u>lay</u>[^a] with Bilhah his father’s concubine: and Israel heard *it.* Now the <u>sons</u>[^b] of Jacob were <u>twelve</u>[^c]:
+> And it came to pass, when Israel dwelt in that land, that Reuben went and <u>lay</u>[^a] with Bilhah his father’s concubine: and Israel heard <i>it.</i> Now the <u>sons</u>[^b] of Jacob were <u>twelve</u>[^c]:
 
 [Genesis 35:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.22?lang=eng#p22)
 

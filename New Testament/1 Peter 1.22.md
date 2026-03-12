@@ -1,6 +1,6 @@
 # 1 Peter 1:22
 
-> Seeing ye have <u>purified</u>[^a] your <u>souls</u>[^b] in obeying the truth through the Spirit unto unfeigned <u>love</u>[^c] of the brethren, *see that ye* <u>love</u>[^d] one another with a pure heart fervently:
+> Seeing ye have <u>purified</u>[^a] your <u>souls</u>[^b] in obeying the truth through the Spirit unto unfeigned <u>love</u>[^c] of the brethren, <i>see that ye</i> <u>love</u>[^d] one another with a pure heart fervently:
 
 [1 Peter 1:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.22?lang=eng#p22)
 

@@ -1,6 +1,6 @@
 # Revelation 19:21
 
-> And the remnant were slain <u>with</u>[^a] the sword of him that sat upon the horse, which *sword* proceeded out of his mouth: and all the fowls were filled with their flesh.
+> And the remnant were slain <u>with</u>[^a] the sword of him that sat upon the horse, which <i>sword</i> proceeded out of his mouth: and all the fowls were filled with their flesh.
 
 [Revelation 19:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.21?lang=eng#p21)
 

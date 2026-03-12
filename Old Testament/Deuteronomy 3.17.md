@@ -1,6 +1,6 @@
 # Deuteronomy 3:17
 
-> The <u>plain</u>[^a] also, <u>and Jordan</u>[^b], and the coast *thereof,* from Chinnereth even unto the <u>sea</u>[^c] of the plain, *even* the salt sea, under Ashdoth-pisgah eastward.
+> The <u>plain</u>[^a] also, <u>and Jordan</u>[^b], and the coast <i>thereof,</i> from Chinnereth even unto the <u>sea</u>[^c] of the plain, <i>even</i> the salt sea, under Ashdoth-pisgah eastward.
 
 [Deuteronomy 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/3.17?lang=eng#p17)
 

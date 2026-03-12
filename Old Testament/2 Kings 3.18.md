@@ -1,6 +1,6 @@
 # 2 Kings 3:18
 
-> And this is *but* a <u>light</u>[^a] thing in the sight of the LORD: he will <u>deliver</u>[^b] the <u>Moabites</u>[^c] also into your hand.
+> And this is <i>but</i> a <u>light</u>[^a] thing in the sight of the LORD: he will <u>deliver</u>[^b] the <u>Moabites</u>[^c] also into your hand.
 
 [2 Kings 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/3.18?lang=eng#p18)
 

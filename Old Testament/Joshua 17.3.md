@@ -1,6 +1,6 @@
 # Joshua 17:3
 
-> ¶ But Zelophehad, the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, had no sons, but daughters: and these are the names of his daughters, Mahlah, and Noah, Hoglah, Milcah, and Tirzah.
+> ¶ But Zelophehad, the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, had no sons, but daughters: and these <i>are</i> the names of his daughters, Mahlah, and Noah, Hoglah, Milcah, and Tirzah.
 
 [Joshua 17:3](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/17.3?lang=eng#p3)
 

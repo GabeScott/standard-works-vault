@@ -1,6 +1,6 @@
 # 1 Corinthians 16:10
 
-> Now if <u>Timotheus</u>[^a] come, see that he may be with you without fear: for he worketh the work of the Lord, as I also *do.*
+> Now if <u>Timotheus</u>[^a] come, see that he may be with you without fear: for he worketh the work of the Lord, as I also <i>do.</i>
 
 [1 Corinthians 16:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.10?lang=eng#p10)
 

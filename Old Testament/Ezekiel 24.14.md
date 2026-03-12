@@ -1,6 +1,6 @@
 # Ezekiel 24:14
 
-> I the LORD have spoken *it:* it shall come to pass, and I will <u>do</u>[^a] *it;* I will not go back, neither will I spare, neither will I repent; according to thy ways, and according to thy doings, shall they judge thee, saith the Lord GOD.
+> I the LORD have spoken <i>it:</i> it shall come to pass, and I will <u>do</u>[^a] <i>it;</i> I will not go back, neither will I spare, neither will I repent; according to thy ways, and according to thy doings, shall they judge thee, saith the Lord GOD.
 
 [Ezekiel 24:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.14?lang=eng#p14)
 

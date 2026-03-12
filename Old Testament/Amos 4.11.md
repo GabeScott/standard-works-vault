@@ -1,6 +1,6 @@
 # Amos 4:11
 
-> I have overthrown *some* of you, as God <u>overthrew</u>[^a] <u>Sodom</u>[^b] and Gomorrah, and ye were as a <u>firebrand</u>[^c] plucked out of the <u>burning</u>[^d]: yet have ye not returned unto me, saith the LORD.
+> I have overthrown <i>some</i> of you, as God <u>overthrew</u>[^a] <u>Sodom</u>[^b] and Gomorrah, and ye were as a <u>firebrand</u>[^c] plucked out of the <u>burning</u>[^d]: yet have ye not returned unto me, saith the LORD.
 
 [Amos 4:11](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/4.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Matthew 25:21
 
-> His lord said unto him, Well done, *thou* good and faithful <u>servant</u>[^a]: thou hast been <u>faithful</u>[^b] over a few things, I will make thee <u>ruler</u>[^c] over many things: enter thou into the <u>joy</u>[^d] of thy lord.
+> His lord said unto him, Well done, <i>thou</i> good and faithful <u>servant</u>[^a]: thou hast been <u>faithful</u>[^b] over a few things, I will make thee <u>ruler</u>[^c] over many things: enter thou into the <u>joy</u>[^d] of thy lord.
 
 [Matthew 25:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.21?lang=eng#p21)
 

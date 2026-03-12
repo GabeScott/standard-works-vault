@@ -1,6 +1,6 @@
 # Genesis 42:11
 
-> We *are* all one <u>man’s</u>[^a] sons; we *are* true *men,* thy servants are no spies.
+> We <i>are</i> all one <u>man’s</u>[^a] sons; we <i>are</i> true <i>men,</i> thy servants are no spies.
 
 [Genesis 42:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.11?lang=eng#p11)
 

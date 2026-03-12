@@ -1,6 +1,6 @@
 # Exodus 29:2
 
-> And <u>unleavened</u>[^a] bread, and cakes unleavened <u>tempered</u>[^b] with oil, and wafers unleavened <u>anointed</u>[^c] with oil: *of* wheaten flour shalt thou make them.
+> And <u>unleavened</u>[^a] bread, and cakes unleavened <u>tempered</u>[^b] with oil, and wafers unleavened <u>anointed</u>[^c] with oil: <i>of</i> wheaten flour shalt thou make them.
 
 [Exodus 29:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.2?lang=eng#p2)
 

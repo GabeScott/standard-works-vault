@@ -1,6 +1,6 @@
 # Psalms 23:1
 
-> The LORD *is* my <u>shepherd</u>[^a]; I shall not <u>want</u>[^b].
+> The LORD <i>is</i> my <u>shepherd</u>[^a]; I shall not <u>want</u>[^b].
 
 [Psalms 23:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/23.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Psalms 78:1
 
-> Give <u>ear</u>[^a], O my people, *to* my law: incline your ears to the words of my mouth.
+> Give <u>ear</u>[^a], O my people, <i>to</i> my law: incline your ears to the words of my mouth.
 
 [Psalms 78:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Ezekiel 33:31
 
-> And they come unto thee as the people cometh, and they sit before thee *as* my people, and they <u>hear</u>[^a] thy words, but they will not do them: for with their <u>mouth</u>[^b] they shew much love, *but* their heart goeth after their <u>covetousness</u>[^c].
+> And they come unto thee as the people cometh, and they sit before thee <i>as</i> my people, and they <u>hear</u>[^a] thy words, but they will not do them: for with their <u>mouth</u>[^b] they shew much love, <i>but</i> their heart goeth after their <u>covetousness</u>[^c].
 
 [Ezekiel 33:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.31?lang=eng#p31)
 

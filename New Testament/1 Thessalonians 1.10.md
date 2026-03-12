@@ -1,6 +1,6 @@
 # 1 Thessalonians 1:10
 
-> And to wait for his Son from <u>heaven</u>[^a], whom he raised from the dead, *even* Jesus, which <u>delivered</u>[^b] us from the <u>wrath</u>[^c] to come.
+> And to wait for his Son from <u>heaven</u>[^a], whom he raised from the dead, <i>even</i> Jesus, which <u>delivered</u>[^b] us from the <u>wrath</u>[^c] to come.
 
 [1 Thessalonians 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/1.10?lang=eng#p10)
 

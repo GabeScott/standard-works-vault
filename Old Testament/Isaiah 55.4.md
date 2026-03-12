@@ -1,6 +1,6 @@
 # Isaiah 55:4
 
-> Behold, I have given him *for* a <u>witness</u>[^a] to the people, a <u>leader</u>[^b] and commander to the people.
+> Behold, I have given him <i>for</i> a <u>witness</u>[^a] to the people, a <u>leader</u>[^b] and commander to the people.
 
 [Isaiah 55:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.4?lang=eng#p4)
 

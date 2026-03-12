@@ -1,6 +1,6 @@
 # Exodus 3:13
 
-> And Moses said unto God, Behold, *when* I come unto the children of Israel, and shall say unto them, The God of your fathers hath sent me unto you; and they shall say to me, What *is* his name? <u>what</u>[^a] shall I say unto them?
+> And Moses said unto God, Behold, <i>when</i> I come unto the children of Israel, and shall say unto them, The God of your fathers hath sent me unto you; and they shall say to me, What <i>is</i> his name? <u>what</u>[^a] shall I say unto them?
 
 [Exodus 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.13?lang=eng#p13)
 

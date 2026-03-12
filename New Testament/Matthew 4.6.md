@@ -1,6 +1,6 @@
 # Matthew 4:6
 
-> <u>And saith</u>[^a] unto him, <u>If</u>[^b] thou be the Son of God, cast thyself down: for it is written, He shall give his angels charge concerning thee: and in *their* hands they shall bear thee up, lest at any time thou dash thy foot against a stone.
+> <u>And saith</u>[^a] unto him, <u>If</u>[^b] thou be the Son of God, cast thyself down: for it is written, He shall give his angels charge concerning thee: and in <i>their</i> hands they shall bear thee up, lest at any time thou dash thy foot against a stone.
 
 [Matthew 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.6?lang=eng#p6)
 

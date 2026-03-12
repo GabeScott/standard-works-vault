@@ -1,6 +1,6 @@
 # Isaiah 10:33
 
-> Behold, the Lord, the LORD of hosts, shall lop the bough with <u>terror</u>[^a]: and the high ones of stature *shall be* hewn down, and the <u>haughty</u>[^b] shall be humbled.
+> Behold, the Lord, the LORD of hosts, shall lop the bough with <u>terror</u>[^a]: and the high ones of stature <i>shall be</i> hewn down, and the <u>haughty</u>[^b] shall be humbled.
 
 [Isaiah 10:33](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.33?lang=eng#p33)
 

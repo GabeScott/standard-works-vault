@@ -1,6 +1,6 @@
 # 2 Corinthians 8:12
 
-> For if there be first a <u>willing</u>[^a] <u>mind</u>[^b], *it is* accepted according to that a man hath, *and* not according to that he hath not.
+> For if there be first a <u>willing</u>[^a] <u>mind</u>[^b], <i>it is</i> accepted according to that a man hath, <i>and</i> not according to that he hath not.
 
 [2 Corinthians 8:12](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.12?lang=eng#p12)
 

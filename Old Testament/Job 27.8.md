@@ -1,6 +1,6 @@
 # Job 27:8
 
-> For what *is* the <u>hope</u>[^a] of the hypocrite, though he hath <u>gained</u>[^b], when God taketh away his soul?
+> For what <i>is</i> the <u>hope</u>[^a] of the hypocrite, though he hath <u>gained</u>[^b], when God taketh away his soul?
 
 [Job 27:8](https://www.churchofjesuschrist.org/study/scriptures/ot/job/27.8?lang=eng#p8)
 

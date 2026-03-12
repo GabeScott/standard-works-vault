@@ -1,6 +1,6 @@
 # Isaiah 58:9
 
-> Then shalt thou <u>call</u>[^a], and the LORD shall answer; thou shalt cry, and he shall say, Here I *am.* If thou take away from the midst of thee the yoke, the <u>putting</u>[^b] forth of the finger, and speaking vanity;
+> Then shalt thou <u>call</u>[^a], and the LORD shall answer; thou shalt cry, and he shall say, Here I <i>am.</i> If thou take away from the midst of thee the yoke, the <u>putting</u>[^b] forth of the finger, and speaking vanity;
 
 [Isaiah 58:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.9?lang=eng#p9)
 

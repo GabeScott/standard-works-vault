@@ -1,6 +1,6 @@
 # Psalms 73:17
 
-> Until I went into the <u>sanctuary</u>[^a] of God; *then* understood I their <u>end</u>[^b].
+> Until I went into the <u>sanctuary</u>[^a] of God; <i>then</i> understood I their <u>end</u>[^b].
 
 [Psalms 73:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.17?lang=eng#p17)
 

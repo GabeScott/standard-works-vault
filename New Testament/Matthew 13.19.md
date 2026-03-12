@@ -1,6 +1,6 @@
 # Matthew 13:19
 
-> When any one heareth the word of the kingdom, and <u>understandeth</u>[^a] *it* not, then cometh the wicked *one,* and <u>catcheth</u>[^b] away that which was sown in his heart. This is he which received seed by the way side.
+> When any one heareth the word of the kingdom, and <u>understandeth</u>[^a] <i>it</i> not, then cometh the wicked <i>one,</i> and <u>catcheth</u>[^b] away that which was sown in his heart. This is he which received seed by the way side.
 
 [Matthew 13:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.19?lang=eng#p19)
 

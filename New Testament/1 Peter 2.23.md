@@ -1,6 +1,6 @@
 # 1 Peter 2:23
 
-> Who, when he was <u>reviled</u>[^a], reviled not again; when he suffered, he threatened not; but <u>committed</u>[^b] *himself* to him that judgeth righteously:
+> Who, when he was <u>reviled</u>[^a], reviled not again; when he suffered, he threatened not; but <u>committed</u>[^b] <i>himself</i> to him that judgeth righteously:
 
 [1 Peter 2:23](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.23?lang=eng#p23)
 

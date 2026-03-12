@@ -1,6 +1,6 @@
 # Daniel 3:5
 
-> *That* at what time ye hear the sound of the cornet, flute, <u>harp</u>[^a], <u>sackbut</u>[^b], psaltery, <u>dulcimer</u>[^c], and all kinds of musick, ye fall down and worship the golden image that Nebuchadnezzar the king hath set up:
+> <i>That</i> at what time ye hear the sound of the cornet, flute, <u>harp</u>[^a], <u>sackbut</u>[^b], psaltery, <u>dulcimer</u>[^c], and all kinds of musick, ye fall down and worship the golden image that Nebuchadnezzar the king hath set up:
 
 [Daniel 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/3.5?lang=eng#p5)
 

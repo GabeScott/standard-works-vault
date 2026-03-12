@@ -1,6 +1,6 @@
 # Genesis 39:8
 
-> But he <u>refused</u>[^a], and said unto his master’s wife, Behold, my master <u>wotteth</u>[^b] not what *is* with me in the house, and he hath <u>committed</u>[^c] all that he hath to my hand;
+> But he <u>refused</u>[^a], and said unto his master’s wife, Behold, my master <u>wotteth</u>[^b] not what <i>is</i> with me in the house, and he hath <u>committed</u>[^c] all that he hath to my hand;
 
 [Genesis 39:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Isaiah 14:16
 
-> They that see <u>thee</u>[^a] shall <u>narrowly look upon thee</u>[^b], *and* consider thee, *saying, Is* this the man that made the earth to tremble, that did shake kingdoms;
+> They that see <u>thee</u>[^a] shall <u>narrowly look upon thee</u>[^b], <i>and</i> consider thee, <i>saying, Is</i> this the man that made the earth to tremble, that did shake kingdoms;
 
 [Isaiah 14:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.16?lang=eng#p16)
 

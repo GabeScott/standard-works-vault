@@ -1,6 +1,6 @@
 # Ecclesiastes 4:13
 
-> ¶ Better *is* a <u>poor</u>[^a] and a wise child than an old and foolish king, who will no more be <u>admonished</u>[^b].
+> ¶ Better <i>is</i> a <u>poor</u>[^a] and a wise child than an old and foolish king, who will no more be <u>admonished</u>[^b].
 
 [Ecclesiastes 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/4.13?lang=eng#p13)
 

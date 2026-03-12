@@ -1,6 +1,6 @@
 # Leviticus 19:30
 
-> ¶ Ye shall keep my <u>sabbaths</u>[^a], and <u>reverence</u>[^b] my sanctuary: I *am* the LORD.
+> ¶ Ye shall keep my <u>sabbaths</u>[^a], and <u>reverence</u>[^b] my sanctuary: I <i>am</i> the LORD.
 
 [Leviticus 19:30](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.30?lang=eng#p30)
 

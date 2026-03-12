@@ -1,6 +1,6 @@
 # 2 Kings 9:36
 
-> Wherefore they came again, and told him. And he said, This *is* the word of the LORD, which he spake by his servant Elijah the Tishbite, saying, In the portion of Jezreel shall <u>dogs</u>[^a] eat the flesh of Jezebel:
+> Wherefore they came again, and told him. And he said, This <i>is</i> the word of the LORD, which he spake by his servant Elijah the Tishbite, saying, In the portion of Jezreel shall <u>dogs</u>[^a] eat the flesh of Jezebel:
 
 [2 Kings 9:36](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/9.36?lang=eng#p36)
 

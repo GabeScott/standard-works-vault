@@ -1,6 +1,6 @@
 # Ezekiel 42:4
 
-> And before the <u>chambers</u>[^a] *was* a walk of ten cubits breadth inward, a way of one cubit; and their doors toward the north.
+> And before the <u>chambers</u>[^a] <i>was</i> a walk of ten cubits breadth inward, a way of one cubit; and their doors toward the north.
 
 [Ezekiel 42:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/42.4?lang=eng#p4)
 

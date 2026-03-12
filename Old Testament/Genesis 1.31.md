@@ -1,6 +1,6 @@
 # Genesis 1:31
 
-> And God saw every thing that he had made, and, behold, *it was* very <u>good</u>[^a]. And the evening and the morning were the <u>sixth</u>[^b] day.
+> And God saw every thing that he had made, and, behold, <i>it was</i> very <u>good</u>[^a]. And the evening and the morning were the <u>sixth</u>[^b] day.
 
 [Genesis 1:31](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.31?lang=eng#p31)
 

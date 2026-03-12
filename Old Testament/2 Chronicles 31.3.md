@@ -1,6 +1,6 @@
 # 2 Chronicles 31:3
 
-> *He appointed* also the king’s portion of his substance for the burnt offerings, *to wit,* for the morning and evening burnt <u>offerings</u>[^a], and the burnt offerings for the <u>sabbaths</u>[^b], and for the <u>new</u>[^c] moons, and for the set <u>feasts</u>[^d], as *it is* written in the law of the LORD.
+> <i>He appointed</i> also the king’s portion of his substance for the burnt offerings, <i>to wit,</i> for the morning and evening burnt <u>offerings</u>[^a], and the burnt offerings for the <u>sabbaths</u>[^b], and for the <u>new</u>[^c] moons, and for the set <u>feasts</u>[^d], as <i>it is</i> written in the law of the LORD.
 
 [2 Chronicles 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/31.3?lang=eng#p3)
 

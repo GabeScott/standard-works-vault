@@ -1,6 +1,6 @@
 # Isaiah 38:12
 
-> Mine age is departed, and is removed from me as a shepherd’s tent: I have <u>cut off</u>[^a] like a weaver my life: he will cut me off <u>with pining sickness</u>[^b]: from day *even* to night wilt thou make an end of me.
+> Mine age is departed, and is removed from me as a shepherd’s tent: I have <u>cut off</u>[^a] like a weaver my life: he will cut me off <u>with pining sickness</u>[^b]: from day <i>even</i> to night wilt thou make an end of me.
 
 [Isaiah 38:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.12?lang=eng#p12)
 

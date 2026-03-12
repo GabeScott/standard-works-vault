@@ -1,6 +1,6 @@
 # 2 Samuel 22:31
 
-> *As for* God, his way *is* <u>perfect</u>[^a]; the <u>word</u>[^b] of the LORD *is* tried: he *is* a buckler to all them that trust in him.
+> <i>As for</i> God, his way <i>is</i> <u>perfect</u>[^a]; the <u>word</u>[^b] of the LORD <i>is</i> tried: he <i>is</i> a buckler to all them that trust in him.
 
 [2 Samuel 22:31](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.31?lang=eng#p31)
 

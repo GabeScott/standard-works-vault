@@ -1,6 +1,6 @@
 # Zephaniah 1:7
 
-> <u>Hold</u>[^a] thy peace at the presence of the Lord GOD: for the <u>day</u>[^b] of the LORD *is* at hand: for the LORD hath prepared a sacrifice, he hath bid his guests.
+> <u>Hold</u>[^a] thy peace at the presence of the Lord GOD: for the <u>day</u>[^b] of the LORD <i>is</i> at hand: for the LORD hath prepared a sacrifice, he hath bid his guests.
 
 [Zephaniah 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.7?lang=eng#p7)
 

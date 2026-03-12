@@ -1,6 +1,6 @@
 # Jeremiah 22:7
 
-> And I will prepare destroyers against thee, every one with his weapons: and they shall cut down thy choice <u>cedars</u>[^a], and cast *them* into the fire.
+> And I will prepare destroyers against thee, every one with his weapons: and they shall cut down thy choice <u>cedars</u>[^a], and cast <i>them</i> into the fire.
 
 [Jeremiah 22:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.7?lang=eng#p7)
 

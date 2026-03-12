@@ -1,6 +1,6 @@
 # Genesis 49:22
 
-> ¶ <u>Joseph</u>[^a] *is* a fruitful <u>bough</u>[^b], *even* a fruitful bough by a well; *whose* <u>branches</u>[^c] <u>run</u>[^d] over the wall:
+> ¶ <u>Joseph</u>[^a] <i>is</i> a fruitful <u>bough</u>[^b], <i>even</i> a fruitful bough by a well; <i>whose</i> <u>branches</u>[^c] <u>run</u>[^d] over the wall:
 
 [Genesis 49:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.22?lang=eng#p22)
 

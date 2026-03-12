@@ -1,6 +1,6 @@
 # Joshua 13:14
 
-> Only unto the tribe of Levi he gave none <u>inheritance</u>[^a]; the sacrifices of the LORD God of Israel made by fire *are* their inheritance, as he said unto them.
+> Only unto the tribe of Levi he gave none <u>inheritance</u>[^a]; the sacrifices of the LORD God of Israel made by fire <i>are</i> their inheritance, as he said unto them.
 
 [Joshua 13:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.14?lang=eng#p14)
 

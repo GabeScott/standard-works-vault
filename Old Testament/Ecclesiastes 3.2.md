@@ -1,6 +1,6 @@
 # Ecclesiastes 3:2
 
-> A <u>time</u>[^a] to be born, and a time to <u>die</u>[^b]; a time to plant, and a time to pluck up *that which is* planted;
+> A <u>time</u>[^a] to be born, and a time to <u>die</u>[^b]; a time to plant, and a time to pluck up <i>that which is</i> planted;
 
 [Ecclesiastes 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.2?lang=eng#p2)
 

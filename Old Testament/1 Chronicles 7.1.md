@@ -1,6 +1,6 @@
 # 1 Chronicles 7:1
 
-> Now the sons of <u>Issachar</u>[^a] *were,* Tola, and Puah, Jashub, and Shimron, four.
+> Now the sons of <u>Issachar</u>[^a] <i>were,</i> Tola, and Puah, Jashub, and Shimron, four.
 
 [1 Chronicles 7:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/7.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # 1 Timothy 6:13
 
-> I give thee charge in the sight of God, who <u>quickeneth</u>[^a] all things, and *before* Christ Jesus, who before <u>Pontius Pilate</u>[^b] <u>witnessed a good confession</u>[^c];
+> I give thee charge in the sight of God, who <u>quickeneth</u>[^a] all things, and <i>before</i> Christ Jesus, who before <u>Pontius Pilate</u>[^b] <u>witnessed a good confession</u>[^c];
 
 [1 Timothy 6:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.13?lang=eng#p13)
 

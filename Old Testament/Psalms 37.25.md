@@ -1,6 +1,6 @@
 # Psalms 37:25
 
-> I have been young, and *now* am old; yet have I not seen the <u>righteous</u>[^a] forsaken, nor his seed begging bread.
+> I have been young, and <i>now</i> am old; yet have I not seen the <u>righteous</u>[^a] forsaken, nor his seed begging bread.
 
 [Psalms 37:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.25?lang=eng#p25)
 

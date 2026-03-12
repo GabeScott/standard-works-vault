@@ -1,6 +1,6 @@
 # Job 4:7
 
-> Remember, I pray thee, who *ever* perished, being <u>innocent</u>[^a]? or where were the righteous cut off?
+> Remember, I pray thee, who <i>ever</i> perished, being <u>innocent</u>[^a]? or where were the righteous cut off?
 
 [Job 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/4.7?lang=eng#p7)
 

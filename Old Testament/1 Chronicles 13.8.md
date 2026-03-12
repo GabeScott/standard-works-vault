@@ -1,6 +1,6 @@
 # 1 Chronicles 13:8
 
-> And David and all Israel played before God with all *their* might, and with <u>singing</u>[^a], and with harps, and with psalteries, and with timbrels, and with cymbals, and with trumpets.
+> And David and all Israel played before God with all <i>their</i> might, and with <u>singing</u>[^a], and with harps, and with psalteries, and with timbrels, and with cymbals, and with trumpets.
 
 [1 Chronicles 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/13.8?lang=eng#p8)
 

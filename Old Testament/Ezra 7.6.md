@@ -1,6 +1,6 @@
 # Ezra 7:6
 
-> This Ezra went up from Babylon; and he *was* a ready <u>scribe</u>[^a] in the law of Moses, which the LORD God of Israel had given: and the king granted him all his request, according to the <u>hand</u>[^b] of the LORD his God upon him.
+> This Ezra went up from Babylon; and he <i>was</i> a ready <u>scribe</u>[^a] in the law of Moses, which the LORD God of Israel had given: and the king granted him all his request, according to the <u>hand</u>[^b] of the LORD his God upon him.
 
 [Ezra 7:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/7.6?lang=eng#p6)
 

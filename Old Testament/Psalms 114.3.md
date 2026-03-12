@@ -1,6 +1,6 @@
 # Psalms 114:3
 
-> The sea saw *it,* and <u>fled</u>[^a]: Jordan was driven back.
+> The sea saw <i>it,</i> and <u>fled</u>[^a]: Jordan was driven back.
 
 [Psalms 114:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/114.3?lang=eng#p3)
 

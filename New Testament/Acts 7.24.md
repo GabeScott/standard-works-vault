@@ -1,6 +1,6 @@
 # Acts 7:24
 
-> And seeing one *of them* suffer wrong, he defended *him,* and avenged him that was <u>oppressed</u>[^a], and <u>smote</u>[^b] the Egyptian:
+> And seeing one <i>of them</i> suffer wrong, he defended <i>him,</i> and avenged him that was <u>oppressed</u>[^a], and <u>smote</u>[^b] the Egyptian:
 
 [Acts 7:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.24?lang=eng#p24)
 

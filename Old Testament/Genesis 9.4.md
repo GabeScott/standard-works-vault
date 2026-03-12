@@ -1,6 +1,6 @@
 # Genesis 9:4
 
-> <u>But</u>[^a] flesh with the <u>life</u>[^b] thereof, *which is* the <u>blood</u>[^c] thereof, shall ye not eat.
+> <u>But</u>[^a] flesh with the <u>life</u>[^b] thereof, <i>which is</i> the <u>blood</u>[^c] thereof, shall ye not eat.
 
 [Genesis 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9.4?lang=eng#p4)
 

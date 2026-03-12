@@ -1,6 +1,6 @@
 # Romans 1:20
 
-> For the <u>invisible</u>[^a] things of him from the creation of the world are clearly seen, being understood by the things that are made, *even* his <u>eternal</u>[^b] <u>power</u>[^c] and Godhead; so that they are without excuse:
+> For the <u>invisible</u>[^a] things of him from the creation of the world are clearly seen, being understood by the things that are made, <i>even</i> his <u>eternal</u>[^b] <u>power</u>[^c] and Godhead; so that they are without excuse:
 
 [Romans 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.20?lang=eng#p20)
 

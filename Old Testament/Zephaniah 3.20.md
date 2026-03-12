@@ -1,6 +1,6 @@
 # Zephaniah 3:20
 
-> At that time will I bring you *again,* even in the time that I <u>gather</u>[^a] you: for I will make you a name and a <u>praise</u>[^b] among all people of the earth, when I turn back your <u>captivity</u>[^c] before your eyes, saith the LORD.
+> At that time will I bring you <i>again,</i> even in the time that I <u>gather</u>[^a] you: for I will make you a name and a <u>praise</u>[^b] among all people of the earth, when I turn back your <u>captivity</u>[^c] before your eyes, saith the LORD.
 
 [Zephaniah 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.20?lang=eng#p20)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 25:2
 
-> And he did *that which was* right in the sight of the LORD, but not <u>with a perfect heart</u>[^a].
+> And he did <i>that which was</i> right in the sight of the LORD, but not <u>with a perfect heart</u>[^a].
 
 [2 Chronicles 25:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/25.2?lang=eng#p2)
 

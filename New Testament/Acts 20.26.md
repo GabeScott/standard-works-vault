@@ -1,6 +1,6 @@
 # Acts 20:26
 
-> Wherefore I take you to record this day, that I *am* pure from the <u>blood</u>[^a] of all *men.*
+> Wherefore I take you to record this day, that I <i>am</i> pure from the <u>blood</u>[^a] of all <i>men.</i>
 
 [Acts 20:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.26?lang=eng#p26)
 

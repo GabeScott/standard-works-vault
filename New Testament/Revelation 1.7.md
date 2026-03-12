@@ -1,6 +1,6 @@
 # Revelation 1:7
 
-> Behold, he <u>cometh</u>[^a] with clouds; and every eye shall <u>see</u>[^b] him, and they *also* which pierced him: and all <u>kindreds</u>[^c] of the earth shall <u>wail</u>[^d] because of him. Even so, Amen.
+> Behold, he <u>cometh</u>[^a] with clouds; and every eye shall <u>see</u>[^b] him, and they <i>also</i> which pierced him: and all <u>kindreds</u>[^c] of the earth shall <u>wail</u>[^d] because of him. Even so, Amen.
 
 [Revelation 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.7?lang=eng#p7)
 

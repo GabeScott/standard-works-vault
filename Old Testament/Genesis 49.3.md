@@ -1,6 +1,6 @@
 # Genesis 49:3
 
-> ¶ <u>Reuben</u>[^a], thou *art* my firstborn, my might, and the <u>beginning</u>[^b] of my strength, the excellency of dignity, and the excellency of power:
+> ¶ <u>Reuben</u>[^a], thou <i>art</i> my firstborn, my might, and the <u>beginning</u>[^b] of my strength, the excellency of dignity, and the excellency of power:
 
 [Genesis 49:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.3?lang=eng#p3)
 

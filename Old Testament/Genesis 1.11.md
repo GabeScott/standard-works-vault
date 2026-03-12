@@ -1,6 +1,6 @@
 # Genesis 1:11
 
-> And God said, Let the earth bring forth <u>grass</u>[^a], the herb yielding seed, *and* the fruit tree yielding fruit after his kind, whose seed *is* in itself, upon the earth: and it was so.
+> And God said, Let the earth bring forth <u>grass</u>[^a], the herb yielding seed, <i>and</i> the fruit tree yielding fruit after his kind, whose seed <i>is</i> in itself, upon the earth: and it was so.
 
 [Genesis 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.11?lang=eng#p11)
 

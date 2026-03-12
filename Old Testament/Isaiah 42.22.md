@@ -1,6 +1,6 @@
 # Isaiah 42:22
 
-> But this *is* a <u>people</u>[^a] robbed and spoiled; *they are* all of them snared in holes, and they are hid in prison houses: they are for a prey, and none delivereth; for a spoil, and none saith, <u>Restore</u>[^b].
+> But this <i>is</i> a <u>people</u>[^a] robbed and spoiled; <i>they are</i> all of them snared in holes, and they are hid in prison houses: they are for a prey, and none delivereth; for a spoil, and none saith, <u>Restore</u>[^b].
 
 [Isaiah 42:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.22?lang=eng#p22)
 

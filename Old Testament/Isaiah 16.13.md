@@ -1,6 +1,6 @@
 # Isaiah 16:13
 
-> This *is* the word that the LORD hath spoken concerning <u>Moab</u>[^a] since that time.
+> This <i>is</i> the word that the LORD hath spoken concerning <u>Moab</u>[^a] since that time.
 
 [Isaiah 16:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/16.13?lang=eng#p13)
 

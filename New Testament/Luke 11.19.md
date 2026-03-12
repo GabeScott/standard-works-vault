@@ -1,6 +1,6 @@
 # Luke 11:19
 
-> And if I by Beelzebub cast out devils, by whom do your sons <u>cast</u>[^a] *them* out? therefore shall they be your judges.
+> And if I by Beelzebub cast out devils, by whom do your sons <u>cast</u>[^a] <i>them</i> out? therefore shall they be your judges.
 
 [Luke 11:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.19?lang=eng#p19)
 

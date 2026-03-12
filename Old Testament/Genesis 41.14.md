@@ -1,6 +1,6 @@
 # Genesis 41:14
 
-> ¶ Then <u>Pharaoh</u>[^a] sent and called Joseph, and they brought him hastily out of the <u>dungeon</u>[^b]: and he shaved *himself,* and changed his raiment, and came in unto Pharaoh.
+> ¶ Then <u>Pharaoh</u>[^a] sent and called Joseph, and they brought him hastily out of the <u>dungeon</u>[^b]: and he shaved <i>himself,</i> and changed his raiment, and came in unto Pharaoh.
 
 [Genesis 41:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.14?lang=eng#p14)
 

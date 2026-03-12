@@ -1,6 +1,6 @@
 # Colossians 3:4
 
-> When Christ, *who is* our <u>life</u>[^a], shall <u>appear</u>[^b], then shall ye also appear with him in <u>glory</u>[^c].
+> When Christ, <i>who is</i> our <u>life</u>[^a], shall <u>appear</u>[^b], then shall ye also appear with him in <u>glory</u>[^c].
 
 [Colossians 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Joel 1:14
 
-> ¶ Sanctify ye a <u>fast</u>[^a], call a <u>solemn assembly</u>[^b], gather the elders *and* all the inhabitants of the land *into* the house of the LORD your God, and cry unto the LORD,
+> ¶ Sanctify ye a <u>fast</u>[^a], call a <u>solemn assembly</u>[^b], gather the elders <i>and</i> all the inhabitants of the land <i>into</i> the house of the LORD your God, and cry unto the LORD,
 
 [Joel 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/1.14?lang=eng#p14)
 

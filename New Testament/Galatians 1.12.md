@@ -1,6 +1,6 @@
 # Galatians 1:12
 
-> For I neither received it <u>of man</u>[^a], neither was I taught *it,* but <u>by</u>[^b] the <u>revelation</u>[^c] of Jesus Christ.
+> For I neither received it <u>of man</u>[^a], neither was I taught <i>it,</i> but <u>by</u>[^b] the <u>revelation</u>[^c] of Jesus Christ.
 
 [Galatians 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.12?lang=eng#p12)
 

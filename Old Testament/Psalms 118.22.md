@@ -1,6 +1,6 @@
 # Psalms 118:22
 
-> The <u>stone</u>[^a] *which* the builders refused is become the head *stone* of the <u>corner</u>[^b].
+> The <u>stone</u>[^a] <i>which</i> the builders refused is become the head <i>stone</i> of the <u>corner</u>[^b].
 
 [Psalms 118:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.22?lang=eng#p22)
 

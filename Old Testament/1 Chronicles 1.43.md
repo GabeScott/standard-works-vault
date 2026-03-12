@@ -1,6 +1,6 @@
 # 1 Chronicles 1:43
 
-> ¶ Now these *are* the kings that reigned in the land of <u>Edom</u>[^a] before *any* king reigned over the children of Israel; Bela the son of Beor: and the name of his city *was* Dinhabah.
+> ¶ Now these <i>are</i> the kings that reigned in the land of <u>Edom</u>[^a] before <i>any</i> king reigned over the children of Israel; Bela the son of Beor: and the name of his city <i>was</i> Dinhabah.
 
 [1 Chronicles 1:43](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/1.43?lang=eng#p43)
 

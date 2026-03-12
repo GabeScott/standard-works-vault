@@ -1,6 +1,6 @@
 # 2 Kings 2:11
 
-> And it came to pass, as they still went on, and talked, that, behold, *there appeared* a <u>chariot</u>[^a] of fire, and horses of fire, and parted them both asunder; and <u>Elijah</u>[^b] went up by a <u>whirlwind</u>[^c] into heaven.
+> And it came to pass, as they still went on, and talked, that, behold, <i>there appeared</i> a <u>chariot</u>[^a] of fire, and horses of fire, and parted them both asunder; and <u>Elijah</u>[^b] went up by a <u>whirlwind</u>[^c] into heaven.
 
 [2 Kings 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.11?lang=eng#p11)
 

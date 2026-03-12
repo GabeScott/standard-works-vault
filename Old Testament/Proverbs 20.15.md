@@ -1,6 +1,6 @@
 # Proverbs 20:15
 
-> There is gold, and a multitude of rubies: but the lips of knowledge *are* a precious <u>jewel</u>[^a].
+> There is gold, and a multitude of rubies: but the lips of knowledge <i>are</i> a precious <u>jewel</u>[^a].
 
 [Proverbs 20:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.15?lang=eng#p15)
 

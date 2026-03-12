@@ -1,6 +1,6 @@
 # Deuteronomy 32:33
 
-> Their <u>wine</u>[^a] *is* the poison of <u>dragons</u>[^b], and the cruel venom of asps.
+> Their <u>wine</u>[^a] <i>is</i> the poison of <u>dragons</u>[^b], and the cruel venom of asps.
 
 [Deuteronomy 32:33](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.33?lang=eng#p33)
 

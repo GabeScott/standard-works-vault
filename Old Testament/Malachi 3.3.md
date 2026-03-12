@@ -1,6 +1,6 @@
 # Malachi 3:3
 
-> And he shall sit *as* a <u>refiner</u>[^a] and purifier of silver: and he shall <u>purify</u>[^b] the <u>sons</u>[^c] of <u>Levi</u>[^d], and purge them as gold and silver, that they may offer unto the LORD an <u>offering</u>[^e] in righteousness.
+> And he shall sit <i>as</i> a <u>refiner</u>[^a] and purifier of silver: and he shall <u>purify</u>[^b] the <u>sons</u>[^c] of <u>Levi</u>[^d], and purge them as gold and silver, that they may offer unto the LORD an <u>offering</u>[^e] in righteousness.
 
 [Malachi 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.3?lang=eng#p3)
 

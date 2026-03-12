@@ -1,6 +1,6 @@
 # 2 Thessalonians 2:7
 
-> <u>For</u>[^a] the <u>mystery</u>[^b] of <u>iniquity</u>[^c] doth already work: only <u>he</u>[^d] who now letteth *will let,* until he be taken out of the way.
+> <u>For</u>[^a] the <u>mystery</u>[^b] of <u>iniquity</u>[^c] doth already work: only <u>he</u>[^d] who now letteth <i>will let,</i> until he be taken out of the way.
 
 [2 Thessalonians 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.7?lang=eng#p7)
 

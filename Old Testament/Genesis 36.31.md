@@ -1,6 +1,6 @@
 # Genesis 36:31
 
-> ¶ And these *are* the kings that reigned in the land of <u>Edom</u>[^a], before there reigned any king over the children of Israel.
+> ¶ And these <i>are</i> the kings that reigned in the land of <u>Edom</u>[^a], before there reigned any king over the children of Israel.
 
 [Genesis 36:31](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/36.31?lang=eng#p31)
 

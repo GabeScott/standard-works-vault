@@ -1,6 +1,6 @@
 # Hebrews 12:2
 
-> Looking unto Jesus the <u>author</u>[^a] and <u>finisher of</u>[^b] *our* faith; who for the joy that was set before him <u>endured</u>[^c] the cross, despising the <u>shame</u>[^d], and is set down at the right hand of the <u>throne</u>[^e] of God.
+> Looking unto Jesus the <u>author</u>[^a] and <u>finisher of</u>[^b] <i>our</i> faith; who for the joy that was set before him <u>endured</u>[^c] the cross, despising the <u>shame</u>[^d], and is set down at the right hand of the <u>throne</u>[^e] of God.
 
 [Hebrews 12:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.2?lang=eng#p2)
 

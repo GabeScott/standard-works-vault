@@ -1,6 +1,6 @@
 # Jeremiah 46:25
 
-> The <u>Lord of hosts</u>[^a], the God of Israel, saith; Behold, I will punish <u>the</u>[^b] multitude of <u>No</u>[^c], and <u>Pharaoh</u>[^d], and Egypt, with their <u>gods</u>[^e], and their kings; even Pharaoh, and *all* them that trust in him:
+> The <u>Lord of hosts</u>[^a], the God of Israel, saith; Behold, I will punish <u>the</u>[^b] multitude of <u>No</u>[^c], and <u>Pharaoh</u>[^d], and Egypt, with their <u>gods</u>[^e], and their kings; even Pharaoh, and <i>all</i> them that trust in him:
 
 [Jeremiah 46:25](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.25?lang=eng#p25)
 

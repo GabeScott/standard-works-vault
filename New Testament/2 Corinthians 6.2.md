@@ -1,6 +1,6 @@
 # 2 Corinthians 6:2
 
-> (For he saith, I have heard thee in a <u>time</u>[^a] accepted, and in the <u>day</u>[^b] of <u>salvation</u>[^c] have I succoured thee: behold, now *is* the accepted time; behold, now *is* the day of salvation.)
+> (For he saith, I have heard thee in a <u>time</u>[^a] accepted, and in the <u>day</u>[^b] of <u>salvation</u>[^c] have I succoured thee: behold, now <i>is</i> the accepted time; behold, now <i>is</i> the day of salvation.)
 
 [2 Corinthians 6:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/6.2?lang=eng#p2)
 

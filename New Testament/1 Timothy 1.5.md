@@ -1,6 +1,6 @@
 # 1 Timothy 1:5
 
-> Now the end of the <u>commandment</u>[^a] is <u>charity</u>[^b] out of a <u>pure</u>[^c] heart, and *of* a good conscience, and *of* faith unfeigned:
+> Now the end of the <u>commandment</u>[^a] is <u>charity</u>[^b] out of a <u>pure</u>[^c] heart, and <i>of</i> a good conscience, and <i>of</i> faith unfeigned:
 
 [1 Timothy 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.5?lang=eng#p5)
 

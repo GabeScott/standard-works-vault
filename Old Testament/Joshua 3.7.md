@@ -1,6 +1,6 @@
 # Joshua 3:7
 
-> ¶ And the LORD said unto Joshua, This day will I begin to <u>magnify</u>[^a] thee in the sight of all Israel, that they may know that, as I was with Moses, *so* I will be with thee.
+> ¶ And the LORD said unto Joshua, This day will I begin to <u>magnify</u>[^a] thee in the sight of all Israel, that they may know that, as I was with Moses, <i>so</i> I will be with thee.
 
 [Joshua 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3.7?lang=eng#p7)
 

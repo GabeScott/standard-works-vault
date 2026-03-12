@@ -1,6 +1,6 @@
 # Isaiah 43:11
 
-> I, *even* I, *am* the LORD; and <u>beside</u>[^a] me *there is* no <u>saviour</u>[^b].
+> I, <i>even</i> I, <i>am</i> the LORD; and <u>beside</u>[^a] me <i>there is</i> no <u>saviour</u>[^b].
 
 [Isaiah 43:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.11?lang=eng#p11)
 

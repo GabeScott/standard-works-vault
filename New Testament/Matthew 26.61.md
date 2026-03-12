@@ -1,6 +1,6 @@
 # Matthew 26:61
 
-> And said, This *fellow* said, I am able to destroy the <u>temple</u>[^a] of God, and to build it in three days.
+> And said, This <i>fellow</i> said, I am able to destroy the <u>temple</u>[^a] of God, and to build it in three days.
 
 [Matthew 26:61](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.61?lang=eng#p61)
 

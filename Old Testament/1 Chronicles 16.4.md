@@ -1,6 +1,6 @@
 # 1 Chronicles 16:4
 
-> ¶ And he appointed *certain* of the <u>Levites</u>[^a] to minister before the ark of the LORD, and to <u>record</u>[^b], and to <u>thank</u>[^c] and praise the LORD God of Israel:
+> ¶ And he appointed <i>certain</i> of the <u>Levites</u>[^a] to minister before the ark of the LORD, and to <u>record</u>[^b], and to <u>thank</u>[^c] and praise the LORD God of Israel:
 
 [1 Chronicles 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Judges 17:9
 
-> And Micah said unto him, Whence comest thou? And he said unto him, I *am* a <u>Levite</u>[^a] of Beth-lehem-judah, and I go to sojourn where I may find *a place.*
+> And Micah said unto him, Whence comest thou? And he said unto him, I <i>am</i> a <u>Levite</u>[^a] of Beth-lehem-judah, and I go to sojourn where I may find <i>a place.</i>
 
 [Judges 17:9](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/17.9?lang=eng#p9)
 

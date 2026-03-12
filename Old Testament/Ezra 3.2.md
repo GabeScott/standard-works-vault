@@ -1,6 +1,6 @@
 # Ezra 3:2
 
-> Then stood up Jeshua the son of Jozadak, and his brethren the priests, and Zerubbabel the son of Shealtiel, and his brethren, and builded the altar of the God of Israel, to offer burnt <u>offerings</u>[^a] thereon, as *it is* written in the law of Moses the <u>man</u>[^b] of God.
+> Then stood up Jeshua the son of Jozadak, and his brethren the priests, and Zerubbabel the son of Shealtiel, and his brethren, and builded the altar of the God of Israel, to offer burnt <u>offerings</u>[^a] thereon, as <i>it is</i> written in the law of Moses the <u>man</u>[^b] of God.
 
 [Ezra 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/3.2?lang=eng#p2)
 

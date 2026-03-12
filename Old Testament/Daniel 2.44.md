@@ -1,6 +1,6 @@
 # Daniel 2:44
 
-> And in the <u>days</u>[^a] of these <u>kings</u>[^b] shall the God of heaven <u>set</u>[^c] up a <u>kingdom</u>[^d], which shall never be <u>destroyed</u>[^e]: and the <u>kingdom</u>[^f] shall not be left to other people, *but* it shall <u>break</u>[^g] in pieces and <u>consume</u>[^h] all these <u>kingdoms</u>[^i], and it shall stand for ever.
+> And in the <u>days</u>[^a] of these <u>kings</u>[^b] shall the God of heaven <u>set</u>[^c] up a <u>kingdom</u>[^d], which shall never be <u>destroyed</u>[^e]: and the <u>kingdom</u>[^f] shall not be left to other people, <i>but</i> it shall <u>break</u>[^g] in pieces and <u>consume</u>[^h] all these <u>kingdoms</u>[^i], and it shall stand for ever.
 
 [Daniel 2:44](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.44?lang=eng#p44)
 

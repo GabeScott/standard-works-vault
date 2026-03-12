@@ -1,6 +1,6 @@
 # Ezekiel 35:12
 
-> And thou shalt know that I *am* the LORD, *and that* I have heard all thy <u>blasphemies</u>[^a] which thou hast spoken against the mountains of Israel, saying, They are laid desolate, they are given us to consume.
+> And thou shalt know that I <i>am</i> the LORD, <i>and that</i> I have heard all thy <u>blasphemies</u>[^a] which thou hast spoken against the mountains of Israel, saying, They are laid desolate, they are given us to consume.
 
 [Ezekiel 35:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/35.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Leviticus 9:6
 
-> And Moses said, This *is* the thing which the LORD commanded that ye should do: and the <u>glory</u>[^a] of the LORD shall appear unto you.
+> And Moses said, This <i>is</i> the thing which the LORD commanded that ye should do: and the <u>glory</u>[^a] of the LORD shall appear unto you.
 
 [Leviticus 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/9.6?lang=eng#p6)
 

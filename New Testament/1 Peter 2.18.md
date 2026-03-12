@@ -1,6 +1,6 @@
 # 1 Peter 2:18
 
-> <u>Servants</u>[^a], *be* subject to *your* <u>masters</u>[^b] with all fear; not only to the good and gentle, but also to the <u>froward</u>[^c].
+> <u>Servants</u>[^a], <i>be</i> subject to <i>your</i> <u>masters</u>[^b] with all fear; not only to the good and gentle, but also to the <u>froward</u>[^c].
 
 [1 Peter 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.18?lang=eng#p18)
 

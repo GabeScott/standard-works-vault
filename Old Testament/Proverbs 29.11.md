@@ -1,6 +1,6 @@
 # Proverbs 29:11
 
-> A fool <u>uttereth</u>[^a] all his <u>mind</u>[^b]: but a <u>wise</u>[^c] *man* keepeth it in till afterwards.
+> A fool <u>uttereth</u>[^a] all his <u>mind</u>[^b]: but a <u>wise</u>[^c] <i>man</i> keepeth it in till afterwards.
 
 [Proverbs 29:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.11?lang=eng#p11)
 

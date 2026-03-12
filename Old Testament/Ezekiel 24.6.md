@@ -1,6 +1,6 @@
 # Ezekiel 24:6
 
-> ¶ Wherefore thus saith the Lord GOD; Woe to the <u>bloody</u>[^a] city, to the pot whose scum *is* therein, and whose <u>scum</u>[^b] is not gone out of it! bring it out piece by piece; <u>let</u>[^c] no lot fall upon it.
+> ¶ Wherefore thus saith the Lord GOD; Woe to the <u>bloody</u>[^a] city, to the pot whose scum <i>is</i> therein, and whose <u>scum</u>[^b] is not gone out of it! bring it out piece by piece; <u>let</u>[^c] no lot fall upon it.
 
 [Ezekiel 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.6?lang=eng#p6)
 

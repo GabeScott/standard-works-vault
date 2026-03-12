@@ -1,6 +1,6 @@
 # Leviticus 24:20
 
-> Breach for breach, <u>eye for eye</u>[^a], tooth for tooth: as he hath caused a blemish in a man, so shall it be done to him *again.*
+> Breach for breach, <u>eye for eye</u>[^a], tooth for tooth: as he hath caused a blemish in a man, so shall it be done to him <i>again.</i>
 
 [Leviticus 24:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.20?lang=eng#p20)
 

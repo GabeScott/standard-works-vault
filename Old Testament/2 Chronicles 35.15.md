@@ -1,6 +1,6 @@
 # 2 Chronicles 35:15
 
-> And the singers the sons of Asaph *were* in their place, according to the commandment of David, and Asaph, and Heman, and Jeduthun the king’s <u>seer</u>[^a]; and the porters *waited* at every gate; they might not depart from their service; for their brethren the Levites prepared for them.
+> And the singers the sons of Asaph <i>were</i> in their place, according to the commandment of David, and Asaph, and Heman, and Jeduthun the king’s <u>seer</u>[^a]; and the porters <i>waited</i> at every gate; they might not depart from their service; for their brethren the Levites prepared for them.
 
 [2 Chronicles 35:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/35.15?lang=eng#p15)
 

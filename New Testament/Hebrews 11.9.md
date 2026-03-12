@@ -1,6 +1,6 @@
 # Hebrews 11:9
 
-> By faith he <u>sojourned</u>[^a] in the <u>land</u>[^b] of <u>promise</u>[^c], as *in* a strange country, dwelling in <u>tabernacles</u>[^d] with Isaac and Jacob, the heirs with him of the same promise:
+> By faith he <u>sojourned</u>[^a] in the <u>land</u>[^b] of <u>promise</u>[^c], as <i>in</i> a strange country, dwelling in <u>tabernacles</u>[^d] with Isaac and Jacob, the heirs with him of the same promise:
 
 [Hebrews 11:9](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.9?lang=eng#p9)
 

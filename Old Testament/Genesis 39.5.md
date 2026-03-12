@@ -1,6 +1,6 @@
 # Genesis 39:5
 
-> And it came to pass from the time *that* he had made him overseer in his house, and over all that he had, that the LORD blessed the Egyptian’s house for Joseph’s <u>sake</u>[^a]; and the blessing of the LORD was upon all that he had in the house, and in the field.
+> And it came to pass from the time <i>that</i> he had made him overseer in his house, and over all that he had, that the LORD blessed the Egyptian’s house for Joseph’s <u>sake</u>[^a]; and the blessing of the LORD was upon all that he had in the house, and in the field.
 
 [Genesis 39:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.5?lang=eng#p5)
 

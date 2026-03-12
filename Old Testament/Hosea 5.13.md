@@ -1,6 +1,6 @@
 # Hosea 5:13
 
-> When Ephraim saw his sickness, and Judah *saw* his <u>wound</u>[^a], then went <u>Ephraim</u>[^b] to the Assyrian, and sent to king <u>Jareb</u>[^c]: yet could he not <u>heal</u>[^d] you, nor cure you of your wound.
+> When Ephraim saw his sickness, and Judah <i>saw</i> his <u>wound</u>[^a], then went <u>Ephraim</u>[^b] to the Assyrian, and sent to king <u>Jareb</u>[^c]: yet could he not <u>heal</u>[^d] you, nor cure you of your wound.
 
 [Hosea 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/5.13?lang=eng#p13)
 

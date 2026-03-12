@@ -1,6 +1,6 @@
 # Numbers 32:39
 
-> And the children of <u>Machir</u>[^a] the son of <u>Manasseh</u>[^b] went to Gilead, and took it, and dispossessed the Amorite which *was* in it.
+> And the children of <u>Machir</u>[^a] the son of <u>Manasseh</u>[^b] went to Gilead, and took it, and dispossessed the Amorite which <i>was</i> in it.
 
 [Numbers 32:39](https://www.churchofjesuschrist.org/study/scriptures/ot/num/32.39?lang=eng#p39)
 

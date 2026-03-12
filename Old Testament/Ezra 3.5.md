@@ -1,6 +1,6 @@
 # Ezra 3:5
 
-> And afterward *offered* the continual burnt offering, both of the new moons, and of all the set <u>feasts</u>[^a] of the LORD that were consecrated, and of every one that <u>willingly</u>[^b] offered a freewill offering unto the LORD.
+> And afterward <i>offered</i> the continual burnt offering, both of the new moons, and of all the set <u>feasts</u>[^a] of the LORD that were consecrated, and of every one that <u>willingly</u>[^b] offered a freewill offering unto the LORD.
 
 [Ezra 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/3.5?lang=eng#p5)
 

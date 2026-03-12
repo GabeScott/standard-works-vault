@@ -1,6 +1,6 @@
 # Leviticus 18:4
 
-> Ye shall do my <u>judgments</u>[^a], and keep mine <u>ordinances</u>[^b], to <u>walk</u>[^c] therein: I *am* the LORD your God.
+> Ye shall do my <u>judgments</u>[^a], and keep mine <u>ordinances</u>[^b], to <u>walk</u>[^c] therein: I <i>am</i> the LORD your God.
 
 [Leviticus 18:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Romans 4:15
 
-> Because the law worketh wrath: for where no <u>law</u>[^a] is, *there is* no <u>transgression</u>[^b].
+> Because the law worketh wrath: for where no <u>law</u>[^a] is, <i>there is</i> no <u>transgression</u>[^b].
 
 [Romans 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # 2 Samuel 19:32
 
-> Now <u>Barzillai</u>[^a] was a very aged man, *even* fourscore years old: and he had provided the king of sustenance while he lay at Mahanaim; for he *was* a very great man.
+> Now <u>Barzillai</u>[^a] was a very aged man, <i>even</i> fourscore years old: and he had provided the king of sustenance while he lay at Mahanaim; for he <i>was</i> a very great man.
 
 [2 Samuel 19:32](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.32?lang=eng#p32)
 

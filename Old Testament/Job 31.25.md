@@ -1,6 +1,6 @@
 # Job 31:25
 
-> If I rejoiced because my <u>wealth</u>[^a] *was* great, and because mine hand had gotten much;
+> If I rejoiced because my <u>wealth</u>[^a] <i>was</i> great, and because mine hand had gotten much;
 
 [Job 31:25](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.25?lang=eng#p25)
 

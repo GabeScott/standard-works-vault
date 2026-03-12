@@ -1,6 +1,6 @@
 # Exodus 35:4
 
-> ¶ And Moses spake unto all the congregation of the children of Israel, saying, This *is* the thing which the LORD <u>commanded</u>[^a], saying,
+> ¶ And Moses spake unto all the congregation of the children of Israel, saying, This <i>is</i> the thing which the LORD <u>commanded</u>[^a], saying,
 
 [Exodus 35:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.4?lang=eng#p4)
 

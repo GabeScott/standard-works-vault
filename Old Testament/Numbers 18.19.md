@@ -1,6 +1,6 @@
 # Numbers 18:19
 
-> All the heave offerings of the holy things, which the children of Israel offer unto the LORD, have I given thee, and thy sons and thy daughters with thee, by a statute for ever: it *is* a <u>covenant</u>[^a] of <u>salt</u>[^b] for ever before the LORD unto thee and to thy seed with thee.
+> All the heave offerings of the holy things, which the children of Israel offer unto the LORD, have I given thee, and thy sons and thy daughters with thee, by a statute for ever: it <i>is</i> a <u>covenant</u>[^a] of <u>salt</u>[^b] for ever before the LORD unto thee and to thy seed with thee.
 
 [Numbers 18:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.19?lang=eng#p19)
 

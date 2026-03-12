@@ -1,6 +1,6 @@
 # Zechariah 14:5
 
-> And ye shall flee *to* the valley of the mountains; for the valley of the mountains shall reach unto Azal: yea, ye shall flee, like as ye fled from before the <u>earthquake</u>[^a] in the days of Uzziah king of Judah: and the LORD my God shall come, *and* all the <u>saints</u>[^b] with thee.
+> And ye shall flee <i>to</i> the valley of the mountains; for the valley of the mountains shall reach unto Azal: yea, ye shall flee, like as ye fled from before the <u>earthquake</u>[^a] in the days of Uzziah king of Judah: and the LORD my God shall come, <i>and</i> all the <u>saints</u>[^b] with thee.
 
 [Zechariah 14:5](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.5?lang=eng#p5)
 

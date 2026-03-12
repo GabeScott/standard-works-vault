@@ -1,6 +1,6 @@
 # Isaiah 9:1
 
-> <u>Nevertheless</u>[^a] the dimness *shall* not *be* such as *was* in her vexation, <u>when</u>[^b] at the first he lightly afflicted the land of <u>Zebulun</u>[^c] and the land of Naphtali, and afterward did more grievously afflict *her by* the way of the sea, beyond Jordan, in Galilee of the nations.
+> <u>Nevertheless</u>[^a] the dimness <i>shall</i> not <i>be</i> such as <i>was</i> in her vexation, <u>when</u>[^b] at the first he lightly afflicted the land of <u>Zebulun</u>[^c] and the land of Naphtali, and afterward did more grievously afflict <i>her by</i> the way of the sea, beyond Jordan, in Galilee of the nations.
 
 [Isaiah 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.1?lang=eng#p1)
 

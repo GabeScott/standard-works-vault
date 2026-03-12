@@ -1,6 +1,6 @@
 # Ezekiel 7:17
 
-> All <u>hands</u>[^a] shall be feeble, and all knees shall be weak *as* water.
+> All <u>hands</u>[^a] shall be feeble, and all knees shall be weak <i>as</i> water.
 
 [Ezekiel 7:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.17?lang=eng#p17)
 

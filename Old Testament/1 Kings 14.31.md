@@ -1,6 +1,6 @@
 # 1 Kings 14:31
 
-> And Rehoboam slept with his fathers, and was buried with his fathers in the city of David. And his mother’s name *was* Naamah an Ammonitess. And <u>Abijam</u>[^a] his son reigned in his stead.
+> And Rehoboam slept with his fathers, and was buried with his fathers in the city of David. And his mother’s name <i>was</i> Naamah an Ammonitess. And <u>Abijam</u>[^a] his son reigned in his stead.
 
 [1 Kings 14:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.31?lang=eng#p31)
 

@@ -1,6 +1,6 @@
 # Exodus 29:18
 
-> And thou shalt burn the whole ram upon the altar: it *is* a burnt <u>offering</u>[^a] unto the LORD: it *is* a <u>sweet</u>[^b] <u>savour</u>[^c], an offering made by fire unto the LORD.
+> And thou shalt burn the whole ram upon the altar: it <i>is</i> a burnt <u>offering</u>[^a] unto the LORD: it <i>is</i> a <u>sweet</u>[^b] <u>savour</u>[^c], an offering made by fire unto the LORD.
 
 [Exodus 29:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.18?lang=eng#p18)
 

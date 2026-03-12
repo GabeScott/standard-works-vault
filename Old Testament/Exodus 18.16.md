@@ -1,6 +1,6 @@
 # Exodus 18:16
 
-> When they have a <u>matter</u>[^a], they come unto me; and I judge between one and another, and I do make *them* know the statutes of God, and his laws.
+> When they have a <u>matter</u>[^a], they come unto me; and I judge between one and another, and I do make <i>them</i> know the statutes of God, and his laws.
 
 [Exodus 18:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.16?lang=eng#p16)
 

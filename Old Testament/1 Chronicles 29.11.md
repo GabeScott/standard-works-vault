@@ -1,6 +1,6 @@
 # 1 Chronicles 29:11
 
-> Thine, O LORD, *is* the greatness, and the power, and the <u>glory</u>[^a], and the victory, and the majesty: for all *that is* in the heaven and in the earth *is thine;* thine *is* the <u>kingdom</u>[^b], O LORD, and thou art exalted as head above all.
+> Thine, O LORD, <i>is</i> the greatness, and the power, and the <u>glory</u>[^a], and the victory, and the majesty: for all <i>that is</i> in the heaven and in the earth <i>is thine;</i> thine <i>is</i> the <u>kingdom</u>[^b], O LORD, and thou art exalted as head above all.
 
 [1 Chronicles 29:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.11?lang=eng#p11)
 

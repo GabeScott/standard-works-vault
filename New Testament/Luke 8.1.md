@@ -1,6 +1,6 @@
 # Luke 8:1
 
-> And it came to pass afterward, that he went throughout every <u>city</u>[^a] and village, preaching and shewing the glad <u>tidings</u>[^b] of the kingdom of God: <u>and</u>[^c] the twelve *were* with him,
+> And it came to pass afterward, that he went throughout every <u>city</u>[^a] and village, preaching and shewing the glad <u>tidings</u>[^b] of the kingdom of God: <u>and</u>[^c] the twelve <i>were</i> with him,
 
 [Luke 8:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.1?lang=eng#p1)
 

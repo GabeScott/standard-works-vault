@@ -1,6 +1,6 @@
 # Psalms 25:5
 
-> <u>Lead</u>[^a] me in thy truth, and teach me: for thou *art* the God of my salvation; on thee do I <u>wait</u>[^b] all the day.
+> <u>Lead</u>[^a] me in thy truth, and teach me: for thou <i>art</i> the God of my salvation; on thee do I <u>wait</u>[^b] all the day.
 
 [Psalms 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.5?lang=eng#p5)
 

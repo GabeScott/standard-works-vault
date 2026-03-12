@@ -1,6 +1,6 @@
 # Romans 3:20
 
-> Therefore by the <u>deeds</u>[^a] of the <u>law</u>[^b] there shall no flesh be <u>justified</u>[^c] in his sight: for <u>by</u>[^d] the law *is* the knowledge of sin.
+> Therefore by the <u>deeds</u>[^a] of the <u>law</u>[^b] there shall no flesh be <u>justified</u>[^c] in his sight: for <u>by</u>[^d] the law <i>is</i> the knowledge of sin.
 
 [Romans 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.20?lang=eng#p20)
 

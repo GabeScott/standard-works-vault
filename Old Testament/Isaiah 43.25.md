@@ -1,6 +1,6 @@
 # Isaiah 43:25
 
-> I, *even* I, *am* he that <u>blotteth</u>[^a] out thy <u>transgressions</u>[^b] for mine own <u>sake</u>[^c], and will not remember thy sins.
+> I, <i>even</i> I, <i>am</i> he that <u>blotteth</u>[^a] out thy <u>transgressions</u>[^b] for mine own <u>sake</u>[^c], and will not remember thy sins.
 
 [Isaiah 43:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.25?lang=eng#p25)
 

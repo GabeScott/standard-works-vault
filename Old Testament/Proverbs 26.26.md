@@ -1,6 +1,6 @@
 # Proverbs 26:26
 
-> *Whose* hatred is covered by deceit, his wickedness shall be <u>shewed</u>[^a] before the *whole* congregation.
+> <i>Whose</i> hatred is covered by deceit, his wickedness shall be <u>shewed</u>[^a] before the <i>whole</i> congregation.
 
 [Proverbs 26:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.26?lang=eng#p26)
 

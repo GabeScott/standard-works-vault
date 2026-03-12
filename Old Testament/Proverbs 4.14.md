@@ -1,6 +1,6 @@
 # Proverbs 4:14
 
-> ¶ Enter not into the <u>path</u>[^a] of the wicked, and go not in the way of evil *men.*
+> ¶ Enter not into the <u>path</u>[^a] of the wicked, and go not in the way of evil <i>men.</i>
 
 [Proverbs 4:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/4.14?lang=eng#p14)
 

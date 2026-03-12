@@ -1,6 +1,6 @@
 # Acts 15:7
 
-> And when there had been much <u>disputing</u>[^a], <u>Peter</u>[^b] rose up, and said unto them, Men *and* brethren, ye know how that a good while ago God made choice among us, that the <u>Gentiles</u>[^c] by my mouth should hear the word of the <u>gospel</u>[^d], and believe.
+> And when there had been much <u>disputing</u>[^a], <u>Peter</u>[^b] rose up, and said unto them, Men <i>and</i> brethren, ye know how that a good while ago God made choice among us, that the <u>Gentiles</u>[^c] by my mouth should hear the word of the <u>gospel</u>[^d], and believe.
 
 [Acts 15:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.7?lang=eng#p7)
 

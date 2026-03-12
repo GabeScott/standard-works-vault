@@ -1,6 +1,6 @@
 # Jeremiah 26:18
 
-> <u>Micah</u>[^a] the Morasthite prophesied in the days of Hezekiah king of Judah, and spake to all the people of Judah, saying, Thus saith the LORD of hosts; Zion shall be <u>plowed</u>[^b] *like* a field, and <u>Jerusalem</u>[^c] shall become heaps, and the mountain of the house as the high places of a forest.
+> <u>Micah</u>[^a] the Morasthite prophesied in the days of Hezekiah king of Judah, and spake to all the people of Judah, saying, Thus saith the LORD of hosts; Zion shall be <u>plowed</u>[^b] <i>like</i> a field, and <u>Jerusalem</u>[^c] shall become heaps, and the mountain of the house as the high places of a forest.
 
 [Jeremiah 26:18](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.18?lang=eng#p18)
 

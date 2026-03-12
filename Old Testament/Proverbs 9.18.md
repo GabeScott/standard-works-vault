@@ -1,6 +1,6 @@
 # Proverbs 9:18
 
-> But he knoweth not that the dead *are* there; *and that* her guests *are* in the depths of <u>hell</u>[^a].
+> But he knoweth not that the dead <i>are</i> there; <i>and that</i> her guests <i>are</i> in the depths of <u>hell</u>[^a].
 
 [Proverbs 9:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/9.18?lang=eng#p18)
 

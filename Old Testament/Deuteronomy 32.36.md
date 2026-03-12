@@ -1,6 +1,6 @@
 # Deuteronomy 32:36
 
-> For the LORD shall <u>judge</u>[^a] his people, and <u>repent</u>[^b] himself for his servants, when he seeth that *their* power is gone, and *there is* none <u>shut up, or left</u>[^c].
+> For the LORD shall <u>judge</u>[^a] his people, and <u>repent</u>[^b] himself for his servants, when he seeth that <i>their</i> power is gone, and <i>there is</i> none <u>shut up, or left</u>[^c].
 
 [Deuteronomy 32:36](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.36?lang=eng#p36)
 

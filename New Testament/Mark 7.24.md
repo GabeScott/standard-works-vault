@@ -1,6 +1,6 @@
 # Mark 7:24
 
-> ¶ And from thence he arose, and went into the borders of Tyre and Sidon, and entered into an house, <u>and</u>[^a] would have no man know *it:* but he could not be hid.
+> ¶ And from thence he arose, and went into the borders of Tyre and Sidon, and entered into an house, <u>and</u>[^a] would have no man know <i>it:</i> but he could not be hid.
 
 [Mark 7:24](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7.24?lang=eng#p24)
 

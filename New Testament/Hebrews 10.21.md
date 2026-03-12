@@ -1,6 +1,6 @@
 # Hebrews 10:21
 
-> And *having* an <u>high priest</u>[^a] over the house of God;
+> And <i>having</i> an <u>high priest</u>[^a] over the house of God;
 
 [Hebrews 10:21](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.21?lang=eng#p21)
 

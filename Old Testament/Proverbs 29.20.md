@@ -1,6 +1,6 @@
 # Proverbs 29:20
 
-> Seest thou a man *that is* <u>hasty</u>[^a] in his words? *there is* more hope of a <u>fool</u>[^b] than of him.
+> Seest thou a man <i>that is</i> <u>hasty</u>[^a] in his words? <i>there is</i> more hope of a <u>fool</u>[^b] than of him.
 
 [Proverbs 29:20](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.20?lang=eng#p20)
 

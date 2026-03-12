@@ -1,6 +1,6 @@
 # Ezekiel 25:15
 
-> ¶ Thus saith the Lord GOD; Because the <u>Philistines</u>[^a] have dealt by revenge, and have taken vengeance with a despiteful heart, to destroy *it* for the old hatred;
+> ¶ Thus saith the Lord GOD; Because the <u>Philistines</u>[^a] have dealt by revenge, and have taken vengeance with a despiteful heart, to destroy <i>it</i> for the old hatred;
 
 [Ezekiel 25:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/25.15?lang=eng#p15)
 

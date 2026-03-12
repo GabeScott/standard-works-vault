@@ -1,6 +1,6 @@
 # Deuteronomy 13:13
 
-> *Certain* men, the children of <u>Belial</u>[^a], are gone out from among you, and have <u>withdrawn</u>[^b] the inhabitants of their city, saying, Let us go and serve other gods, which ye have not known;
+> <i>Certain</i> men, the children of <u>Belial</u>[^a], are gone out from among you, and have <u>withdrawn</u>[^b] the inhabitants of their city, saying, Let us go and serve other gods, which ye have not known;
 
 [Deuteronomy 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/13.13?lang=eng#p13)
 

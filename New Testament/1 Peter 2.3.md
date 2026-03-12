@@ -1,6 +1,6 @@
 # 1 Peter 2:3
 
-> If so be ye have <u>tasted</u>[^a] that the Lord *is* gracious.
+> If so be ye have <u>tasted</u>[^a] that the Lord <i>is</i> gracious.
 
 [1 Peter 2:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.3?lang=eng#p3)
 

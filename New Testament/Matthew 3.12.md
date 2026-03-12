@@ -1,6 +1,6 @@
 # Matthew 3:12
 
-> Whose <u>fan</u>[^a] *is* in his hand, and he will throughly purge his floor, and gather his wheat into the <u>garner</u>[^b]; but he will burn up the chaff with unquenchable <u>fire</u>[^c].
+> Whose <u>fan</u>[^a] <i>is</i> in his hand, and he will throughly purge his floor, and gather his wheat into the <u>garner</u>[^b]; but he will burn up the chaff with unquenchable <u>fire</u>[^c].
 
 [Matthew 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.12?lang=eng#p12)
 

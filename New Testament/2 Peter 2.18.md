@@ -1,6 +1,6 @@
 # 2 Peter 2:18
 
-> For when they <u>speak</u>[^a] great swelling *words* of <u>vanity</u>[^b], they <u>allure</u>[^c] through the <u>lusts</u>[^d] of the flesh, *through much* wantonness, those that were clean <u>escaped</u>[^e] from them who live in error.
+> For when they <u>speak</u>[^a] great swelling <i>words</i> of <u>vanity</u>[^b], they <u>allure</u>[^c] through the <u>lusts</u>[^d] of the flesh, <i>through much</i> wantonness, those that were clean <u>escaped</u>[^e] from them who live in error.
 
 [2 Peter 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.18?lang=eng#p18)
 

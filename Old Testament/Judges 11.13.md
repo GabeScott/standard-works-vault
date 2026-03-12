@@ -1,6 +1,6 @@
 # Judges 11:13
 
-> And the king of the children of Ammon answered unto the messengers of Jephthah, Because Israel took away my <u>land</u>[^a], when they came up out of Egypt, from <u>Arnon</u>[^b] even unto Jabbok, and unto Jordan: now therefore restore those *lands* again peaceably.
+> And the king of the children of Ammon answered unto the messengers of Jephthah, Because Israel took away my <u>land</u>[^a], when they came up out of Egypt, from <u>Arnon</u>[^b] even unto Jabbok, and unto Jordan: now therefore restore those <i>lands</i> again peaceably.
 
 [Judges 11:13](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.13?lang=eng#p13)
 

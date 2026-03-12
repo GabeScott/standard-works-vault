@@ -1,6 +1,6 @@
 # Psalms 126:6
 
-> He that goeth forth and weepeth, bearing precious <u>seed</u>[^a], shall doubtless come again with rejoicing, bringing his <u>sheaves</u>[^b] *with him.*
+> He that goeth forth and weepeth, bearing precious <u>seed</u>[^a], shall doubtless come again with rejoicing, bringing his <u>sheaves</u>[^b] <i>with him.</i>
 
 [Psalms 126:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/126.6?lang=eng#p6)
 

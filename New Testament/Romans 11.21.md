@@ -1,6 +1,6 @@
 # Romans 11:21
 
-> For if God spared not the <u>natural</u>[^a] branches, *take heed* lest he also <u>spare</u>[^b] not thee.
+> For if God spared not the <u>natural</u>[^a] branches, <i>take heed</i> lest he also <u>spare</u>[^b] not thee.
 
 [Romans 11:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.21?lang=eng#p21)
 

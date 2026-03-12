@@ -1,6 +1,6 @@
 # 1 Chronicles 5:3
 
-> The sons, *I say,* of <u>Reuben</u>[^a] the firstborn of Israel *were,* Hanoch, and Pallu, Hezron, and Carmi.
+> The sons, <i>I say,</i> of <u>Reuben</u>[^a] the firstborn of Israel <i>were,</i> Hanoch, and Pallu, Hezron, and Carmi.
 
 [1 Chronicles 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/5.3?lang=eng#p3)
 

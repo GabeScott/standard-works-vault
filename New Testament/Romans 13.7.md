@@ -1,6 +1,6 @@
 # Romans 13:7
 
-> Render therefore to all their dues: tribute to whom tribute *is due;* custom to whom custom; fear to whom fear; <u>honour</u>[^a] to whom honour.
+> Render therefore to all their dues: tribute to whom tribute <i>is due;</i> custom to whom custom; fear to whom fear; <u>honour</u>[^a] to whom honour.
 
 [Romans 13:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.7?lang=eng#p7)
 

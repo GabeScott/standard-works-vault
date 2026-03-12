@@ -1,6 +1,6 @@
 # Numbers 16:32
 
-> And the <u>earth</u>[^a] <u>opened</u>[^b] her mouth, and swallowed them up, and their <u>houses</u>[^c], and all the men that *appertained* unto Korah, and all *their* goods.
+> And the <u>earth</u>[^a] <u>opened</u>[^b] her mouth, and swallowed them up, and their <u>houses</u>[^c], and all the men that <i>appertained</i> unto Korah, and all <i>their</i> goods.
 
 [Numbers 16:32](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.32?lang=eng#p32)
 

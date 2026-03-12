@@ -1,6 +1,6 @@
 # Matthew 11:28
 
-> ¶ <u>Come</u>[^a] unto me, all *ye* that <u>labour</u>[^b] and are heavy laden, and I will give you <u>rest</u>[^c].
+> ¶ <u>Come</u>[^a] unto me, all <i>ye</i> that <u>labour</u>[^b] and are heavy laden, and I will give you <u>rest</u>[^c].
 
 [Matthew 11:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.28?lang=eng#p28)
 

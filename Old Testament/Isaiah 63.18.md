@@ -1,6 +1,6 @@
 # Isaiah 63:18
 
-> The <u>people</u>[^a] of thy holiness have possessed *it* but a little while: our adversaries have <u>trodden</u>[^b] down thy sanctuary.
+> The <u>people</u>[^a] of thy holiness have possessed <i>it</i> but a little while: our adversaries have <u>trodden</u>[^b] down thy sanctuary.
 
 [Isaiah 63:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.18?lang=eng#p18)
 

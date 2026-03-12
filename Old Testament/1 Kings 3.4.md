@@ -1,6 +1,6 @@
 # 1 Kings 3:4
 
-> And the king went to <u>Gibeon</u>[^a] to sacrifice there; for that *was* the great <u>high place</u>[^b]: a thousand burnt offerings did Solomon offer upon that altar.
+> And the king went to <u>Gibeon</u>[^a] to sacrifice there; for that <i>was</i> the great <u>high place</u>[^b]: a thousand burnt offerings did Solomon offer upon that altar.
 
 [1 Kings 3:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/3.4?lang=eng#p4)
 

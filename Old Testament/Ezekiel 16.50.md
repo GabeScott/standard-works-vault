@@ -1,6 +1,6 @@
 # Ezekiel 16:50
 
-> And they were haughty, and committed <u>abomination</u>[^a] before me: therefore I took them <u>away</u>[^b] <u>as I saw good</u>[^c]*.*
+> And they were haughty, and committed <u>abomination</u>[^a] before me: therefore I took them <u>away</u>[^b] <i><u>as I saw good</u></i>[^c]<i>.</i>
 
 [Ezekiel 16:50](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.50?lang=eng#p50)
 

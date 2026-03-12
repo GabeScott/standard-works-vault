@@ -1,6 +1,6 @@
 # 1 Kings 20:42
 
-> And he said unto him, Thus saith the LORD, Because thou hast let go out of *thy* hand a man whom I appointed to utter destruction, therefore thy <u>life</u>[^a] shall go for his life, and thy people for his people.
+> And he said unto him, Thus saith the LORD, Because thou hast let go out of <i>thy</i> hand a man whom I appointed to utter destruction, therefore thy <u>life</u>[^a] shall go for his life, and thy people for his people.
 
 [1 Kings 20:42](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.42?lang=eng#p42)
 

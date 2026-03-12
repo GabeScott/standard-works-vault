@@ -1,6 +1,6 @@
 # Ezekiel 35:5
 
-> Because thou hast had a perpetual <u>hatred</u>[^a], and hast shed *the blood of* the children of Israel by the force of the sword in the time of their calamity, in the time *that their* iniquity *had* an end:
+> Because thou hast had a perpetual <u>hatred</u>[^a], and hast shed <i>the blood of</i> the children of Israel by the force of the sword in the time of their calamity, in the time <i>that their</i> iniquity <i>had</i> an end:
 
 [Ezekiel 35:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/35.5?lang=eng#p5)
 

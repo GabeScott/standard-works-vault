@@ -1,6 +1,6 @@
 # Philippians 4:8
 
-> Finally, brethren, whatsoever things are <u>true</u>[^a], whatsoever things *are* <u>honest</u>[^b], whatsoever things *are* <u>just</u>[^c], whatsoever things *are* <u>pure</u>[^d], whatsoever things *are* <u>lovely</u>[^e], <u>whatsoever</u>[^f] things *are* of good report; if *there be* any <u>virtue</u>[^g], and if *there be* any praise, <u>think</u>[^h] on these things.
+> Finally, brethren, whatsoever things are <u>true</u>[^a], whatsoever things <i>are</i> <u>honest</u>[^b], whatsoever things <i>are</i> <u>just</u>[^c], whatsoever things <i>are</i> <u>pure</u>[^d], whatsoever things <i>are</i> <u>lovely</u>[^e], <u>whatsoever</u>[^f] things <i>are</i> of good report; if <i>there be</i> any <u>virtue</u>[^g], and if <i>there be</i> any praise, <u>think</u>[^h] on these things.
 
 [Philippians 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.8?lang=eng#p8)
 

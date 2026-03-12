@@ -1,6 +1,6 @@
 # Exodus 33:1
 
-> And the LORD said unto Moses, <u>Depart</u>[^a], *and* go up hence, thou and the people which thou hast brought up out of the land of Egypt, unto the land which I sware unto Abraham, to Isaac, and to Jacob, saying, Unto thy <u>seed</u>[^b] will I give it:
+> And the LORD said unto Moses, <u>Depart</u>[^a], <i>and</i> go up hence, thou and the people which thou hast brought up out of the land of Egypt, unto the land which I sware unto Abraham, to Isaac, and to Jacob, saying, Unto thy <u>seed</u>[^b] will I give it:
 
 [Exodus 33:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.1?lang=eng#p1)
 

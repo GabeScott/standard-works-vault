@@ -1,6 +1,6 @@
 # Deuteronomy 33:29
 
-> <u>Happy</u>[^a] *art* thou, O Israel: who *is* like unto thee, O people saved by the LORD, the <u>shield</u>[^b] of thy help, and who *is* the sword of thy <u>excellency</u>[^c]! and thine enemies shall <u>be found liars unto</u>[^d] thee; and thou shalt tread upon their <u>high places</u>[^e].
+> <u>Happy</u>[^a] <i>art</i> thou, O Israel: who <i>is</i> like unto thee, O people saved by the LORD, the <u>shield</u>[^b] of thy help, and who <i>is</i> the sword of thy <u>excellency</u>[^c]! and thine enemies shall <u>be found liars unto</u>[^d] thee; and thou shalt tread upon their <u>high places</u>[^e].
 
 [Deuteronomy 33:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.29?lang=eng#p29)
 

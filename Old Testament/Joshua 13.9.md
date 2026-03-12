@@ -1,6 +1,6 @@
 # Joshua 13:9
 
-> From Aroer, that *is* upon the bank of the river <u>Arnon</u>[^a], and the city that *is* in the midst of the river, and all the plain of <u>Medeba</u>[^b] unto Dibon;
+> From Aroer, that <i>is</i> upon the bank of the river <u>Arnon</u>[^a], and the city that <i>is</i> in the midst of the river, and all the plain of <u>Medeba</u>[^b] unto Dibon;
 
 [Joshua 13:9](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.9?lang=eng#p9)
 

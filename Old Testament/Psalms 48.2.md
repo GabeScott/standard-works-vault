@@ -1,6 +1,6 @@
 # Psalms 48:2
 
-> <u>Beautiful</u>[^a] for situation, the <u>joy</u>[^b] of the whole earth, *is* mount <u>Zion</u>[^c], *on* the sides of the <u>north</u>[^d], the <u>city</u>[^e] of the great King.
+> <u>Beautiful</u>[^a] for situation, the <u>joy</u>[^b] of the whole earth, <i>is</i> mount <u>Zion</u>[^c], <i>on</i> the sides of the <u>north</u>[^d], the <u>city</u>[^e] of the great King.
 
 [Psalms 48:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/48.2?lang=eng#p2)
 

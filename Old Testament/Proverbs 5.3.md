@@ -1,6 +1,6 @@
 # Proverbs 5:3
 
-> ¶ For the <u>lips</u>[^a] of a <u>strange woman</u>[^b] drop *as* an honeycomb, and her mouth *is* smoother than oil:
+> ¶ For the <u>lips</u>[^a] of a <u>strange woman</u>[^b] drop <i>as</i> an honeycomb, and her mouth <i>is</i> smoother than oil:
 
 [Proverbs 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/5.3?lang=eng#p3)
 

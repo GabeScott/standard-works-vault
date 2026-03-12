@@ -1,6 +1,6 @@
 # Ezra 9:8
 
-> And now for a little space <u>grace</u>[^a] hath been *shewed* from the LORD our God, to leave us a remnant to escape, and to give us a <u>nail</u>[^b] in his holy place, that our God may <u>lighten</u>[^c] our eyes, and give us a little reviving in our bondage.
+> And now for a little space <u>grace</u>[^a] hath been <i>shewed</i> from the LORD our God, to leave us a remnant to escape, and to give us a <u>nail</u>[^b] in his holy place, that our God may <u>lighten</u>[^c] our eyes, and give us a little reviving in our bondage.
 
 [Ezra 9:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.8?lang=eng#p8)
 

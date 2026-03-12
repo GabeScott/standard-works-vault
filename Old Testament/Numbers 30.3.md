@@ -1,6 +1,6 @@
 # Numbers 30:3
 
-> If a <u>woman</u>[^a] also vow a vow unto the LORD, and bind *herself* by a bond, *being* in her father’s house in her youth;
+> If a <u>woman</u>[^a] also vow a vow unto the LORD, and bind <i>herself</i> by a bond, <i>being</i> in her father’s house in her youth;
 
 [Numbers 30:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/30.3?lang=eng#p3)
 

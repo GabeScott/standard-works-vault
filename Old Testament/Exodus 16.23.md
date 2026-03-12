@@ -1,6 +1,6 @@
 # Exodus 16:23
 
-> And he said unto them, This *is that* which the LORD hath said, To morrow *is* the rest of the holy <u>sabbath</u>[^a] unto the LORD: <u>bake</u>[^b] *that* which ye will bake *to day,* and <u>seethe</u>[^c] that ye will seethe; and that which remaineth over lay up for you to be kept until the morning.
+> And he said unto them, This <i>is that</i> which the LORD hath said, To morrow <i>is</i> the rest of the holy <u>sabbath</u>[^a] unto the LORD: <u>bake</u>[^b] <i>that</i> which ye will bake <i>to day,</i> and <u>seethe</u>[^c] that ye will seethe; and that which remaineth over lay up for you to be kept until the morning.
 
 [Exodus 16:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.23?lang=eng#p23)
 

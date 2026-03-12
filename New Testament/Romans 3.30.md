@@ -1,6 +1,6 @@
 # Romans 3:30
 
-> Seeing *it is* <u>one God</u>[^a], which shall justify the <u>circumcision</u>[^b] by faith, and uncircumcision through faith.
+> Seeing <i>it is</i> <u>one God</u>[^a], which shall justify the <u>circumcision</u>[^b] by faith, and uncircumcision through faith.
 
 [Romans 3:30](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.30?lang=eng#p30)
 

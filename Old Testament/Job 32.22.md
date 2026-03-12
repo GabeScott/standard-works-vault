@@ -1,6 +1,6 @@
 # Job 32:22
 
-> For I know not to give <u>flattering</u>[^a] titles; *in so doing* my maker would soon take me away.
+> For I know not to give <u>flattering</u>[^a] titles; <i>in so doing</i> my maker would soon take me away.
 
 [Job 32:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/32.22?lang=eng#p22)
 

@@ -1,6 +1,6 @@
 # Zechariah 9:10
 
-> And I will cut off the chariot from Ephraim, and the <u>horse</u>[^a] from Jerusalem, and the battle bow shall be cut off: and he shall speak peace unto the <u>heathen</u>[^b]: and his <u>dominion</u>[^c] *shall be* from sea *even* to sea, and from the river *even* to the ends of the earth.
+> And I will cut off the chariot from Ephraim, and the <u>horse</u>[^a] from Jerusalem, and the battle bow shall be cut off: and he shall speak peace unto the <u>heathen</u>[^b]: and his <u>dominion</u>[^c] <i>shall be</i> from sea <i>even</i> to sea, and from the river <i>even</i> to the ends of the earth.
 
 [Zechariah 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/9.10?lang=eng#p10)
 

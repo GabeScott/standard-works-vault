@@ -1,6 +1,6 @@
 # Judges 2:17
 
-> And yet they would not hearken unto their judges, but they went a <u>whoring</u>[^a] after other <u>gods</u>[^b], and bowed themselves unto them: they turned <u>quickly</u>[^c] out of the way which their fathers walked in, obeying the commandments of the LORD; *but* they did not so.
+> And yet they would not hearken unto their judges, but they went a <u>whoring</u>[^a] after other <u>gods</u>[^b], and bowed themselves unto them: they turned <u>quickly</u>[^c] out of the way which their fathers walked in, obeying the commandments of the LORD; <i>but</i> they did not so.
 
 [Judges 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.17?lang=eng#p17)
 

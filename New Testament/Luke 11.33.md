@@ -1,6 +1,6 @@
 # Luke 11:33
 
-> No man, when he hath lighted a <u>candle</u>[^a], putteth *it* in a secret place, neither under a bushel, but on a candlestick, that they which come in may see the light.
+> No man, when he hath lighted a <u>candle</u>[^a], putteth <i>it</i> in a secret place, neither under a bushel, but on a candlestick, that they which come in may see the light.
 
 [Luke 11:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.33?lang=eng#p33)
 

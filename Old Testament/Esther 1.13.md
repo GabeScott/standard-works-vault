@@ -1,6 +1,6 @@
 # Esther 1:13
 
-> ¶ Then the king said to the <u>wise</u>[^a] men, which knew the <u>times</u>[^b], (for so *was* the king’s manner toward all that knew law and judgment:
+> ¶ Then the king said to the <u>wise</u>[^a] men, which knew the <u>times</u>[^b], (for so <i>was</i> the king’s manner toward all that knew law and judgment:
 
 [Esther 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.13?lang=eng#p13)
 

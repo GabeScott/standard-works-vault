@@ -1,6 +1,6 @@
 # Mark 13:13
 
-> And ye shall be <u>hated</u>[^a] of all *men* for my name’s sake: but he that shall <u>endure</u>[^b] unto the end, the same shall be saved.
+> And ye shall be <u>hated</u>[^a] of all <i>men</i> for my name’s sake: but he that shall <u>endure</u>[^b] unto the end, the same shall be saved.
 
 [Mark 13:13](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.13?lang=eng#p13)
 

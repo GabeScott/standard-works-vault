@@ -1,6 +1,6 @@
 # Jeremiah 22:13
 
-> ¶ <u>Woe</u>[^a] unto him that buildeth his house by <u>unrighteousness</u>[^b], and his chambers by wrong; *that* useth his neighbour’s service without <u>wages</u>[^c], and giveth him not for his work;
+> ¶ <u>Woe</u>[^a] unto him that buildeth his house by <u>unrighteousness</u>[^b], and his chambers by wrong; <i>that</i> useth his neighbour’s service without <u>wages</u>[^c], and giveth him not for his work;
 
 [Jeremiah 22:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.13?lang=eng#p13)
 

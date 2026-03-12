@@ -1,6 +1,6 @@
 # Isaiah 33:19
 
-> Thou shalt not see <u>a fierce people</u>[^a], a people of a deeper <u>speech</u>[^b] than thou canst perceive; of a stammering tongue, *that thou canst* not understand.
+> Thou shalt not see <u>a fierce people</u>[^a], a people of a deeper <u>speech</u>[^b] than thou canst perceive; of a stammering tongue, <i>that thou canst</i> not understand.
 
 [Isaiah 33:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.19?lang=eng#p19)
 

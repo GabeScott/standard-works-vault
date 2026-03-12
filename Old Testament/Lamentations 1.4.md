@@ -1,6 +1,6 @@
 # Lamentations 1:4
 
-> The ways of Zion do <u>mourn</u>[^a], because none come to the <u>solemn</u>[^b] feasts: all her gates are desolate: her priests sigh, her virgins are afflicted, and she *is* in bitterness.
+> The ways of Zion do <u>mourn</u>[^a], because none come to the <u>solemn</u>[^b] feasts: all her gates are desolate: her priests sigh, her virgins are afflicted, and she <i>is</i> in bitterness.
 
 [Lamentations 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.4?lang=eng#p4)
 

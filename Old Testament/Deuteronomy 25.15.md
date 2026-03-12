@@ -1,6 +1,6 @@
 # Deuteronomy 25:15
 
-> *But* thou shalt have a <u>perfect</u>[^a] and just weight, a perfect and just <u>measure</u>[^b] shalt thou have: that thy days may be <u>lengthened</u>[^c] in the land which the LORD thy God giveth thee.
+> <i>But</i> thou shalt have a <u>perfect</u>[^a] and just weight, a perfect and just <u>measure</u>[^b] shalt thou have: that thy days may be <u>lengthened</u>[^c] in the land which the LORD thy God giveth thee.
 
 [Deuteronomy 25:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # Esther 3:1
 
-> After these things did king Ahasuerus <u>promote</u>[^a] Haman the son of <u>Hammedatha</u>[^b] the Agagite, and advanced him, and set his seat above all the princes that *were* with him.
+> After these things did king Ahasuerus <u>promote</u>[^a] Haman the son of <u>Hammedatha</u>[^b] the Agagite, and advanced him, and set his seat above all the princes that <i>were</i> with him.
 
 [Esther 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/3.1?lang=eng#p1)
 

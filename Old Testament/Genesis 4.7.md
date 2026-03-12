@@ -1,6 +1,6 @@
 # Genesis 4:7
 
-> If thou doest well, shalt thou not be <u>accepted</u>[^a]? and if thou <u>doest</u>[^b] not well, <u>sin</u>[^c] lieth at the door. And unto thee *shall be* <u>his</u>[^d] <u>desire</u>[^e], and thou shalt rule over him.
+> If thou doest well, shalt thou not be <u>accepted</u>[^a]? and if thou <u>doest</u>[^b] not well, <u>sin</u>[^c] lieth at the door. And unto thee <i>shall be</i> <u>his</u>[^d] <u>desire</u>[^e], and thou shalt rule over him.
 
 [Genesis 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.7?lang=eng#p7)
 

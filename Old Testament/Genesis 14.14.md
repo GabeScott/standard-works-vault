@@ -1,6 +1,6 @@
 # Genesis 14:14
 
-> And when Abram heard that his brother was taken captive, <u>he armed</u>[^a] his trained *servants,* <u>born</u>[^b] in his own house, three hundred and eighteen, and pursued *them* unto Dan.
+> And when Abram heard that his brother was taken captive, <u>he armed</u>[^a] his trained <i>servants,</i> <u>born</u>[^b] in his own house, three hundred and eighteen, and pursued <i>them</i> unto Dan.
 
 [Genesis 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.14?lang=eng#p14)
 

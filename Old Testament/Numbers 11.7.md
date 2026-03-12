@@ -1,6 +1,6 @@
 # Numbers 11:7
 
-> And the <u>manna</u>[^a] *was* as <u>coriander</u>[^b] seed, and the colour thereof as the colour of bdellium.
+> And the <u>manna</u>[^a] <i>was</i> as <u>coriander</u>[^b] seed, and the colour thereof as the colour of bdellium.
 
 [Numbers 11:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.7?lang=eng#p7)
 

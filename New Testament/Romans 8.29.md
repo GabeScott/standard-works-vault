@@ -1,6 +1,6 @@
 # Romans 8:29
 
-> <u>For</u>[^a] whom he did <u>foreknow</u>[^b], he also <u>did predestinate</u>[^c] <u>to be conformed to</u>[^d] the <u>image</u>[^e] of his Son, that he might be the <u>firstborn</u>[^f] among many brethren.
+> <u>For</u>[^a] whom he did <u>foreknow</u>[^b], he also <u>did predestinate</u>[^c] <i><u>to be conformed to</u></i>[^d] the <u>image</u>[^e] of his Son, that he might be the <u>firstborn</u>[^f] among many brethren.
 
 [Romans 8:29](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.29?lang=eng#p29)
 

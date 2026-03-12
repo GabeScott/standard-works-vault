@@ -1,6 +1,6 @@
 # Matthew 25:40
 
-> And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have <u>done</u>[^a] *it* unto one of the <u>least</u>[^b] of these my <u>brethren</u>[^c], ye have done *it* unto me.
+> And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have <u>done</u>[^a] <i>it</i> unto one of the <u>least</u>[^b] of these my <u>brethren</u>[^c], ye have done <i>it</i> unto me.
 
 [Matthew 25:40](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.40?lang=eng#p40)
 

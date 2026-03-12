@@ -1,6 +1,6 @@
 # 1 Thessalonians 5:14
 
-> Now we exhort you, brethren, <u>warn</u>[^a] them that are <u>unruly</u>[^b], <u>comfort</u>[^c] the <u>feebleminded</u>[^d], <u>support</u>[^e] the <u>weak</u>[^f], be patient toward all *men.*
+> Now we exhort you, brethren, <u>warn</u>[^a] them that are <u>unruly</u>[^b], <u>comfort</u>[^c] the <u>feebleminded</u>[^d], <u>support</u>[^e] the <u>weak</u>[^f], be patient toward all <i>men.</i>
 
 [1 Thessalonians 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.14?lang=eng#p14)
 

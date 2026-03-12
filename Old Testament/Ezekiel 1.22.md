@@ -1,6 +1,6 @@
 # Ezekiel 1:22
 
-> And the likeness of the <u>firmament upon</u>[^a] the heads of the <u>living</u>[^b] creature *was* as the <u>colour</u>[^c] of the terrible <u>crystal</u>[^d], stretched forth over their heads above.
+> And the likeness of the <u>firmament upon</u>[^a] the heads of the <u>living</u>[^b] creature <i>was</i> as the <u>colour</u>[^c] of the terrible <u>crystal</u>[^d], stretched forth over their heads above.
 
 [Ezekiel 1:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.22?lang=eng#p22)
 

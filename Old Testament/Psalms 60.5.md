@@ -1,6 +1,6 @@
 # Psalms 60:5
 
-> That thy <u>beloved</u>[^a] may be <u>delivered</u>[^b]; save *with* thy right hand, and hear me.
+> That thy <u>beloved</u>[^a] may be <u>delivered</u>[^b]; save <i>with</i> thy right hand, and hear me.
 
 [Psalms 60:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/60.5?lang=eng#p5)
 

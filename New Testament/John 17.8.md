@@ -1,6 +1,6 @@
 # John 17:8
 
-> For I have given unto them the <u>words</u>[^a] which thou gavest me; and they have received *them,* and have known surely that I <u>came</u>[^b] out from thee, and they have <u>believed</u>[^c] that thou didst send me.
+> For I have given unto them the <u>words</u>[^a] which thou gavest me; and they have received <i>them,</i> and have known surely that I <u>came</u>[^b] out from thee, and they have <u>believed</u>[^c] that thou didst send me.
 
 [John 17:8](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.8?lang=eng#p8)
 

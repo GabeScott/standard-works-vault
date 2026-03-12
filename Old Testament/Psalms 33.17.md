@@ -1,6 +1,6 @@
 # Psalms 33:17
 
-> An <u>horse</u>[^a] *is* a vain thing for safety: neither shall he <u>deliver</u>[^b] *any* by his great strength.
+> An <u>horse</u>[^a] <i>is</i> a vain thing for safety: neither shall he <u>deliver</u>[^b] <i>any</i> by his great strength.
 
 [Psalms 33:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.17?lang=eng#p17)
 

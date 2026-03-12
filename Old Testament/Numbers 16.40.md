@@ -1,6 +1,6 @@
 # Numbers 16:40
 
-> *To be* a memorial unto the children of Israel, that no <u>stranger</u>[^a], which *is* not of the seed of <u>Aaron</u>[^b], come near to offer <u>incense</u>[^c] before the LORD; that he be not as Korah, and as his company: as the LORD said to him by the hand of Moses.
+> <i>To be</i> a memorial unto the children of Israel, that no <u>stranger</u>[^a], which <i>is</i> not of the seed of <u>Aaron</u>[^b], come near to offer <u>incense</u>[^c] before the LORD; that he be not as Korah, and as his company: as the LORD said to him by the hand of Moses.
 
 [Numbers 16:40](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.40?lang=eng#p40)
 

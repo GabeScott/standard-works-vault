@@ -1,6 +1,6 @@
 # 2 Samuel 9:12
 
-> And Mephibosheth had a young son, whose name *was* Micha. And all that dwelt in the house of Ziba *were* <u>servants</u>[^a] unto Mephibosheth.
+> And Mephibosheth had a young son, whose name <i>was</i> Micha. And all that dwelt in the house of Ziba <i>were</i> <u>servants</u>[^a] unto Mephibosheth.
 
 [2 Samuel 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/9.12?lang=eng#p12)
 

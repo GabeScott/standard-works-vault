@@ -1,6 +1,6 @@
 # 2 Kings 7:2
 
-> Then a <u>lord</u>[^a] on whose hand the king leaned answered the man of God, and said, Behold, *if* the LORD would make <u>windows</u>[^b] in heaven, might this thing be? And he said, Behold, thou shalt see *it* with thine eyes, but shalt not eat thereof.
+> Then a <u>lord</u>[^a] on whose hand the king leaned answered the man of God, and said, Behold, <i>if</i> the LORD would make <u>windows</u>[^b] in heaven, might this thing be? And he said, Behold, thou shalt see <i>it</i> with thine eyes, but shalt not eat thereof.
 
 [2 Kings 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/7.2?lang=eng#p2)
 

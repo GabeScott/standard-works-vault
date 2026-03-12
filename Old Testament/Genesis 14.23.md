@@ -1,6 +1,6 @@
 # Genesis 14:23
 
-> That I will not *take* from a thread even to a shoelatchet, and that I will not take any thing that *is* thine, lest thou shouldest say, I have made Abram <u>rich</u>[^a]:
+> That I will not <i>take</i> from a thread even to a shoelatchet, and that I will not take any thing that <i>is</i> thine, lest thou shouldest say, I have made Abram <u>rich</u>[^a]:
 
 [Genesis 14:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/14.23?lang=eng#p23)
 

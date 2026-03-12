@@ -1,6 +1,6 @@
 # Genesis 1:21
 
-> And God created <u>great whales</u>[^a], and every living creature that moveth, which the waters brought forth abundantly, after their kind, and every winged fowl after his kind: and God saw that *it was* good.
+> And God created <u>great whales</u>[^a], and every living creature that moveth, which the waters brought forth abundantly, after their kind, and every winged fowl after his kind: and God saw that <i>it was</i> good.
 
 [Genesis 1:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.21?lang=eng#p21)
 

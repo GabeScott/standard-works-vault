@@ -1,6 +1,6 @@
 # Proverbs 18:21
 
-> Death and life *are* in the power of the <u>tongue</u>[^a]: and they that love it shall eat the fruit thereof.
+> Death and life <i>are</i> in the power of the <u>tongue</u>[^a]: and they that love it shall eat the fruit thereof.
 
 [Proverbs 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.21?lang=eng#p21)
 

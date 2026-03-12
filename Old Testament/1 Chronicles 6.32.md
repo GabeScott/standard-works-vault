@@ -1,6 +1,6 @@
 # 1 Chronicles 6:32
 
-> And they <u>ministered</u>[^a] before the dwelling place of the tabernacle of the congregation with <u>singing</u>[^b], until Solomon had built the house of the LORD in Jerusalem: and *then* they waited on their office <u>according</u>[^c] to their <u>order</u>[^d].
+> And they <u>ministered</u>[^a] before the dwelling place of the tabernacle of the congregation with <u>singing</u>[^b], until Solomon had built the house of the LORD in Jerusalem: and <i>then</i> they waited on their office <u>according</u>[^c] to their <u>order</u>[^d].
 
 [1 Chronicles 6:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/6.32?lang=eng#p32)
 

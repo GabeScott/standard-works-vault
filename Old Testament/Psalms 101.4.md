@@ -1,6 +1,6 @@
 # Psalms 101:4
 
-> A <u>froward</u>[^a] heart shall depart from me: I will not <u>know</u>[^b] a wicked *person.*
+> A <u>froward</u>[^a] heart shall depart from me: I will not <u>know</u>[^b] a wicked <i>person.</i>
 
 [Psalms 101:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/101.4?lang=eng#p4)
 

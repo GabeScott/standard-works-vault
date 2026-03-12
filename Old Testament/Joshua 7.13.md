@@ -1,6 +1,6 @@
 # Joshua 7:13
 
-> Up, <u>sanctify</u>[^a] the people, and say, <u>Sanctify</u>[^b] yourselves against to morrow: for thus saith the LORD God of Israel, *There is* an accursed thing in the midst of thee, O Israel: thou canst not stand before thine enemies, until ye take away the accursed thing from among you.
+> Up, <u>sanctify</u>[^a] the people, and say, <u>Sanctify</u>[^b] yourselves against to morrow: for thus saith the LORD God of Israel, <i>There is</i> an accursed thing in the midst of thee, O Israel: thou canst not stand before thine enemies, until ye take away the accursed thing from among you.
 
 [Joshua 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/7.13?lang=eng#p13)
 

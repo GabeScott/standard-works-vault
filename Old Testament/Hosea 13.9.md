@@ -1,6 +1,6 @@
 # Hosea 13:9
 
-> ¶ O Israel, thou hast <u>destroyed</u>[^a] thyself; but in me *is* thine <u>help</u>[^b].
+> ¶ O Israel, thou hast <u>destroyed</u>[^a] thyself; but in me <i>is</i> thine <u>help</u>[^b].
 
 [Hosea 13:9](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.9?lang=eng#p9)
 

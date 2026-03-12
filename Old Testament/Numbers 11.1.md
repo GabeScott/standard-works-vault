@@ -1,6 +1,6 @@
 # Numbers 11:1
 
-> And *when* the people <u>complained</u>[^a], it displeased the LORD: and the LORD heard *it;* and his anger was kindled; and the <u>fire</u>[^b] of the LORD burnt among them, and consumed *them that were* in the uttermost parts of the camp.
+> And <i>when</i> the people <u>complained</u>[^a], it displeased the LORD: and the LORD heard <i>it;</i> and his anger was kindled; and the <u>fire</u>[^b] of the LORD burnt among them, and consumed <i>them that were</i> in the uttermost parts of the camp.
 
 [Numbers 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.1?lang=eng#p1)
 

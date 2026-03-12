@@ -1,6 +1,6 @@
 # James 4:14
 
-> Whereas ye know not what *shall be* on the morrow. For what *is* your life? It is even a <u>vapour</u>[^a], that appeareth for a little time, and then vanisheth away.
+> Whereas ye know not what <i>shall be</i> on the morrow. For what <i>is</i> your life? It is even a <u>vapour</u>[^a], that appeareth for a little time, and then vanisheth away.
 
 [James 4:14](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.14?lang=eng#p14)
 

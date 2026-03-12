@@ -1,6 +1,6 @@
 # Genesis 49:9
 
-> Judah *is* a <u>lion’s</u>[^a] whelp: from the prey, my son, thou art gone up: he stooped down, he couched as a <u>lion</u>[^b], and as an old lion; who shall rouse him up?
+> Judah <i>is</i> a <u>lion’s</u>[^a] whelp: from the prey, my son, thou art gone up: he stooped down, he couched as a <u>lion</u>[^b], and as an old lion; who shall rouse him up?
 
 [Genesis 49:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Mark 6:52
 
-> For they <u>considered not</u>[^a] *the miracle* of the loaves: for their heart was <u>hardened</u>[^b].
+> For they <u>considered not</u>[^a] <i>the miracle</i> of the loaves: for their heart was <u>hardened</u>[^b].
 
 [Mark 6:52](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.52?lang=eng#p52)
 

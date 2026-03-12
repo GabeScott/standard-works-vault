@@ -1,6 +1,6 @@
 # Leviticus 27:16
 
-> And if a man shall sanctify unto the LORD *some part* of a field of his possession, then thy estimation shall be according to the seed thereof: an <u>homer</u>[^a] of barley seed *shall be valued* at fifty shekels of silver.
+> And if a man shall sanctify unto the LORD <i>some part</i> of a field of his possession, then thy estimation shall be according to the seed thereof: an <u>homer</u>[^a] of barley seed <i>shall be valued</i> at fifty shekels of silver.
 
 [Leviticus 27:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/27.16?lang=eng#p16)
 

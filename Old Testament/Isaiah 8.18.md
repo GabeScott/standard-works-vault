@@ -1,6 +1,6 @@
 # Isaiah 8:18
 
-> Behold, I and the children whom the LORD hath given me *are* for <u>signs</u>[^a] and for wonders in Israel from the LORD of hosts, which dwelleth in mount Zion.
+> Behold, I and the children whom the LORD hath given me <i>are</i> for <u>signs</u>[^a] and for wonders in Israel from the LORD of hosts, which dwelleth in mount Zion.
 
 [Isaiah 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.18?lang=eng#p18)
 

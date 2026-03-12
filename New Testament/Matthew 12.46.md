@@ -1,6 +1,6 @@
 # Matthew 12:46
 
-> ¶ While he yet talked to the people, behold, *his* mother and his <u>brethren</u>[^a] stood <u>without</u>[^b], desiring to speak with him.
+> ¶ While he yet talked to the people, behold, <i>his</i> mother and his <u>brethren</u>[^a] stood <u>without</u>[^b], desiring to speak with him.
 
 [Matthew 12:46](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.46?lang=eng#p46)
 

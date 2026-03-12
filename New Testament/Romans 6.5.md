@@ -1,6 +1,6 @@
 # Romans 6:5
 
-> For if we have been planted together in the <u>likeness</u>[^a] of his <u>death</u>[^b], we shall be also *in the likeness* of *his* <u>resurrection</u>[^c]:
+> For if we have been planted together in the <u>likeness</u>[^a] of his <u>death</u>[^b], we shall be also <i>in the likeness</i> of <i>his</i> <u>resurrection</u>[^c]:
 
 [Romans 6:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.5?lang=eng#p5)
 

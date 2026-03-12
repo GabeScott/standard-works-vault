@@ -1,6 +1,6 @@
 # Judges 19:16
 
-> ¶ And, behold, there came an old man from his work out of the field at even, which *was* also of mount Ephraim; and he <u>sojourned</u>[^a] in Gibeah: but the men of the place *were* Benjamites.
+> ¶ And, behold, there came an old man from his work out of the field at even, which <i>was</i> also of mount Ephraim; and he <u>sojourned</u>[^a] in Gibeah: but the men of the place <i>were</i> Benjamites.
 
 [Judges 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/19.16?lang=eng#p16)
 

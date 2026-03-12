@@ -1,6 +1,6 @@
 # Ezekiel 38:6
 
-> <u>Gomer</u>[^a], and all his bands; the house of <u>Togarmah</u>[^b] of the north quarters, and all his bands: *and* many people with thee.
+> <u>Gomer</u>[^a], and all his bands; the house of <u>Togarmah</u>[^b] of the north quarters, and all his bands: <i>and</i> many people with thee.
 
 [Ezekiel 38:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.6?lang=eng#p6)
 

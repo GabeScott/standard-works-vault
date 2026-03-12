@@ -1,6 +1,6 @@
 # Ezekiel 47:19
 
-> And the south side southward, from Tamar *even* to the waters of <u>strife</u>[^a] *in* Kadesh, the river to the great sea. And *this is* the south side southward.
+> And the south side southward, from Tamar <i>even</i> to the waters of <u>strife</u>[^a] <i>in</i> Kadesh, the river to the great sea. And <i>this is</i> the south side southward.
 
 [Ezekiel 47:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.19?lang=eng#p19)
 

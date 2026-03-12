@@ -5,4 +5,5 @@
 [Micah 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/1.3?lang=eng#p3)
 
 
-[^b]: [[Dispensations|TG Dispensations]].  
+[^a]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].
+[^b]: [[Dispensations|TG Dispensations]].

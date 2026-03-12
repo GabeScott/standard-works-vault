@@ -1,6 +1,6 @@
 # Exodus 35:25
 
-> And all the women that were <u>wise</u>[^a] hearted did spin with their hands, and brought that which they had spun, *both* of blue, and of purple, *and* of scarlet, and of fine linen.
+> And all the women that were <u>wise</u>[^a] hearted did spin with their hands, and brought that which they had spun, <i>both</i> of blue, and of purple, <i>and</i> of scarlet, and of fine linen.
 
 [Exodus 35:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.25?lang=eng#p25)
 

@@ -1,6 +1,6 @@
 # Joshua 15:60
 
-> Kirjath-baal, which *is* <u>Kirjath-jearim</u>[^a], and Rabbah; two cities with their villages:
+> Kirjath-baal, which <i>is</i> <u>Kirjath-jearim</u>[^a], and Rabbah; two cities with their villages:
 
 [Joshua 15:60](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.60?lang=eng#p60)
 

@@ -1,6 +1,6 @@
 # 1 Chronicles 3:19
 
-> And the sons of Pedaiah *were,* <u>Zerubbabel</u>[^a], and Shimei: and the sons of Zerubbabel; Meshullam, and Hananiah, and Shelomith their sister:
+> And the sons of Pedaiah <i>were,</i> <u>Zerubbabel</u>[^a], and Shimei: and the sons of Zerubbabel; Meshullam, and Hananiah, and Shelomith their sister:
 
 [1 Chronicles 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/3.19?lang=eng#p19)
 

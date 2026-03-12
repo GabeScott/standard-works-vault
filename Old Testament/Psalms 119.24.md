@@ -1,6 +1,6 @@
 # Psalms 119:24
 
-> Thy <u>testimonies</u>[^a] also *are* my delight *and* my counsellors.
+> Thy <u>testimonies</u>[^a] also <i>are</i> my delight <i>and</i> my counsellors.
 
 [Psalms 119:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.24?lang=eng#p24)
 

@@ -1,6 +1,6 @@
 # Jeremiah 48:7
 
-> ¶ For because thou hast trusted in thy <u>works</u>[^a] and in thy treasures, thou shalt also be taken: and Chemosh shall go forth into <u>captivity</u>[^b] *with* his priests and his princes together.
+> ¶ For because thou hast trusted in thy <u>works</u>[^a] and in thy treasures, thou shalt also be taken: and Chemosh shall go forth into <u>captivity</u>[^b] <i>with</i> his priests and his princes together.
 
 [Jeremiah 48:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.7?lang=eng#p7)
 

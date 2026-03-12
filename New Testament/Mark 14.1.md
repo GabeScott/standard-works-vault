@@ -1,6 +1,6 @@
 # Mark 14:1
 
-> After two days was *the **feast of* the passover, and of unleavened bread: and the chief priests and the <u>scribes</u>[^a] sought how they might take him by craft, and put *him* to <u>death</u>[^b].
+> After two days was <i>the feast of</i> the passover, and of unleavened bread: and the chief priests and the <u>scribes</u>[^a] sought how they might take him by craft, and put <i>him</i> to <u>death</u>[^b].
 
 [Mark 14:1](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.1?lang=eng#p1)
 

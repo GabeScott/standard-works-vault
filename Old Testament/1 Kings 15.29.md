@@ -1,6 +1,6 @@
 # 1 Kings 15:29
 
-> And it came to pass, when he reigned, *that* he smote all the house of <u>Jeroboam</u>[^a]; he left not to Jeroboam any that breathed, until he had destroyed him, according unto the saying of the LORD, which he spake by his servant Ahijah the Shilonite:
+> And it came to pass, when he reigned, <i>that</i> he smote all the house of <u>Jeroboam</u>[^a]; he left not to Jeroboam any that breathed, until he had destroyed him, according unto the saying of the LORD, which he spake by his servant Ahijah the Shilonite:
 
 [1 Kings 15:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.29?lang=eng#p29)
 

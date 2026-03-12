@@ -1,6 +1,6 @@
 # Genesis 49:8
 
-> ¶ <u>Judah</u>[^a], thou *art he* whom thy brethren shall <u>praise</u>[^b]: thy hand *shall be* in the <u>neck</u>[^c] of thine enemies; thy father’s children shall <u>bow</u>[^d] down before thee.
+> ¶ <u>Judah</u>[^a], thou <i>art he</i> whom thy brethren shall <u>praise</u>[^b]: thy hand <i>shall be</i> in the <u>neck</u>[^c] of thine enemies; thy father’s children shall <u>bow</u>[^d] down before thee.
 
 [Genesis 49:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.8?lang=eng#p8)
 

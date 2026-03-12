@@ -1,6 +1,6 @@
 # Deuteronomy 4:12
 
-> And the LORD spake unto you out of the midst of the fire: ye heard the <u>voice</u>[^a] of the words, but saw no <u>similitude</u>[^b]; only *ye heard* a voice.
+> And the LORD spake unto you out of the midst of the fire: ye heard the <u>voice</u>[^a] of the words, but saw no <u>similitude</u>[^b]; only <i>ye heard</i> a voice.
 
 [Deuteronomy 4:12](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.12?lang=eng#p12)
 

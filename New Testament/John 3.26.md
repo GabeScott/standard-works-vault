@@ -1,6 +1,6 @@
 # John 3:26
 
-> And they came unto John, and said unto him, Rabbi, he that was with thee beyond Jordan, to whom thou barest witness, behold, the same baptizeth, <u>and</u>[^a] all *men* come to him.
+> And they came unto John, and said unto him, Rabbi, he that was with thee beyond Jordan, to whom thou barest witness, behold, the same baptizeth, <u>and</u>[^a] all <i>men</i> come to him.
 
 [John 3:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.26?lang=eng#p26)
 

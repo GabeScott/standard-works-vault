@@ -1,6 +1,6 @@
 # Leviticus 11:35
 
-> And every *thing* whereupon *any part* of their carcase falleth shall be unclean; *whether it be* <u>oven</u>[^a], or ranges for pots, they shall be broken down: *for* they *are* unclean, and shall be unclean unto you.
+> And every <i>thing</i> whereupon <i>any part</i> of their carcase falleth shall be unclean; <i>whether it be</i> <u>oven</u>[^a], or ranges for pots, they shall be broken down: <i>for</i> they <i>are</i> unclean, and shall be unclean unto you.
 
 [Leviticus 11:35](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.35?lang=eng#p35)
 

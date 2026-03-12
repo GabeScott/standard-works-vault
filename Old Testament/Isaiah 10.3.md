@@ -1,6 +1,6 @@
 # Isaiah 10:3
 
-> And what will ye do in the day of <u>visitation</u>[^a], and in the desolation *which* shall come from far? to whom will ye flee for help? and where will ye leave your glory?
+> And what will ye do in the day of <u>visitation</u>[^a], and in the desolation <i>which</i> shall come from far? to whom will ye flee for help? and where will ye leave your glory?
 
 [Isaiah 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.3?lang=eng#p3)
 

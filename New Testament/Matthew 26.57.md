@@ -1,6 +1,6 @@
 # Matthew 26:57
 
-> ¶ And they that had laid hold on Jesus led *him* away to <u>Caiaphas</u>[^a] the high priest, where the scribes and the elders were assembled.
+> ¶ And they that had laid hold on Jesus led <i>him</i> away to <u>Caiaphas</u>[^a] the high priest, where the scribes and the elders were assembled.
 
 [Matthew 26:57](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.57?lang=eng#p57)
 

@@ -1,6 +1,6 @@
 # Numbers 6:2
 
-> Speak unto the children of Israel, and say unto them, When either man or woman shall separate *themselves* to vow a <u>vow</u>[^a] of a <u>Nazarite</u>[^b], to separate *themselves* unto the LORD:
+> Speak unto the children of Israel, and say unto them, When either man or woman shall separate <i>themselves</i> to vow a <u>vow</u>[^a] of a <u>Nazarite</u>[^b], to separate <i>themselves</i> unto the LORD:
 
 [Numbers 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.2?lang=eng#p2)
 

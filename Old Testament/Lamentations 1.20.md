@@ -1,6 +1,6 @@
 # Lamentations 1:20
 
-> Behold, O LORD; for I *am* in distress: my <u>bowels</u>[^a] are troubled; mine heart is turned within me; for I have grievously <u>rebelled</u>[^b]: abroad the <u>sword</u>[^c] bereaveth, at home *there is* as death.
+> Behold, O LORD; for I <i>am</i> in distress: my <u>bowels</u>[^a] are troubled; mine heart is turned within me; for I have grievously <u>rebelled</u>[^b]: abroad the <u>sword</u>[^c] bereaveth, at home <i>there is</i> as death.
 
 [Lamentations 1:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.20?lang=eng#p20)
 

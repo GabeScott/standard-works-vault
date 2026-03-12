@@ -1,6 +1,6 @@
 # Luke 13:13
 
-> And he <u>laid</u>[^a] *his* <u>hands</u>[^b] on her: and immediately she was made straight, and glorified God.
+> And he <u>laid</u>[^a] <i>his</i> <u>hands</u>[^b] on her: and immediately she was made straight, and glorified God.
 
 [Luke 13:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.13?lang=eng#p13)
 

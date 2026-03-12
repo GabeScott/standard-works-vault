@@ -1,6 +1,6 @@
 # Leviticus 1:5
 
-> And he shall kill the <u>bullock</u>[^a] before the LORD: and the priests, Aaron’s sons, shall bring the blood, and <u>sprinkle</u>[^b] the blood round about upon the altar that *is by* the door of the tabernacle of the congregation.
+> And he shall kill the <u>bullock</u>[^a] before the LORD: and the priests, Aaron’s sons, shall bring the blood, and <u>sprinkle</u>[^b] the blood round about upon the altar that <i>is by</i> the door of the tabernacle of the congregation.
 
 [Leviticus 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/1.5?lang=eng#p5)
 

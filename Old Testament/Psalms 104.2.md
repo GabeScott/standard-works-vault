@@ -1,6 +1,6 @@
 # Psalms 104:2
 
-> Who coverest *thyself* with light as *with* a garment: who <u>stretchest</u>[^a] out the <u>heavens</u>[^b] like a curtain:
+> Who coverest <i>thyself</i> with light as <i>with</i> a garment: who <u>stretchest</u>[^a] out the <u>heavens</u>[^b] like a curtain:
 
 [Psalms 104:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.2?lang=eng#p2)
 

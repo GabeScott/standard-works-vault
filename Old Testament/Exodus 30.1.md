@@ -1,6 +1,6 @@
 # Exodus 30:1
 
-> And thou shalt make an <u>altar</u>[^a] to burn <u>incense</u>[^b] upon: *of* <u>shittim</u>[^c] wood shalt thou make it.
+> And thou shalt make an <u>altar</u>[^a] to burn <u>incense</u>[^b] upon: <i>of</i> <u>shittim</u>[^c] wood shalt thou make it.
 
 [Exodus 30:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/30.1?lang=eng#p1)
 

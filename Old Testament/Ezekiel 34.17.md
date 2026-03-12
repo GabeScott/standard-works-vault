@@ -1,6 +1,6 @@
 # Ezekiel 34:17
 
-> And *as for* you, O my <u>flock</u>[^a], thus saith the Lord GOD; Behold, I <u>judge</u>[^b] <u>between cattle and cattle</u>[^c], between the rams and the he goats.
+> And <i>as for</i> you, O my <u>flock</u>[^a], thus saith the Lord GOD; Behold, I <u>judge</u>[^b] <u>between cattle and cattle</u>[^c], between the rams and the he goats.
 
 [Ezekiel 34:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.17?lang=eng#p17)
 

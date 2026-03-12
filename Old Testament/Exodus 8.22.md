@@ -1,6 +1,6 @@
 # Exodus 8:22
 
-> And I will <u>sever</u>[^a] in that day the land of Goshen, in which my people dwell, that <u>no</u>[^b] swarms *of flies* shall be there; to the end thou mayest know that I *am* the LORD in the midst of the earth.
+> And I will <u>sever</u>[^a] in that day the land of Goshen, in which my people dwell, that <u>no</u>[^b] swarms <i>of flies</i> shall be there; to the end thou mayest know that I <i>am</i> the LORD in the midst of the earth.
 
 [Exodus 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.22?lang=eng#p22)
 

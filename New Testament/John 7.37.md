@@ -1,6 +1,6 @@
 # John 7:37
 
-> In the last day, that great *day* of the feast, Jesus stood and cried, saying, If any man <u>thirst</u>[^a], let him come unto me, and <u>drink</u>[^b].
+> In the last day, that great <i>day</i> of the feast, Jesus stood and cried, saying, If any man <u>thirst</u>[^a], let him come unto me, and <u>drink</u>[^b].
 
 [John 7:37](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.37?lang=eng#p37)
 

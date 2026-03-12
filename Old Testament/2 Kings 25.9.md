@@ -1,6 +1,6 @@
 # 2 Kings 25:9
 
-> And he <u>burnt</u>[^a] the <u>house</u>[^b] of the LORD, and the king’s house, and all the houses of Jerusalem, and every great *man’s* house <u>burnt</u>[^c] he with fire.
+> And he <u>burnt</u>[^a] the <u>house</u>[^b] of the LORD, and the king’s house, and all the houses of Jerusalem, and every great <i>man’s</i> house <u>burnt</u>[^c] he with fire.
 
 [2 Kings 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.9?lang=eng#p9)
 

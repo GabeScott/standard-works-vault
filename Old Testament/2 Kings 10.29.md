@@ -1,6 +1,6 @@
 # 2 Kings 10:29
 
-> ¶ Howbeit *from* the sins of <u>Jeroboam</u>[^a] the son of Nebat, who made Israel to <u>sin</u>[^b], Jehu departed not from after them, *to wit,* the golden <u>calves</u>[^c] that *were* in Beth-el, and that *were* in Dan.
+> ¶ Howbeit <i>from</i> the sins of <u>Jeroboam</u>[^a] the son of Nebat, who made Israel to <u>sin</u>[^b], Jehu departed not from after them, <i>to wit,</i> the golden <u>calves</u>[^c] that <i>were</i> in Beth-el, and that <i>were</i> in Dan.
 
 [2 Kings 10:29](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/10.29?lang=eng#p29)
 

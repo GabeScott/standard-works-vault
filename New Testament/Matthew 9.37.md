@@ -1,6 +1,6 @@
 # Matthew 9:37
 
-> Then saith he unto his disciples, The <u>harvest</u>[^a] truly *is* plenteous, but the <u>labourers</u>[^b] *are* few;
+> Then saith he unto his disciples, The <u>harvest</u>[^a] truly <i>is</i> plenteous, but the <u>labourers</u>[^b] <i>are</i> few;
 
 [Matthew 9:37](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.37?lang=eng#p37)
 

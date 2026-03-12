@@ -1,6 +1,6 @@
 # John 6:62
 
-> *What* and if ye shall see the <u>Son of man</u>[^a] <u>ascend</u>[^b] up where he was before?
+> <i>What</i> and if ye shall see the <u>Son of man</u>[^a] <u>ascend</u>[^b] up where he was before?
 
 [John 6:62](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.62?lang=eng#p62)
 

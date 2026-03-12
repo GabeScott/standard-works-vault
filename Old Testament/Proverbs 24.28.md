@@ -1,6 +1,6 @@
 # Proverbs 24:28
 
-> Be not a <u>witness</u>[^a] against thy neighbour without cause; and <u>deceive</u>[^b] *not* with thy lips.
+> Be not a <u>witness</u>[^a] against thy neighbour without cause; and <u>deceive</u>[^b] <i>not</i> with thy lips.
 
 [Proverbs 24:28](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/24.28?lang=eng#p28)
 

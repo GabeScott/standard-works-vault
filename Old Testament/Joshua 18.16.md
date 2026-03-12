@@ -1,6 +1,6 @@
 # Joshua 18:16
 
-> And the border came down to the end of the mountain that *lieth* before the valley of the son of <u>Hinnom</u>[^a], *and* which *is* in the valley of the giants on the north, and descended to the valley of <u>Hinnom</u>[^b], to the side of Jebusi on the south, and descended to En-rogel,
+> And the border came down to the end of the mountain that <i>lieth</i> before the valley of the son of <u>Hinnom</u>[^a], <i>and</i> which <i>is</i> in the valley of the giants on the north, and descended to the valley of <u>Hinnom</u>[^b], to the side of Jebusi on the south, and descended to En-rogel,
 
 [Joshua 18:16](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/18.16?lang=eng#p16)
 

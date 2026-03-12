@@ -1,6 +1,6 @@
 # Genesis 49:7
 
-> <u>Cursed</u>[^a] *be* their <u>anger</u>[^b], for *it was* fierce; and their wrath, for it was <u>cruel</u>[^c]: I will divide them in Jacob, and scatter them in Israel.
+> <u>Cursed</u>[^a] <i>be</i> their <u>anger</u>[^b], for <i>it was</i> fierce; and their wrath, for it was <u>cruel</u>[^c]: I will divide them in Jacob, and scatter them in Israel.
 
 [Genesis 49:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.7?lang=eng#p7)
 

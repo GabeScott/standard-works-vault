@@ -1,6 +1,6 @@
 # Revelation 7:4
 
-> And I heard the number of them which were sealed: *and there were* sealed an <u>hundred</u>[^a] *and* forty *and* four thousand of all the <u>tribes</u>[^b] of the children of <u>Israel</u>[^c].
+> And I heard the number of them which were sealed: <i>and there were</i> sealed an <u>hundred</u>[^a] <i>and</i> forty <i>and</i> four thousand of all the <u>tribes</u>[^b] of the children of <u>Israel</u>[^c].
 
 [Revelation 7:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.4?lang=eng#p4)
 

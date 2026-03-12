@@ -1,6 +1,6 @@
 # Amos 5:12
 
-> For I know your manifold transgressions and your mighty sins: they afflict the just, they take a <u>bribe</u>[^a], and they <u>turn</u>[^b] aside the <u>poor</u>[^c] in the gate *from their right.*
+> For I know your manifold transgressions and your mighty sins: they afflict the just, they take a <u>bribe</u>[^a], and they <u>turn</u>[^b] aside the <u>poor</u>[^c] in the gate <i>from their right.</i>
 
 [Amos 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.12?lang=eng#p12)
 

@@ -1,6 +1,6 @@
 # Isaiah 10:20
 
-> ¶ And it shall come to pass in <u>that day</u>[^a], *that* the remnant of Israel, and such as are <u>escaped</u>[^b] of the house of Jacob, shall no more again <u>stay upon</u>[^c] him that smote them; but shall stay upon the LORD, the Holy One of Israel, in truth.
+> ¶ And it shall come to pass in <u>that day</u>[^a], <i>that</i> the remnant of Israel, and such as are <u>escaped</u>[^b] of the house of Jacob, shall no more again <u>stay upon</u>[^c] him that smote them; but shall stay upon the LORD, the Holy One of Israel, in truth.
 
 [Isaiah 10:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.20?lang=eng#p20)
 

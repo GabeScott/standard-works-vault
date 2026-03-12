@@ -1,6 +1,6 @@
 # Genesis 24:51
 
-> Behold, Rebekah *is* before thee, take *her,* and go, and let her be thy master’s son’s <u>wife</u>[^a], as the LORD hath spoken.
+> Behold, Rebekah <i>is</i> before thee, take <i>her,</i> and go, and let her be thy master’s son’s <u>wife</u>[^a], as the LORD hath spoken.
 
 [Genesis 24:51](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.51?lang=eng#p51)
 

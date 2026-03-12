@@ -1,6 +1,6 @@
 # Psalms 13:3
 
-> Consider *and* <u>hear</u>[^a] me, O LORD my God: lighten mine eyes, lest I sleep the *sleep of* death;
+> Consider <i>and</i> <u>hear</u>[^a] me, O LORD my God: lighten mine eyes, lest I sleep the <i>sleep of</i> death;
 
 [Psalms 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/13.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 25:18
 
-> How he met thee by the way, and <u>smote</u>[^a] the hindmost of thee, *even* all *that were* feeble behind thee, when thou *wast* faint and weary; and he feared not God.
+> How he met thee by the way, and <u>smote</u>[^a] the hindmost of thee, <i>even</i> all <i>that were</i> feeble behind thee, when thou <i>wast</i> faint and weary; and he feared not God.
 
 [Deuteronomy 25:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.18?lang=eng#p18)
 

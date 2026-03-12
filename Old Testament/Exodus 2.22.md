@@ -1,6 +1,6 @@
 # Exodus 2:22
 
-> And she bare *him* a <u>son</u>[^a], and he called his name <u>Gershom</u>[^b]: for he said, I have been a <u>stranger</u>[^c] in a strange land.
+> And she bare <i>him</i> a <u>son</u>[^a], and he called his name <u>Gershom</u>[^b]: for he said, I have been a <u>stranger</u>[^c] in a strange land.
 
 [Exodus 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/2.22?lang=eng#p22)
 

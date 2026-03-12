@@ -1,6 +1,6 @@
 # Psalms 73:20
 
-> As a dream when *one* awaketh; *so,* O Lord, when thou <u>awakest</u>[^a], thou shalt <u>despise</u>[^b] their image.
+> As a dream when <i>one</i> awaketh; <i>so,</i> O Lord, when thou <u>awakest</u>[^a], thou shalt <u>despise</u>[^b] their image.
 
 [Psalms 73:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.20?lang=eng#p20)
 

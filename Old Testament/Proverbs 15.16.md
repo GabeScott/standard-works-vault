@@ -1,6 +1,6 @@
 # Proverbs 15:16
 
-> Better *is* <u>little</u>[^a] with the fear of the LORD than great treasure and trouble therewith.
+> Better <i>is</i> <u>little</u>[^a] with the fear of the LORD than great treasure and trouble therewith.
 
 [Proverbs 15:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.16?lang=eng#p16)
 

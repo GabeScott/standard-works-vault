@@ -1,6 +1,6 @@
 # 1 Kings 18:38
 
-> Then the <u>fire</u>[^a] of the LORD fell, and consumed the burnt sacrifice, and the wood, and the stones, and the dust, and licked up the water that *was* in the trench.
+> Then the <u>fire</u>[^a] of the LORD fell, and consumed the burnt sacrifice, and the wood, and the stones, and the dust, and licked up the water that <i>was</i> in the trench.
 
 [1 Kings 18:38](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.38?lang=eng#p38)
 

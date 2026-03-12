@@ -1,6 +1,6 @@
 # Acts 2:37
 
-> ¶ Now when they heard *this,* they were <u>pricked</u>[^a] in their <u>heart</u>[^b], and said unto Peter and to the rest of the apostles, Men *and* brethren, <u>what</u>[^c] shall we do?
+> ¶ Now when they heard <i>this,</i> they were <u>pricked</u>[^a] in their <u>heart</u>[^b], and said unto Peter and to the rest of the apostles, Men <i>and</i> brethren, <u>what</u>[^c] shall we do?
 
 [Acts 2:37](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.37?lang=eng#p37)
 

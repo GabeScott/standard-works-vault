@@ -1,6 +1,6 @@
 # 2 Timothy 4:16
 
-> At my first <u>answer</u>[^a] no man stood with me, but all *men* forsook me: *I pray God* that it may not be laid to their <u>charge</u>[^b].
+> At my first <u>answer</u>[^a] no man stood with me, but all <i>men</i> forsook me: <i>I pray God</i> that it may not be laid to their <u>charge</u>[^b].
 
 [2 Timothy 4:16](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.16?lang=eng#p16)
 

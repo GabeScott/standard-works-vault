@@ -1,6 +1,6 @@
 # Psalms 142:4
 
-> I looked on *my* right hand, and beheld, but *there was* no man that would know me: refuge failed me; no man <u>cared</u>[^a] for my soul.
+> I looked on <i>my</i> right hand, and beheld, but <i>there was</i> no man that would know me: refuge failed me; no man <u>cared</u>[^a] for my soul.
 
 [Psalms 142:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/142.4?lang=eng#p4)
 

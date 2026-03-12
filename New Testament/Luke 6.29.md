@@ -1,6 +1,6 @@
 # Luke 6:29
 
-> <u>And</u>[^a] unto him that <u>smiteth</u>[^b] thee on the *one* cheek offer also the other; and him that <u>taketh</u>[^c] away thy cloak forbid not *to take thy* coat also.
+> <u>And</u>[^a] unto him that <u>smiteth</u>[^b] thee on the <i>one</i> cheek offer also the other; and him that <u>taketh</u>[^c] away thy cloak forbid not <i>to take thy</i> coat also.
 
 [Luke 6:29](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.29?lang=eng#p29)
 

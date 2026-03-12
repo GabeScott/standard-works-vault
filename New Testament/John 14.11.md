@@ -1,6 +1,6 @@
 # John 14:11
 
-> Believe me that I *am* <u>in</u>[^a] the <u>Father</u>[^b], and the Father in me: or else believe me for the very works’ sake.
+> Believe me that I <i>am</i> <u>in</u>[^a] the <u>Father</u>[^b], and the Father in me: or else believe me for the very works’ sake.
 
 [John 14:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.11?lang=eng#p11)
 

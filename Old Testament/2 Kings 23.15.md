@@ -1,6 +1,6 @@
 # 2 Kings 23:15
 
-> ¶ Moreover the altar that *was* at Beth-el, *and* the high place which Jeroboam the son of Nebat, who <u>made</u>[^a] Israel to sin, had made, both that <u>altar</u>[^b] and the high place he <u>brake</u>[^c] down, and burned the high place, *and* stamped *it* small to powder, and burned the grove.
+> ¶ Moreover the altar that <i>was</i> at Beth-el, <i>and</i> the high place which Jeroboam the son of Nebat, who <u>made</u>[^a] Israel to sin, had made, both that <u>altar</u>[^b] and the high place he <u>brake</u>[^c] down, and burned the high place, <i>and</i> stamped <i>it</i> small to powder, and burned the grove.
 
 [2 Kings 23:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.15?lang=eng#p15)
 

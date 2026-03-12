@@ -1,6 +1,6 @@
 # 1 Thessalonians 4:15
 
-> For this we say unto you by the word of the Lord, <u>that</u>[^a] <u>we</u>[^b] which are alive *and* remain unto the coming of the Lord shall not <u>prevent</u>[^c] them which are asleep.
+> For this we say unto you by the word of the Lord, <u>that</u>[^a] <u>we</u>[^b] which are alive <i>and</i> remain unto the coming of the Lord shall not <u>prevent</u>[^c] them which are asleep.
 
 [1 Thessalonians 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/4.15?lang=eng#p15)
 

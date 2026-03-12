@@ -1,6 +1,6 @@
 # Genesis 18:10
 
-> And he said, I will certainly return unto thee according to the time of life; and, lo, <u>Sarah</u>[^a] thy wife shall have a <u>son</u>[^b]. And Sarah heard *it* in the tent door, which *was* behind him.
+> And he said, I will certainly return unto thee according to the time of life; and, lo, <u>Sarah</u>[^a] thy wife shall have a <u>son</u>[^b]. And Sarah heard <i>it</i> in the tent door, which <i>was</i> behind him.
 
 [Genesis 18:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.10?lang=eng#p10)
 

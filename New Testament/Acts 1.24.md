@@ -1,6 +1,6 @@
 # Acts 1:24
 
-> And they <u>prayed</u>[^a], and said, Thou, Lord, which <u>knowest</u>[^b] the hearts of all *men,* shew <u>whether</u>[^c] of these two thou hast <u>chosen</u>[^d],
+> And they <u>prayed</u>[^a], and said, Thou, Lord, which <u>knowest</u>[^b] the hearts of all <i>men,</i> shew <u>whether</u>[^c] of these two thou hast <u>chosen</u>[^d],
 
 [Acts 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.24?lang=eng#p24)
 

@@ -1,6 +1,6 @@
 # Zephaniah 1:2
 
-> I will utterly <u>consume</u>[^a] all *things* from off the land, saith the LORD.
+> I will utterly <u>consume</u>[^a] all <i>things</i> from off the land, saith the LORD.
 
 [Zephaniah 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/1.2?lang=eng#p2)
 

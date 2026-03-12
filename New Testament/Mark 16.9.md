@@ -1,6 +1,6 @@
 # Mark 16:9
 
-> ¶ Now when *Jesus* was <u>risen</u>[^a] early the first *day* of the week, he <u>appeared</u>[^b] first to <u>Mary Magdalene</u>[^c], out of whom he had cast seven devils.
+> ¶ Now when <i>Jesus</i> was <u>risen</u>[^a] early the first <i>day</i> of the week, he <u>appeared</u>[^b] first to <u>Mary Magdalene</u>[^c], out of whom he had cast seven devils.
 
 [Mark 16:9](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/16.9?lang=eng#p9)
 

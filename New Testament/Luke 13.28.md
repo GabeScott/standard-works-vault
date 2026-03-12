@@ -1,6 +1,6 @@
 # Luke 13:28
 
-> There shall be <u>weeping</u>[^a] and gnashing of teeth, when ye shall see Abraham, and Isaac, and Jacob, and all the prophets, in the <u>kingdom</u>[^b] of God, and you *yourselves* thrust out.
+> There shall be <u>weeping</u>[^a] and gnashing of teeth, when ye shall see Abraham, and Isaac, and Jacob, and all the prophets, in the <u>kingdom</u>[^b] of God, and you <i>yourselves</i> thrust out.
 
 [Luke 13:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.28?lang=eng#p28)
 

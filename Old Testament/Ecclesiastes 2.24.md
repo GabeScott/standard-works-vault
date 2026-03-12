@@ -1,6 +1,6 @@
 # Ecclesiastes 2:24
 
-> ¶ *There is* nothing better for a man, *than* that he should eat and drink, and *that* he should make his <u>soul</u>[^a] enjoy good in his <u>labour</u>[^b]. This also I saw, that it *was* from the hand of God.
+> ¶ <i>There is</i> nothing better for a man, <i>than</i> that he should eat and drink, and <i>that</i> he should make his <u>soul</u>[^a] enjoy good in his <u>labour</u>[^b]. This also I saw, that it <i>was</i> from the hand of God.
 
 [Ecclesiastes 2:24](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.24?lang=eng#p24)
 

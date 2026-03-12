@@ -1,6 +1,6 @@
 # Psalms 11:6
 
-> Upon the <u>wicked</u>[^a] he shall rain snares, fire and brimstone, and an horrible tempest: *this shall be* the portion of their cup.
+> Upon the <u>wicked</u>[^a] he shall rain snares, fire and brimstone, and an horrible tempest: <i>this shall be</i> the portion of their cup.
 
 [Psalms 11:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/11.6?lang=eng#p6)
 

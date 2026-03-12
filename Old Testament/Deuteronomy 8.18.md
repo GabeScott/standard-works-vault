@@ -1,6 +1,6 @@
 # Deuteronomy 8:18
 
-> But thou shalt remember the LORD thy God: for *it is* he that giveth thee power to get <u>wealth</u>[^a], that he may establish his covenant which he sware unto thy fathers, as *it is* this day.
+> But thou shalt remember the LORD thy God: for <i>it is</i> he that giveth thee power to get <u>wealth</u>[^a], that he may establish his covenant which he sware unto thy fathers, as <i>it is</i> this day.
 
 [Deuteronomy 8:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.18?lang=eng#p18)
 

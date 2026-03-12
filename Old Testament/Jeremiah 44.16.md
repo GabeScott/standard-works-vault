@@ -1,6 +1,6 @@
 # Jeremiah 44:16
 
-> *As for* the word that thou hast spoken unto us in the name of the LORD, we will not <u>hearken</u>[^a] unto thee.
+> <i>As for</i> the word that thou hast spoken unto us in the name of the LORD, we will not <u>hearken</u>[^a] unto thee.
 
 [Jeremiah 44:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.16?lang=eng#p16)
 

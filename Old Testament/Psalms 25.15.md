@@ -1,6 +1,6 @@
 # Psalms 25:15
 
-> Mine <u>eyes</u>[^a] *are* ever toward the LORD; for he shall pluck my feet out of the <u>net</u>[^b].
+> Mine <u>eyes</u>[^a] <i>are</i> ever toward the LORD; for he shall pluck my feet out of the <u>net</u>[^b].
 
 [Psalms 25:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.15?lang=eng#p15)
 

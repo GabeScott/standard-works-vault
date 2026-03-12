@@ -1,6 +1,6 @@
 # Psalms 49:18
 
-> Though while he lived he <u>blessed</u>[^a] his soul: and *men* will praise thee, when thou doest well to thyself.
+> Though while he lived he <u>blessed</u>[^a] his soul: and <i>men</i> will praise thee, when thou doest well to thyself.
 
 [Psalms 49:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/49.18?lang=eng#p18)
 

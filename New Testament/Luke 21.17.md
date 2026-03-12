@@ -1,6 +1,6 @@
 # Luke 21:17
 
-> And ye shall be hated of all *men* for my name’s <u>sake</u>[^a].
+> And ye shall be hated of all <i>men</i> for my name’s <u>sake</u>[^a].
 
 [Luke 21:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.17?lang=eng#p17)
 

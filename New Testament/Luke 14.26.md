@@ -1,6 +1,6 @@
 # Luke 14:26
 
-> If any *man* come to me, and <u>hate</u>[^a] not his father, and mother, and wife, and children, and brethren, and sisters, <u>yea</u>[^b], and his own <u>life</u>[^c] also, he cannot be my <u>disciple</u>[^d].
+> If any <i>man</i> come to me, and <u>hate</u>[^a] not his father, and mother, and wife, and children, and brethren, and sisters, <u>yea</u>[^b], and his own <u>life</u>[^c] also, he cannot be my <u>disciple</u>[^d].
 
 [Luke 14:26](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Hebrews 9:10
 
-> *Which stood* only in meats and drinks, and divers <u>washings</u>[^a], and <u>carnal</u>[^b] <u>ordinances</u>[^c], <u>imposed</u>[^d] *on them* until the time of reformation.
+> <i>Which stood</i> only in meats and drinks, and divers <u>washings</u>[^a], and <u>carnal</u>[^b] <u>ordinances</u>[^c], <u>imposed</u>[^d] <i>on them</i> until the time of reformation.
 
 [Hebrews 9:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.10?lang=eng#p10)
 

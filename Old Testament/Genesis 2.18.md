@@ -1,6 +1,6 @@
 # Genesis 2:18
 
-> ¶ And the LORD God said, *It is* not good that the man should be <u>alone</u>[^a]; I will make him <u>an</u>[^b] help meet for him.
+> ¶ And the LORD God said, <i>It is</i> not good that the man should be <u>alone</u>[^a]; I will make him <u>an</u>[^b] help meet for him.
 
 [Genesis 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.18?lang=eng#p18)
 

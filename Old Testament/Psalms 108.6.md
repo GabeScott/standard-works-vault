@@ -1,6 +1,6 @@
 # Psalms 108:6
 
-> That thy <u>beloved</u>[^a] may be <u>delivered</u>[^b]: save *with* thy right hand, and answer me.
+> That thy <u>beloved</u>[^a] may be <u>delivered</u>[^b]: save <i>with</i> thy right hand, and answer me.
 
 [Psalms 108:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/108.6?lang=eng#p6)
 

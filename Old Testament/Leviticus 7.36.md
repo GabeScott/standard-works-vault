@@ -1,6 +1,6 @@
 # Leviticus 7:36
 
-> Which the LORD commanded to be given them of the children of Israel, in the day that he <u>anointed</u>[^a] them, *by* a statute for ever throughout their generations.
+> Which the LORD commanded to be given them of the children of Israel, in the day that he <u>anointed</u>[^a] them, <i>by</i> a statute for ever throughout their generations.
 
 [Leviticus 7:36](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.36?lang=eng#p36)
 

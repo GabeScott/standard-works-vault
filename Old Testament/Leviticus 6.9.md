@@ -1,6 +1,6 @@
 # Leviticus 6:9
 
-> Command Aaron and his sons, saying, This *is* the <u>law</u>[^a] of the burnt offering: It *is* the burnt offering, because of the burning upon the altar all night unto the morning, and the fire of the altar shall be burning in it.
+> Command Aaron and his sons, saying, This <i>is</i> the <u>law</u>[^a] of the burnt offering: It <i>is</i> the burnt offering, because of the burning upon the altar all night unto the morning, and the fire of the altar shall be burning in it.
 
 [Leviticus 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.9?lang=eng#p9)
 

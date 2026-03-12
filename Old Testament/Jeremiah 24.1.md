@@ -1,6 +1,6 @@
 # Jeremiah 24:1
 
-> The LORD shewed me, and, behold, two baskets of figs *were* set before the temple of the LORD, after that Nebuchadrezzar king of Babylon had carried away captive Jeconiah the son of <u>Jehoiakim</u>[^a] king of Judah, and the <u>princes</u>[^b] of Judah, with the carpenters and smiths, from Jerusalem, and had brought them to <u>Babylon</u>[^c].
+> The LORD shewed me, and, behold, two baskets of figs <i>were</i> set before the temple of the LORD, after that Nebuchadrezzar king of Babylon had carried away captive Jeconiah the son of <u>Jehoiakim</u>[^a] king of Judah, and the <u>princes</u>[^b] of Judah, with the carpenters and smiths, from Jerusalem, and had brought them to <u>Babylon</u>[^c].
 
 [Jeremiah 24:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/24.1?lang=eng#p1)
 

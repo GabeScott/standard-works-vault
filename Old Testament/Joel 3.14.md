@@ -1,6 +1,6 @@
 # Joel 3:14
 
-> Multitudes, <u>multitudes</u>[^a] in the valley of decision: for the <u>day</u>[^b] of the LORD *is* near in the valley of decision.
+> Multitudes, <u>multitudes</u>[^a] in the valley of decision: for the <u>day</u>[^b] of the LORD <i>is</i> near in the valley of decision.
 
 [Joel 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.14?lang=eng#p14)
 

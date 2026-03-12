@@ -1,6 +1,6 @@
 # 1 Thessalonians 5:13
 
-> And to <u>esteem</u>[^a] them very highly in love for their work’s sake. *And* be at <u>peace</u>[^b] among yourselves.
+> And to <u>esteem</u>[^a] them very highly in love for their work’s sake. <i>And</i> be at <u>peace</u>[^b] among yourselves.
 
 [1 Thessalonians 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.13?lang=eng#p13)
 

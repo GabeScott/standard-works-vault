@@ -1,6 +1,6 @@
 # Psalms 135:4
 
-> For the LORD hath chosen <u>Jacob</u>[^a] unto himself, *and* Israel for his <u>peculiar</u>[^b] <u>treasure</u>[^c].
+> For the LORD hath chosen <u>Jacob</u>[^a] unto himself, <i>and</i> Israel for his <u>peculiar</u>[^b] <u>treasure</u>[^c].
 
 [Psalms 135:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/135.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Genesis 41:51
 
-> And Joseph called the name of the firstborn <u>Manasseh</u>[^a]: For God, *said he,* hath made me forget all my toil, and all my father’s house.
+> And Joseph called the name of the firstborn <u>Manasseh</u>[^a]: For God, <i>said he,</i> hath made me forget all my toil, and all my father’s house.
 
 [Genesis 41:51](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.51?lang=eng#p51)
 

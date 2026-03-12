@@ -1,6 +1,6 @@
 # 2 Corinthians 10:10
 
-> For *his* letters, say they, *are* weighty and powerful; but *his* <u>bodily</u>[^a] presence *is* weak, and *his* speech <u>contemptible</u>[^b].
+> For <i>his</i> letters, say they, <i>are</i> weighty and powerful; but <i>his</i> <u>bodily</u>[^a] presence <i>is</i> weak, and <i>his</i> speech <u>contemptible</u>[^b].
 
 [2 Corinthians 10:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.10?lang=eng#p10)
 

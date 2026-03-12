@@ -1,6 +1,6 @@
 # Matthew 6:7
 
-> But when ye pray, use not vain <u>repetitions</u>[^a], as the <u>heathen</u>[^b] *do:* for they think that they shall be heard for their much speaking.
+> But when ye pray, use not vain <u>repetitions</u>[^a], as the <u>heathen</u>[^b] <i>do:</i> for they think that they shall be heard for their much speaking.
 
 [Matthew 6:7](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.7?lang=eng#p7)
 

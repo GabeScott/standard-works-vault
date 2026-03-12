@@ -1,6 +1,6 @@
 # 1 Timothy 4:3
 
-> <u>Forbidding</u>[^a] to <u>marry</u>[^b], *and commanding* to <u>abstain</u>[^c] from <u>meats</u>[^d], which God hath <u>created</u>[^e] to be received with <u>thanksgiving</u>[^f] of them which believe and know the truth.
+> <u>Forbidding</u>[^a] to <u>marry</u>[^b], <i>and commanding</i> to <u>abstain</u>[^c] from <u>meats</u>[^d], which God hath <u>created</u>[^e] to be received with <u>thanksgiving</u>[^f] of them which believe and know the truth.
 
 [1 Timothy 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.3?lang=eng#p3)
 

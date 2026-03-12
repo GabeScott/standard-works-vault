@@ -1,6 +1,6 @@
 # Genesis 46:25
 
-> These *are* the sons of <u>Bilhah</u>[^a], which Laban gave unto Rachel his daughter, and she bare these unto Jacob: all the souls *were* seven.
+> These <i>are</i> the sons of <u>Bilhah</u>[^a], which Laban gave unto Rachel his daughter, and she bare these unto Jacob: all the souls <i>were</i> seven.
 
 [Genesis 46:25](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.25?lang=eng#p25)
 

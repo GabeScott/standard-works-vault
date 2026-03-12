@@ -1,6 +1,6 @@
 # Isaiah 30:6
 
-> The <u>burden</u>[^a] of the beasts of the <u>south</u>[^b]: into the land of trouble and anguish, from whence *come* the young and old lion, the viper and fiery flying serpent, they will carry their riches upon the shoulders of young asses, and their treasures upon the bunches of camels, to a people *that* shall not profit *them.*
+> The <u>burden</u>[^a] of the beasts of the <u>south</u>[^b]: into the land of trouble and anguish, from whence <i>come</i> the young and old lion, the viper and fiery flying serpent, they will carry their riches upon the shoulders of young asses, and their treasures upon the bunches of camels, to a people <i>that</i> shall not profit <i>them.</i>
 
 [Isaiah 30:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.6?lang=eng#p6)
 

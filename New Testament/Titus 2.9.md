@@ -1,6 +1,6 @@
 # Titus 2:9
 
-> *Exhort* <u>servants</u>[^a] to be obedient unto their own masters, *and* to please *them* well in all *things;* not <u>answering again</u>[^b];
+> <i>Exhort</i> <u>servants</u>[^a] to be obedient unto their own masters, <i>and</i> to please <i>them</i> well in all <i>things;</i> not <u>answering again</u>[^b];
 
 [Titus 2:9](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.9?lang=eng#p9)
 

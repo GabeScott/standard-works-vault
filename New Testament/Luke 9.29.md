@@ -1,6 +1,6 @@
 # Luke 9:29
 
-> And as he prayed, the fashion of his countenance was <u>altered</u>[^a], and his raiment *was* white *and* <u>glistering</u>[^b].
+> And as he prayed, the fashion of his countenance was <u>altered</u>[^a], and his raiment <i>was</i> white <i>and</i> <u>glistering</u>[^b].
 
 [Luke 9:29](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.29?lang=eng#p29)
 

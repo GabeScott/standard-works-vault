@@ -1,6 +1,6 @@
 # Proverbs 7:27
 
-> Her <u>house</u>[^a] *is* the way to <u>hell</u>[^b], going down to the chambers of death.
+> Her <u>house</u>[^a] <i>is</i> the way to <u>hell</u>[^b], going down to the chambers of death.
 
 [Proverbs 7:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/7.27?lang=eng#p27)
 

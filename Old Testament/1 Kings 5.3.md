@@ -5,4 +5,5 @@
 [1 Kings 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/5.3?lang=eng#p3)
 
 
-[^a]: [[Temple|TG Temple]].  
+[^a]: [[Temple|TG Temple]].
+[^b]: [[Alma 46.7|Alma 46:7]].

@@ -1,6 +1,6 @@
 # Isaiah 43:3
 
-> For I *am* the LORD thy God, the <u>Holy One</u>[^a] of Israel, thy <u>Saviour</u>[^b]: I gave <u>Egypt</u>[^c] *for* thy <u>ransom</u>[^d], Ethiopia and <u>Seba</u>[^e] for thee.
+> For I <i>am</i> the LORD thy God, the <u>Holy One</u>[^a] of Israel, thy <u>Saviour</u>[^b]: I gave <u>Egypt</u>[^c] <i>for</i> thy <u>ransom</u>[^d], Ethiopia and <u>Seba</u>[^e] for thee.
 
 [Isaiah 43:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.3?lang=eng#p3)
 

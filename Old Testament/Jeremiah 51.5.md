@@ -1,6 +1,6 @@
 # Jeremiah 51:5
 
-> For Israel *hath* not *been* <u>forsaken</u>[^a], nor Judah of his God, of the LORD of hosts; though their land was filled with sin against the Holy One of Israel.
+> For Israel <i>hath</i> not <i>been</i> <u>forsaken</u>[^a], nor Judah of his God, of the LORD of hosts; though their land was filled with sin against the Holy One of Israel.
 
 [Jeremiah 51:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Exodus 13:2
 
-> <u>Sanctify</u>[^a] unto me all the <u>firstborn</u>[^b], whatsoever <u>openeth</u>[^c] the <u>womb</u>[^d] among the children of Israel, *both* of man and of beast: it *is* mine.
+> <u>Sanctify</u>[^a] unto me all the <u>firstborn</u>[^b], whatsoever <u>openeth</u>[^c] the <u>womb</u>[^d] among the children of Israel, <i>both</i> of man and of beast: it <i>is</i> mine.
 
 [Exodus 13:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.2?lang=eng#p2)
 

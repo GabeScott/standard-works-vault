@@ -1,6 +1,6 @@
 # Genesis 6:9
 
-> ¶ These *are* the <u>generations</u>[^a] of Noah: <u>Noah</u>[^b] was a just man *and* <u>perfect</u>[^c] in his generations, *and* Noah <u>walked</u>[^d] with God.
+> ¶ These <i>are</i> the <u>generations</u>[^a] of Noah: <u>Noah</u>[^b] was a just man <i>and</i> <u>perfect</u>[^c] in his generations, <i>and</i> Noah <u>walked</u>[^d] with God.
 
 [Genesis 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Psalms 81:12
 
-> So I <u>gave</u>[^a] them up unto their own hearts’ <u>lust</u>[^b]: *and* they walked in their own counsels.
+> So I <u>gave</u>[^a] them up unto their own hearts’ <u>lust</u>[^b]: <i>and</i> they walked in their own counsels.
 
 [Psalms 81:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/81.12?lang=eng#p12)
 

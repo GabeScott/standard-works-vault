@@ -1,6 +1,6 @@
 # Proverbs 28:6
 
-> Better *is* the poor that walketh in his <u>uprightness</u>[^a], than *he that is* perverse *in his* ways, though he *be* rich.
+> Better <i>is</i> the poor that walketh in his <u>uprightness</u>[^a], than <i>he that is</i> perverse <i>in his</i> ways, though he <i>be</i> rich.
 
 [Proverbs 28:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.6?lang=eng#p6)
 

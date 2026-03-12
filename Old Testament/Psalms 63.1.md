@@ -1,6 +1,6 @@
 # Psalms 63:1
 
-> O God, thou *art* my God; <u>early</u>[^a] will I seek thee: my soul <u>thirsteth</u>[^b] for thee, my flesh longeth for thee in a dry and <u>thirsty</u>[^c] land, where no water is;
+> O God, thou <i>art</i> my God; <u>early</u>[^a] will I seek thee: my soul <u>thirsteth</u>[^b] for thee, my flesh longeth for thee in a dry and <u>thirsty</u>[^c] land, where no water is;
 
 [Psalms 63:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/63.1?lang=eng#p1)
 

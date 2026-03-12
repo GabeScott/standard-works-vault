@@ -1,6 +1,6 @@
 # Proverbs 21:31
 
-> The <u>horse</u>[^a] *is* prepared against the day of battle: but <u>safety</u>[^b] *is* of the LORD.
+> The <u>horse</u>[^a] <i>is</i> prepared against the day of battle: but <u>safety</u>[^b] <i>is</i> of the LORD.
 
 [Proverbs 21:31](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.31?lang=eng#p31)
 

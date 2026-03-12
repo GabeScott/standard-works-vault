@@ -1,6 +1,6 @@
 # Leviticus 25:17
 
-> Ye shall not therefore <u>oppress</u>[^a] <u>one</u>[^b] another; but thou shalt fear thy God: for I *am* the LORD your God.
+> Ye shall not therefore <u>oppress</u>[^a] <u>one</u>[^b] another; but thou shalt fear thy God: for I <i>am</i> the LORD your God.
 
 [Leviticus 25:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.17?lang=eng#p17)
 

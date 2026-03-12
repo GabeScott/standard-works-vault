@@ -1,6 +1,6 @@
 # Numbers 34:2
 
-> Command the children of Israel, and say unto them, When ye come into the land of <u>Canaan</u>[^a]; (this *is* the <u>land</u>[^b] that shall fall unto you for an <u>inheritance</u>[^c], *even* the land of Canaan <u>with the coasts thereof</u>[^d]:)
+> Command the children of Israel, and say unto them, When ye come into the land of <u>Canaan</u>[^a]; (this <i>is</i> the <u>land</u>[^b] that shall fall unto you for an <u>inheritance</u>[^c], <i>even</i> the land of Canaan <u>with the coasts thereof</u>[^d]:)
 
 [Numbers 34:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/34.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Philippians 3:19
 
-> Whose <u>end</u>[^a] *is* destruction, whose God *is their* belly, <u>and</u>[^b] *whose* glory *is* in their <u>shame</u>[^c], who mind earthly things.)
+> Whose <u>end</u>[^a] <i>is</i> destruction, whose God <i>is their</i> belly, <u>and</u>[^b] <i>whose</i> glory <i>is</i> in their <u>shame</u>[^c], who mind earthly things.)
 
 [Philippians 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.19?lang=eng#p19)
 

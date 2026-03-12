@@ -1,6 +1,6 @@
 # Jeremiah 48:36
 
-> Therefore mine <u>heart</u>[^a] shall sound for Moab like pipes, and mine heart shall sound like <u>pipes</u>[^b] for the men of Kir-heres: because the <u>riches</u>[^c] *that* he hath gotten are perished.
+> Therefore mine <u>heart</u>[^a] shall sound for Moab like pipes, and mine heart shall sound like <u>pipes</u>[^b] for the men of Kir-heres: because the <u>riches</u>[^c] <i>that</i> he hath gotten are perished.
 
 [Jeremiah 48:36](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.36?lang=eng#p36)
 

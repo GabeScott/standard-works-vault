@@ -1,6 +1,6 @@
 # Deuteronomy 1:11
 
-> (The LORD God of your fathers make you a thousand times so many <u>more</u>[^a] as ye *are,* and bless you, as he hath <u>promised</u>[^b] you!)
+> (The LORD God of your fathers make you a thousand times so many <u>more</u>[^a] as ye <i>are,</i> and bless you, as he hath <u>promised</u>[^b] you!)
 
 [Deuteronomy 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.11?lang=eng#p11)
 

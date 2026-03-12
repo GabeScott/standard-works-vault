@@ -1,6 +1,6 @@
 # Ezekiel 47:1
 
-> Afterward he brought me again unto the <u>door</u>[^a] of the house; and, behold, <u>waters</u>[^b] issued out from under the threshold of the house eastward: for the forefront of the house *stood toward* the east, and the waters came down from under from the right side of the <u>house</u>[^c], at the south *side* of the altar.
+> Afterward he brought me again unto the <u>door</u>[^a] of the house; and, behold, <u>waters</u>[^b] issued out from under the threshold of the house eastward: for the forefront of the house <i>stood toward</i> the east, and the waters came down from under from the right side of the <u>house</u>[^c], at the south <i>side</i> of the altar.
 
 [Ezekiel 47:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.1?lang=eng#p1)
 

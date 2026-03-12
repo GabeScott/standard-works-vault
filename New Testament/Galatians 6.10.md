@@ -1,6 +1,6 @@
 # Galatians 6:10
 
-> As we have therefore opportunity, let us do <u>good</u>[^a] unto all *men,* especially unto them who are of the household of faith.
+> As we have therefore opportunity, let us do <u>good</u>[^a] unto all <i>men,</i> especially unto them who are of the household of faith.
 
 [Galatians 6:10](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/6.10?lang=eng#p10)
 

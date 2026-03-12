@@ -1,6 +1,6 @@
 # Numbers 3:9
 
-> And thou shalt give the <u>Levites</u>[^a] unto <u>Aaron</u>[^b] and to his sons: they *are* wholly given unto him out of the children of Israel.
+> And thou shalt give the <u>Levites</u>[^a] unto <u>Aaron</u>[^b] and to his sons: they <i>are</i> wholly given unto him out of the children of Israel.
 
 [Numbers 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.9?lang=eng#p9)
 

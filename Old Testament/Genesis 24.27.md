@@ -1,6 +1,6 @@
 # Genesis 24:27
 
-> And he said, Blessed *be* the <u>Lord God</u>[^a] of my master Abraham, who hath not left destitute my master of his <u>mercy</u>[^b] and his truth: I *being* in the way, the LORD <u>led</u>[^c] me to the house of my master’s brethren.
+> And he said, Blessed <i>be</i> the <u>Lord God</u>[^a] of my master Abraham, who hath not left destitute my master of his <u>mercy</u>[^b] and his truth: I <i>being</i> in the way, the LORD <u>led</u>[^c] me to the house of my master’s brethren.
 
 [Genesis 24:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.27?lang=eng#p27)
 

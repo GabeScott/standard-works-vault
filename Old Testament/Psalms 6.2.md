@@ -1,6 +1,6 @@
 # Psalms 6:2
 
-> Have mercy upon me, O LORD; for I *am* <u>weak</u>[^a]: O LORD, <u>heal</u>[^b] me; for my bones are vexed.
+> Have mercy upon me, O LORD; for I <i>am</i> <u>weak</u>[^a]: O LORD, <u>heal</u>[^b] me; for my bones are vexed.
 
 [Psalms 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/6.2?lang=eng#p2)
 

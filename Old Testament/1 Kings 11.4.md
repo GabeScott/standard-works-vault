@@ -1,6 +1,6 @@
 # 1 Kings 11:4
 
-> For it came to pass, when Solomon was old, *that* his <u>wives</u>[^a] turned away his heart after other gods: and his heart was not perfect with the LORD his God, <u>as was the heart</u>[^b] of David his father.
+> For it came to pass, when Solomon was old, <i>that</i> his <u>wives</u>[^a] turned away his heart after other gods: and his heart was not perfect with the LORD his God, <i><u>as was the heart</u></i>[^b] of David his father.
 
 [1 Kings 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.4?lang=eng#p4)
 

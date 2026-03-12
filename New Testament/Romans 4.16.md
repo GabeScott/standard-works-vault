@@ -1,6 +1,6 @@
 # Romans 4:16
 
-> <u>Therefore</u>[^a] *it is* of faith, that *it might be* by <u>grace</u>[^b]; to the end the promise might be sure to all the seed; not to that only which is of the law, but to that also which is of the <u>faith</u>[^c] of Abraham; who is the <u>father</u>[^d] of us all,
+> <u>Therefore</u>[^a] <i>it is</i> of faith, that <i>it might be</i> by <u>grace</u>[^b]; to the end the promise might be sure to all the seed; not to that only which is of the law, but to that also which is of the <u>faith</u>[^c] of Abraham; who is the <u>father</u>[^d] of us all,
 
 [Romans 4:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.16?lang=eng#p16)
 

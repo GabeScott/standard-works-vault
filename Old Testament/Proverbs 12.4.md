@@ -1,6 +1,6 @@
 # Proverbs 12:4
 
-> A <u>virtuous</u>[^a] <u>woman</u>[^b] *is* a crown to her <u>husband</u>[^c]: but she that maketh ashamed *is* as rottenness in his bones.
+> A <u>virtuous</u>[^a] <u>woman</u>[^b] <i>is</i> a crown to her <u>husband</u>[^c]: but she that maketh ashamed <i>is</i> as rottenness in his bones.
 
 [Proverbs 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Numbers 23:19
 
-> God *is* not a man, that he should <u>lie</u>[^a]; neither the son of man, that he should <u>repent</u>[^b]: hath he said, and shall he not do *it?* or hath he <u>spoken</u>[^c], and shall he not make it good?
+> God <i>is</i> not a man, that he should <u>lie</u>[^a]; neither the son of man, that he should <u>repent</u>[^b]: hath he said, and shall he not do <i>it?</i> or hath he <u>spoken</u>[^c], and shall he not make it good?
 
 [Numbers 23:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/23.19?lang=eng#p19)
 

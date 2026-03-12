@@ -1,6 +1,6 @@
 # John 15:5
 
-> I am the <u>vine</u>[^a], ye *are* the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without <u>me</u>[^b] ye can do nothing.
+> I am the <u>vine</u>[^a], ye <i>are</i> the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without <u>me</u>[^b] ye can do nothing.
 
 [John 15:5](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.5?lang=eng#p5)
 

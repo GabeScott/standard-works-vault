@@ -1,6 +1,6 @@
 # Leviticus 10:16
 
-> ¶ And Moses <u>diligently</u>[^a] sought the <u>goat</u>[^b] of the sin offering, and, behold, it was burnt: and he was angry with Eleazar and Ithamar, the sons of Aaron *which were* left *alive,* saying,
+> ¶ And Moses <u>diligently</u>[^a] sought the <u>goat</u>[^b] of the sin offering, and, behold, it was burnt: and he was angry with Eleazar and Ithamar, the sons of Aaron <i>which were</i> left <i>alive,</i> saying,
 
 [Leviticus 10:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.16?lang=eng#p16)
 

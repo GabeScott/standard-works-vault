@@ -1,6 +1,6 @@
 # Joel 2:1
 
-> Blow ye the <u>trumpet</u>[^a] in Zion, and sound an alarm in my holy <u>mountain</u>[^b]: let all the inhabitants of the land tremble: for the <u>day</u>[^c] of the LORD cometh, for *it is* nigh at hand;
+> Blow ye the <u>trumpet</u>[^a] in Zion, and sound an alarm in my holy <u>mountain</u>[^b]: let all the inhabitants of the land tremble: for the <u>day</u>[^c] of the LORD cometh, for <i>it is</i> nigh at hand;
 
 [Joel 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.1?lang=eng#p1)
 

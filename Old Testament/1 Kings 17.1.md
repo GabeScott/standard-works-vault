@@ -1,6 +1,6 @@
 # 1 Kings 17:1
 
-> And <u>Elijah</u>[^a] the Tishbite, *who was* <u>of</u>[^b] the inhabitants of Gilead, said unto Ahab, *As* the LORD God of Israel liveth, before whom I stand, there shall not be dew nor <u>rain</u>[^c] these years, but according to my <u>word</u>[^d].
+> And <u>Elijah</u>[^a] the Tishbite, <i>who was</i> <u>of</u>[^b] the inhabitants of Gilead, said unto Ahab, <i>As</i> the LORD God of Israel liveth, before whom I stand, there shall not be dew nor <u>rain</u>[^c] these years, but according to my <u>word</u>[^d].
 
 [1 Kings 17:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/17.1?lang=eng#p1)
 

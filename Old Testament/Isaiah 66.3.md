@@ -1,6 +1,6 @@
 # Isaiah 66:3
 
-> <u>He</u>[^a] that killeth an ox *is as if* he slew a man; he that sacrificeth a lamb, *as if* he cut off a dog’s neck; he that offereth an oblation, *as if he offered* swine’s blood; he that burneth incense, *as if* he blessed an idol. Yea, they have chosen their own ways, and their soul delighteth in their abominations.
+> <u>He</u>[^a] that killeth an ox <i>is as if</i> he slew a man; he that sacrificeth a lamb, <i>as if</i> he cut off a dog’s neck; he that offereth an oblation, <i>as if he offered</i> swine’s blood; he that burneth incense, <i>as if</i> he blessed an idol. Yea, they have chosen their own ways, and their soul delighteth in their abominations.
 
 [Isaiah 66:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # John 1:23
 
-> He said, I *am* the <u>voice</u>[^a] of one crying in the wilderness, Make <u>straight</u>[^b] the <u>way</u>[^c] of the Lord, as said the prophet Esaias.
+> He said, I <i>am</i> the <u>voice</u>[^a] of one crying in the wilderness, Make <u>straight</u>[^b] the <u>way</u>[^c] of the Lord, as said the prophet Esaias.
 
 [John 1:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.23?lang=eng#p23)
 

@@ -1,6 +1,6 @@
 # Exodus 15:13
 
-> Thou in thy mercy hast <u>led</u>[^a] forth the people *which* thou hast redeemed: thou hast guided *them* in thy strength unto thy holy habitation.
+> Thou in thy mercy hast <u>led</u>[^a] forth the people <i>which</i> thou hast redeemed: thou hast guided <i>them</i> in thy strength unto thy holy habitation.
 
 [Exodus 15:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.13?lang=eng#p13)
 

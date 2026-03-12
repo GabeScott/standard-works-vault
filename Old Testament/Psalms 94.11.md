@@ -1,6 +1,6 @@
 # Psalms 94:11
 
-> The LORD <u>knoweth</u>[^a] the <u>thoughts</u>[^b] of man, that they *are* <u>vanity</u>[^c].
+> The LORD <u>knoweth</u>[^a] the <u>thoughts</u>[^b] of man, that they <i>are</i> <u>vanity</u>[^c].
 
 [Psalms 94:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/94.11?lang=eng#p11)
 

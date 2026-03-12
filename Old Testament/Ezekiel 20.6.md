@@ -1,6 +1,6 @@
 # Ezekiel 20:6
 
-> In the day *that* I lifted up mine hand unto them, to <u>bring</u>[^a] them forth of the land of Egypt into a <u>land</u>[^b] that I had <u>espied for</u>[^c] them, flowing with milk and honey, which *is* the <u>glory</u>[^d] of all lands:
+> In the day <i>that</i> I lifted up mine hand unto them, to <u>bring</u>[^a] them forth of the land of Egypt into a <u>land</u>[^b] that I had <u>espied for</u>[^c] them, flowing with milk and honey, which <i>is</i> the <u>glory</u>[^d] of all lands:
 
 [Ezekiel 20:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.6?lang=eng#p6)
 

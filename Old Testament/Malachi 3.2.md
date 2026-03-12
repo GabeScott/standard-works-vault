@@ -1,6 +1,6 @@
 # Malachi 3:2
 
-> But who may <u>abide</u>[^a] the <u>day</u>[^b] of his <u>coming</u>[^c]? and who shall <u>stand</u>[^d] when he appeareth? for he *is* like a <u>refiner’s</u>[^e] <u>fire</u>[^f], and like fullers’ <u>soap</u>[^g]:
+> But who may <u>abide</u>[^a] the <u>day</u>[^b] of his <u>coming</u>[^c]? and who shall <u>stand</u>[^d] when he appeareth? for he <i>is</i> like a <u>refiner’s</u>[^e] <u>fire</u>[^f], and like fullers’ <u>soap</u>[^g]:
 
 [Malachi 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.2?lang=eng#p2)
 

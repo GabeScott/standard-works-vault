@@ -1,6 +1,6 @@
 # Matthew 9:11
 
-> And when the Pharisees saw *it,* they said unto his disciples, <u>Why</u>[^a] eateth your Master with publicans and sinners?
+> And when the Pharisees saw <i>it,</i> they said unto his disciples, <u>Why</u>[^a] eateth your Master with publicans and sinners?
 
 [Matthew 9:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.11?lang=eng#p11)
 

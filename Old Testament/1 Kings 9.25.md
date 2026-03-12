@@ -1,6 +1,6 @@
 # 1 Kings 9:25
 
-> ¶ And <u>three</u>[^a] times in a year did Solomon <u>offer</u>[^b] burnt offerings and peace offerings upon the altar which he built unto the LORD, and he burnt incense upon the altar that *was* before the LORD. So he finished the house.
+> ¶ And <u>three</u>[^a] times in a year did Solomon <u>offer</u>[^b] burnt offerings and peace offerings upon the altar which he built unto the LORD, and he burnt incense upon the altar that <i>was</i> before the LORD. So he finished the house.
 
 [1 Kings 9:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/9.25?lang=eng#p25)
 

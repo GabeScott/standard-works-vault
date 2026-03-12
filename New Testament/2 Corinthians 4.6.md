@@ -1,6 +1,6 @@
 # 2 Corinthians 4:6
 
-> For God, who <u>commanded</u>[^a] the light to shine out of darkness, hath <u>shined</u>[^b] in our hearts, to *give* the <u>light</u>[^c] of the knowledge of the <u>glory</u>[^d] of God in the face of Jesus Christ.
+> For God, who <u>commanded</u>[^a] the light to shine out of darkness, hath <u>shined</u>[^b] in our hearts, to <i>give</i> the <u>light</u>[^c] of the knowledge of the <u>glory</u>[^d] of God in the face of Jesus Christ.
 
 [2 Corinthians 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/4.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Luke 13:33
 
-> Nevertheless I must walk to day, and to morrow, and the *day* following: for it cannot be that a <u>prophet</u>[^a] perish out of <u>Jerusalem</u>[^b].
+> Nevertheless I must walk to day, and to morrow, and the <i>day</i> following: for it cannot be that a <u>prophet</u>[^a] perish out of <u>Jerusalem</u>[^b].
 
 [Luke 13:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.33?lang=eng#p33)
 

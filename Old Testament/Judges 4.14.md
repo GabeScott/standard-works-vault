@@ -1,6 +1,6 @@
 # Judges 4:14
 
-> And Deborah said unto Barak, Up; for this *is* the day in which the LORD hath delivered Sisera into thine hand: is not the LORD gone out <u>before</u>[^a] thee? So Barak went down from mount Tabor, and ten thousand men after him.
+> And Deborah said unto Barak, Up; for this <i>is</i> the day in which the LORD hath delivered Sisera into thine hand: is not the LORD gone out <u>before</u>[^a] thee? So Barak went down from mount Tabor, and ten thousand men after him.
 
 [Judges 4:14](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.14?lang=eng#p14)
 

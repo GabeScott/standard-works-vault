@@ -1,6 +1,6 @@
 # Numbers 13:33
 
-> And there we saw the <u>giants</u>[^a], the sons of Anak, *which come* of the <u>giants</u>[^b]: and we were in our own sight as grasshoppers, and so we were in their sight.
+> And there we saw the <u>giants</u>[^a], the sons of Anak, <i>which come</i> of the <u>giants</u>[^b]: and we were in our own sight as grasshoppers, and so we were in their sight.
 
 [Numbers 13:33](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.33?lang=eng#p33)
 

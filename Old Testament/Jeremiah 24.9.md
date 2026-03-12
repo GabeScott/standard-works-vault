@@ -1,6 +1,6 @@
 # Jeremiah 24:9
 
-> And I will deliver them to be removed into all the kingdoms of the earth for *their* hurt, *to be* a <u>reproach</u>[^a] and a proverb, a taunt and a <u>curse</u>[^b], in all places whither I shall drive them.
+> And I will deliver them to be removed into all the kingdoms of the earth for <i>their</i> hurt, <i>to be</i> a <u>reproach</u>[^a] and a proverb, a taunt and a <u>curse</u>[^b], in all places whither I shall drive them.
 
 [Jeremiah 24:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/24.9?lang=eng#p9)
 

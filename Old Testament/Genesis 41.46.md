@@ -1,6 +1,6 @@
 # Genesis 41:46
 
-> ¶ And <u>Joseph</u>[^a] *was* thirty years old when he stood before Pharaoh king of Egypt. And Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt.
+> ¶ And <u>Joseph</u>[^a] <i>was</i> thirty years old when he stood before Pharaoh king of Egypt. And Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt.
 
 [Genesis 41:46](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.46?lang=eng#p46)
 

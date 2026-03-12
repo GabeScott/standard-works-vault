@@ -1,6 +1,6 @@
 # Acts 9:17
 
-> And Ananias went his way, and entered into the house; and putting his <u>hands</u>[^a] on him said, Brother Saul, the Lord, *even* Jesus, that <u>appeared</u>[^b] unto thee in the way as thou camest, hath <u>sent</u>[^c] me, that thou mightest receive thy sight, and be filled with the <u>Holy Ghost</u>[^d].
+> And Ananias went his way, and entered into the house; and putting his <u>hands</u>[^a] on him said, Brother Saul, the Lord, <i>even</i> Jesus, that <u>appeared</u>[^b] unto thee in the way as thou camest, hath <u>sent</u>[^c] me, that thou mightest receive thy sight, and be filled with the <u>Holy Ghost</u>[^d].
 
 [Acts 9:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.17?lang=eng#p17)
 

@@ -1,6 +1,6 @@
 # Numbers 4:4
 
-> This *shall be* the <u>service</u>[^a] of the sons of <u>Kohath</u>[^b] in the tabernacle of the congregation, *about* the most holy things:
+> This <i>shall be</i> the <u>service</u>[^a] of the sons of <u>Kohath</u>[^b] in the tabernacle of the congregation, <i>about</i> the most holy things:
 
 [Numbers 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/num/4.4?lang=eng#p4)
 

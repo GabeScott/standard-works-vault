@@ -1,6 +1,6 @@
 # Isaiah 63:2
 
-> Wherefore *art thou* <u>red</u>[^a] in thine apparel, and thy garments like him that treadeth in the <u>winefat</u>[^b]?
+> Wherefore <i>art thou</i> <u>red</u>[^a] in thine apparel, and thy garments like him that treadeth in the <u>winefat</u>[^b]?
 
 [Isaiah 63:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.2?lang=eng#p2)
 

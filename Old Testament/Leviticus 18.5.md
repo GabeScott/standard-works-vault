@@ -1,6 +1,6 @@
 # Leviticus 18:5
 
-> Ye shall therefore keep my <u>statutes</u>[^a], and my judgments: which if a man do, he shall <u>live</u>[^b] <u>in them</u>[^c]: I *am* the LORD.
+> Ye shall therefore keep my <u>statutes</u>[^a], and my judgments: which if a man do, he shall <u>live</u>[^b] <u>in them</u>[^c]: I <i>am</i> the LORD.
 
 [Leviticus 18:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.5?lang=eng#p5)
 

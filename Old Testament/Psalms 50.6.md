@@ -1,6 +1,6 @@
 # Psalms 50:6
 
-> And the heavens shall <u>declare</u>[^a] his <u>righteousness</u>[^b]: for God *is* <u>judge</u>[^c] himself. Selah.
+> And the heavens shall <u>declare</u>[^a] his <u>righteousness</u>[^b]: for God <i>is</i> <u>judge</u>[^c] himself. Selah.
 
 [Psalms 50:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.6?lang=eng#p6)
 

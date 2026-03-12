@@ -1,6 +1,6 @@
 # Matthew 21:32
 
-> For John came unto you in the way of <u>righteousness</u>[^a], and ye <u>believed</u>[^b] him not: but the <u>publicans</u>[^c] and the harlots believed him: <u>and</u>[^d] ye, when ye had seen *it,* repented not afterward, that ye might believe him.
+> For John came unto you in the way of <u>righteousness</u>[^a], and ye <u>believed</u>[^b] him not: but the <u>publicans</u>[^c] and the harlots believed him: <u>and</u>[^d] ye, when ye had seen <i>it,</i> repented not afterward, that ye might believe him.
 
 [Matthew 21:32](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.32?lang=eng#p32)
 

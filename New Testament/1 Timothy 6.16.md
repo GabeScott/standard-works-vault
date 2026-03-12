@@ -1,6 +1,6 @@
 # 1 Timothy 6:16
 
-> Who only hath <u>immortality</u>[^a], dwelling in the <u>light</u>[^b] which no man can approach unto; whom no man hath <u>seen</u>[^c], nor can see: to whom *be* honour and power everlasting. Amen.
+> Who only hath <u>immortality</u>[^a], dwelling in the <u>light</u>[^b] which no man can approach unto; whom no man hath <u>seen</u>[^c], nor can see: to whom <i>be</i> honour and power everlasting. Amen.
 
 [1 Timothy 6:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.16?lang=eng#p16)
 

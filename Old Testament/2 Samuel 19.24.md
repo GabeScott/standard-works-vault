@@ -1,6 +1,6 @@
 # 2 Samuel 19:24
 
-> ¶ And <u>Mephibosheth</u>[^a] the son of Saul came down to meet the king, and had neither dressed his feet, nor trimmed his beard, nor washed his clothes, from the day the king departed until the day he came *again* in peace.
+> ¶ And <u>Mephibosheth</u>[^a] the son of Saul came down to meet the king, and had neither dressed his feet, nor trimmed his beard, nor washed his clothes, from the day the king departed until the day he came <i>again</i> in peace.
 
 [2 Samuel 19:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/19.24?lang=eng#p24)
 

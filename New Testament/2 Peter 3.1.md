@@ -1,6 +1,6 @@
 # 2 Peter 3:1
 
-> This second epistle, beloved, I now <u>write</u>[^a] unto you; in *both* which I stir up your pure minds by way of <u>remembrance</u>[^b]:
+> This second epistle, beloved, I now <u>write</u>[^a] unto you; in <i>both</i> which I stir up your pure minds by way of <u>remembrance</u>[^b]:
 
 [2 Peter 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.1?lang=eng#p1)
 

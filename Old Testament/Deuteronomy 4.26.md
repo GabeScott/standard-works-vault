@@ -1,6 +1,6 @@
 # Deuteronomy 4:26
 
-> I call <u>heaven</u>[^a] and earth to witness against you this day, that ye shall soon utterly perish from off the land whereunto ye go over <u>Jordan</u>[^b] to possess it; ye shall not prolong *your* days upon it, but shall <u>utterly be destroyed</u>[^c].
+> I call <u>heaven</u>[^a] and earth to witness against you this day, that ye shall soon utterly perish from off the land whereunto ye go over <u>Jordan</u>[^b] to possess it; ye shall not prolong <i>your</i> days upon it, but shall <u>utterly be destroyed</u>[^c].
 
 [Deuteronomy 4:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.26?lang=eng#p26)
 

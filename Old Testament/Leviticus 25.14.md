@@ -1,6 +1,6 @@
 # Leviticus 25:14
 
-> And if thou sell ought unto thy neighbour, or buyest *ought* of thy neighbour’s hand, ye shall not <u>oppress</u>[^a] <u>one</u>[^b] another:
+> And if thou sell ought unto thy neighbour, or buyest <i>ought</i> of thy neighbour’s hand, ye shall not <u>oppress</u>[^a] <u>one</u>[^b] another:
 
 [Leviticus 25:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.14?lang=eng#p14)
 

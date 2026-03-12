@@ -1,6 +1,6 @@
 # Jeremiah 42:4
 
-> Then Jeremiah the prophet said unto them, I have heard *you;* behold, I will <u>pray</u>[^a] unto the LORD your God according to your words; and it shall come to pass, *that* whatsoever thing the LORD shall answer you, I will declare *it* unto you; I will keep nothing back from you.
+> Then Jeremiah the prophet said unto them, I have heard <i>you;</i> behold, I will <u>pray</u>[^a] unto the LORD your God according to your words; and it shall come to pass, <i>that</i> whatsoever thing the LORD shall answer you, I will declare <i>it</i> unto you; I will keep nothing back from you.
 
 [Jeremiah 42:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.4?lang=eng#p4)
 

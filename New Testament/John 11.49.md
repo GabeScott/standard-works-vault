@@ -1,6 +1,6 @@
 # John 11:49
 
-> And one of them, *named* <u>Caiaphas</u>[^a], being the <u>high priest</u>[^b] that same year, said unto them, Ye know nothing at all,
+> And one of them, <i>named</i> <u>Caiaphas</u>[^a], being the <u>high priest</u>[^b] that same year, said unto them, Ye know nothing at all,
 
 [John 11:49](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.49?lang=eng#p49)
 

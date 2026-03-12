@@ -1,6 +1,6 @@
 # Isaiah 3:26
 
-> And her <u>gates</u>[^a] shall <u>lament</u>[^b] and <u>mourn</u>[^c]; and she *being* <u>desolate</u>[^d] shall sit upon the <u>ground</u>[^e].
+> And her <u>gates</u>[^a] shall <u>lament</u>[^b] and <u>mourn</u>[^c]; and she <i>being</i> <u>desolate</u>[^d] shall sit upon the <u>ground</u>[^e].
 
 [Isaiah 3:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.26?lang=eng#p26)
 

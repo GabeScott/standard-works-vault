@@ -1,6 +1,6 @@
 # Romans 8:23
 
-> And not only *they,* but ourselves also, <u>which</u>[^a] have the <u>firstfruits</u>[^b] of the Spirit, even we ourselves groan within ourselves, waiting for the <u>adoption</u>[^c], *to wit,* the redemption of our body.
+> And not only <i>they,</i> but ourselves also, <u>which</u>[^a] have the <u>firstfruits</u>[^b] of the Spirit, even we ourselves groan within ourselves, waiting for the <u>adoption</u>[^c], <i>to wit,</i> the redemption of our body.
 
 [Romans 8:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.23?lang=eng#p23)
 

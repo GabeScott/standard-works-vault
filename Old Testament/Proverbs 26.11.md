@@ -1,6 +1,6 @@
 # Proverbs 26:11
 
-> As a dog returneth to his <u>vomit</u>[^a], *so* a fool returneth to his folly.
+> As a dog returneth to his <u>vomit</u>[^a], <i>so</i> a fool returneth to his folly.
 
 [Proverbs 26:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.11?lang=eng#p11)
 

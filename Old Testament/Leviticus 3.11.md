@@ -1,6 +1,6 @@
 # Leviticus 3:11
 
-> And the priest shall burn it upon the altar: *it is* the <u>food</u>[^a] of the offering made by <u>fire</u>[^b] unto the LORD.
+> And the priest shall burn it upon the altar: <i>it is</i> the <u>food</u>[^a] of the offering made by <u>fire</u>[^b] unto the LORD.
 
 [Leviticus 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/3.11?lang=eng#p11)
 

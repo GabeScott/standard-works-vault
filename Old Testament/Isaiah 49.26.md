@@ -1,6 +1,6 @@
 # Isaiah 49:26
 
-> And I will feed them that <u>oppress</u>[^a] thee with their own flesh; and they shall be drunken with their own blood, as with sweet wine: and all flesh shall <u>know</u>[^b] that I the LORD *am* thy <u>Saviour</u>[^c] and thy <u>Redeemer</u>[^d], the <u>mighty One</u>[^e] of Jacob.
+> And I will feed them that <u>oppress</u>[^a] thee with their own flesh; and they shall be drunken with their own blood, as with sweet wine: and all flesh shall <u>know</u>[^b] that I the LORD <i>am</i> thy <u>Saviour</u>[^c] and thy <u>Redeemer</u>[^d], the <u>mighty One</u>[^e] of Jacob.
 
 [Isaiah 49:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.26?lang=eng#p26)
 

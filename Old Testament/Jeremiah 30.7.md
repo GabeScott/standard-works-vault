@@ -1,6 +1,6 @@
 # Jeremiah 30:7
 
-> Alas! for that <u>day</u>[^a] *is* great, so that none *is* like it: it *is* even the time of Jacob’s trouble; but he shall be saved out of it.
+> Alas! for that <u>day</u>[^a] <i>is</i> great, so that none <i>is</i> like it: it <i>is</i> even the time of Jacob’s trouble; but he shall be saved out of it.
 
 [Jeremiah 30:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.7?lang=eng#p7)
 

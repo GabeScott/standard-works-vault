@@ -1,6 +1,6 @@
 # Jeremiah 48:42
 
-> And Moab shall be destroyed from *being* a people, because he hath <u>magnified</u>[^a] *himself* against the LORD.
+> And Moab shall be destroyed from <i>being</i> a people, because he hath <u>magnified</u>[^a] <i>himself</i> against the LORD.
 
 [Jeremiah 48:42](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.42?lang=eng#p42)
 

@@ -1,6 +1,6 @@
 # Nehemiah 10:34
 
-> And we <u>cast</u>[^a] the lots among the priests, the Levites, and the people, for the <u>wood</u>[^b] offering, to bring *it* into the house of our God, after the houses of our fathers, at times appointed year by year, to burn upon the altar of the LORD our God, as *it is* written in the law:
+> And we <u>cast</u>[^a] the lots among the priests, the Levites, and the people, for the <u>wood</u>[^b] offering, to bring <i>it</i> into the house of our God, after the houses of our fathers, at times appointed year by year, to burn upon the altar of the LORD our God, as <i>it is</i> written in the law:
 
 [Nehemiah 10:34](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.34?lang=eng#p34)
 

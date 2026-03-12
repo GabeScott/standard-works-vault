@@ -1,6 +1,6 @@
 # Deuteronomy 6:1
 
-> Now these *are* the commandments, the <u>statutes</u>[^a], and the <u>judgments</u>[^b], which the LORD your God commanded to teach you, that ye might do *them* in the land whither ye go to possess it:
+> Now these <i>are</i> the commandments, the <u>statutes</u>[^a], and the <u>judgments</u>[^b], which the LORD your God commanded to teach you, that ye might do <i>them</i> in the land whither ye go to possess it:
 
 [Deuteronomy 6:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.1?lang=eng#p1)
 

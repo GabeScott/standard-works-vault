@@ -1,6 +1,6 @@
 # Psalms 104:16
 
-> The <u>trees</u>[^a] of the LORD are full *of sap;* the cedars of Lebanon, which he hath planted;
+> The <u>trees</u>[^a] of the LORD are full <i>of sap;</i> the cedars of Lebanon, which he hath planted;
 
 [Psalms 104:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.16?lang=eng#p16)
 

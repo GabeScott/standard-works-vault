@@ -1,6 +1,6 @@
 # Deuteronomy 30:11
 
-> ¶ For this commandment which I command thee this day, it *is* not <u>hidden from thee</u>[^a], neither *is* it far off.
+> ¶ For this commandment which I command thee this day, it <i>is</i> not <u>hidden from thee</u>[^a], neither <i>is</i> it far off.
 
 [Deuteronomy 30:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Exodus 16:8
 
-> And Moses said, *This shall be,* when the LORD shall give you in the evening flesh to eat, and in the morning bread to the full; for that the LORD heareth your murmurings which ye murmur against him: and what *are* we? your <u>murmurings</u>[^a] *are* not against us, but <u>against</u>[^b] the LORD.
+> And Moses said, <i>This shall be,</i> when the LORD shall give you in the evening flesh to eat, and in the morning bread to the full; for that the LORD heareth your murmurings which ye murmur against him: and what <i>are</i> we? your <u>murmurings</u>[^a] <i>are</i> not against us, but <u>against</u>[^b] the LORD.
 
 [Exodus 16:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.8?lang=eng#p8)
 

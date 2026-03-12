@@ -1,6 +1,6 @@
 # Luke 13:35
 
-> Behold, your house is left unto you <u>desolate</u>[^a]: and verily I say unto you, <u>Ye</u>[^b] shall not see me, until *the time* come when ye shall say, <u>Blessed</u>[^c] *is* he that cometh in the name of the Lord.
+> Behold, your house is left unto you <u>desolate</u>[^a]: and verily I say unto you, <u>Ye</u>[^b] shall not see me, until <i>the time</i> come when ye shall say, <u>Blessed</u>[^c] <i>is</i> he that cometh in the name of the Lord.
 
 [Luke 13:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.35?lang=eng#p35)
 

@@ -1,6 +1,6 @@
 # Genesis 46:34
 
-> That ye shall say, Thy servants’ trade hath been about <u>cattle</u>[^a] from our youth even until now, both we, *and* also our fathers: that ye may dwell in the land of Goshen; for every shepherd *is* an <u>abomination</u>[^b] unto the Egyptians.
+> That ye shall say, Thy servants’ trade hath been about <u>cattle</u>[^a] from our youth even until now, both we, <i>and</i> also our fathers: that ye may dwell in the land of Goshen; for every shepherd <i>is</i> an <u>abomination</u>[^b] unto the Egyptians.
 
 [Genesis 46:34](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.34?lang=eng#p34)
 

@@ -1,6 +1,6 @@
 # Ezekiel 36:27
 
-> And I will put my <u>spirit</u>[^a] within you, and cause you to walk in my statutes, and ye shall keep my judgments, and do *them.*
+> And I will put my <u>spirit</u>[^a] within you, and cause you to walk in my statutes, and ye shall keep my judgments, and do <i>them.</i>
 
 [Ezekiel 36:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.27?lang=eng#p27)
 

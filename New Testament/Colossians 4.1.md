@@ -1,6 +1,6 @@
 # Colossians 4:1
 
-> <u>Masters</u>[^a], give unto *your* servants that which is just and equal; knowing that ye also have a <u>Master</u>[^b] in <u>heaven</u>[^c].
+> <u>Masters</u>[^a], give unto <i>your</i> servants that which is just and equal; knowing that ye also have a <u>Master</u>[^b] in <u>heaven</u>[^c].
 
 [Colossians 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/col/4.1?lang=eng#p1)
 

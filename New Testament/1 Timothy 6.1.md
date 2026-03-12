@@ -1,6 +1,6 @@
 # 1 Timothy 6:1
 
-> Let as many <u>servants</u>[^a] as are under the <u>yoke</u>[^b] count their own masters worthy of all honour, that the name of God and *his* doctrine be not blasphemed.
+> Let as many <u>servants</u>[^a] as are under the <u>yoke</u>[^b] count their own masters worthy of all honour, that the name of God and <i>his</i> doctrine be not blasphemed.
 
 [1 Timothy 6:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.1?lang=eng#p1)
 

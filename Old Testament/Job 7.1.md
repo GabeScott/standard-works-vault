@@ -1,6 +1,6 @@
 # Job 7:1
 
-> *Is there* not an <u>appointed</u>[^a] time to man upon earth? *are not* his days also like the days of an <u>hireling</u>[^b]?
+> <i>Is there</i> not an <u>appointed</u>[^a] time to man upon earth? <i>are not</i> his days also like the days of an <u>hireling</u>[^b]?
 
 [Job 7:1](https://www.churchofjesuschrist.org/study/scriptures/ot/job/7.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 26:17
 
-> And <u>Azariah</u>[^a] the priest went in after him, and with him fourscore priests of the LORD, *that were* valiant men:
+> And <u>Azariah</u>[^a] the priest went in after him, and with him fourscore priests of the LORD, <i>that were</i> valiant men:
 
 [2 Chronicles 26:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.17?lang=eng#p17)
 

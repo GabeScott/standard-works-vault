@@ -1,6 +1,6 @@
 # Job 29:12
 
-> Because I delivered the <u>poor</u>[^a] that cried, and the fatherless, and *him that had* none to help him.
+> Because I delivered the <u>poor</u>[^a] that cried, and the fatherless, and <i>him that had</i> none to help him.
 
 [Job 29:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/29.12?lang=eng#p12)
 

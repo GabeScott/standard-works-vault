@@ -1,6 +1,6 @@
 # Proverbs 15:33
 
-> The <u>fear</u>[^a] of the LORD *is* the instruction of wisdom; and before <u>honour</u>[^b] *is* <u>humility</u>[^c].
+> The <u>fear</u>[^a] of the LORD <i>is</i> the instruction of wisdom; and before <u>honour</u>[^b] <i>is</i> <u>humility</u>[^c].
 
 [Proverbs 15:33](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.33?lang=eng#p33)
 

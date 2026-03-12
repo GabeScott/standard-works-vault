@@ -1,6 +1,6 @@
 # Deuteronomy 5:3
 
-> The LORD made not this <u>covenant</u>[^a] with our fathers, but with us, *even* us, who *are* all of us here alive this day.
+> The LORD made not this <u>covenant</u>[^a] with our fathers, but with us, <i>even</i> us, who <i>are</i> all of us here alive this day.
 
 [Deuteronomy 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.3?lang=eng#p3)
 

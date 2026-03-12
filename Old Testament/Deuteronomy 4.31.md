@@ -1,6 +1,6 @@
 # Deuteronomy 4:31
 
-> (For the LORD thy God *is* a <u>merciful</u>[^a] God;) he will not forsake thee, neither destroy thee, nor forget the <u>covenant</u>[^b] of thy fathers which he sware unto them.
+> (For the LORD thy God <i>is</i> a <u>merciful</u>[^a] God;) he will not forsake thee, neither destroy thee, nor forget the <u>covenant</u>[^b] of thy fathers which he sware unto them.
 
 [Deuteronomy 4:31](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.31?lang=eng#p31)
 

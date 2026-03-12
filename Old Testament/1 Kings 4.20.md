@@ -1,6 +1,6 @@
 # 1 Kings 4:20
 
-> ¶ Judah and Israel *were* many, as the <u>sand</u>[^a] which *is* by the sea in multitude, eating and drinking, and making merry.
+> ¶ Judah and Israel <i>were</i> many, as the <u>sand</u>[^a] which <i>is</i> by the sea in multitude, eating and drinking, and making merry.
 
 [1 Kings 4:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.20?lang=eng#p20)
 

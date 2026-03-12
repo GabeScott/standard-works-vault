@@ -1,6 +1,6 @@
 # Colossians 3:10
 
-> And have put on the <u>new man</u>[^a]*,* which is renewed in knowledge after the <u>image</u>[^b] of him that <u>created</u>[^c] him:
+> And have put on the <i><u>new man</u></i>[^a]<i>,</i> which is renewed in knowledge after the <u>image</u>[^b] of him that <u>created</u>[^c] him:
 
 [Colossians 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.10?lang=eng#p10)
 

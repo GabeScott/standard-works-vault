@@ -1,6 +1,6 @@
 # Psalms 59:7
 
-> Behold, they belch out with their mouth: <u>swords</u>[^a] *are* in their lips: for who, *say they,* doth hear?
+> Behold, they belch out with their mouth: <u>swords</u>[^a] <i>are</i> in their lips: for who, <i>say they,</i> doth hear?
 
 [Psalms 59:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/59.7?lang=eng#p7)
 

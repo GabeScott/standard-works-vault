@@ -1,6 +1,6 @@
 # Isaiah 63:7
 
-> ¶ I will mention the <u>lovingkindnesses</u>[^a] of the LORD, *and* the praises of the LORD, according to all that the LORD hath bestowed on us, and the great <u>goodness</u>[^b] toward the house of Israel, which he hath bestowed on them according to his mercies, and according to the multitude of his lovingkindnesses.
+> ¶ I will mention the <u>lovingkindnesses</u>[^a] of the LORD, <i>and</i> the praises of the LORD, according to all that the LORD hath bestowed on us, and the great <u>goodness</u>[^b] toward the house of Israel, which he hath bestowed on them according to his mercies, and according to the multitude of his lovingkindnesses.
 
 [Isaiah 63:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.7?lang=eng#p7)
 

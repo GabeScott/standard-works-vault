@@ -1,6 +1,6 @@
 # Genesis 43:30
 
-> And Joseph made haste; for his bowels did yearn upon his brother: and he sought *where* to weep; and he entered into *his* chamber, and <u>wept</u>[^a] there.
+> And Joseph made haste; for his bowels did yearn upon his brother: and he sought <i>where</i> to weep; and he entered into <i>his</i> chamber, and <u>wept</u>[^a] there.
 
 [Genesis 43:30](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/43.30?lang=eng#p30)
 

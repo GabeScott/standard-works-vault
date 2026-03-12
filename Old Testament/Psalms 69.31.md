@@ -1,6 +1,6 @@
 # Psalms 69:31
 
-> *This* also shall <u>please</u>[^a] the LORD better than an ox *or* bullock that hath horns and hoofs.
+> <i>This</i> also shall <u>please</u>[^a] the LORD better than an ox <i>or</i> bullock that hath horns and hoofs.
 
 [Psalms 69:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.31?lang=eng#p31)
 

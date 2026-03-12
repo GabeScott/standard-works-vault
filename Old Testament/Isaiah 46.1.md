@@ -1,6 +1,6 @@
 # Isaiah 46:1
 
-> <u>Bel</u>[^a] boweth down, Nebo stoopeth, their idols were upon the beasts, and upon the cattle: your carriages *were* heavy loaden; *they are* a <u>burden</u>[^b] to the weary *beast.*
+> <u>Bel</u>[^a] boweth down, Nebo stoopeth, their idols were upon the beasts, and upon the cattle: your carriages <i>were</i> heavy loaden; <i>they are</i> a <u>burden</u>[^b] to the weary <i>beast.</i>
 
 [Isaiah 46:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Revelation 2:17
 
-> He that hath an ear, let him hear what the Spirit saith unto the churches; To him that <u>overcometh</u>[^a] will I give to eat of the hidden <u>manna</u>[^b], and will give him a <u>white</u>[^c] <u>stone</u>[^d], and in the stone a new <u>name</u>[^e] written, which no man knoweth saving he that receiveth *it.*
+> He that hath an ear, let him hear what the Spirit saith unto the churches; To him that <u>overcometh</u>[^a] will I give to eat of the hidden <u>manna</u>[^b], and will give him a <u>white</u>[^c] <u>stone</u>[^d], and in the stone a new <u>name</u>[^e] written, which no man knoweth saving he that receiveth <i>it.</i>
 
 [Revelation 2:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.17?lang=eng#p17)
 

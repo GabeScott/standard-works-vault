@@ -1,6 +1,6 @@
 # Psalms 118:5
 
-> I called upon the LORD in <u>distress</u>[^a]: the LORD answered me, *and set me* in a <u>large place</u>[^b].
+> I called upon the LORD in <u>distress</u>[^a]: the LORD answered me, <i>and set me</i> in a <u>large place</u>[^b].
 
 [Psalms 118:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.5?lang=eng#p5)
 

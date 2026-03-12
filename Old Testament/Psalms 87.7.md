@@ -1,6 +1,6 @@
 # Psalms 87:7
 
-> As well the singers as the players on instruments *shall be there:* all my <u>springs</u>[^a] *are* in thee.
+> As well the singers as the players on instruments <i>shall be there:</i> all my <u>springs</u>[^a] <i>are</i> in thee.
 
 [Psalms 87:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/87.7?lang=eng#p7)
 

@@ -1,6 +1,6 @@
 # Colossians 3:22
 
-> <u>Servants</u>[^a], obey in all things *your* masters according to the flesh; not with eyeservice, as menpleasers; but in <u>singleness</u>[^b] of heart, <u>fearing</u>[^c] God:
+> <u>Servants</u>[^a], obey in all things <i>your</i> masters according to the flesh; not with eyeservice, as menpleasers; but in <u>singleness</u>[^b] of heart, <u>fearing</u>[^c] God:
 
 [Colossians 3:22](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.22?lang=eng#p22)
 

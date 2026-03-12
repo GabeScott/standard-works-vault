@@ -1,6 +1,6 @@
 # Isaiah 10:1
 
-> <u>Woe</u>[^a] unto them that decree <u>unrighteous</u>[^b] decrees, and that write grievousness *which* they have prescribed;
+> <u>Woe</u>[^a] unto them that decree <u>unrighteous</u>[^b] decrees, and that write grievousness <i>which</i> they have prescribed;
 
 [Isaiah 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.1?lang=eng#p1)
 

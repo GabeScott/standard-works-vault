@@ -1,6 +1,6 @@
 # Matthew 21:7
 
-> <u>And</u>[^a] brought the ass, and the colt, and put on them their clothes, and they set *him* thereon.
+> <u>And</u>[^a] brought the ass, and the colt, and put on them their clothes, and they set <i>him</i> thereon.
 
 [Matthew 21:7](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.7?lang=eng#p7)
 

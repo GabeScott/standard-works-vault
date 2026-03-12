@@ -1,6 +1,6 @@
 # Isaiah 46:9
 
-> <u>Remember</u>[^a] the <u>former</u>[^b] things of old: for <u>I am</u>[^c] God, and *there is* none else; *I am* God, and *there is* <u>none</u>[^d] like me,
+> <u>Remember</u>[^a] the <u>former</u>[^b] things of old: for <i><u>I am</u></i>[^c] God, and <i>there is</i> none else; <i>I am</i> God, and <i>there is</i> <u>none</u>[^d] like me,
 
 [Isaiah 46:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.9?lang=eng#p9)
 

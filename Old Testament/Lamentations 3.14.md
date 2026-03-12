@@ -1,6 +1,6 @@
 # Lamentations 3:14
 
-> I was a <u>derision</u>[^a] to all my people; *and* their song all the day.
+> I was a <u>derision</u>[^a] to all my people; <i>and</i> their song all the day.
 
 [Lamentations 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/3.14?lang=eng#p14)
 

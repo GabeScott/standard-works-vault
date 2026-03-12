@@ -1,6 +1,6 @@
 # Ecclesiastes 9:9
 
-> Live <u>joyfully</u>[^a] with the <u>wife</u>[^b] whom thou <u>lovest</u>[^c] all the days of the life of thy <u>vanity</u>[^d], which he hath given thee under the sun, all the days of thy vanity: for that *is* thy <u>portion</u>[^e] in *this* life, and in thy labour which thou takest under the sun.
+> Live <u>joyfully</u>[^a] with the <u>wife</u>[^b] whom thou <u>lovest</u>[^c] all the days of the life of thy <u>vanity</u>[^d], which he hath given thee under the sun, all the days of thy vanity: for that <i>is</i> thy <u>portion</u>[^e] in <i>this</i> life, and in thy labour which thou takest under the sun.
 
 [Ecclesiastes 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.9?lang=eng#p9)
 

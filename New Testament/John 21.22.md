@@ -1,6 +1,6 @@
 # John 21:22
 
-> Jesus saith unto him, If I will that he <u>tarry</u>[^a] till I come, what *is that* to thee? <u>follow</u>[^b] thou me.
+> Jesus saith unto him, If I will that he <u>tarry</u>[^a] till I come, what <i>is that</i> to thee? <u>follow</u>[^b] thou me.
 
 [John 21:22](https://www.churchofjesuschrist.org/study/scriptures/nt/john/21.22?lang=eng#p22)
 

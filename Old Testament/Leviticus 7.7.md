@@ -1,6 +1,6 @@
 # Leviticus 7:7
 
-> As the <u>sin offering</u>[^a] *is,* so *is* the <u>trespass offering</u>[^b]: *there is* one law for them: the priest that maketh atonement therewith shall have *it.*
+> As the <u>sin offering</u>[^a] <i>is,</i> so <i>is</i> the <u>trespass offering</u>[^b]: <i>there is</i> one law for them: the priest that maketh atonement therewith shall have <i>it.</i>
 
 [Leviticus 7:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.7?lang=eng#p7)
 

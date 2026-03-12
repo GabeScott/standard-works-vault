@@ -1,6 +1,6 @@
 # Malachi 1:11
 
-> For from the <u>rising</u>[^a] of the sun even unto the going down of the same my <u>name</u>[^b] *shall be* great among the <u>Gentiles</u>[^c]; and in every place incense *shall be* offered unto my name, and a pure offering: for my name *shall be* great among the heathen, saith the LORD of hosts.
+> For from the <u>rising</u>[^a] of the sun even unto the going down of the same my <u>name</u>[^b] <i>shall be</i> great among the <u>Gentiles</u>[^c]; and in every place incense <i>shall be</i> offered unto my name, and a pure offering: for my name <i>shall be</i> great among the heathen, saith the LORD of hosts.
 
 [Malachi 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/1.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Psalms 118:6
 
-> The LORD *is* on my side; I will not <u>fear</u>[^a]: what can man do unto me?
+> The LORD <i>is</i> on my side; I will not <u>fear</u>[^a]: what can man do unto me?
 
 [Psalms 118:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Psalms 19:10
 
-> More to be <u>desired</u>[^a] *are they* than <u>gold</u>[^b], yea, than much fine gold: sweeter also than honey and the honeycomb.
+> More to be <u>desired</u>[^a] <i>are they</i> than <u>gold</u>[^b], yea, than much fine gold: sweeter also than honey and the honeycomb.
 
 [Psalms 19:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.10?lang=eng#p10)
 

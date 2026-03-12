@@ -1,6 +1,6 @@
 # 1 Samuel 3:1
 
-> And the child Samuel ministered unto the LORD before Eli. And the word of the LORD was precious in those days; *there was* no open <u>vision</u>[^a].
+> And the child Samuel ministered unto the LORD before Eli. And the word of the LORD was precious in those days; <i>there was</i> no open <u>vision</u>[^a].
 
 [1 Samuel 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/3.1?lang=eng#p1)
 

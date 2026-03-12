@@ -1,6 +1,6 @@
 # Jeremiah 25:31
 
-> A noise shall come *even* to the ends of the earth; for the LORD hath a <u>controversy</u>[^a] with the nations, he will <u>plead</u>[^b] with all flesh; he will give them *that are* wicked to the sword, saith the LORD.
+> A noise shall come <i>even</i> to the ends of the earth; for the LORD hath a <u>controversy</u>[^a] with the nations, he will <u>plead</u>[^b] with all flesh; he will give them <i>that are</i> wicked to the sword, saith the LORD.
 
 [Jeremiah 25:31](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.31?lang=eng#p31)
 

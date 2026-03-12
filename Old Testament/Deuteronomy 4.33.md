@@ -1,6 +1,6 @@
 # Deuteronomy 4:33
 
-> Did *ever* people <u>hear</u>[^a] the <u>voice</u>[^b] of God speaking out of the midst of the fire, as thou hast heard, and live?
+> Did <i>ever</i> people <u>hear</u>[^a] the <u>voice</u>[^b] of God speaking out of the midst of the fire, as thou hast heard, and live?
 
 [Deuteronomy 4:33](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.33?lang=eng#p33)
 

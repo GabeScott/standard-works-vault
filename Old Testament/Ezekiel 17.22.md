@@ -1,6 +1,6 @@
 # Ezekiel 17:22
 
-> ¶ Thus saith the Lord GOD; I will also take of the highest <u>branch</u>[^a] of the high cedar, and will set *it;* I will crop off from the top of his young <u>twigs</u>[^b] a tender one, and will <u>plant</u>[^c] *it* upon an high mountain and eminent:
+> ¶ Thus saith the Lord GOD; I will also take of the highest <u>branch</u>[^a] of the high cedar, and will set <i>it;</i> I will crop off from the top of his young <u>twigs</u>[^b] a tender one, and will <u>plant</u>[^c] <i>it</i> upon an high mountain and eminent:
 
 [Ezekiel 17:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.22?lang=eng#p22)
 

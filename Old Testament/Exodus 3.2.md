@@ -1,6 +1,6 @@
 # Exodus 3:2
 
-> And the <u>angel of the Lord</u>[^a] appeared unto him in a flame of <u>fire</u>[^b] out of the midst of a <u>bush</u>[^c]: and he looked, and, behold, the bush burned with fire, and the bush *was* not consumed.
+> And the <u>angel of the Lord</u>[^a] appeared unto him in a flame of <u>fire</u>[^b] out of the midst of a <u>bush</u>[^c]: and he looked, and, behold, the bush burned with fire, and the bush <i>was</i> not consumed.
 
 [Exodus 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.2?lang=eng#p2)
 

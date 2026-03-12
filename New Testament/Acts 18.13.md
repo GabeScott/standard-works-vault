@@ -1,6 +1,6 @@
 # Acts 18:13
 
-> Saying, This *fellow* persuadeth men to <u>worship</u>[^a] God contrary to the law.
+> Saying, This <i>fellow</i> persuadeth men to <u>worship</u>[^a] God contrary to the law.
 
 [Acts 18:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.13?lang=eng#p13)
 

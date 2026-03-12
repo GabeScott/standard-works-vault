@@ -1,6 +1,6 @@
 # Ephesians 6:12
 
-> For we <u>wrestle</u>[^a] not <u>against</u>[^b] <u>flesh and blood</u>[^c], but against principalities, against powers, against the <u>rulers</u>[^d] of the <u>darkness</u>[^e] of this world, against spiritual <u>wickedness</u>[^f] in high *places.*
+> For we <u>wrestle</u>[^a] not <u>against</u>[^b] <u>flesh and blood</u>[^c], but against principalities, against powers, against the <u>rulers</u>[^d] of the <u>darkness</u>[^e] of this world, against spiritual <u>wickedness</u>[^f] in high <i>places.</i>
 
 [Ephesians 6:12](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.12?lang=eng#p12)
 

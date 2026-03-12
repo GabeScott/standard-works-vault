@@ -1,6 +1,6 @@
 # 2 Kings 24:19
 
-> And he did *that which was* <u>evil</u>[^a] in the sight of the LORD, according to all that Jehoiakim had done.
+> And he did <i>that which was</i> <u>evil</u>[^a] in the sight of the LORD, according to all that Jehoiakim had done.
 
 [2 Kings 24:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.19?lang=eng#p19)
 

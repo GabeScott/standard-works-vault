@@ -1,6 +1,6 @@
 # Amos 6:12
 
-> ¶ Shall horses run upon the rock? will *one* plow *there* with oxen? for ye have turned <u>judgment</u>[^a] into gall, and the fruit of righteousness into hemlock:
+> ¶ Shall horses run upon the rock? will <i>one</i> plow <i>there</i> with oxen? for ye have turned <u>judgment</u>[^a] into gall, and the fruit of righteousness into hemlock:
 
 [Amos 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/6.12?lang=eng#p12)
 

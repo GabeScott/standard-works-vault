@@ -1,6 +1,6 @@
 # Numbers 18:9
 
-> This shall be thine of the most holy things, *reserved* from the fire: every oblation of theirs, every <u>meat</u>[^a] offering of theirs, and every <u>sin offering</u>[^b] of theirs, and every <u>trespass offering</u>[^c] of theirs, which they shall render unto me, *shall be* most holy for thee and for thy sons.
+> This shall be thine of the most holy things, <i>reserved</i> from the fire: every oblation of theirs, every <u>meat</u>[^a] offering of theirs, and every <u>sin offering</u>[^b] of theirs, and every <u>trespass offering</u>[^c] of theirs, which they shall render unto me, <i>shall be</i> most holy for thee and for thy sons.
 
 [Numbers 18:9](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.9?lang=eng#p9)
 

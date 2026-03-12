@@ -1,6 +1,6 @@
 # 1 Chronicles 23:32
 
-> And that they should keep the charge of the <u>tabernacle</u>[^a] of the congregation, and the charge of the holy *place,* and the charge of the sons of <u>Aaron</u>[^b] their brethren, in the service of the house of the LORD.
+> And that they should keep the charge of the <u>tabernacle</u>[^a] of the congregation, and the charge of the holy <i>place,</i> and the charge of the sons of <u>Aaron</u>[^b] their brethren, in the service of the house of the LORD.
 
 [1 Chronicles 23:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/23.32?lang=eng#p32)
 

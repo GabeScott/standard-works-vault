@@ -1,6 +1,6 @@
 # Ezra 5:14
 
-> And the vessels also of gold and silver of the house of God, which Nebuchadnezzar took out of the temple that was in Jerusalem, and brought them into the temple of Babylon, those did Cyrus the king take out of the temple of Babylon, and they were delivered unto one, whose name was Sheshbazzar, whom he had made governor;
+> And the vessels also of gold and silver of the house of God, which Nebuchadnezzar took out of the temple that <i>was</i> in Jerusalem, and brought them into the temple of Babylon, those did Cyrus the king take out of the temple of Babylon, and they were delivered unto <i>one,</i> whose name <i>was</i> Sheshbazzar, whom he had made governor;
 
 [Ezra 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/5.14?lang=eng#p14)
 

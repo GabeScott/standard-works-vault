@@ -1,6 +1,6 @@
 # Isaiah 40:13
 
-> Who hath <u>directed</u>[^a] the <u>Spirit</u>[^b] of the LORD, or *being* his <u>counsellor</u>[^c] hath taught him?
+> Who hath <u>directed</u>[^a] the <u>Spirit</u>[^b] of the LORD, or <i>being</i> his <u>counsellor</u>[^c] hath taught him?
 
 [Isaiah 40:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.13?lang=eng#p13)
 

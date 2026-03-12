@@ -1,6 +1,6 @@
 # Matthew 2:18
 
-> In <u>Rama</u>[^a] was there a voice heard, lamentation, and weeping, and great <u>mourning</u>[^b], Rachel weeping *for* her <u>children</u>[^c], and would not be comforted, because they are not.
+> In <u>Rama</u>[^a] was there a voice heard, lamentation, and weeping, and great <u>mourning</u>[^b], Rachel weeping <i>for</i> her <u>children</u>[^c], and would not be comforted, because they are not.
 
 [Matthew 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.18?lang=eng#p18)
 

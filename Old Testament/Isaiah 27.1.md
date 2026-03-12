@@ -1,6 +1,6 @@
 # Isaiah 27:1
 
-> In that day the LORD with his <u>sore</u>[^a] and great and strong <u>sword</u>[^b] shall punish <u>leviathan</u>[^c] the piercing serpent, even leviathan that crooked <u>serpent</u>[^d]; and he shall slay the <u>dragon</u>[^e] that *is* in the sea.
+> In that day the LORD with his <u>sore</u>[^a] and great and strong <u>sword</u>[^b] shall punish <u>leviathan</u>[^c] the piercing serpent, even leviathan that crooked <u>serpent</u>[^d]; and he shall slay the <u>dragon</u>[^e] that <i>is</i> in the sea.
 
 [Isaiah 27:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/27.1?lang=eng#p1)
 

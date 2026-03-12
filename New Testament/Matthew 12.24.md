@@ -1,6 +1,6 @@
 # Matthew 12:24
 
-> But when the Pharisees heard *it,* they said, This *fellow* doth not cast out devils, but by <u>Beelzebub</u>[^a] the prince of the devils.
+> But when the Pharisees heard <i>it,</i> they said, This <i>fellow</i> doth not cast out devils, but by <u>Beelzebub</u>[^a] the prince of the devils.
 
 [Matthew 12:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.24?lang=eng#p24)
 

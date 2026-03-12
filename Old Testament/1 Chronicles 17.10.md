@@ -1,6 +1,6 @@
 # 1 Chronicles 17:10
 
-> And since the time that I commanded judges *to be* over my people Israel. Moreover I will subdue all thine <u>enemies</u>[^a]. Furthermore I tell thee that the LORD will build thee an house.
+> And since the time that I commanded judges <i>to be</i> over my people Israel. Moreover I will subdue all thine <u>enemies</u>[^a]. Furthermore I tell thee that the LORD will build thee an house.
 
 [1 Chronicles 17:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/17.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # Ezekiel 13:13
 
-> Therefore thus saith the Lord GOD; I will even rend *it* with a stormy wind in my fury; and there shall be an overflowing shower in mine anger, and great <u>hailstones</u>[^a] in *my* fury to consume *it.*
+> Therefore thus saith the Lord GOD; I will even rend <i>it</i> with a stormy wind in my fury; and there shall be an overflowing shower in mine anger, and great <u>hailstones</u>[^a] in <i>my</i> fury to consume <i>it.</i>
 
 [Ezekiel 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # Judges 2:8
 
-> And Joshua the son of <u>Nun</u>[^a], the servant of the LORD, died, *being* an hundred and ten years old.
+> And Joshua the son of <u>Nun</u>[^a], the servant of the LORD, died, <i>being</i> an hundred and ten years old.
 
 [Judges 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.8?lang=eng#p8)
 

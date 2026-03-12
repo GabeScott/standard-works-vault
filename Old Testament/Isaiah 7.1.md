@@ -1,6 +1,6 @@
 # Isaiah 7:1
 
-> <u>And</u>[^a] it came to pass in the days of Ahaz the son of Jotham, the son of Uzziah, king of Judah, *that* <u>Rezin</u>[^b] the <u>king</u>[^c] of Syria, and <u>Pekah</u>[^d] the son of Remaliah, king of Israel, went up toward Jerusalem to war against it, but could not prevail against it.
+> <u>And</u>[^a] it came to pass in the days of Ahaz the son of Jotham, the son of Uzziah, king of Judah, <i>that</i> <u>Rezin</u>[^b] the <u>king</u>[^c] of Syria, and <u>Pekah</u>[^d] the son of Remaliah, king of Israel, went up toward Jerusalem to war against it, but could not prevail against it.
 
 [Isaiah 7:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.1?lang=eng#p1)
 

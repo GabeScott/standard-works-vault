@@ -1,6 +1,6 @@
 # Genesis 8:17
 
-> Bring forth with thee every living thing that *is* with thee, of all flesh, *both* of fowl, and of cattle, and of every creeping thing that creepeth upon the earth; that they may breed abundantly in the earth, and be <u>fruitful</u>[^a], and <u>multiply</u>[^b] upon the earth.
+> Bring forth with thee every living thing that <i>is</i> with thee, of all flesh, <i>both</i> of fowl, and of cattle, and of every creeping thing that creepeth upon the earth; that they may breed abundantly in the earth, and be <u>fruitful</u>[^a], and <u>multiply</u>[^b] upon the earth.
 
 [Genesis 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/8.17?lang=eng#p17)
 

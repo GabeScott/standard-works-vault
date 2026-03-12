@@ -1,6 +1,6 @@
 # Matthew 5:6
 
-> Blessed *are* they which do <u>hunger</u>[^a] and thirst after <u>righteousness</u>[^b]: for they shall be filled.
+> Blessed <i>are</i> they which do <u>hunger</u>[^a] and thirst after <u>righteousness</u>[^b]: for they shall be filled.
 
 [Matthew 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.6?lang=eng#p6)
 

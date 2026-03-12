@@ -1,6 +1,6 @@
 # Isaiah 56:3
 
-> ¶ Neither let the <u>son</u>[^a] of the <u>stranger</u>[^b], that hath joined himself to the LORD, speak, saying, The LORD hath utterly separated me from his people: neither let the eunuch say, Behold, I *am* a dry tree.
+> ¶ Neither let the <u>son</u>[^a] of the <u>stranger</u>[^b], that hath joined himself to the LORD, speak, saying, The LORD hath utterly separated me from his people: neither let the eunuch say, Behold, I <i>am</i> a dry tree.
 
 [Isaiah 56:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.3?lang=eng#p3)
 

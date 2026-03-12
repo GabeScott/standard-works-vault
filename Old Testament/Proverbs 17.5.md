@@ -1,6 +1,6 @@
 # Proverbs 17:5
 
-> Whoso <u>mocketh</u>[^a] the <u>poor</u>[^b] reproacheth his Maker: *and* he that is <u>glad</u>[^c] at calamities shall not be unpunished.
+> Whoso <u>mocketh</u>[^a] the <u>poor</u>[^b] reproacheth his Maker: <i>and</i> he that is <u>glad</u>[^c] at calamities shall not be unpunished.
 
 [Proverbs 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.5?lang=eng#p5)
 

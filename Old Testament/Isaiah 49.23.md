@@ -1,6 +1,6 @@
 # Isaiah 49:23
 
-> And kings shall be thy <u>nursing fathers</u>[^a], and their queens thy nursing <u>mothers</u>[^b]: they shall <u>bow</u>[^c] down to thee with *their* face toward the earth, and lick up the dust of thy feet; and thou shalt know that I *am* the LORD: for they shall not be <u>ashamed</u>[^d] that wait for me.
+> And kings shall be thy <u>nursing fathers</u>[^a], and their queens thy nursing <u>mothers</u>[^b]: they shall <u>bow</u>[^c] down to thee with <i>their</i> face toward the earth, and lick up the dust of thy feet; and thou shalt know that I <i>am</i> the LORD: for they shall not be <u>ashamed</u>[^d] that wait for me.
 
 [Isaiah 49:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.23?lang=eng#p23)
 

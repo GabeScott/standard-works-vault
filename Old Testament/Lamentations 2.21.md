@@ -1,6 +1,6 @@
 # Lamentations 2:21
 
-> The young and the old lie on the ground in the streets: my virgins and my young men are fallen by the sword; thou hast <u>slain</u>[^a] *them* in the day of thine anger; thou hast killed, *and* not pitied.
+> The young and the old lie on the ground in the streets: my virgins and my young men are fallen by the sword; thou hast <u>slain</u>[^a] <i>them</i> in the day of thine anger; thou hast killed, <i>and</i> not pitied.
 
 [Lamentations 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.21?lang=eng#p21)
 

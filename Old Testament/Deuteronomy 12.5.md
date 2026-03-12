@@ -1,6 +1,6 @@
 # Deuteronomy 12:5
 
-> But unto the <u>place</u>[^a] which the LORD your God shall <u>choose</u>[^b] out of all your tribes to put his name there, *even* unto his habitation shall ye seek, and thither thou shalt <u>come</u>[^c]:
+> But unto the <u>place</u>[^a] which the LORD your God shall <u>choose</u>[^b] out of all your tribes to put his name there, <i>even</i> unto his habitation shall ye seek, and thither thou shalt <u>come</u>[^c]:
 
 [Deuteronomy 12:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.5?lang=eng#p5)
 

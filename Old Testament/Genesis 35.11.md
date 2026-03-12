@@ -1,6 +1,6 @@
 # Genesis 35:11
 
-> And God said unto him, I *am* <u>God Almighty</u>[^a]: be <u>fruitful</u>[^b] and multiply; a nation and a company of <u>nations</u>[^c] shall be of thee, and <u>kings</u>[^d] shall come out of thy loins;
+> And God said unto him, I <i>am</i> <u>God Almighty</u>[^a]: be <u>fruitful</u>[^b] and multiply; a nation and a company of <u>nations</u>[^c] shall be of thee, and <u>kings</u>[^d] shall come out of thy loins;
 
 [Genesis 35:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.11?lang=eng#p11)
 

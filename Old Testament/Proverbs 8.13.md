@@ -1,6 +1,6 @@
 # Proverbs 8:13
 
-> The <u>fear</u>[^a] of the LORD *is* to <u>hate</u>[^b] evil: pride, and arrogancy, and the evil way, and the froward mouth, do I hate.
+> The <u>fear</u>[^a] of the LORD <i>is</i> to <u>hate</u>[^b] evil: pride, and arrogancy, and the evil way, and the froward mouth, do I hate.
 
 [Proverbs 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.13?lang=eng#p13)
 

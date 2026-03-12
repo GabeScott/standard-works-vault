@@ -1,6 +1,6 @@
 # Exodus 6:30
 
-> And Moses said before the LORD, Behold, I *am* <u>of uncircumcised lips</u>[^a], and how shall Pharaoh hearken unto me?
+> And Moses said before the LORD, Behold, I <i>am</i> <u>of uncircumcised lips</u>[^a], and how shall Pharaoh hearken unto me?
 
 [Exodus 6:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.30?lang=eng#p30)
 

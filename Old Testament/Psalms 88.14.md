@@ -1,6 +1,6 @@
 # Psalms 88:14
 
-> LORD, why castest thou off my soul? *why* <u>hidest</u>[^a] thou thy face from me?
+> LORD, why castest thou off my soul? <i>why</i> <u>hidest</u>[^a] thou thy face from me?
 
 [Psalms 88:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/88.14?lang=eng#p14)
 

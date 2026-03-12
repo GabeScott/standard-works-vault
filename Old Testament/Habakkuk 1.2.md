@@ -1,6 +1,6 @@
 # Habakkuk 1:2
 
-> O LORD, <u>how</u>[^a] long shall I cry, and thou wilt not hear! *even* cry out unto thee *of* <u>violence</u>[^b], and thou wilt not save!
+> O LORD, <u>how</u>[^a] long shall I cry, and thou wilt not hear! <i>even</i> cry out unto thee <i>of</i> <u>violence</u>[^b], and thou wilt not save!
 
 [Habakkuk 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/1.2?lang=eng#p2)
 

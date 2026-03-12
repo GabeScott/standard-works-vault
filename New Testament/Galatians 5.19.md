@@ -1,6 +1,6 @@
 # Galatians 5:19
 
-> Now the works of the <u>flesh</u>[^a] are manifest, which are *these;* Adultery, <u>fornication</u>[^b], <u>uncleanness</u>[^c], lasciviousness,
+> Now the works of the <u>flesh</u>[^a] are manifest, which are <i>these;</i> Adultery, <u>fornication</u>[^b], <u>uncleanness</u>[^c], lasciviousness,
 
 [Galatians 5:19](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.19?lang=eng#p19)
 

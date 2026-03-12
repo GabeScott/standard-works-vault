@@ -1,6 +1,6 @@
 # Joshua 17:1
 
-> There was also a lot for the tribe of <u>Manasseh</u>[^a]; for he *was* the firstborn of Joseph; *to wit,* for <u>Machir</u>[^b] the firstborn of Manasseh, the father of Gilead: because he was a man of war, therefore he had Gilead and Bashan.
+> There was also a lot for the tribe of <u>Manasseh</u>[^a]; for he <i>was</i> the firstborn of Joseph; <i>to wit,</i> for <u>Machir</u>[^b] the firstborn of Manasseh, the father of Gilead: because he was a man of war, therefore he had Gilead and Bashan.
 
 [Joshua 17:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/17.1?lang=eng#p1)
 

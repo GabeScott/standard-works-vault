@@ -1,6 +1,6 @@
 # Jeremiah 8:8
 
-> How do ye say, We *are* <u>wise</u>[^a], and the law of the LORD *is* with us? Lo, certainly in vain made he *it;* the pen of the scribes *is* in vain.
+> How do ye say, We <i>are</i> <u>wise</u>[^a], and the law of the LORD <i>is</i> with us? Lo, certainly in vain made he <i>it;</i> the pen of the scribes <i>is</i> in vain.
 
 [Jeremiah 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.8?lang=eng#p8)
 

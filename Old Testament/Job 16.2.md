@@ -1,6 +1,6 @@
 # Job 16:2
 
-> I have heard many such things: miserable <u>comforters</u>[^a] *are* ye all.
+> I have heard many such things: miserable <u>comforters</u>[^a] <i>are</i> ye all.
 
 [Job 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/job/16.2?lang=eng#p2)
 

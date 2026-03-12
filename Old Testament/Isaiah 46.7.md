@@ -1,6 +1,6 @@
 # Isaiah 46:7
 
-> They <u>bear</u>[^a] him upon the shoulder, they carry him, and set him in his place, and he standeth; from his place shall he not remove: yea, *one* shall <u>cry</u>[^b] unto him, yet can he not answer, nor save him out of his trouble.
+> They <u>bear</u>[^a] him upon the shoulder, they carry him, and set him in his place, and he standeth; from his place shall he not remove: yea, <i>one</i> shall <u>cry</u>[^b] unto him, yet can he not answer, nor save him out of his trouble.
 
 [Isaiah 46:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.7?lang=eng#p7)
 

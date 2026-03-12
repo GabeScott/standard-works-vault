@@ -1,6 +1,6 @@
 # Ezekiel 20:4
 
-> Wilt thou judge them, son of man, wilt thou judge *them?* cause them to know the <u>abominations</u>[^a] of their fathers:
+> Wilt thou judge them, son of man, wilt thou judge <i>them?</i> cause them to know the <u>abominations</u>[^a] of their fathers:
 
 [Ezekiel 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.4?lang=eng#p4)
 

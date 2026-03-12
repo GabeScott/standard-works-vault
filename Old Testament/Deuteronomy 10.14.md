@@ -1,6 +1,6 @@
 # Deuteronomy 10:14
 
-> Behold, the heaven and the <u>heaven</u>[^a] of heavens *is* the LORD’s thy God, the <u>earth</u>[^b] *also,* with <u>all</u>[^c] that therein *is.*
+> Behold, the heaven and the <u>heaven</u>[^a] of heavens <i>is</i> the LORD’s thy God, the <u>earth</u>[^b] <i>also,</i> with <u>all</u>[^c] that therein <i>is.</i>
 
 [Deuteronomy 10:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.14?lang=eng#p14)
 

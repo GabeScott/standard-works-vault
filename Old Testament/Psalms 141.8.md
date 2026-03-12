@@ -1,6 +1,6 @@
 # Psalms 141:8
 
-> But mine <u>eyes</u>[^a] *are* unto thee, O GOD the Lord: in thee is my trust; leave not my soul destitute.
+> But mine <u>eyes</u>[^a] <i>are</i> unto thee, O GOD the Lord: in thee is my trust; leave not my soul destitute.
 
 [Psalms 141:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/141.8?lang=eng#p8)
 

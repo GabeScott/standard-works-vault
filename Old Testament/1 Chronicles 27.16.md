@@ -1,6 +1,6 @@
 # 1 Chronicles 27:16
 
-> ¶ Furthermore over the tribes of Israel: the <u>ruler</u>[^a] of the Reubenites *was* Eliezer the son of Zichri: of the Simeonites, Shephatiah the son of Maachah:
+> ¶ Furthermore over the tribes of Israel: the <u>ruler</u>[^a] of the Reubenites <i>was</i> Eliezer the son of Zichri: of the Simeonites, Shephatiah the son of Maachah:
 
 [1 Chronicles 27:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/27.16?lang=eng#p16)
 

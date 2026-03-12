@@ -1,6 +1,6 @@
 # Isaiah 56:10
 
-> His <u>watchmen</u>[^a] *are* <u>blind</u>[^b]: they are all ignorant, they *are* all dumb dogs, they cannot bark; sleeping, lying down, loving to slumber.
+> His <u>watchmen</u>[^a] <i>are</i> <u>blind</u>[^b]: they are all ignorant, they <i>are</i> all dumb dogs, they cannot bark; sleeping, lying down, loving to slumber.
 
 [Isaiah 56:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.10?lang=eng#p10)
 

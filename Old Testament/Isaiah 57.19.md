@@ -1,6 +1,6 @@
 # Isaiah 57:19
 
-> I create the <u>fruit</u>[^a] of the lips; Peace, peace to *him that is* <u>far</u>[^b] off, and to *him that is* near, saith the LORD; and I will heal him.
+> I create the <u>fruit</u>[^a] of the lips; Peace, peace to <i>him that is</i> <u>far</u>[^b] off, and to <i>him that is</i> near, saith the LORD; and I will heal him.
 
 [Isaiah 57:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.19?lang=eng#p19)
 

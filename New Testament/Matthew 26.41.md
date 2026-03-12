@@ -1,6 +1,6 @@
 # Matthew 26:41
 
-> <u>Watch</u>[^a] and <u>pray</u>[^b], that ye enter not into <u>temptation</u>[^c]: the spirit indeed *is* willing, but the flesh *is* weak.
+> <u>Watch</u>[^a] and <u>pray</u>[^b], that ye enter not into <u>temptation</u>[^c]: the spirit indeed <i>is</i> willing, but the flesh <i>is</i> weak.
 
 [Matthew 26:41](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.41?lang=eng#p41)
 

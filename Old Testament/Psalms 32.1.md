@@ -1,6 +1,6 @@
 # Psalms 32:1
 
-> <u>Blessed</u>[^a] *is he whose* <u>transgression</u>[^b] *is* <u>forgiven</u>[^c], *whose* sin *is* covered.
+> <u>Blessed</u>[^a] <i>is he whose</i> <u>transgression</u>[^b] <i>is</i> <u>forgiven</u>[^c], <i>whose</i> sin <i>is</i> covered.
 
 [Psalms 32:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/32.1?lang=eng#p1)
 

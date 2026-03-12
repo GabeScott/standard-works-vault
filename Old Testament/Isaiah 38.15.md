@@ -1,6 +1,6 @@
 # Isaiah 38:15
 
-> What shall I say? he hath both spoken unto me, and himself hath done *it:* I shall go softly all my years in the <u>bitterness</u>[^a] of my soul.
+> What shall I say? he hath both spoken unto me, and himself hath done <i>it:</i> I shall go softly all my years in the <u>bitterness</u>[^a] of my soul.
 
 [Isaiah 38:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # James 4:8
 
-> <u>Draw</u>[^a] <u>nigh</u>[^b] to God, and he will draw nigh to you. <u>Cleanse</u>[^c] *your* hands, *ye* sinners; and <u>purify</u>[^d] *your* hearts, *ye* double minded.
+> <u>Draw</u>[^a] <u>nigh</u>[^b] to God, and he will draw nigh to you. <u>Cleanse</u>[^c] <i>your</i> hands, <i>ye</i> sinners; and <u>purify</u>[^d] <i>your</i> hearts, <i>ye</i> double minded.
 
 [James 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.8?lang=eng#p8)
 

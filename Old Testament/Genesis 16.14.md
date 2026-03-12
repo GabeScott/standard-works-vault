@@ -1,6 +1,6 @@
 # Genesis 16:14
 
-> Wherefore the <u>well</u>[^a] was called <u>Beer-lahai-roi</u>[^b]; behold, *it is* between Kadesh and Bered.
+> Wherefore the <u>well</u>[^a] was called <u>Beer-lahai-roi</u>[^b]; behold, <i>it is</i> between Kadesh and Bered.
 
 [Genesis 16:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.14?lang=eng#p14)
 

@@ -1,6 +1,6 @@
 # Ezekiel 24:24
 
-> Thus Ezekiel is unto you a <u>sign</u>[^a]: according to all that he hath <u>done</u>[^b] shall ye do: and when this cometh, ye shall know that I *am* the Lord GOD.
+> Thus Ezekiel is unto you a <u>sign</u>[^a]: according to all that he hath <u>done</u>[^b] shall ye do: and when this cometh, ye shall know that I <i>am</i> the Lord GOD.
 
 [Ezekiel 24:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.24?lang=eng#p24)
 

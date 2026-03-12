@@ -1,6 +1,6 @@
 # Genesis 39:9
 
-> *There is* none greater in this house than I; neither hath he kept back any thing from me but thee, because thou *art* his wife: how then can I do this great <u>wickedness</u>[^a], and <u>sin</u>[^b] against God?
+> <i>There is</i> none greater in this house than I; neither hath he kept back any thing from me but thee, because thou <i>art</i> his wife: how then can I do this great <u>wickedness</u>[^a], and <u>sin</u>[^b] against God?
 
 [Genesis 39:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.9?lang=eng#p9)
 

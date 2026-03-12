@@ -1,6 +1,6 @@
 # Deuteronomy 21:15
 
-> ¶ If a man have two wives, one beloved, and another <u>hated</u>[^a], and they have born him children, *both* the beloved and the hated; and *if* the firstborn son be hers that was hated:
+> ¶ If a man have two wives, one beloved, and another <u>hated</u>[^a], and they have born him children, <i>both</i> the beloved and the hated; and <i>if</i> the firstborn son be hers that was hated:
 
 [Deuteronomy 21:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/21.15?lang=eng#p15)
 

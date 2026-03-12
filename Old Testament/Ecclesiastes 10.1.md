@@ -1,6 +1,6 @@
 # Ecclesiastes 10:1
 
-> Dead flies cause the ointment of the <u>apothecary</u>[^a] to send forth a stinking savour: *so doth* a little <u>folly</u>[^b] him that is in reputation for wisdom *and* honour.
+> Dead flies cause the ointment of the <u>apothecary</u>[^a] to send forth a stinking savour: <i>so doth</i> a little <u>folly</u>[^b] him that is in reputation for wisdom <i>and</i> honour.
 
 [Ecclesiastes 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/10.1?lang=eng#p1)
 

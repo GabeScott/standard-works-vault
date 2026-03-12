@@ -1,6 +1,6 @@
 # Exodus 32:15
 
-> ¶ And Moses turned, and went down from the mount, and the two <u>tables</u>[^a] of the testimony *were* in his hand: the tables *were* written on both their sides; on the one side and on the other *were* they written.
+> ¶ And Moses turned, and went down from the mount, and the two <u>tables</u>[^a] of the testimony <i>were</i> in his hand: the tables <i>were</i> written on both their sides; on the one side and on the other <i>were</i> they written.
 
 [Exodus 32:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.15?lang=eng#p15)
 

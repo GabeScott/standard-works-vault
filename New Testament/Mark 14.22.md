@@ -1,6 +1,6 @@
 # Mark 14:22
 
-> ¶ <u>And</u>[^a] as they did eat, Jesus took <u>bread</u>[^b], and blessed, and brake *it,* and gave to them, and said, Take, eat: this is my <u>body</u>[^c].
+> ¶ <u>And</u>[^a] as they did eat, Jesus took <u>bread</u>[^b], and blessed, and brake <i>it,</i> and gave to them, and said, Take, eat: this is my <u>body</u>[^c].
 
 [Mark 14:22](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.22?lang=eng#p22)
 

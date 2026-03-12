@@ -1,6 +1,6 @@
 # Psalms 129:6
 
-> Let them be as the <u>grass</u>[^a] *upon* the housetops, which withereth afore it groweth up:
+> Let them be as the <u>grass</u>[^a] <i>upon</i> the housetops, which withereth afore it groweth up:
 
 [Psalms 129:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/129.6?lang=eng#p6)
 

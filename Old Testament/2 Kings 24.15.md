@@ -1,6 +1,6 @@
 # 2 Kings 24:15
 
-> And he carried away <u>Jehoiachin</u>[^a] to Babylon, and the king’s mother, and the king’s wives, and his officers, and the <u>mighty</u>[^b] of the land, *those* carried he into <u>captivity</u>[^c] from Jerusalem to <u>Babylon</u>[^d].
+> And he carried away <u>Jehoiachin</u>[^a] to Babylon, and the king’s mother, and the king’s wives, and his officers, and the <u>mighty</u>[^b] of the land, <i>those</i> carried he into <u>captivity</u>[^c] from Jerusalem to <u>Babylon</u>[^d].
 
 [2 Kings 24:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/24.15?lang=eng#p15)
 

@@ -1,6 +1,6 @@
 # 1 Chronicles 29:15
 
-> For we *are* <u>strangers</u>[^a] before thee, and sojourners, as *were* all our fathers: our days on the earth *are* as a <u>shadow</u>[^b], and *there is* none abiding.
+> For we <i>are</i> <u>strangers</u>[^a] before thee, and sojourners, as <i>were</i> all our fathers: our days on the earth <i>are</i> as a <u>shadow</u>[^b], and <i>there is</i> none abiding.
 
 [1 Chronicles 29:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.15?lang=eng#p15)
 

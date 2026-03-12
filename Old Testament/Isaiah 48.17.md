@@ -1,6 +1,6 @@
 # Isaiah 48:17
 
-> Thus saith the LORD, thy Redeemer, the Holy One of Israel; I *am* the LORD thy God which teacheth thee to profit, which <u>leadeth</u>[^a] thee by the way *that* thou shouldest go.
+> Thus saith the LORD, thy Redeemer, the Holy One of Israel; I <i>am</i> the LORD thy God which teacheth thee to profit, which <u>leadeth</u>[^a] thee by the way <i>that</i> thou shouldest go.
 
 [Isaiah 48:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.17?lang=eng#p17)
 

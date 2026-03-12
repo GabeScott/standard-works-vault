@@ -1,6 +1,6 @@
 # Psalms 24:10
 
-> Who is this <u>King</u>[^a] of glory? The LORD of hosts, he *is* the King of glory. Selah.
+> Who is this <u>King</u>[^a] of glory? The LORD of hosts, he <i>is</i> the King of glory. Selah.
 
 [Psalms 24:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/24.10?lang=eng#p10)
 

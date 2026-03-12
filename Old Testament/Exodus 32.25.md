@@ -1,6 +1,6 @@
 # Exodus 32:25
 
-> ¶ And when Moses saw that the people *were* <u>naked</u>[^a]; (for Aaron had made them <u>naked</u>[^b] unto *their* shame among their enemies:)
+> ¶ And when Moses saw that the people <i>were</i> <u>naked</u>[^a]; (for Aaron had made them <u>naked</u>[^b] unto <i>their</i> shame among their enemies:)
 
 [Exodus 32:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.25?lang=eng#p25)
 

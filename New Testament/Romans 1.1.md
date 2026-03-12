@@ -1,6 +1,6 @@
 # Romans 1:1
 
-> Paul, a <u>servant</u>[^a] of Jesus Christ, called *to be* an <u>apostle</u>[^b], <u>separated</u>[^c] unto the gospel of God,
+> Paul, a <u>servant</u>[^a] of Jesus Christ, called <i>to be</i> an <u>apostle</u>[^b], <u>separated</u>[^c] unto the gospel of God,
 
 [Romans 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.1?lang=eng#p1)
 

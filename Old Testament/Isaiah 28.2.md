@@ -1,6 +1,6 @@
 # Isaiah 28:2
 
-> Behold, the Lord hath a mighty and strong one, *which* as a <u>tempest</u>[^a] of hail *and* a destroying <u>storm</u>[^b], as a flood of mighty waters overflowing, shall cast down to the earth with the hand.
+> Behold, the Lord hath a mighty and strong one, <i>which</i> as a <u>tempest</u>[^a] of hail <i>and</i> a destroying <u>storm</u>[^b], as a flood of mighty waters overflowing, shall cast down to the earth with the hand.
 
 [Isaiah 28:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.2?lang=eng#p2)
 

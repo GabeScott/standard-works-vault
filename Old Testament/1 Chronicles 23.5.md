@@ -1,6 +1,6 @@
 # 1 Chronicles 23:5
 
-> Moreover four thousand *were* <u>porters</u>[^a]; and four thousand praised the LORD with the <u>instruments</u>[^b] which I made, *said David,* to <u>praise</u>[^c] *therewith.*
+> Moreover four thousand <i>were</i> <u>porters</u>[^a]; and four thousand praised the LORD with the <u>instruments</u>[^b] which I made, <i>said David,</i> to <u>praise</u>[^c] <i>therewith.</i>
 
 [1 Chronicles 23:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/23.5?lang=eng#p5)
 

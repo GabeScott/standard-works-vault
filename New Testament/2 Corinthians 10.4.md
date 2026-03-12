@@ -1,6 +1,6 @@
 # 2 Corinthians 10:4
 
-> (For the <u>weapons</u>[^a] of our <u>warfare</u>[^b] *are* not carnal, but mighty through God to the pulling down of strong holds;)
+> (For the <u>weapons</u>[^a] of our <u>warfare</u>[^b] <i>are</i> not carnal, but mighty through God to the pulling down of strong holds;)
 
 [2 Corinthians 10:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.4?lang=eng#p4)
 

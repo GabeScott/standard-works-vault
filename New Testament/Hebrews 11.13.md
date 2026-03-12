@@ -1,6 +1,6 @@
 # Hebrews 11:13
 
-> These all died in faith, not having received the <u>promises</u>[^a], but having seen them afar off, and were persuaded of *them,* and embraced *them,* and confessed that they were <u>strangers</u>[^b] and pilgrims on the earth.
+> These all died in faith, not having received the <u>promises</u>[^a], but having seen them afar off, and were persuaded of <i>them,</i> and embraced <i>them,</i> and confessed that they were <u>strangers</u>[^b] and pilgrims on the earth.
 
 [Hebrews 11:13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.13?lang=eng#p13)
 

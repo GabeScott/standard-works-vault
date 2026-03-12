@@ -1,6 +1,6 @@
 # Ezekiel 40:39
 
-> ¶ And in the porch of the gate *were* two tables on this side, and two tables on that side, to slay thereon the <u>burnt</u>[^a] offering and the <u>sin offering</u>[^b] and the <u>trespass offering</u>[^c].
+> ¶ And in the porch of the gate <i>were</i> two tables on this side, and two tables on that side, to slay thereon the <u>burnt</u>[^a] offering and the <u>sin offering</u>[^b] and the <u>trespass offering</u>[^c].
 
 [Ezekiel 40:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.39?lang=eng#p39)
 

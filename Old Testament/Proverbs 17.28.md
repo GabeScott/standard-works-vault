@@ -1,6 +1,6 @@
 # Proverbs 17:28
 
-> Even a fool, when he <u>holdeth</u>[^a] his peace, is counted wise: *and* he that <u>shutteth</u>[^b] his lips *is esteemed* a man of understanding.
+> Even a fool, when he <u>holdeth</u>[^a] his peace, is counted wise: <i>and</i> he that <u>shutteth</u>[^b] his lips <i>is esteemed</i> a man of understanding.
 
 [Proverbs 17:28](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.28?lang=eng#p28)
 

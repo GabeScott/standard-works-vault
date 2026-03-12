@@ -1,6 +1,6 @@
 # Numbers 26:59
 
-> And the name of <u>Amram’s</u>[^a] wife *was* Jochebed, the daughter of Levi, whom *her mother* bare to Levi in Egypt: and she bare unto Amram Aaron and Moses, and Miriam their <u>sister</u>[^b].
+> And the name of <u>Amram’s</u>[^a] wife <i>was</i> Jochebed, the daughter of Levi, whom <i>her mother</i> bare to Levi in Egypt: and she bare unto Amram Aaron and Moses, and Miriam their <u>sister</u>[^b].
 
 [Numbers 26:59](https://www.churchofjesuschrist.org/study/scriptures/ot/num/26.59?lang=eng#p59)
 

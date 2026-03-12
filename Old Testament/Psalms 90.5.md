@@ -1,6 +1,6 @@
 # Psalms 90:5
 
-> Thou carriest them away as with a flood; they are *as* a sleep: in the morning *they are* like <u>grass</u>[^a] *which* groweth up.
+> Thou carriest them away as with a flood; they are <i>as</i> a sleep: in the morning <i>they are</i> like <u>grass</u>[^a] <i>which</i> groweth up.
 
 [Psalms 90:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/90.5?lang=eng#p5)
 

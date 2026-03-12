@@ -1,6 +1,6 @@
 # Hosea 14:2
 
-> Take with you words, and turn to the LORD: say unto him, Take away all iniquity, and receive *us* graciously: so will we <u>render</u>[^a] the <u>calves</u>[^b] of our lips.
+> Take with you words, and turn to the LORD: say unto him, Take away all iniquity, and receive <i>us</i> graciously: so will we <u>render</u>[^a] the <u>calves</u>[^b] of our lips.
 
 [Hosea 14:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/14.2?lang=eng#p2)
 

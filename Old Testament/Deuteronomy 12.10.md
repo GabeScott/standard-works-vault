@@ -1,6 +1,6 @@
 # Deuteronomy 12:10
 
-> But *when* ye go over Jordan, and dwell in the land which the LORD your God giveth you to <u>inherit</u>[^a], and *when* he giveth you <u>rest</u>[^b] from all your enemies round about, so that ye dwell in safety;
+> But <i>when</i> ye go over Jordan, and dwell in the land which the LORD your God giveth you to <u>inherit</u>[^a], and <i>when</i> he giveth you <u>rest</u>[^b] from all your enemies round about, so that ye dwell in safety;
 
 [Deuteronomy 12:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.10?lang=eng#p10)
 

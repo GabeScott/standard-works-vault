@@ -1,6 +1,6 @@
 # 1 Kings 15:10
 
-> And forty and one years reigned he in Jerusalem. And his <u>mother’s name</u>[^a] *was* Maachah, the daughter of Abishalom.
+> And forty and one years reigned he in Jerusalem. And his <u>mother’s name</u>[^a] <i>was</i> Maachah, the daughter of Abishalom.
 
 [1 Kings 15:10](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.10?lang=eng#p10)
 

@@ -1,6 +1,6 @@
 # Proverbs 27:5
 
-> Open <u>rebuke</u>[^a] *is* better than secret love.
+> Open <u>rebuke</u>[^a] <i>is</i> better than secret love.
 
 [Proverbs 27:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.5?lang=eng#p5)
 

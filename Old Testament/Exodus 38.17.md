@@ -1,6 +1,6 @@
 # Exodus 38:17
 
-> And the sockets for the pillars *were of* brass; the hooks of the pillars and their fillets *of* silver; and the overlaying of their <u>chapiters</u>[^a] *of* silver; and all the <u>pillars</u>[^b] of the court *were* filleted with silver.
+> And the sockets for the pillars <i>were of</i> brass; the hooks of the pillars and their fillets <i>of</i> silver; and the overlaying of their <u>chapiters</u>[^a] <i>of</i> silver; and all the <u>pillars</u>[^b] of the court <i>were</i> filleted with silver.
 
 [Exodus 38:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/38.17?lang=eng#p17)
 

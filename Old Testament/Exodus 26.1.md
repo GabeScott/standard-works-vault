@@ -1,6 +1,6 @@
 # Exodus 26:1
 
-> Moreover thou shalt make the <u>tabernacle</u>[^a] *with* ten <u>curtains</u>[^b] *of* fine twined linen, and blue, and purple, and scarlet: *with* <u>cherubims</u>[^c] of cunning work shalt thou make them.
+> Moreover thou shalt make the <u>tabernacle</u>[^a] <i>with</i> ten <u>curtains</u>[^b] <i>of</i> fine twined linen, and blue, and purple, and scarlet: <i>with</i> <u>cherubims</u>[^c] of cunning work shalt thou make them.
 
 [Exodus 26:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/26.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Isaiah 28:21
 
-> For the LORD shall rise up as *in* <u>mount Perazim</u>[^a], he shall be wroth as *in* the valley of <u>Gibeon</u>[^b], that he may do his work, his strange work; and bring to pass his act, his <u>strange act</u>[^c].
+> For the LORD shall rise up as <i>in</i> <u>mount Perazim</u>[^a], he shall be wroth as <i>in</i> the valley of <u>Gibeon</u>[^b], that he may do his work, his strange work; and bring to pass his act, his <u>strange act</u>[^c].
 
 [Isaiah 28:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.21?lang=eng#p21)
 

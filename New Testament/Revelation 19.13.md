@@ -1,6 +1,6 @@
 # Revelation 19:13
 
-> And he *was* <u>clothed</u>[^a] with a vesture dipped in blood: and his <u>name</u>[^b] is called The <u>Word of God</u>[^c].
+> And he <i>was</i> <u>clothed</u>[^a] with a vesture dipped in blood: and his <u>name</u>[^b] is called The <u>Word of God</u>[^c].
 
 [Revelation 19:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.13?lang=eng#p13)
 

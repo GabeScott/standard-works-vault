@@ -1,6 +1,6 @@
 # Ezra 2:68
 
-> ¶ And *some* of the chief of the fathers, when they came to the <u>house</u>[^a] of the LORD which *is* at Jerusalem, offered freely for the house of God to set it up in his place:
+> ¶ And <i>some</i> of the chief of the fathers, when they came to the <u>house</u>[^a] of the LORD which <i>is</i> at Jerusalem, offered freely for the house of God to set it up in his place:
 
 [Ezra 2:68](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/2.68?lang=eng#p68)
 

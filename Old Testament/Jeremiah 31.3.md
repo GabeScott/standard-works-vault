@@ -1,6 +1,6 @@
 # Jeremiah 31:3
 
-> The LORD hath appeared <u>of old</u>[^a] unto me, *saying,* Yea, I have <u>loved</u>[^b] thee with an everlasting <u>love</u>[^c]: therefore with lovingkindness have I <u>drawn thee</u>[^d].
+> The LORD hath appeared <u>of old</u>[^a] unto me, <i>saying,</i> Yea, I have <u>loved</u>[^b] thee with an everlasting <u>love</u>[^c]: therefore with lovingkindness have I <u>drawn thee</u>[^d].
 
 [Jeremiah 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.3?lang=eng#p3)
 

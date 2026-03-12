@@ -1,6 +1,6 @@
 # Psalms 115:15
 
-> Ye *are* <u>blessed</u>[^a] of the LORD which made heaven and earth.
+> Ye <i>are</i> <u>blessed</u>[^a] of the LORD which made heaven and earth.
 
 [Psalms 115:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/115.15?lang=eng#p15)
 

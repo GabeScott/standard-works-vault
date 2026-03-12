@@ -1,6 +1,6 @@
 # Isaiah 44:24
 
-> Thus saith the LORD, thy <u>redeemer</u>[^a], and he that <u>formed</u>[^b] thee from the womb, I *am* the LORD that <u>maketh</u>[^c] all *things;* that stretcheth forth the heavens alone; that spreadeth abroad the earth by myself;
+> Thus saith the LORD, thy <u>redeemer</u>[^a], and he that <u>formed</u>[^b] thee from the womb, I <i>am</i> the LORD that <u>maketh</u>[^c] all <i>things;</i> that stretcheth forth the heavens alone; that spreadeth abroad the earth by myself;
 
 [Isaiah 44:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.24?lang=eng#p24)
 

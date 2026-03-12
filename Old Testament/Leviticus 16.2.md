@@ -1,6 +1,6 @@
 # Leviticus 16:2
 
-> And the LORD said unto Moses, Speak unto Aaron thy brother, that he come not at all times into the <u>holy place</u>[^a] within the <u>veil</u>[^b] before the mercy seat, which *is* upon the ark; that he die not: for I will <u>appear</u>[^c] in the cloud upon the mercy seat.
+> And the LORD said unto Moses, Speak unto Aaron thy brother, that he come not at all times into the <i><u>holy place</u></i>[^a] within the <u>veil</u>[^b] before the mercy seat, which <i>is</i> upon the ark; that he die not: for I will <u>appear</u>[^c] in the cloud upon the mercy seat.
 
 [Leviticus 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/16.2?lang=eng#p2)
 

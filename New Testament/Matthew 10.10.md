@@ -1,6 +1,6 @@
 # Matthew 10:10
 
-> Nor <u>scrip</u>[^a] for *your* journey, neither two coats, neither shoes, nor yet staves: for the workman is <u>worthy</u>[^b] of his <u>meat</u>[^c].
+> Nor <u>scrip</u>[^a] for <i>your</i> journey, neither two coats, neither shoes, nor yet staves: for the workman is <u>worthy</u>[^b] of his <u>meat</u>[^c].
 
 [Matthew 10:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.10?lang=eng#p10)
 

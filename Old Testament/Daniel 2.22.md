@@ -1,6 +1,6 @@
 # Daniel 2:22
 
-> He <u>revealeth</u>[^a] the deep and secret things: he <u>knoweth</u>[^b] what *is* in the darkness, and the <u>light</u>[^c] dwelleth with him.
+> He <u>revealeth</u>[^a] the deep and secret things: he <u>knoweth</u>[^b] what <i>is</i> in the darkness, and the <u>light</u>[^c] dwelleth with him.
 
 [Daniel 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.22?lang=eng#p22)
 

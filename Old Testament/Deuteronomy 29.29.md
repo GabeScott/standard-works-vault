@@ -1,6 +1,6 @@
 # Deuteronomy 29:29
 
-> The <u>secret</u>[^a] *things belong* unto the LORD our God: but those *things which are* <u>revealed</u>[^b] *belong* unto us and to our children for ever, that *we* may do all the words of this law.
+> The <u>secret</u>[^a] <i>things belong</i> unto the LORD our God: but those <i>things which are</i> <u>revealed</u>[^b] <i>belong</i> unto us and to our children for ever, that <i>we</i> may do all the words of this law.
 
 [Deuteronomy 29:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.29?lang=eng#p29)
 

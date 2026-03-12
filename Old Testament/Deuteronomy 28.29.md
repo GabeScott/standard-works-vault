@@ -1,6 +1,6 @@
 # Deuteronomy 28:29
 
-> And thou shalt grope at noonday, as the <u>blind</u>[^a] gropeth in darkness, and thou shalt not <u>prosper</u>[^b] in thy ways: and thou shalt be only oppressed and <u>spoiled evermore</u>[^c], and no man shall save *thee.*
+> And thou shalt grope at noonday, as the <u>blind</u>[^a] gropeth in darkness, and thou shalt not <u>prosper</u>[^b] in thy ways: and thou shalt be only oppressed and <u>spoiled evermore</u>[^c], and no man shall save <i>thee.</i>
 
 [Deuteronomy 28:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.29?lang=eng#p29)
 

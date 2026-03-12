@@ -1,6 +1,6 @@
 # Proverbs 30:5
 
-> Every word of God *is* <u>pure</u>[^a]: he *is* a <u>shield</u>[^b] unto them that put their trust in him.
+> Every word of God <i>is</i> <u>pure</u>[^a]: he <i>is</i> a <u>shield</u>[^b] unto them that put their trust in him.
 
 [Proverbs 30:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.5?lang=eng#p5)
 

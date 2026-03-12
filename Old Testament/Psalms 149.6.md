@@ -1,6 +1,6 @@
 # Psalms 149:6
 
-> *Let* the high *praises* of God *be* in their mouth, and a <u>twoedged</u>[^a] sword in their hand;
+> <i>Let</i> the high <i>praises</i> of God <i>be</i> in their mouth, and a <u>twoedged</u>[^a] sword in their hand;
 
 [Psalms 149:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/149.6?lang=eng#p6)
 

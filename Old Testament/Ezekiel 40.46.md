@@ -1,6 +1,6 @@
 # Ezekiel 40:46
 
-> And the chamber whose prospect *is* toward the north *is* for the <u>priests</u>[^a], the keepers of the <u>charge</u>[^b] of the altar: these *are* the sons of <u>Zadok</u>[^c] among the sons of Levi, which <u>come</u>[^d] near to the LORD to minister unto him.
+> And the chamber whose prospect <i>is</i> toward the north <i>is</i> for the <u>priests</u>[^a], the keepers of the <u>charge</u>[^b] of the altar: these <i>are</i> the sons of <u>Zadok</u>[^c] among the sons of Levi, which <u>come</u>[^d] near to the LORD to minister unto him.
 
 [Ezekiel 40:46](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.46?lang=eng#p46)
 

@@ -1,6 +1,6 @@
 # John 1:18
 
-> No <u>man</u>[^a] hath <u>seen</u>[^b] God <u>at any time</u>[^c]; the only begotten Son, which is in the bosom of the Father, he hath <u>declared</u>[^d] *him.*
+> No <u>man</u>[^a] hath <u>seen</u>[^b] God <u>at any time</u>[^c]; the only begotten Son, which is in the bosom of the Father, he hath <u>declared</u>[^d] <i>him.</i>
 
 [John 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.18?lang=eng#p18)
 

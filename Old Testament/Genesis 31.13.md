@@ -1,6 +1,6 @@
 # Genesis 31:13
 
-> I *am* the <u>God</u>[^a] of Beth-el, where thou anointedst the <u>pillar</u>[^b], *and* where thou vowedst a <u>vow</u>[^c] unto me: now arise, get thee out from this land, and return unto the land of thy kindred.
+> I <i>am</i> the <u>God</u>[^a] of Beth-el, where thou anointedst the <u>pillar</u>[^b], <i>and</i> where thou vowedst a <u>vow</u>[^c] unto me: now arise, get thee out from this land, and return unto the land of thy kindred.
 
 [Genesis 31:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.13?lang=eng#p13)
 

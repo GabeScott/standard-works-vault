@@ -1,6 +1,6 @@
 # Acts 13:16
 
-> Then Paul stood up, and beckoning with *his* hand said, Men of Israel, and ye that <u>fear</u>[^a] God, give audience.
+> Then Paul stood up, and beckoning with <i>his</i> hand said, Men of Israel, and ye that <u>fear</u>[^a] God, give audience.
 
 [Acts 13:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.16?lang=eng#p16)
 

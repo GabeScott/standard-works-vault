@@ -1,6 +1,6 @@
 # Romans 1:21
 
-> Because that, when they knew God, they glorified *him* not as God, neither were <u>thankful</u>[^a]; but became <u>vain in their imaginations</u>[^b], and their <u>foolish</u>[^c] heart was <u>darkened</u>[^d].
+> Because that, when they knew God, they glorified <i>him</i> not as God, neither were <u>thankful</u>[^a]; but became <u>vain in their imaginations</u>[^b], and their <u>foolish</u>[^c] heart was <u>darkened</u>[^d].
 
 [Romans 1:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.21?lang=eng#p21)
 

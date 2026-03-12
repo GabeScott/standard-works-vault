@@ -1,6 +1,6 @@
 # Proverbs 23:27
 
-> For a <u>whore</u>[^a] *is* a deep ditch; and a strange woman *is* a narrow pit.
+> For a <u>whore</u>[^a] <i>is</i> a deep ditch; and a strange woman <i>is</i> a narrow pit.
 
 [Proverbs 23:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.27?lang=eng#p27)
 

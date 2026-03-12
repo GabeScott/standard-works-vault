@@ -1,6 +1,6 @@
 # 2 Kings 9:31
 
-> And as Jehu entered in at the gate, she said, *Had* <u>Zimri</u>[^a] peace, who slew his master?
+> And as Jehu entered in at the gate, she said, <i>Had</i> <u>Zimri</u>[^a] peace, who slew his master?
 
 [2 Kings 9:31](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/9.31?lang=eng#p31)
 

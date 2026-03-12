@@ -1,6 +1,6 @@
 # Judges 19:14
 
-> And they passed on and went their way; and the sun went down upon them *when they were* by <u>Gibeah</u>[^a], which *belongeth* to <u>Benjamin</u>[^b].
+> And they passed on and went their way; and the sun went down upon them <i>when they were</i> by <u>Gibeah</u>[^a], which <i>belongeth</i> to <u>Benjamin</u>[^b].
 
 [Judges 19:14](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/19.14?lang=eng#p14)
 

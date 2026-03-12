@@ -1,6 +1,6 @@
 # Job 15:16
 
-> How much more abominable and <u>filthy</u>[^a] *is* man, which drinketh iniquity like water?
+> How much more abominable and <u>filthy</u>[^a] <i>is</i> man, which drinketh iniquity like water?
 
 [Job 15:16](https://www.churchofjesuschrist.org/study/scriptures/ot/job/15.16?lang=eng#p16)
 

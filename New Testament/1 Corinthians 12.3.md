@@ -1,6 +1,6 @@
 # 1 Corinthians 12:3
 
-> Wherefore I give you to understand, that no man speaking by the Spirit of God calleth Jesus accursed: and *that* no man can <u>say</u>[^a] that Jesus is the <u>Lord</u>[^b], but by the <u>Holy Ghost</u>[^c].
+> Wherefore I give you to understand, that no man speaking by the Spirit of God calleth Jesus accursed: and <i>that</i> no man can <u>say</u>[^a] that Jesus is the <u>Lord</u>[^b], but by the <u>Holy Ghost</u>[^c].
 
 [1 Corinthians 12:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.3?lang=eng#p3)
 

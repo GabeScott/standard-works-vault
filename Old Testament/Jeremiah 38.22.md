@@ -1,6 +1,6 @@
 # Jeremiah 38:22
 
-> And, behold, all the women that are left in the king of Judah’s house shall be brought forth to the king of Babylon’s princes, and those women shall say, Thy friends have set thee on, and have prevailed against thee: thy feet are sunk in the mire, and they are turned away back.
+> And, behold, all the women that are left in the king of Judah’s house <i>shall be</i> brought forth to the king of Babylon’s princes, and those <i>women</i> shall say, Thy friends have set thee on, and have prevailed against thee: thy feet are sunk in the mire, <i>and</i> they are turned away back.
 
 [Jeremiah 38:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/38.22?lang=eng#p22)
 

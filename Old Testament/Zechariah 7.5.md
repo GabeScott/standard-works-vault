@@ -1,6 +1,6 @@
 # Zechariah 7:5
 
-> Speak unto all the people of the land, and to the priests, saying, When ye fasted and mourned in the fifth and seventh *month,* even those seventy years, did ye at all <u>fast</u>[^a] unto me, *even* to me?
+> Speak unto all the people of the land, and to the priests, saying, When ye fasted and mourned in the fifth and seventh <i>month,</i> even those seventy years, did ye at all <u>fast</u>[^a] unto me, <i>even</i> to me?
 
 [Zechariah 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/7.5?lang=eng#p5)
 

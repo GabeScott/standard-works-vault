@@ -1,6 +1,6 @@
 # Psalms 3:1
 
-> LORD, how are they increased that <u>trouble</u>[^a] me! many *are* they that rise up against me.
+> LORD, how are they increased that <u>trouble</u>[^a] me! many <i>are</i> they that rise up against me.
 
 [Psalms 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/3.1?lang=eng#p1)
 

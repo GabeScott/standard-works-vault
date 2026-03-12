@@ -1,6 +1,6 @@
 # 1 Kings 7:12
 
-> And the great <u>court</u>[^a] round about *was* with three rows of hewed stones, and a row of cedar beams, both for the inner court of the house of the LORD, and for the porch of the house.
+> And the great <u>court</u>[^a] round about <i>was</i> with three rows of hewed stones, and a row of cedar beams, both for the inner court of the house of the LORD, and for the porch of the house.
 
 [1 Kings 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.12?lang=eng#p12)
 

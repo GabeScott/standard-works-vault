@@ -1,6 +1,6 @@
 # Exodus 1:19
 
-> And the midwives said unto Pharaoh, Because the Hebrew women *are* not as the Egyptian women; for they *are* lively, and are <u>delivered</u>[^a] ere the midwives come in unto them.
+> And the midwives said unto Pharaoh, Because the Hebrew women <i>are</i> not as the Egyptian women; for they <i>are</i> lively, and are <u>delivered</u>[^a] ere the midwives come in unto them.
 
 [Exodus 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.19?lang=eng#p19)
 

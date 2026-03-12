@@ -1,6 +1,6 @@
 # Exodus 38:10
 
-> Their <u>pillars</u>[^a] *were* twenty, and their brasen <u>sockets</u>[^b] twenty; the hooks of the pillars and their fillets *were of* silver.
+> Their <u>pillars</u>[^a] <i>were</i> twenty, and their brasen <u>sockets</u>[^b] twenty; the hooks of the pillars and their fillets <i>were of</i> silver.
 
 [Exodus 38:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/38.10?lang=eng#p10)
 

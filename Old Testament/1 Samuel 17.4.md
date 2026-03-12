@@ -1,6 +1,6 @@
 # 1 Samuel 17:4
 
-> ¶ And there went out a champion out of the camp of the Philistines, named Goliath, of <u>Gath</u>[^a], whose height *was* six <u>cubits</u>[^b] and a span.
+> ¶ And there went out a champion out of the camp of the Philistines, named Goliath, of <u>Gath</u>[^a], whose height <i>was</i> six <u>cubits</u>[^b] and a span.
 
 [1 Samuel 17:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.4?lang=eng#p4)
 

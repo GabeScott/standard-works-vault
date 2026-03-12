@@ -1,6 +1,6 @@
 # Proverbs 17:9
 
-> He that <u>covereth a transgression</u>[^a] <u>seeketh</u>[^b] <u>love</u>[^c]; but he that repeateth a matter separateth *very* friends.
+> He that <u>covereth a transgression</u>[^a] <u>seeketh</u>[^b] <u>love</u>[^c]; but he that repeateth a matter separateth <i>very</i> friends.
 
 [Proverbs 17:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.9?lang=eng#p9)
 

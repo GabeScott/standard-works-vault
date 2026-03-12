@@ -1,6 +1,6 @@
 # Mark 9:2
 
-> ¶ And after <u>six</u>[^a] days Jesus taketh *with him* Peter, and James, and John, <u>and leadeth them</u>[^b] up into an high mountain apart by themselves: and he was <u>transfigured</u>[^c] before them.
+> ¶ And after <u>six</u>[^a] days Jesus taketh <i>with him</i> Peter, and James, and John, <u>and leadeth them</u>[^b] up into an high mountain apart by themselves: and he was <u>transfigured</u>[^c] before them.
 
 [Mark 9:2](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.2?lang=eng#p2)
 

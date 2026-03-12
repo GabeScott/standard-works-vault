@@ -1,6 +1,6 @@
 # Daniel 2:47
 
-> The king answered unto Daniel, and said, Of a truth *it is,* that your <u>God</u>[^a] *is* a <u>God</u>[^b] of gods, and a <u>Lord</u>[^c] of kings, and a revealer of secrets, seeing thou couldest reveal this secret.
+> The king answered unto Daniel, and said, Of a truth <i>it is,</i> that your <u>God</u>[^a] <i>is</i> a <u>God</u>[^b] of gods, and a <u>Lord</u>[^c] of kings, and a revealer of secrets, seeing thou couldest reveal this secret.
 
 [Daniel 2:47](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.47?lang=eng#p47)
 

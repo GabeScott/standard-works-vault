@@ -1,6 +1,6 @@
 # Exodus 33:14
 
-> And he said, My <u>presence</u>[^a] shall go *with thee,* and I will give thee <u>rest</u>[^b].
+> And he said, My <u>presence</u>[^a] shall go <i>with thee,</i> and I will give thee <u>rest</u>[^b].
 
 [Exodus 33:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.14?lang=eng#p14)
 

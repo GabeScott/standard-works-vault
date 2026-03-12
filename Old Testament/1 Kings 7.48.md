@@ -1,6 +1,6 @@
 # 1 Kings 7:48
 
-> And <u>Solomon</u>[^a] made all the vessels that *pertained* unto the house of the LORD: the <u>altar</u>[^b] of gold, and the <u>table</u>[^c] of gold, whereupon the <u>shewbread</u>[^d] *was,*
+> And <u>Solomon</u>[^a] made all the vessels that <i>pertained</i> unto the house of the LORD: the <u>altar</u>[^b] of gold, and the <u>table</u>[^c] of gold, whereupon the <u>shewbread</u>[^d] <i>was,</i>
 
 [1 Kings 7:48](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.48?lang=eng#p48)
 

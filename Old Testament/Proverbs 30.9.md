@@ -1,6 +1,6 @@
 # Proverbs 30:9
 
-> Lest I be full, and <u>deny</u>[^a] *thee,* and say, Who *is* the LORD? or lest I be poor, and steal, and take the name of my God *in vain.*
+> Lest I be full, and <u>deny</u>[^a] <i>thee,</i> and say, Who <i>is</i> the LORD? or lest I be poor, and steal, and take the name of my God <i>in vain.</i>
 
 [Proverbs 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.9?lang=eng#p9)
 

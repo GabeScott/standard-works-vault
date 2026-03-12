@@ -1,6 +1,6 @@
 # Psalms 7:8
 
-> The LORD shall <u>judge</u>[^a] the people: judge me, O LORD, according to my righteousness, and according to mine integrity *that is* in me.
+> The LORD shall <u>judge</u>[^a] the people: judge me, O LORD, according to my righteousness, and according to mine integrity <i>that is</i> in me.
 
 [Psalms 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/7.8?lang=eng#p8)
 

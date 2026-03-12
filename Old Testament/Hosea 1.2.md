@@ -1,6 +1,6 @@
 # Hosea 1:2
 
-> The beginning of the word of the LORD by Hosea. And the LORD said to Hosea, Go, take unto thee a <u>wife</u>[^a] of whoredoms and children of whoredoms: for the land hath committed great <u>whoredom</u>[^b], *departing* from the LORD.
+> The beginning of the word of the LORD by Hosea. And the LORD said to Hosea, Go, take unto thee a <u>wife</u>[^a] of whoredoms and children of whoredoms: for the land hath committed great <u>whoredom</u>[^b], <i>departing</i> from the LORD.
 
 [Hosea 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/1.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # John 10:30
 
-> I and *my* Father are <u>one</u>[^a].
+> I and <i>my</i> Father are <u>one</u>[^a].
 
 [John 10:30](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.30?lang=eng#p30)
 

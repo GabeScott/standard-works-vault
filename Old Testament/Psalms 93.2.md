@@ -1,6 +1,6 @@
 # Psalms 93:2
 
-> Thy throne *is* established of old: thou *art* from <u>everlasting</u>[^a].
+> Thy throne <i>is</i> established of old: thou <i>art</i> from <u>everlasting</u>[^a].
 
 [Psalms 93:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/93.2?lang=eng#p2)
 

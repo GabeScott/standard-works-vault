@@ -1,6 +1,6 @@
 # 1 Chronicles 21:29
 
-> For the <u>tabernacle</u>[^a] of the LORD, which Moses made in the wilderness, and the altar of the burnt offering, *were* at that season in the high place at <u>Gibeon</u>[^b].
+> For the <u>tabernacle</u>[^a] of the LORD, which Moses made in the wilderness, and the altar of the burnt offering, <i>were</i> at that season in the high place at <u>Gibeon</u>[^b].
 
 [1 Chronicles 21:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.29?lang=eng#p29)
 

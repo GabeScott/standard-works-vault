@@ -1,6 +1,6 @@
 # Luke 16:26
 
-> And beside all this, between us and you there is a great <u>gulf</u>[^a] fixed: so that they which would pass from hence to you cannot; neither can they pass to us, that *would come* from thence.
+> And beside all this, between us and you there is a great <u>gulf</u>[^a] fixed: so that they which would pass from hence to you cannot; neither can they pass to us, that <i>would come</i> from thence.
 
 [Luke 16:26](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.26?lang=eng#p26)
 

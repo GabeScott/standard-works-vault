@@ -1,6 +1,6 @@
 # Isaiah 47:11
 
-> ¶ Therefore shall evil come upon thee; thou shalt not know from whence it riseth: and <u>mischief</u>[^a] shall fall upon thee; thou shalt not be able to put it off: and <u>desolation</u>[^b] shall come upon thee suddenly, *which* thou shalt not know.
+> ¶ Therefore shall evil come upon thee; thou shalt not know from whence it riseth: and <u>mischief</u>[^a] shall fall upon thee; thou shalt not be able to put it off: and <u>desolation</u>[^b] shall come upon thee suddenly, <i>which</i> thou shalt not know.
 
 [Isaiah 47:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 4:6
 
-> Keep therefore and do *them;* for this *is* your <u>wisdom</u>[^a] and your <u>understanding</u>[^b] in the sight of the <u>nations</u>[^c], which shall hear all these <u>statutes</u>[^d], and say, Surely this great nation *is* a wise and understanding people.
+> Keep therefore and do <i>them;</i> for this <i>is</i> your <u>wisdom</u>[^a] and your <u>understanding</u>[^b] in the sight of the <u>nations</u>[^c], which shall hear all these <u>statutes</u>[^d], and say, Surely this great nation <i>is</i> a wise and understanding people.
 
 [Deuteronomy 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.6?lang=eng#p6)
 

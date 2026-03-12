@@ -1,6 +1,6 @@
 # Isaiah 42:19
 
-> <u>Who</u>[^a] *is* blind, but my servant? or deaf, as my messenger *that* I sent? who *is* blind as *he that is* <u>perfect</u>[^b], and blind as the LORD’s servant?
+> <u>Who</u>[^a] <i>is</i> blind, but my servant? or deaf, as my messenger <i>that</i> I sent? who <i>is</i> blind as <i>he that is</i> <u>perfect</u>[^b], and blind as the LORD’s servant?
 
 [Isaiah 42:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.19?lang=eng#p19)
 

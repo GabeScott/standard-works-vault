@@ -1,6 +1,6 @@
 # Psalms 78:69
 
-> And he built his sanctuary like high *palaces,* like the earth which he hath established for <u>ever</u>[^a].
+> And he built his sanctuary like high <i>palaces,</i> like the earth which he hath established for <u>ever</u>[^a].
 
 [Psalms 78:69](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.69?lang=eng#p69)
 

@@ -1,6 +1,6 @@
 # Proverbs 9:9
 
-> Give *instruction* to a wise *man,* and he will be yet wiser: <u>teach</u>[^a] a just *man,* and he will <u>increase</u>[^b] in <u>learning</u>[^c].
+> Give <i>instruction</i> to a wise <i>man,</i> and he will be yet wiser: <u>teach</u>[^a] a just <i>man,</i> and he will <u>increase</u>[^b] in <u>learning</u>[^c].
 
 [Proverbs 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/9.9?lang=eng#p9)
 

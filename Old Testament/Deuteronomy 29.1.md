@@ -1,6 +1,6 @@
 # Deuteronomy 29:1
 
-> These *are* the words of the <u>covenant</u>[^a], which the LORD commanded Moses to make with the children of Israel in the land of Moab, beside the covenant which he made with them in Horeb.
+> These <i>are</i> the words of the <u>covenant</u>[^a], which the LORD commanded Moses to make with the children of Israel in the land of Moab, beside the covenant which he made with them in Horeb.
 
 [Deuteronomy 29:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.1?lang=eng#p1)
 

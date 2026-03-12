@@ -1,6 +1,6 @@
 # Proverbs 16:1
 
-> The <u>preparations</u>[^a] of the heart in man, and the answer of the <u>tongue</u>[^b], *is* from the LORD.
+> The <u>preparations</u>[^a] of the heart in man, and the answer of the <u>tongue</u>[^b], <i>is</i> from the LORD.
 
 [Proverbs 16:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.1?lang=eng#p1)
 

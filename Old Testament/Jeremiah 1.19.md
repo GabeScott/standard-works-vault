@@ -1,6 +1,6 @@
 # Jeremiah 1:19
 
-> And they shall <u>fight</u>[^a] against thee; but they shall not <u>prevail</u>[^b] against thee; for I *am* with thee, saith the LORD, to deliver thee.
+> And they shall <u>fight</u>[^a] against thee; but they shall not <u>prevail</u>[^b] against thee; for I <i>am</i> with thee, saith the LORD, to deliver thee.
 
 [Jeremiah 1:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.19?lang=eng#p19)
 

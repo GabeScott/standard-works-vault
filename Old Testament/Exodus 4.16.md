@@ -1,6 +1,6 @@
 # Exodus 4:16
 
-> And he shall be thy <u>spokesman</u>[^a] unto the people: and he shall be, *even* he shall be to thee instead of a mouth, and thou shalt be to him <u>instead</u>[^b] of <u>God</u>[^c].
+> And he shall be thy <u>spokesman</u>[^a] unto the people: and he shall be, <i>even</i> he shall be to thee instead of a mouth, and thou shalt be to him <u>instead</u>[^b] of <u>God</u>[^c].
 
 [Exodus 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.16?lang=eng#p16)
 

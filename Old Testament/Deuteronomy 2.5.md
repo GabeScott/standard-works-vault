@@ -1,6 +1,6 @@
 # Deuteronomy 2:5
 
-> Meddle not with them; for I will not give you of their <u>land</u>[^a], no, not so much as a foot <u>breadth</u>[^b]; because I have given mount <u>Seir</u>[^c] unto Esau *for* a possession.
+> Meddle not with them; for I will not give you of their <u>land</u>[^a], no, not so much as a foot <u>breadth</u>[^b]; because I have given mount <u>Seir</u>[^c] unto Esau <i>for</i> a possession.
 
 [Deuteronomy 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.5?lang=eng#p5)
 

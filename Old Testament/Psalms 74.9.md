@@ -1,6 +1,6 @@
 # Psalms 74:9
 
-> We see not our signs: *there is* <u>no more</u>[^a] any <u>prophet</u>[^b]: neither *is there* among us any that knoweth how long.
+> We see not our signs: <i>there is</i> <u>no more</u>[^a] any <u>prophet</u>[^b]: neither <i>is there</i> among us any that knoweth how long.
 
 [Psalms 74:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.9?lang=eng#p9)
 

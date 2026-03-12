@@ -1,6 +1,6 @@
 # Revelation 4:6
 
-> And before the throne *there was* a <u>sea</u>[^a] of glass like unto crystal: <u>and</u>[^b] in the midst of the throne, and round about the throne, *were* four <u>beasts</u>[^c] full of eyes before and behind.
+> And before the throne <i>there was</i> a <u>sea</u>[^a] of glass like unto crystal: <u>and</u>[^b] in the midst of the throne, and round about the throne, <i>were</i> four <u>beasts</u>[^c] full of eyes before and behind.
 
 [Revelation 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/4.6?lang=eng#p6)
 

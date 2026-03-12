@@ -1,6 +1,6 @@
 # Numbers 6:3
 
-> He shall separate *himself* from <u>wine</u>[^a] and <u>strong</u>[^b] <u>drink</u>[^c], and shall drink no vinegar of wine, or vinegar of strong drink, neither shall he drink any <u>liquor</u>[^d] of grapes, nor eat moist grapes, or dried.
+> He shall separate <i>himself</i> from <u>wine</u>[^a] and <u>strong</u>[^b] <u>drink</u>[^c], and shall drink no vinegar of wine, or vinegar of strong drink, neither shall he drink any <u>liquor</u>[^d] of grapes, nor eat moist grapes, or dried.
 
 [Numbers 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.3?lang=eng#p3)
 

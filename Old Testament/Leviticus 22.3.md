@@ -1,6 +1,6 @@
 # Leviticus 22:3
 
-> Say unto them, Whosoever *he be* of all your seed among your generations, that goeth unto the holy things, which the children of Israel hallow unto the LORD, <u>having</u>[^a] his <u>uncleanness</u>[^b] upon him, that soul shall be <u>cut off</u>[^c] from my presence: I *am* the LORD.
+> Say unto them, Whosoever <i>he be</i> of all your seed among your generations, that goeth unto the holy things, which the children of Israel hallow unto the LORD, <u>having</u>[^a] his <u>uncleanness</u>[^b] upon him, that soul shall be <u>cut off</u>[^c] from my presence: I <i>am</i> the LORD.
 
 [Leviticus 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 16:17
 
-> Every man *shall *<u>give</u>[^a] as he is able, according to the blessing of the LORD thy God which he hath given thee.
+> Every man <i>shall </i><i><u>give</u></i>[^a] as he is able, according to the blessing of the LORD thy God which he hath given thee.
 
 [Deuteronomy 16:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.17?lang=eng#p17)
 

@@ -1,6 +1,6 @@
 # Ezekiel 37:16
 
-> Moreover, thou son of man, take thee one <u>stick</u>[^a], and <u>write</u>[^b] upon it, For <u>Judah</u>[^c], and for the children of Israel his companions: then take another stick, and <u>write</u>[^d] upon it, For <u>Joseph</u>[^e], the <u>stick</u>[^f] of Ephraim, and *for* all the house of Israel his companions:
+> Moreover, thou son of man, take thee one <u>stick</u>[^a], and <u>write</u>[^b] upon it, For <u>Judah</u>[^c], and for the children of Israel his companions: then take another stick, and <u>write</u>[^d] upon it, For <u>Joseph</u>[^e], the <u>stick</u>[^f] of Ephraim, and <i>for</i> all the house of Israel his companions:
 
 [Ezekiel 37:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.16?lang=eng#p16)
 

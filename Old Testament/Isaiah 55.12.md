@@ -1,6 +1,6 @@
 # Isaiah 55:12
 
-> For ye shall go out with <u>joy</u>[^a], and be led forth with peace: the mountains and the hills shall break forth before you into singing, and all the <u>trees</u>[^b] of the field shall clap *their* hands.
+> For ye shall go out with <u>joy</u>[^a], and be led forth with peace: the mountains and the hills shall break forth before you into singing, and all the <u>trees</u>[^b] of the field shall clap <i>their</i> hands.
 
 [Isaiah 55:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.12?lang=eng#p12)
 

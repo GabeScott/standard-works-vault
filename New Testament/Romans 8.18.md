@@ -1,6 +1,6 @@
 # Romans 8:18
 
-> For I reckon that the <u>sufferings</u>[^a] of this present time *are* not worthy *to be compared* with the <u>glory</u>[^b] which shall be revealed <u>in us</u>[^c].
+> For I reckon that the <u>sufferings</u>[^a] of this present time <i>are</i> not worthy <i>to be compared</i> with the <u>glory</u>[^b] which shall be revealed <u>in us</u>[^c].
 
 [Romans 8:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.18?lang=eng#p18)
 

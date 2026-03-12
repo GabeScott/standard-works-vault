@@ -1,6 +1,6 @@
 # Genesis 39:20
 
-> And Joseph’s master took him, and put him into the <u>prison</u>[^a], a place where the king’s prisoners *were* bound: and he was there in the prison.
+> And Joseph’s master took him, and put him into the <u>prison</u>[^a], a place where the king’s prisoners <i>were</i> bound: and he was there in the prison.
 
 [Genesis 39:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.20?lang=eng#p20)
 

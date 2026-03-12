@@ -1,6 +1,6 @@
 # Isaiah 41:10
 
-> ¶ <u>Fear</u>[^a] thou not; for I *am* with thee: be not dismayed; for I *am* thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.
+> ¶ <u>Fear</u>[^a] thou not; for I <i>am</i> with thee: be not dismayed; for I <i>am</i> thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.
 
 [Isaiah 41:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.10?lang=eng#p10)
 

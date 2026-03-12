@@ -1,6 +1,6 @@
 # Romans 3:15
 
-> Their feet *are* swift to <u>shed</u>[^a] blood:
+> Their feet <i>are</i> swift to <u>shed</u>[^a] blood:
 
 [Romans 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.15?lang=eng#p15)
 

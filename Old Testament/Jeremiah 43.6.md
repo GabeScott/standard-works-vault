@@ -1,6 +1,6 @@
 # Jeremiah 43:6
 
-> *Even* men, and women, and children, and the king’s <u>daughters</u>[^a], and every person that <u>Nebuzar-adan</u>[^b] the captain of the guard had left with <u>Gedaliah</u>[^c] the son of Ahikam the son of Shaphan, and Jeremiah the prophet, and Baruch the son of Neriah.
+> <i>Even</i> men, and women, and children, and the king’s <u>daughters</u>[^a], and every person that <u>Nebuzar-adan</u>[^b] the captain of the guard had left with <u>Gedaliah</u>[^c] the son of Ahikam the son of Shaphan, and Jeremiah the prophet, and Baruch the son of Neriah.
 
 [Jeremiah 43:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/43.6?lang=eng#p6)
 

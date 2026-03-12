@@ -1,6 +1,6 @@
 # Genesis 46:31
 
-> And Joseph said unto his brethren, and unto his father’s house, I will go up, and shew <u>Pharaoh</u>[^a], and say unto him, My brethren, and my father’s house, which *were* in the land of Canaan, are come unto me;
+> And Joseph said unto his brethren, and unto his father’s house, I will go up, and shew <u>Pharaoh</u>[^a], and say unto him, My brethren, and my father’s house, which <i>were</i> in the land of Canaan, are come unto me;
 
 [Genesis 46:31](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.31?lang=eng#p31)
 

@@ -1,6 +1,6 @@
 # Ezekiel 37:14
 
-> And shall put my <u>spirit</u>[^a] in you, and ye shall live, and I shall place you in your own land: then shall ye know that I the LORD have spoken *it,* and performed *it,* saith the LORD.
+> And shall put my <u>spirit</u>[^a] in you, and ye shall live, and I shall place you in your own land: then shall ye know that I the LORD have spoken <i>it,</i> and performed <i>it,</i> saith the LORD.
 
 [Ezekiel 37:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.14?lang=eng#p14)
 

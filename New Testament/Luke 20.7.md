@@ -1,6 +1,6 @@
 # Luke 20:7
 
-> And they answered, that they could not tell whence it was.
+> And they answered, that they could not tell whence <i>it was.</i>
 
 [Luke 20:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/20.7?lang=eng#p7)
 

@@ -1,6 +1,6 @@
 # Leviticus 20:7
 
-> ¶ <u>Sanctify</u>[^a] yourselves therefore, and be ye <u>holy</u>[^b]: for I *am* the LORD your God.
+> ¶ <u>Sanctify</u>[^a] yourselves therefore, and be ye <u>holy</u>[^b]: for I <i>am</i> the LORD your God.
 
 [Leviticus 20:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.7?lang=eng#p7)
 

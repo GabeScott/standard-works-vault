@@ -1,6 +1,6 @@
 # Hebrews 5:6
 
-> As he saith also in another *place,* Thou *art* a <u>priest</u>[^a] <u>for ever</u>[^b] after the order of <u>Melchisedec</u>[^c].
+> As he saith also in another <i>place,</i> Thou <i>art</i> a <u>priest</u>[^a] <u>for ever</u>[^b] after the order of <u>Melchisedec</u>[^c].
 
 [Hebrews 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.6?lang=eng#p6)
 

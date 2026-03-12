@@ -1,6 +1,6 @@
 # Matthew 14:19
 
-> And he commanded the multitude to sit down on the grass, and took the five loaves, and the two fishes, and looking up to heaven, he blessed, and <u>brake</u>[^a], and gave the loaves to *his* disciples, and the disciples to the multitude.
+> And he commanded the multitude to sit down on the grass, and took the five loaves, and the two fishes, and looking up to heaven, he blessed, and <u>brake</u>[^a], and gave the loaves to <i>his</i> disciples, and the disciples to the multitude.
 
 [Matthew 14:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.19?lang=eng#p19)
 

@@ -1,6 +1,6 @@
 # 1 Kings 16:30
 
-> And <u>Ahab</u>[^a] the son of Omri did <u>evil</u>[^b] in the sight of the LORD above all that *were* before him.
+> And <u>Ahab</u>[^a] the son of Omri did <u>evil</u>[^b] in the sight of the LORD above all that <i>were</i> before him.
 
 [1 Kings 16:30](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.30?lang=eng#p30)
 

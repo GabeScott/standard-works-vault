@@ -1,6 +1,6 @@
 # 2 Chronicles 23:6
 
-> But let none come into the house of the LORD, save the priests, and they that <u>minister</u>[^a] of the Levites; they shall go in, for they *are* holy: but all the people shall keep the watch of the LORD.
+> But let none come into the house of the LORD, save the priests, and they that <u>minister</u>[^a] of the Levites; they shall go in, for they <i>are</i> holy: but all the people shall keep the watch of the LORD.
 
 [2 Chronicles 23:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/23.6?lang=eng#p6)
 

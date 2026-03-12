@@ -1,6 +1,6 @@
 # Deuteronomy 33:22
 
-> ¶ And of <u>Dan</u>[^a] he said, Dan *is* a <u>lion’s</u>[^b] whelp: he shall leap from Bashan.
+> ¶ And of <u>Dan</u>[^a] he said, Dan <i>is</i> a <u>lion’s</u>[^b] whelp: he shall leap from Bashan.
 
 [Deuteronomy 33:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.22?lang=eng#p22)
 

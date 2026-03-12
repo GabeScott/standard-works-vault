@@ -1,6 +1,6 @@
 # Jeremiah 7:31
 
-> And they have built the high places of <u>Tophet</u>[^a], which *is* in the valley of the son of <u>Hinnom</u>[^b], to <u>burn</u>[^c] their sons and their daughters in the <u>fire</u>[^d]; which I commanded *them* not, neither came it into my heart.
+> And they have built the high places of <u>Tophet</u>[^a], which <i>is</i> in the valley of the son of <u>Hinnom</u>[^b], to <u>burn</u>[^c] their sons and their daughters in the <u>fire</u>[^d]; which I commanded <i>them</i> not, neither came it into my heart.
 
 [Jeremiah 7:31](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.31?lang=eng#p31)
 

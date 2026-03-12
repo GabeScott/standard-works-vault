@@ -1,6 +1,6 @@
 # 1 Kings 19:16
 
-> And Jehu the son of Nimshi shalt thou <u>anoint</u>[^a] *to be* king over Israel: and <u>Elisha</u>[^b] the son of Shaphat of Abel-meholah shalt thou <u>anoint</u>[^c] *to be* prophet in thy room.
+> And Jehu the son of Nimshi shalt thou <u>anoint</u>[^a] <i>to be</i> king over Israel: and <u>Elisha</u>[^b] the son of Shaphat of Abel-meholah shalt thou <u>anoint</u>[^c] <i>to be</i> prophet in thy room.
 
 [1 Kings 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/19.16?lang=eng#p16)
 

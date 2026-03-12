@@ -1,6 +1,6 @@
 # Genesis 17:4
 
-> As for me, behold, my <u>covenant</u>[^a] *is* with thee, and thou shalt be a <u>father</u>[^b] of many <u>nations</u>[^c].
+> As for me, behold, my <u>covenant</u>[^a] <i>is</i> with thee, and thou shalt be a <u>father</u>[^b] of many <u>nations</u>[^c].
 
 [Genesis 17:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # 2 Kings 13:2
 
-> And he did *that which was* evil in the sight of the LORD, and followed the sins of <u>Jeroboam</u>[^a] the son of Nebat, which made Israel to sin; he departed not therefrom.
+> And he did <i>that which was</i> evil in the sight of the LORD, and followed the sins of <u>Jeroboam</u>[^a] the son of Nebat, which made Israel to sin; he departed not therefrom.
 
 [2 Kings 13:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/13.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Isaiah 1:31
 
-> And the strong shall be <u>as tow</u>[^a], and the maker of it as a spark, and they shall both <u>burn</u>[^b] together, and none shall quench *them.*
+> And the strong shall be <u>as tow</u>[^a], and the maker of it as a spark, and they shall both <u>burn</u>[^b] together, and none shall quench <i>them.</i>
 
 [Isaiah 1:31](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.31?lang=eng#p31)
 

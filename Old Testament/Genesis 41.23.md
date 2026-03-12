@@ -1,6 +1,6 @@
 # Genesis 41:23
 
-> And, behold, seven ears, withered, thin, *and* blasted with the <u>east</u>[^a] <u>wind</u>[^b], sprung up after them:
+> And, behold, seven ears, withered, thin, <i>and</i> blasted with the <u>east</u>[^a] <u>wind</u>[^b], sprung up after them:
 
 [Genesis 41:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.23?lang=eng#p23)
 

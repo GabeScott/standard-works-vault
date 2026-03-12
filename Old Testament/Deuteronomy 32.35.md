@@ -1,6 +1,6 @@
 # Deuteronomy 32:35
 
-> To me *belongeth* <u>vengeance</u>[^a], and <u>recompence</u>[^b]; their foot shall slide in *due* time: for the day of their <u>calamity</u>[^c] *is* at hand, and the things that shall come upon them make haste.
+> To me <i>belongeth</i> <u>vengeance</u>[^a], and <u>recompence</u>[^b]; their foot shall slide in <i>due</i> time: for the day of their <u>calamity</u>[^c] <i>is</i> at hand, and the things that shall come upon them make haste.
 
 [Deuteronomy 32:35](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.35?lang=eng#p35)
 

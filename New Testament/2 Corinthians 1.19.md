@@ -1,6 +1,6 @@
 # 2 Corinthians 1:19
 
-> For the <u>Son of God</u>[^a], Jesus Christ, who was preached among you by us, *even* by me and <u>Silvanus</u>[^b] and <u>Timotheus</u>[^c], was not yea and nay, but in him was yea.
+> For the <u>Son of God</u>[^a], Jesus Christ, who was preached among you by us, <i>even</i> by me and <u>Silvanus</u>[^b] and <u>Timotheus</u>[^c], was not yea and nay, but in him was yea.
 
 [2 Corinthians 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.19?lang=eng#p19)
 

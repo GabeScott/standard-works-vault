@@ -1,6 +1,6 @@
 # Leviticus 8:30
 
-> And Moses took of the anointing oil, and of the blood which *was* upon the altar, and <u>sprinkled</u>[^a] *it* upon Aaron, *and* upon his garments, and upon his sons, and upon his sons’ garments with him; and <u>sanctified</u>[^b] Aaron, *and* his garments, and his sons, and his sons’ garments with him.
+> And Moses took of the anointing oil, and of the blood which <i>was</i> upon the altar, and <u>sprinkled</u>[^a] <i>it</i> upon Aaron, <i>and</i> upon his garments, and upon his sons, and upon his sons’ garments with him; and <u>sanctified</u>[^b] Aaron, <i>and</i> his garments, and his sons, and his sons’ garments with him.
 
 [Leviticus 8:30](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/8.30?lang=eng#p30)
 

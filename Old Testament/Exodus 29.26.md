@@ -1,6 +1,6 @@
 # Exodus 29:26
 
-> And thou shalt take the breast of the ram of Aaron’s consecration, and wave it *for* a <u>wave</u>[^a] offering before the LORD: and it shall be thy part.
+> And thou shalt take the breast of the ram of Aaron’s consecration, and wave it <i>for</i> a <u>wave</u>[^a] offering before the LORD: and it shall be thy part.
 
 [Exodus 29:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.26?lang=eng#p26)
 

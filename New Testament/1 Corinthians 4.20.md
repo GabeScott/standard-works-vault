@@ -1,6 +1,6 @@
 # 1 Corinthians 4:20
 
-> For the kingdom of God *is* not in word, but in <u>power</u>[^a].
+> For the kingdom of God <i>is</i> not in word, but in <u>power</u>[^a].
 
 [1 Corinthians 4:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.20?lang=eng#p20)
 

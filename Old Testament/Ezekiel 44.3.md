@@ -1,6 +1,6 @@
 # Ezekiel 44:3
 
-> *It is* for the <u>prince</u>[^a]; the prince, he shall sit in it to eat <u>bread</u>[^b] before the LORD; he shall enter by the way of the porch of *that* gate, and shall go out by the way of the same.
+> <i>It is</i> for the <u>prince</u>[^a]; the prince, he shall sit in it to eat <u>bread</u>[^b] before the LORD; he shall enter by the way of the porch of <i>that</i> gate, and shall go out by the way of the same.
 
 [Ezekiel 44:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.3?lang=eng#p3)
 

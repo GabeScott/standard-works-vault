@@ -1,6 +1,6 @@
 # Jeremiah 29:5
 
-> Build ye houses, and dwell *in them;* and plant <u>gardens</u>[^a], and eat the fruit of them;
+> Build ye houses, and dwell <i>in them;</i> and plant <u>gardens</u>[^a], and eat the fruit of them;
 
 [Jeremiah 29:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.5?lang=eng#p5)
 

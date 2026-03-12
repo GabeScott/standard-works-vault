@@ -1,6 +1,6 @@
 # Matthew 24:37
 
-> But as the days of <u>Noe</u>[^a] *were,* so shall also the coming of the Son of man be.
+> But as the days of <u>Noe</u>[^a] <i>were,</i> so shall also the coming of the Son of man be.
 
 [Matthew 24:37](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.37?lang=eng#p37)
 

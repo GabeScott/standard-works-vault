@@ -1,6 +1,6 @@
 # Ezekiel 20:46
 
-> Son of man, set thy <u>face</u>[^a] toward the south, and <u>drop</u>[^b] *thy word* toward the south, and prophesy against the forest <u>of the south field</u>[^c];
+> Son of man, set thy <u>face</u>[^a] toward the south, and <u>drop</u>[^b] <i>thy word</i> toward the south, and prophesy against the forest <u>of the south field</u>[^c];
 
 [Ezekiel 20:46](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.46?lang=eng#p46)
 

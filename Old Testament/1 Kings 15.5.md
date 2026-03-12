@@ -1,6 +1,6 @@
 # 1 Kings 15:5
 
-> Because <u>David</u>[^a] did *that which was* right in the eyes of the LORD, and <u>turned</u>[^b] not aside from any *thing* that he commanded him all the days of his life, save only in the matter of <u>Uriah</u>[^c] the Hittite.
+> Because <u>David</u>[^a] did <i>that which was</i> right in the eyes of the LORD, and <u>turned</u>[^b] not aside from any <i>thing</i> that he commanded him all the days of his life, save only in the matter of <u>Uriah</u>[^c] the Hittite.
 
 [1 Kings 15:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/15.5?lang=eng#p5)
 

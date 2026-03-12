@@ -1,6 +1,6 @@
 # Numbers 18:20
 
-> ¶ And the LORD spake unto Aaron, Thou shalt have no <u>inheritance</u>[^a] in their land, neither shalt thou have any <u>part</u>[^b] among them: I *am* thy part and thine <u>inheritance</u>[^c] among the children of Israel.
+> ¶ And the LORD spake unto Aaron, Thou shalt have no <u>inheritance</u>[^a] in their land, neither shalt thou have any <u>part</u>[^b] among them: I <i>am</i> thy part and thine <u>inheritance</u>[^c] among the children of Israel.
 
 [Numbers 18:20](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.20?lang=eng#p20)
 

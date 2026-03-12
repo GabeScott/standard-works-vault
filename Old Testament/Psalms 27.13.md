@@ -1,6 +1,6 @@
 # Psalms 27:13
 
-> *I had fainted,* unless I had believed to see the goodness of the LORD in the <u>land</u>[^a] of the living.
+> <i>I had fainted,</i> unless I had believed to see the goodness of the LORD in the <u>land</u>[^a] of the living.
 
 [Psalms 27:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/27.13?lang=eng#p13)
 

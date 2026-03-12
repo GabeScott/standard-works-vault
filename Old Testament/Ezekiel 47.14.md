@@ -1,6 +1,6 @@
 # Ezekiel 47:14
 
-> And ye shall inherit it, one as well as another: *concerning* the which I <u>lifted up mine hand</u>[^a] to give it unto your fathers: and this land shall fall unto you for <u>inheritance</u>[^b].
+> And ye shall inherit it, one as well as another: <i>concerning</i> the which I <u>lifted up mine hand</u>[^a] to give it unto your fathers: and this land shall fall unto you for <u>inheritance</u>[^b].
 
 [Ezekiel 47:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/47.14?lang=eng#p14)
 

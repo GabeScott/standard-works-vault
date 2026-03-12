@@ -1,6 +1,6 @@
 # Revelation 14:19
 
-> And the angel thrust in his sickle into the earth, and gathered the vine of the earth, and cast *it* into the great <u>winepress</u>[^a] of the wrath of God.
+> And the angel thrust in his sickle into the earth, and gathered the vine of the earth, and cast <i>it</i> into the great <u>winepress</u>[^a] of the wrath of God.
 
 [Revelation 14:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.19?lang=eng#p19)
 

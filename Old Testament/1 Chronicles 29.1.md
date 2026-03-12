@@ -1,6 +1,6 @@
 # 1 Chronicles 29:1
 
-> Furthermore David the king said unto all the congregation, Solomon my son, whom alone God hath chosen, *is yet* <u>young</u>[^a] and tender, and the work *is* great: for the palace *is* not for man, but for the LORD God.
+> Furthermore David the king said unto all the congregation, Solomon my son, whom alone God hath chosen, <i>is yet</i> <u>young</u>[^a] and tender, and the work <i>is</i> great: for the palace <i>is</i> not for man, but for the LORD God.
 
 [1 Chronicles 29:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.1?lang=eng#p1)
 

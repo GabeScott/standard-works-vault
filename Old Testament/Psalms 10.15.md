@@ -1,6 +1,6 @@
 # Psalms 10:15
 
-> Break thou the <u>arm</u>[^a] of the wicked and the evil *man:* seek out his wickedness *till* thou find none.
+> Break thou the <u>arm</u>[^a] of the wicked and the evil <i>man:</i> seek out his wickedness <i>till</i> thou find none.
 
 [Psalms 10:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.15?lang=eng#p15)
 

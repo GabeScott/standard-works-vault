@@ -1,6 +1,6 @@
 # Deuteronomy 32:19
 
-> And when the LORD saw *it,* he <u>abhorred</u>[^a] *them,* because of the <u>provoking</u>[^b] of his sons, and of his daughters.
+> And when the LORD saw <i>it,</i> he <u>abhorred</u>[^a] <i>them,</i> because of the <u>provoking</u>[^b] of his sons, and of his daughters.
 
 [Deuteronomy 32:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.19?lang=eng#p19)
 

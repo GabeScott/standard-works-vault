@@ -1,6 +1,6 @@
 # Genesis 50:26
 
-> So <u>Joseph</u>[^a] <u>died</u>[^b], *being* an hundred and ten years old: and they <u>embalmed</u>[^c] him, and he was put in a coffin in Egypt.
+> So <u>Joseph</u>[^a] <u>died</u>[^b], <i>being</i> an hundred and ten years old: and they <u>embalmed</u>[^c] him, and he was put in a coffin in Egypt.
 
 [Genesis 50:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.26?lang=eng#p26)
 

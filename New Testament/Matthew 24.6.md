@@ -1,6 +1,6 @@
 # Matthew 24:6
 
-> And ye shall hear of <u>wars</u>[^a] and rumours of wars: see that ye be not <u>troubled</u>[^b]: for all *these things* must come to pass, but the end is not yet.
+> And ye shall hear of <u>wars</u>[^a] and rumours of wars: see that ye be not <u>troubled</u>[^b]: for all <i>these things</i> must come to pass, but the end is not yet.
 
 [Matthew 24:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.6?lang=eng#p6)
 

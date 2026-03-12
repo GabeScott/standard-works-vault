@@ -1,6 +1,6 @@
 # Hebrews 11:6
 
-> But without <u>faith</u>[^a] *it is* impossible to please *him:* for he that <u>cometh</u>[^b] to God must believe that he is, and *that* he is a <u>rewarder</u>[^c] of them that <u>diligently</u>[^d] <u>seek</u>[^e] him.
+> But without <u>faith</u>[^a] <i>it is</i> impossible to please <i>him:</i> for he that <u>cometh</u>[^b] to God must believe that he is, and <i>that</i> he is a <u>rewarder</u>[^c] of them that <u>diligently</u>[^d] <u>seek</u>[^e] him.
 
 [Hebrews 11:6](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.6?lang=eng#p6)
 

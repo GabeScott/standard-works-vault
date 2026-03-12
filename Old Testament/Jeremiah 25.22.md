@@ -1,6 +1,6 @@
 # Jeremiah 25:22
 
-> And all the kings of <u>Tyrus</u>[^a], and all the kings of <u>Zidon</u>[^b], and the kings of the isles which *are* beyond the sea,
+> And all the kings of <u>Tyrus</u>[^a], and all the kings of <u>Zidon</u>[^b], and the kings of the isles which <i>are</i> beyond the sea,
 
 [Jeremiah 25:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/25.22?lang=eng#p22)
 

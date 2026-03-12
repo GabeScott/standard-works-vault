@@ -1,6 +1,6 @@
 # Psalms 85:9
 
-> Surely his <u>salvation</u>[^a] *is* nigh them that fear him; that glory may dwell in our land.
+> Surely his <u>salvation</u>[^a] <i>is</i> nigh them that fear him; that glory may dwell in our land.
 
 [Psalms 85:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/85.9?lang=eng#p9)
 

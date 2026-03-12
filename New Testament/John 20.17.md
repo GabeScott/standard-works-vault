@@ -1,6 +1,6 @@
 # John 20:17
 
-> Jesus saith unto her, <u>Touch me not</u>[^a]; for I am not yet <u>ascended</u>[^b] to my <u>Father</u>[^c]: but go to my brethren, and say unto them, I ascend unto my <u>Father</u>[^d], and your Father; and *to* my God, and your God.
+> Jesus saith unto her, <u>Touch me not</u>[^a]; for I am not yet <u>ascended</u>[^b] to my <u>Father</u>[^c]: but go to my brethren, and say unto them, I ascend unto my <u>Father</u>[^d], and your Father; and <i>to</i> my God, and your God.
 
 [John 20:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.17?lang=eng#p17)
 

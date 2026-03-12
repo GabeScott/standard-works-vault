@@ -1,6 +1,6 @@
 # Psalms 88:4
 
-> I am counted with them that go down into the <u>pit</u>[^a]: I am as a man *that hath* no strength:
+> I am counted with them that go down into the <u>pit</u>[^a]: I am as a man <i>that hath</i> no strength:
 
 [Psalms 88:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/88.4?lang=eng#p4)
 

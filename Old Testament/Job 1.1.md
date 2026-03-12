@@ -1,6 +1,6 @@
 # Job 1:1
 
-> There was a man in the land of <u>Uz</u>[^a], whose name *was* <u>Job</u>[^b]; and that man was <u>perfect</u>[^c] and <u>upright</u>[^d], and one that <u>feared</u>[^e] God, and eschewed evil.
+> There was a man in the land of <u>Uz</u>[^a], whose name <i>was</i> <u>Job</u>[^b]; and that man was <u>perfect</u>[^c] and <u>upright</u>[^d], and one that <u>feared</u>[^e] God, and eschewed evil.
 
 [Job 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.1?lang=eng#p1)
 

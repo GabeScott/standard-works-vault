@@ -1,6 +1,6 @@
 # Isaiah 53:10
 
-> ¶ Yet it pleased the LORD to <u>bruise</u>[^a] him; he hath put *him* to grief: when thou shalt make his soul an <u>offering</u>[^b] for sin, he shall see *his* <u>seed</u>[^c], he shall prolong *his* days, and the <u>pleasure</u>[^d] of the LORD shall prosper in his hand.
+> ¶ Yet it pleased the LORD to <u>bruise</u>[^a] him; he hath put <i>him</i> to grief: when thou shalt make his soul an <u>offering</u>[^b] for sin, he shall see <i>his</i> <u>seed</u>[^c], he shall prolong <i>his</i> days, and the <u>pleasure</u>[^d] of the LORD shall prosper in his hand.
 
 [Isaiah 53:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.10?lang=eng#p10)
 

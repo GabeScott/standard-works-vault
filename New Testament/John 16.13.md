@@ -1,6 +1,6 @@
 # John 16:13
 
-> Howbeit when he, the <u>Spirit of truth</u>[^a], is come, he will <u>guide</u>[^b] you into all <u>truth</u>[^c]: for he shall not speak of himself; but whatsoever he shall hear, *that* shall he speak: and he will <u>shew</u>[^d] you things to come.
+> Howbeit when he, the <u>Spirit of truth</u>[^a], is come, he will <u>guide</u>[^b] you into all <u>truth</u>[^c]: for he shall not speak of himself; but whatsoever he shall hear, <i>that</i> shall he speak: and he will <u>shew</u>[^d] you things to come.
 
 [John 16:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.13?lang=eng#p13)
 

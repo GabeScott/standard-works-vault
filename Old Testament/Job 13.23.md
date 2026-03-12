@@ -1,6 +1,6 @@
 # Job 13:23
 
-> How many *are* mine iniquities and sins? make me to <u>know</u>[^a] my transgression and my sin.
+> How many <i>are</i> mine iniquities and sins? make me to <u>know</u>[^a] my transgression and my sin.
 
 [Job 13:23](https://www.churchofjesuschrist.org/study/scriptures/ot/job/13.23?lang=eng#p23)
 

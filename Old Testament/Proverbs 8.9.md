@@ -1,6 +1,6 @@
 # Proverbs 8:9
 
-> They *are* all plain to him that <u>understandeth</u>[^a], and right to them that find <u>knowledge</u>[^b].
+> They <i>are</i> all plain to him that <u>understandeth</u>[^a], and right to them that find <u>knowledge</u>[^b].
 
 [Proverbs 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/8.9?lang=eng#p9)
 

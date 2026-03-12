@@ -1,6 +1,6 @@
 # Leviticus 21:12
 
-> Neither shall he go out of the <u>sanctuary</u>[^a], nor profane the sanctuary of his God; for the <u>crown</u>[^b] of the <u>anointing oil</u>[^c] of his God *is* upon him: I *am* the LORD.
+> Neither shall he go out of the <u>sanctuary</u>[^a], nor profane the sanctuary of his God; for the <u>crown</u>[^b] of the <u>anointing oil</u>[^c] of his God <i>is</i> upon him: I <i>am</i> the LORD.
 
 [Leviticus 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/21.12?lang=eng#p12)
 

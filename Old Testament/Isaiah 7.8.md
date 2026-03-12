@@ -1,6 +1,6 @@
 # Isaiah 7:8
 
-> For the head of Syria *is* <u>Damascus</u>[^a], and the head of Damascus *is* Rezin; and within threescore and five years shall <u>Ephraim</u>[^b] be broken, that it be not a people.
+> For the head of Syria <i>is</i> <u>Damascus</u>[^a], and the head of Damascus <i>is</i> Rezin; and within threescore and five years shall <u>Ephraim</u>[^b] be broken, that it be not a people.
 
 [Isaiah 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Jeremiah 36:7
 
-> It may be they will present their supplication before the LORD, and will <u>return</u>[^a] every one from his evil way: for great *is* the anger and the fury that the LORD hath pronounced against this people.
+> It may be they will present their supplication before the LORD, and will <u>return</u>[^a] every one from his evil way: for great <i>is</i> the anger and the fury that the LORD hath pronounced against this people.
 
 [Jeremiah 36:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/36.7?lang=eng#p7)
 

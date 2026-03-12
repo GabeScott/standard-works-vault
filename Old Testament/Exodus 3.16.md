@@ -1,6 +1,6 @@
 # Exodus 3:16
 
-> Go, and gather the <u>elders</u>[^a] of Israel together, and say unto them, The LORD God of your fathers, the God of Abraham, of Isaac, and of Jacob, appeared unto me, saying, I have surely <u>visited</u>[^b] you, and *seen* that which is done to you in Egypt:
+> Go, and gather the <u>elders</u>[^a] of Israel together, and say unto them, The LORD God of your fathers, the God of Abraham, of Isaac, and of Jacob, appeared unto me, saying, I have surely <u>visited</u>[^b] you, and <i>seen</i> that which is done to you in Egypt:
 
 [Exodus 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.16?lang=eng#p16)
 

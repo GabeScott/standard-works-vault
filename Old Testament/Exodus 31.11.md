@@ -1,6 +1,6 @@
 # Exodus 31:11
 
-> And the <u>anointing oil</u>[^a], and sweet <u>incense</u>[^b] for the holy *place:* according to all that I have commanded thee shall they do.
+> And the <u>anointing oil</u>[^a], and sweet <u>incense</u>[^b] for the holy <i>place:</i> according to all that I have commanded thee shall they do.
 
 [Exodus 31:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.11?lang=eng#p11)
 

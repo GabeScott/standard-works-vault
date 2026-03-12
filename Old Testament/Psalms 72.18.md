@@ -1,6 +1,6 @@
 # Psalms 72:18
 
-> <u>Blessed</u>[^a] *be* the LORD God, the God of Israel, who only doeth wondrous things.
+> <u>Blessed</u>[^a] <i>be</i> the LORD God, the God of Israel, who only doeth wondrous things.
 
 [Psalms 72:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/72.18?lang=eng#p18)
 

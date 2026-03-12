@@ -1,6 +1,6 @@
 # Ecclesiastes 9:10
 
-> Whatsoever thy hand findeth to do, do *it* with thy <u>might</u>[^a]; for *there is* no work, nor device, nor <u>knowledge</u>[^b], nor wisdom, in the <u>grave</u>[^c], whither thou goest.
+> Whatsoever thy hand findeth to do, do <i>it</i> with thy <u>might</u>[^a]; for <i>there is</i> no work, nor device, nor <u>knowledge</u>[^b], nor wisdom, in the <u>grave</u>[^c], whither thou goest.
 
 [Ecclesiastes 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.10?lang=eng#p10)
 

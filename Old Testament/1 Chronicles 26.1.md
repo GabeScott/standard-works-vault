@@ -1,6 +1,6 @@
 # 1 Chronicles 26:1
 
-> Concerning the <u>divisions</u>[^a] of the <u>porters</u>[^b]: Of the Korhites *was* Meshelemiah the son of Kore, of the sons of Asaph.
+> Concerning the <u>divisions</u>[^a] of the <u>porters</u>[^b]: Of the Korhites <i>was</i> Meshelemiah the son of Kore, of the sons of Asaph.
 
 [1 Chronicles 26:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/26.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Proverbs 11:15
 
-> He that is <u>surety</u>[^a] for a stranger shall smart *for it:* and he that hateth suretiship is sure.
+> He that is <u>surety</u>[^a] for a stranger shall smart <i>for it:</i> and he that hateth suretiship is sure.
 
 [Proverbs 11:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.15?lang=eng#p15)
 

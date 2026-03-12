@@ -1,6 +1,6 @@
 # Deuteronomy 18:3
 
-> ¶ And this shall be the priest’s <u>due</u>[^a] from the people, from them that offer a sacrifice, whether *it be* ox or sheep; and they shall give unto the priest the shoulder, and the two cheeks, and the <u>maw</u>[^b].
+> ¶ And this shall be the priest’s <u>due</u>[^a] from the people, from them that offer a sacrifice, whether <i>it be</i> ox or sheep; and they shall give unto the priest the shoulder, and the two cheeks, and the <u>maw</u>[^b].
 
 [Deuteronomy 18:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.3?lang=eng#p3)
 

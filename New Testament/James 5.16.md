@@ -1,6 +1,6 @@
 # James 5:16
 
-> <u>Confess</u>[^a] *your* faults one to another, and <u>pray</u>[^b] one for another, that ye may be healed. <u>The</u>[^c] effectual <u>fervent</u>[^d] <u>prayer</u>[^e] of a righteous man availeth much.
+> <u>Confess</u>[^a] <i>your</i> faults one to another, and <u>pray</u>[^b] one for another, that ye may be healed. <u>The</u>[^c] effectual <u>fervent</u>[^d] <u>prayer</u>[^e] of a righteous man availeth much.
 
 [James 5:16](https://www.churchofjesuschrist.org/study/scriptures/nt/james/5.16?lang=eng#p16)
 

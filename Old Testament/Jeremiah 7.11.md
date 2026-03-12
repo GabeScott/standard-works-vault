@@ -1,6 +1,6 @@
 # Jeremiah 7:11
 
-> Is this <u>house</u>[^a], which is called by my name, become a <u>den</u>[^b] of <u>robbers</u>[^c] in your eyes? Behold, even I have seen *it,* saith the LORD.
+> Is this <u>house</u>[^a], which is called by my name, become a <u>den</u>[^b] of <u>robbers</u>[^c] in your eyes? Behold, even I have seen <i>it,</i> saith the LORD.
 
 [Jeremiah 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.11?lang=eng#p11)
 

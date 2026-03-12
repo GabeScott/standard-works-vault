@@ -1,6 +1,6 @@
 # Isaiah 15:2
 
-> He is gone up to Bajith, and to Dibon, the high places, to weep: Moab shall howl over Nebo, and over Medeba: on all their heads *shall be* <u>baldness</u>[^a], *and* every beard <u>cut off</u>[^b].
+> He is gone up to Bajith, and to Dibon, the high places, to weep: Moab shall howl over Nebo, and over Medeba: on all their heads <i>shall be</i> <u>baldness</u>[^a], <i>and</i> every beard <u>cut off</u>[^b].
 
 [Isaiah 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/15.2?lang=eng#p2)
 

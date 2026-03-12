@@ -1,6 +1,6 @@
 # Micah 2:10
 
-> Arise ye, and depart; for this *is* not *your* <u>rest</u>[^a]: because it is polluted, it shall destroy *you,* even with a sore destruction.
+> Arise ye, and depart; for this <i>is</i> not <i>your</i> <u>rest</u>[^a]: because it is polluted, it shall destroy <i>you,</i> even with a sore destruction.
 
 [Micah 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/2.10?lang=eng#p10)
 

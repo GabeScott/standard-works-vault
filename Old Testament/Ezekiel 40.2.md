@@ -1,6 +1,6 @@
 # Ezekiel 40:2
 
-> In the <u>visions</u>[^a] of God brought he me into the land of Israel, and set me upon a very high <u>mountain</u>[^b], by which *was* as the frame of a city on the south.
+> In the <u>visions</u>[^a] of God brought he me into the land of Israel, and set me upon a very high <u>mountain</u>[^b], by which <i>was</i> as the frame of a city on the south.
 
 [Ezekiel 40:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.2?lang=eng#p2)
 

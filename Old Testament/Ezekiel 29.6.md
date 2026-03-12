@@ -1,6 +1,6 @@
 # Ezekiel 29:6
 
-> And all the inhabitants of Egypt shall know that I *am* the LORD, because they have been a staff of <u>reed</u>[^a] to the house of Israel.
+> And all the inhabitants of Egypt shall know that I <i>am</i> the LORD, because they have been a staff of <u>reed</u>[^a] to the house of Israel.
 
 [Ezekiel 29:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/29.6?lang=eng#p6)
 

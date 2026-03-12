@@ -1,6 +1,6 @@
 # Jeremiah 51:14
 
-> The LORD of hosts hath <u>sworn</u>[^a] by himself, *saying,* Surely I will fill thee with men, as with caterpillers; and they shall lift up a shout against thee.
+> The LORD of hosts hath <u>sworn</u>[^a] by himself, <i>saying,</i> Surely I will fill thee with men, as with caterpillers; and they shall lift up a shout against thee.
 
 [Jeremiah 51:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.14?lang=eng#p14)
 

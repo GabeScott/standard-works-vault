@@ -1,6 +1,6 @@
 # Matthew 10:22
 
-> And ye shall be <u>hated</u>[^a] of all *men* <u>for</u>[^b] my <u>name’s</u>[^c] sake: but he that <u>endureth</u>[^d] to the end shall be saved.
+> And ye shall be <u>hated</u>[^a] of all <i>men</i> <u>for</u>[^b] my <u>name’s</u>[^c] sake: but he that <u>endureth</u>[^d] to the end shall be saved.
 
 [Matthew 10:22](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.22?lang=eng#p22)
 

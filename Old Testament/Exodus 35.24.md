@@ -1,6 +1,6 @@
 # Exodus 35:24
 
-> Every one that did offer an offering of silver and brass brought the LORD’s <u>offering</u>[^a]: and every man, with whom was found shittim wood for any work of the service, brought *it.*
+> Every one that did offer an offering of silver and brass brought the LORD’s <u>offering</u>[^a]: and every man, with whom was found shittim wood for any work of the service, brought <i>it.</i>
 
 [Exodus 35:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.24?lang=eng#p24)
 

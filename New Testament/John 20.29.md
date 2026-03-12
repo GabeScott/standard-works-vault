@@ -1,6 +1,6 @@
 # John 20:29
 
-> Jesus saith unto him, Thomas, because thou hast <u>seen</u>[^a] me, thou hast believed: <u>blessed</u>[^b] *are* they that have not seen, and *yet* have <u>believed</u>[^c].
+> Jesus saith unto him, Thomas, because thou hast <u>seen</u>[^a] me, thou hast believed: <u>blessed</u>[^b] <i>are</i> they that have not seen, and <i>yet</i> have <u>believed</u>[^c].
 
 [John 20:29](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.29?lang=eng#p29)
 

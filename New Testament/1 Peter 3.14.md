@@ -1,6 +1,6 @@
 # 1 Peter 3:14
 
-> But and if ye <u>suffer</u>[^a] for <u>righteousness’</u>[^b] sake, <u>happy</u>[^c] *are ye:* and be not afraid of their terror, neither be troubled;
+> But and if ye <u>suffer</u>[^a] for <u>righteousness’</u>[^b] sake, <u>happy</u>[^c] <i>are ye:</i> and be not afraid of their terror, neither be troubled;
 
 [1 Peter 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.14?lang=eng#p14)
 

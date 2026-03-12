@@ -1,6 +1,6 @@
 # Jeremiah 51:13
 
-> O thou that dwellest upon many <u>waters</u>[^a], abundant in <u>treasures</u>[^b], thine end is come, *and* the measure of thy covetousness.
+> O thou that dwellest upon many <u>waters</u>[^a], abundant in <u>treasures</u>[^b], thine end is come, <i>and</i> the measure of thy covetousness.
 
 [Jeremiah 51:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.13?lang=eng#p13)
 

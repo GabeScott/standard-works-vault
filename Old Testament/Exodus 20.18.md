@@ -1,6 +1,6 @@
 # Exodus 20:18
 
-> ¶ And all the people <u>saw</u>[^a] the thunderings, and the lightnings, and the noise of the trumpet, and the mountain smoking: and when the people <u>saw</u>[^b] *it,* they <u>removed</u>[^c], and stood afar off.
+> ¶ And all the people <u>saw</u>[^a] the thunderings, and the lightnings, and the noise of the trumpet, and the mountain smoking: and when the people <u>saw</u>[^b] <i>it,</i> they <u>removed</u>[^c], and stood afar off.
 
 [Exodus 20:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.18?lang=eng#p18)
 

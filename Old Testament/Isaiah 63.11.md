@@ -1,6 +1,6 @@
 # Isaiah 63:11
 
-> Then <u>he remembered</u>[^a] the days of old, Moses, *and* his people, *saying,* Where *is* he that brought them up out of the <u>sea</u>[^b] with the <u>shepherd</u>[^c] of his <u>flock</u>[^d]? where *is* he that put his holy Spirit within <u>him</u>[^e]?
+> Then <u>he remembered</u>[^a] the days of old, Moses, <i>and</i> his people, <i>saying,</i> Where <i>is</i> he that brought them up out of the <u>sea</u>[^b] with the <u>shepherd</u>[^c] of his <u>flock</u>[^d]? where <i>is</i> he that put his holy Spirit within <u>him</u>[^e]?
 
 [Isaiah 63:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.11?lang=eng#p11)
 

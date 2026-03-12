@@ -1,6 +1,6 @@
 # Proverbs 16:31
 
-> <u>The hoary head</u>[^a] *is* a crown of glory, *if* it be found in the way of righteousness.
+> <u>The hoary head</u>[^a] <i>is</i> a crown of glory, <i>if</i> it be found in the way of righteousness.
 
 [Proverbs 16:31](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.31?lang=eng#p31)
 

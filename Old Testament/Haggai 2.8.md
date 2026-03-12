@@ -1,6 +1,6 @@
 # Haggai 2:8
 
-> The <u>silver</u>[^a] *is* mine, and the gold *is* mine, saith the LORD of hosts.
+> The <u>silver</u>[^a] <i>is</i> mine, and the gold <i>is</i> mine, saith the LORD of hosts.
 
 [Haggai 2:8](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.8?lang=eng#p8)
 

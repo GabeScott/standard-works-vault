@@ -1,6 +1,6 @@
 # James 4:3
 
-> Ye <u>ask</u>[^a], and receive not, because ye <u>ask</u>[^b] <u>amiss</u>[^c], that ye may <u>consume</u>[^d] *it* upon your <u>lusts</u>[^e].
+> Ye <u>ask</u>[^a], and receive not, because ye <u>ask</u>[^b] <u>amiss</u>[^c], that ye may <u>consume</u>[^d] <i>it</i> upon your <u>lusts</u>[^e].
 
 [James 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.3?lang=eng#p3)
 

@@ -1,6 +1,6 @@
 # Job 13:4
 
-> But ye *are* forgers of lies, ye *are* all <u>physicians</u>[^a] of no value.
+> But ye <i>are</i> forgers of lies, ye <i>are</i> all <u>physicians</u>[^a] of no value.
 
 [Job 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/13.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Exodus 35:5
 
-> Take ye from among you an offering unto the LORD: whosoever *is* of a <u>willing</u>[^a] heart, let him bring it, an offering of the LORD; gold, and silver, and brass,
+> Take ye from among you an offering unto the LORD: whosoever <i>is</i> of a <u>willing</u>[^a] heart, let him bring it, an offering of the LORD; gold, and silver, and brass,
 
 [Exodus 35:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.5?lang=eng#p5)
 

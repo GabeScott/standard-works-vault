@@ -1,6 +1,6 @@
 # Genesis 46:27
 
-> And the sons of Joseph, which were born him in Egypt, *were* two souls: all the souls of the house of <u>Jacob</u>[^a], which came into Egypt, *were* <u>threescore</u>[^b] and ten.
+> And the sons of Joseph, which were born him in Egypt, <i>were</i> two souls: all the souls of the house of <u>Jacob</u>[^a], which came into Egypt, <i>were</i> <u>threescore</u>[^b] and ten.
 
 [Genesis 46:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.27?lang=eng#p27)
 

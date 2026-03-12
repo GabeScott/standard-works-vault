@@ -1,6 +1,6 @@
 # Ezekiel 18:7
 
-> And hath not oppressed any, *but* hath restored to the debtor his <u>pledge</u>[^a], hath spoiled none by violence, hath given his bread to the hungry, and hath covered the <u>naked</u>[^b] with a garment;
+> And hath not oppressed any, <i>but</i> hath restored to the debtor his <u>pledge</u>[^a], hath spoiled none by violence, hath given his bread to the hungry, and hath covered the <u>naked</u>[^b] with a garment;
 
 [Ezekiel 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.7?lang=eng#p7)
 

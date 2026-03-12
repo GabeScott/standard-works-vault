@@ -1,6 +1,6 @@
 # 1 John 3:21
 
-> Beloved, if our heart condemn us not, *then* have we <u>confidence</u>[^a] toward God.
+> Beloved, if our heart condemn us not, <i>then</i> have we <u>confidence</u>[^a] toward God.
 
 [1 John 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.21?lang=eng#p21)
 

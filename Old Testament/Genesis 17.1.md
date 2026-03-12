@@ -1,6 +1,6 @@
 # Genesis 17:1
 
-> And when Abram was ninety years old and nine, the LORD <u>appeared</u>[^a] to <u>Abram</u>[^b], and said unto him, I *am* the <u>Almighty God</u>[^c]; <u>walk</u>[^d] before me, and be thou <u>perfect</u>[^e].
+> And when Abram was ninety years old and nine, the LORD <u>appeared</u>[^a] to <u>Abram</u>[^b], and said unto him, I <i>am</i> the <u>Almighty God</u>[^c]; <u>walk</u>[^d] before me, and be thou <u>perfect</u>[^e].
 
 [Genesis 17:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Leviticus 23:3
 
-> Six days shall work be done: but the <u>seventh day</u>[^a] *is* the <u>sabbath</u>[^b] of rest, an holy <u>convocation</u>[^c]; ye shall do no work *therein:* it *is* the <u>sabbath</u>[^d] of the LORD in all your dwellings.
+> Six days shall work be done: but the <u>seventh day</u>[^a] <i>is</i> the <u>sabbath</u>[^b] of rest, an holy <u>convocation</u>[^c]; ye shall do no work <i>therein:</i> it <i>is</i> the <u>sabbath</u>[^d] of the LORD in all your dwellings.
 
 [Leviticus 23:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.3?lang=eng#p3)
 

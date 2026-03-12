@@ -1,6 +1,6 @@
 # Psalms 92:15
 
-> To shew that the LORD *is* upright: *he is* my <u>rock</u>[^a], and *there is* no <u>unrighteousness</u>[^b] in him.
+> To shew that the LORD <i>is</i> upright: <i>he is</i> my <u>rock</u>[^a], and <i>there is</i> no <u>unrighteousness</u>[^b] in him.
 
 [Psalms 92:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/92.15?lang=eng#p15)
 

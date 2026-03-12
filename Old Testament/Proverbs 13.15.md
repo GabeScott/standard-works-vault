@@ -1,6 +1,6 @@
 # Proverbs 13:15
 
-> Good understanding giveth favour: but the way of transgressors is hard.
+> Good understanding giveth favour: but the way of transgressors <i>is</i> hard.
 
 [Proverbs 13:15](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.15?lang=eng#p15)
 

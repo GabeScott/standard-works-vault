@@ -1,6 +1,6 @@
 # Romans 13:10
 
-> <u>Love</u>[^a] worketh no ill to his neighbour: therefore love *is* the fulfilling of the <u>law</u>[^b].
+> <u>Love</u>[^a] worketh no ill to his neighbour: therefore love <i>is</i> the fulfilling of the <u>law</u>[^b].
 
 [Romans 13:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.10?lang=eng#p10)
 

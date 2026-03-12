@@ -1,6 +1,6 @@
 # Genesis 36:8
 
-> Thus dwelt Esau in mount <u>Seir</u>[^a]: Esau *is* Edom.
+> Thus dwelt Esau in mount <u>Seir</u>[^a]: Esau <i>is</i> Edom.
 
 [Genesis 36:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/36.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Psalms 9:1
 
-> I will praise *thee,* O LORD, with my whole heart; I will shew forth all thy <u>marvellous</u>[^a] works.
+> I will praise <i>thee,</i> O LORD, with my whole heart; I will shew forth all thy <u>marvellous</u>[^a] works.
 
 [Psalms 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/9.1?lang=eng#p1)
 

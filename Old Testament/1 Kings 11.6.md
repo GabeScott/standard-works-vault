@@ -1,6 +1,6 @@
 # 1 Kings 11:6
 
-> And <u>Solomon</u>[^a] did evil in the sight of the LORD, <u>and</u>[^b] went not fully after the LORD, as *did* David his father.
+> And <u>Solomon</u>[^a] did evil in the sight of the LORD, <u>and</u>[^b] went not fully after the LORD, as <i>did</i> David his father.
 
 [1 Kings 11:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.6?lang=eng#p6)
 

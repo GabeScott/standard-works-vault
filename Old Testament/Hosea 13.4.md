@@ -1,6 +1,6 @@
 # Hosea 13:4
 
-> Yet I *am* the LORD thy God from the land of Egypt, and thou shalt know no <u>god</u>[^a] but me: for *there is* no <u>saviour</u>[^b] <u>beside</u>[^c] me.
+> Yet I <i>am</i> the LORD thy God from the land of Egypt, and thou shalt know no <u>god</u>[^a] but me: for <i>there is</i> no <u>saviour</u>[^b] <u>beside</u>[^c] me.
 
 [Hosea 13:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/13.4?lang=eng#p4)
 

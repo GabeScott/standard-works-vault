@@ -1,6 +1,6 @@
 # Psalms 90:8
 
-> Thou hast set our <u>iniquities</u>[^a] before thee, our <u>secret</u>[^b] *sins* in the light of thy countenance.
+> Thou hast set our <u>iniquities</u>[^a] before thee, our <u>secret</u>[^b] <i>sins</i> in the light of thy countenance.
 
 [Psalms 90:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/90.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # 1 Corinthians 11:27
 
-> Wherefore whosoever shall eat this <u>bread</u>[^a], and drink *this* cup of the Lord, <u>unworthily</u>[^b], shall <u>be</u>[^c] <u>guilty</u>[^d] of the body and blood of the Lord.
+> Wherefore whosoever shall eat this <u>bread</u>[^a], and drink <i>this</i> cup of the Lord, <u>unworthily</u>[^b], shall <u>be</u>[^c] <u>guilty</u>[^d] of the body and blood of the Lord.
 
 [1 Corinthians 11:27](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.27?lang=eng#p27)
 

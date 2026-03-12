@@ -1,6 +1,6 @@
 # Ezekiel 27:13
 
-> Javan, Tubal, and <u>Meshech</u>[^a], they *were* thy merchants: they traded the persons of men and vessels of brass in thy market.
+> Javan, Tubal, and <u>Meshech</u>[^a], they <i>were</i> thy merchants: they traded the persons of men and vessels of brass in thy market.
 
 [Ezekiel 27:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/27.13?lang=eng#p13)
 

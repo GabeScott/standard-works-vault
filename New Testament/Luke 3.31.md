@@ -1,6 +1,6 @@
 # Luke 3:31
 
-> Which was the son of Melea, which was the son of Menan, which was the son of Mattatha, which was the son of Nathan, which was the son of David,
+> Which was <i>the son</i> of Melea, which was <i>the son</i> of Menan, which was <i>the son</i> of Mattatha, which was <i>the son</i> of Nathan, which was <i>the son</i> of David,
 
 [Luke 3:31](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.31?lang=eng#p31)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 27:5
 
-> And there shalt thou build an altar unto the LORD thy God, an altar of <u>stones</u>[^a]: thou shalt not lift up *any* <u>iron</u>[^b] *tool* upon them.
+> And there shalt thou build an altar unto the LORD thy God, an altar of <u>stones</u>[^a]: thou shalt not lift up <i>any</i> <u>iron</u>[^b] <i>tool</i> upon them.
 
 [Deuteronomy 27:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.5?lang=eng#p5)
 

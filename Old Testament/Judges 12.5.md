@@ -1,6 +1,6 @@
 # Judges 12:5
 
-> And the Gileadites took the passages of Jordan before the Ephraimites: and it was so, that when those Ephraimites which were escaped said, Let me go over; that the men of Gilead said unto him, Art thou an Ephraimite? If he said, Nay;
+> And the Gileadites took the passages of Jordan before the Ephraimites: and it was <i>so,</i> that when those Ephraimites which were escaped said, Let me go over; that the men of Gilead said unto him, <i>Art</i> thou an Ephraimite? If he said, Nay;
 
 [Judges 12:5](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/12.5?lang=eng#p5)
 

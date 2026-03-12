@@ -1,6 +1,6 @@
 # Exodus 20:4
 
-> Thou shalt <u>not</u>[^a] make unto thee any <u>graven</u>[^b] <u>image</u>[^c], or any likeness *of any thing* that *is* in heaven above, or that *is* in the earth beneath, or that *is* in the water under the earth:
+> Thou shalt <u>not</u>[^a] make unto thee any <u>graven</u>[^b] <u>image</u>[^c], or any likeness <i>of any thing</i> that <i>is</i> in heaven above, or that <i>is</i> in the earth beneath, or that <i>is</i> in the water under the earth:
 
 [Exodus 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.4?lang=eng#p4)
 

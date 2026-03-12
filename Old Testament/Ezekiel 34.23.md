@@ -1,6 +1,6 @@
 # Ezekiel 34:23
 
-> And I will set up <u>one</u>[^a] <u>shepherd</u>[^b] over them, and he shall feed them, *even* my servant <u>David</u>[^c]; he shall feed them, and he shall be their shepherd.
+> And I will set up <u>one</u>[^a] <u>shepherd</u>[^b] over them, and he shall feed them, <i>even</i> my servant <u>David</u>[^c]; he shall feed them, and he shall be their shepherd.
 
 [Ezekiel 34:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.23?lang=eng#p23)
 

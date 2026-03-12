@@ -1,6 +1,6 @@
 # Psalms 113:9
 
-> He maketh the <u>barren</u>[^a] woman to keep house, *and to be* a joyful <u>mother</u>[^b] of <u>children</u>[^c]. Praise ye the LORD.
+> He maketh the <u>barren</u>[^a] woman to keep house, <i>and to be</i> a joyful <u>mother</u>[^b] of <u>children</u>[^c]. Praise ye the LORD.
 
 [Psalms 113:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/113.9?lang=eng#p9)
 

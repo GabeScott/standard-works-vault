@@ -1,6 +1,6 @@
 # 1 Kings 16:34
 
-> ¶ In his days did Hiel the Beth-elite build <u>Jericho</u>[^a]: he laid the foundation thereof in Abiram his firstborn, and set up the gates thereof in his youngest *son* Segub, according to the word of the LORD, which he spake by Joshua the son of <u>Nun</u>[^b].
+> ¶ In his days did Hiel the Beth-elite build <u>Jericho</u>[^a]: he laid the foundation thereof in Abiram his firstborn, and set up the gates thereof in his youngest <i>son</i> Segub, according to the word of the LORD, which he spake by Joshua the son of <u>Nun</u>[^b].
 
 [1 Kings 16:34](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.34?lang=eng#p34)
 

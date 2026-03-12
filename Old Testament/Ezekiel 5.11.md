@@ -1,6 +1,6 @@
 # Ezekiel 5:11
 
-> Wherefore, *as* I live, saith the Lord GOD; Surely, because thou hast <u>defiled</u>[^a] my sanctuary with all thy <u>detestable</u>[^b] things, and with all thine abominations, therefore will I also <u>diminish</u>[^c] *thee;* neither shall mine eye <u>spare</u>[^d], neither will I have any pity.
+> Wherefore, <i>as</i> I live, saith the Lord GOD; Surely, because thou hast <u>defiled</u>[^a] my sanctuary with all thy <u>detestable</u>[^b] things, and with all thine abominations, therefore will I also <u>diminish</u>[^c] <i>thee;</i> neither shall mine eye <u>spare</u>[^d], neither will I have any pity.
 
 [Ezekiel 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/5.11?lang=eng#p11)
 

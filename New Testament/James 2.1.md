@@ -1,6 +1,6 @@
 # James 2:1
 
-> My brethren, <u>have</u>[^a] not the faith of our <u>Lord Jesus Christ</u>[^b], *the Lord* of glory, with respect of persons.
+> My brethren, <u>have</u>[^a] not the faith of our <u>Lord Jesus Christ</u>[^b], <i>the Lord</i> of glory, with respect of persons.
 
 [James 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.1?lang=eng#p1)
 

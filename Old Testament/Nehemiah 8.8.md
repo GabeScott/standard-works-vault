@@ -1,6 +1,6 @@
 # Nehemiah 8:8
 
-> So they read in the book in the <u>law</u>[^a] of God <u>distinctly</u>[^b], and <u>gave the sense</u>[^c], and caused *them* to understand the reading.
+> So they read in the book in the <u>law</u>[^a] of God <u>distinctly</u>[^b], and <u>gave the sense</u>[^c], and caused <i>them</i> to understand the reading.
 
 [Nehemiah 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.8?lang=eng#p8)
 

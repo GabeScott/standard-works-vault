@@ -1,6 +1,6 @@
 # Zechariah 13:7
 
-> ¶ Awake, O sword, against my shepherd, and against the man <u>that is my fellow</u>[^a], saith the LORD of hosts: smite the <u>shepherd</u>[^b], and the <u>sheep</u>[^c] shall be <u>scattered</u>[^d]: and I will turn mine hand upon the little ones.
+> ¶ Awake, O sword, against my shepherd, and against the man <i><u>that is my fellow</u></i>[^a], saith the LORD of hosts: smite the <u>shepherd</u>[^b], and the <u>sheep</u>[^c] shall be <u>scattered</u>[^d]: and I will turn mine hand upon the little ones.
 
 [Zechariah 13:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/13.7?lang=eng#p7)
 

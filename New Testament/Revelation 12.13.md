@@ -1,6 +1,6 @@
 # Revelation 12:13
 
-> And when the dragon saw that he was cast unto the earth, he <u>persecuted</u>[^a] the woman which brought forth the man *child.*
+> And when the dragon saw that he was cast unto the earth, he <u>persecuted</u>[^a] the woman which brought forth the man <i>child.</i>
 
 [Revelation 12:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.13?lang=eng#p13)
 

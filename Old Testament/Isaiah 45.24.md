@@ -1,6 +1,6 @@
 # Isaiah 45:24
 
-> Surely, shall *one* say, in the LORD have I righteousness and <u>strength</u>[^a]: *even* to him shall *men* come; and all that are incensed against him shall be ashamed.
+> Surely, shall <i>one</i> say, in the LORD have I righteousness and <u>strength</u>[^a]: <i>even</i> to him shall <i>men</i> come; and all that are incensed against him shall be ashamed.
 
 [Isaiah 45:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.24?lang=eng#p24)
 

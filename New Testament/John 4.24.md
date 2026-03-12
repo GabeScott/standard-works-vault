@@ -1,6 +1,6 @@
 # John 4:24
 
-> <u>God</u>[^a] *is* a <u>Spirit</u>[^b]: and they that worship him must worship *him* in spirit and in <u>truth</u>[^c].
+> <u>God</u>[^a] <i>is</i> a <u>Spirit</u>[^b]: and they that worship him must worship <i>him</i> in spirit and in <u>truth</u>[^c].
 
 [John 4:24](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.24?lang=eng#p24)
 

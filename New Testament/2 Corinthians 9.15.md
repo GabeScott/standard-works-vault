@@ -1,6 +1,6 @@
 # 2 Corinthians 9:15
 
-> <u>Thanks</u>[^a] *be* unto God for his unspeakable <u>gift</u>[^b].
+> <u>Thanks</u>[^a] <i>be</i> unto God for his unspeakable <u>gift</u>[^b].
 
 [2 Corinthians 9:15](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/9.15?lang=eng#p15)
 

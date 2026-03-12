@@ -1,6 +1,6 @@
 # Psalms 89:48
 
-> What man *is he that* <u>liveth</u>[^a], and shall not see death? shall he deliver his soul from the hand of the grave? Selah.
+> What man <i>is he that</i> <u>liveth</u>[^a], and shall not see death? shall he deliver his soul from the hand of the grave? Selah.
 
 [Psalms 89:48](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.48?lang=eng#p48)
 

@@ -1,6 +1,6 @@
 # Isaiah 59:7
 
-> Their feet <u>run</u>[^a] to <u>evil</u>[^b], and they make <u>haste</u>[^c] to <u>shed</u>[^d] innocent blood: their thoughts *are* thoughts of iniquity; wasting and destruction *are* in their paths.
+> Their feet <u>run</u>[^a] to <u>evil</u>[^b], and they make <u>haste</u>[^c] to <u>shed</u>[^d] innocent blood: their thoughts <i>are</i> thoughts of iniquity; wasting and destruction <i>are</i> in their paths.
 
 [Isaiah 59:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.7?lang=eng#p7)
 

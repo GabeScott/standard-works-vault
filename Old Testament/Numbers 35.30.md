@@ -1,6 +1,6 @@
 # Numbers 35:30
 
-> Whoso killeth any person, the <u>murderer</u>[^a] shall be put to <u>death</u>[^b] by the mouth of <u>witnesses</u>[^c]: but one witness shall not testify against any person *to cause him* to die.
+> Whoso killeth any person, the <u>murderer</u>[^a] shall be put to <u>death</u>[^b] by the mouth of <u>witnesses</u>[^c]: but one witness shall not testify against any person <i>to cause him</i> to die.
 
 [Numbers 35:30](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.30?lang=eng#p30)
 

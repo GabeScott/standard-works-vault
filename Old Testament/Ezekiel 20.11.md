@@ -1,6 +1,6 @@
 # Ezekiel 20:11
 
-> And I gave them my <u>statutes</u>[^a], and shewed them my judgments, which *if* a man do, he shall even <u>live</u>[^b] in them.
+> And I gave them my <u>statutes</u>[^a], and shewed them my judgments, which <i>if</i> a man do, he shall even <u>live</u>[^b] in them.
 
 [Ezekiel 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.11?lang=eng#p11)
 

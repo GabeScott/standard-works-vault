@@ -1,6 +1,6 @@
 # Leviticus 10:19
 
-> And Aaron said unto Moses, Behold, this day have they offered their sin offering and their burnt offering before the LORD; and such things have <u>befallen</u>[^a] me: and *if* I had eaten the sin offering to day, should it have been <u>accepted</u>[^b] in the sight of the LORD?
+> And Aaron said unto Moses, Behold, this day have they offered their sin offering and their burnt offering before the LORD; and such things have <u>befallen</u>[^a] me: and <i>if</i> I had eaten the sin offering to day, should it have been <u>accepted</u>[^b] in the sight of the LORD?
 
 [Leviticus 10:19](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.19?lang=eng#p19)
 

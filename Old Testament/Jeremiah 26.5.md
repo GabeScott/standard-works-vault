@@ -1,6 +1,6 @@
 # Jeremiah 26:5
 
-> To hearken to the words of my servants the <u>prophets</u>[^a], whom I sent unto you, both rising up early, and sending *them,* but ye have not hearkened;
+> To hearken to the words of my servants the <u>prophets</u>[^a], whom I sent unto you, both rising up early, and sending <i>them,</i> but ye have not hearkened;
 
 [Jeremiah 26:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # John 10:29
 
-> My Father, which <u>gave</u>[^a] *them* me, is greater than all; and no *man* is able to pluck *them* out of my Father’s hand.
+> My Father, which <u>gave</u>[^a] <i>them</i> me, is greater than all; and no <i>man</i> is able to pluck <i>them</i> out of my Father’s hand.
 
 [John 10:29](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.29?lang=eng#p29)
 

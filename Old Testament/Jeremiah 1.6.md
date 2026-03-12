@@ -1,6 +1,6 @@
 # Jeremiah 1:6
 
-> Then said I, Ah, Lord GOD! behold, I cannot <u>speak</u>[^a]: for I *am* a <u>child</u>[^b].
+> Then said I, Ah, Lord GOD! behold, I cannot <u>speak</u>[^a]: for I <i>am</i> a <u>child</u>[^b].
 
 [Jeremiah 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # Jeremiah 9:11
 
-> And I will make Jerusalem heaps, *and* a den of <u>dragons</u>[^a]; and I will make the cities of Judah <u>desolate</u>[^b], without an inhabitant.
+> And I will make Jerusalem heaps, <i>and</i> a den of <u>dragons</u>[^a]; and I will make the cities of Judah <u>desolate</u>[^b], without an inhabitant.
 
 [Jeremiah 9:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.11?lang=eng#p11)
 

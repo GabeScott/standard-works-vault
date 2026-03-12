@@ -1,6 +1,6 @@
 # 2 Peter 2:6
 
-> And turning the cities of <u>Sodom</u>[^a] and Gomorrha into ashes condemned *them* with an overthrow, making *them* an <u>ensample</u>[^b] unto those that after should live ungodly;
+> And turning the cities of <u>Sodom</u>[^a] and Gomorrha into ashes condemned <i>them</i> with an overthrow, making <i>them</i> an <u>ensample</u>[^b] unto those that after should live ungodly;
 
 [2 Peter 2:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.6?lang=eng#p6)
 

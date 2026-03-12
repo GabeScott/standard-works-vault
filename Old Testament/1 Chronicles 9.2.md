@@ -1,6 +1,6 @@
 # 1 Chronicles 9:2
 
-> ¶ Now the first inhabitants that *dwelt* in their possessions in their cities *were,* the Israelites, the priests, Levites, and the <u>Nethinims</u>[^a].
+> ¶ Now the first inhabitants that <i>dwelt</i> in their possessions in their cities <i>were,</i> the Israelites, the priests, Levites, and the <u>Nethinims</u>[^a].
 
 [1 Chronicles 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/9.2?lang=eng#p2)
 

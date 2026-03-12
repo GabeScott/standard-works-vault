@@ -1,6 +1,6 @@
 # Isaiah 65:11
 
-> ¶ But ye *are* they that forsake the LORD, that forget my holy mountain, that prepare a table for that <u>troop</u>[^a], and that furnish the drink offering unto that <u>number</u>[^b].
+> ¶ But ye <i>are</i> they that forsake the LORD, that forget my holy mountain, that prepare a table for that <u>troop</u>[^a], and that furnish the drink offering unto that <u>number</u>[^b].
 
 [Isaiah 65:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.11?lang=eng#p11)
 

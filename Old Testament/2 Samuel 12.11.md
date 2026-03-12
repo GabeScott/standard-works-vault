@@ -1,6 +1,6 @@
 # 2 Samuel 12:11
 
-> Thus saith the LORD, Behold, I will raise up <u>evil</u>[^a] against thee out of thine own house, and I will take thy wives before thine eyes, and give *them* unto thy neighbour, and he shall lie with thy wives in the sight of this sun.
+> Thus saith the LORD, Behold, I will raise up <u>evil</u>[^a] against thee out of thine own house, and I will take thy wives before thine eyes, and give <i>them</i> unto thy neighbour, and he shall lie with thy wives in the sight of this sun.
 
 [2 Samuel 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.11?lang=eng#p11)
 

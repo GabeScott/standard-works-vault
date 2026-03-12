@@ -1,6 +1,6 @@
 # Ezekiel 45:3
 
-> And of this measure shalt thou measure the length of five and twenty thousand, and the breadth of ten thousand: and in it shall be the <u>sanctuary</u>[^a] *and* the most <u>holy place</u>[^b]*.*
+> And of this measure shalt thou measure the length of five and twenty thousand, and the breadth of ten thousand: and in it shall be the <u>sanctuary</u>[^a] <i>and</i> the most <i><u>holy place</u></i>[^b]<i>.</i>
 
 [Ezekiel 45:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.3?lang=eng#p3)
 

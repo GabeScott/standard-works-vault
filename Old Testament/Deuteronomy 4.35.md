@@ -1,6 +1,6 @@
 # Deuteronomy 4:35
 
-> Unto thee it was shewed, that thou mightest know that the LORD he *is* <u>God</u>[^a]; *there is* <u>none</u>[^b] else beside him.
+> Unto thee it was shewed, that thou mightest know that the LORD he <i>is</i> <u>God</u>[^a]; <i>there is</i> <u>none</u>[^b] else beside him.
 
 [Deuteronomy 4:35](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.35?lang=eng#p35)
 

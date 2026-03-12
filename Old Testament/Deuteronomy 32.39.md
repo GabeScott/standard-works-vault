@@ -1,10 +1,11 @@
 # Deuteronomy 32:39
 
-> See now that I, *even* I, <u>am</u>[^a] he, and *there is* no god <u>with me</u>[^b]: <u>I</u>[^c] kill, and I make <u>alive</u>[^d]; I wound, and I heal: neither *is there any* that can deliver out of my hand.
+> See now that I, <i>even</i> I, <i><u>am</u></i>[^a] he, and <i>there is</i> no god <u>with me</u>[^b]: <u>I</u>[^c] kill, and I make <u>alive</u>[^d]; I wound, and I heal: neither <i>is there any</i> that can deliver out of my hand.
 
 [Deuteronomy 32:39](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.39?lang=eng#p39)
 
 
-[^b]: OR beside me.  
-[^c]: HEB I bring about death, and I bring about life. [[Psalms 68.20|Ps. 68:20]].  
-[^d]: [[Resurrection|TG Resurrection]].  
+[^a]: [[D&C 38.1|D&C 38:1]].
+[^b]: OR beside me.
+[^c]: HEB I bring about death, and I bring about life. [[Psalms 68.20|Ps. 68:20]].
+[^d]: [[Resurrection|TG Resurrection]].

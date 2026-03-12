@@ -1,6 +1,6 @@
 # Esther 1:1
 
-> Now it came to pass in the days of <u>Ahasuerus</u>[^a], (this *is* Ahasuerus which reigned, from India even unto Ethiopia, *over* an hundred and seven and twenty <u>provinces</u>[^b]:)
+> Now it came to pass in the days of <u>Ahasuerus</u>[^a], (this <i>is</i> Ahasuerus which reigned, from India even unto Ethiopia, <i>over</i> an hundred and seven and twenty <u>provinces</u>[^b]:)
 
 [Esther 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.1?lang=eng#p1)
 

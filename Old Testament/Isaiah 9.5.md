@@ -1,6 +1,6 @@
 # Isaiah 9:5
 
-> <u>For</u>[^a] every battle of the warrior *is* with confused noise, and garments rolled in blood; but *this* shall be with <u>burning</u>[^b] *and* fuel of fire.
+> <u>For</u>[^a] every battle of the warrior <i>is</i> with confused noise, and garments rolled in blood; but <i>this</i> shall be with <u>burning</u>[^b] <i>and</i> fuel of fire.
 
 [Isaiah 9:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.5?lang=eng#p5)
 

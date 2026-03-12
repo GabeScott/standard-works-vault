@@ -1,6 +1,6 @@
 # Judges 13:18
 
-> And the angel of the LORD said unto him, Why askest thou thus after my name, seeing it *is* <u>secret</u>[^a]?
+> And the angel of the LORD said unto him, Why askest thou thus after my name, seeing it <i>is</i> <u>secret</u>[^a]?
 
 [Judges 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/13.18?lang=eng#p18)
 

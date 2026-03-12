@@ -1,6 +1,6 @@
 # Isaiah 53:5
 
-> But he *was* <u>wounded</u>[^a] for our <u>transgressions</u>[^b], *he was* bruised for our iniquities: the chastisement of our peace *was* upon him; and with his <u>stripes</u>[^c] we are <u>healed</u>[^d].
+> But he <i>was</i> <u>wounded</u>[^a] for our <u>transgressions</u>[^b], <i>he was</i> bruised for our iniquities: the chastisement of our peace <i>was</i> upon him; and with his <u>stripes</u>[^c] we are <u>healed</u>[^d].
 
 [Isaiah 53:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.5?lang=eng#p5)
 

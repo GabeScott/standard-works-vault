@@ -1,6 +1,6 @@
 # 1 John 2:25
 
-> And this is the <u>promise</u>[^a] that he hath promised us, *even* <u>eternal life</u>[^b].
+> And this is the <u>promise</u>[^a] that he hath promised us, <i>even</i> <u>eternal life</u>[^b].
 
 [1 John 2:25](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.25?lang=eng#p25)
 

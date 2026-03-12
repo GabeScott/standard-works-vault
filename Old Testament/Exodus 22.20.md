@@ -1,6 +1,6 @@
 # Exodus 22:20
 
-> ¶ He that <u>sacrificeth</u>[^a] unto *any* god, save unto the LORD only, he shall be utterly destroyed.
+> ¶ He that <u>sacrificeth</u>[^a] unto <i>any</i> god, save unto the LORD only, he shall be utterly destroyed.
 
 [Exodus 22:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.20?lang=eng#p20)
 

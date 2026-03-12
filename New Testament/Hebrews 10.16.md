@@ -1,6 +1,6 @@
 # Hebrews 10:16
 
-> This *is* the <u>covenant</u>[^a] that I will make with them after those days, saith the Lord, I will put my laws into their hearts, and in their <u>minds</u>[^b] will I write them;
+> This <i>is</i> the <u>covenant</u>[^a] that I will make with them after those days, saith the Lord, I will put my laws into their hearts, and in their <u>minds</u>[^b] will I write them;
 
 [Hebrews 10:16](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.16?lang=eng#p16)
 

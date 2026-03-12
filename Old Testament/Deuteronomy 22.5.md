@@ -1,6 +1,6 @@
 # Deuteronomy 22:5
 
-> ¶ The woman shall not <u>wear</u>[^a] that which pertaineth unto a man, neither shall a man put on a woman’s garment: for all that do so *are* abomination unto the LORD thy God.
+> ¶ The woman shall not <u>wear</u>[^a] that which pertaineth unto a man, neither shall a man put on a woman’s garment: for all that do so <i>are</i> abomination unto the LORD thy God.
 
 [Deuteronomy 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.5?lang=eng#p5)
 

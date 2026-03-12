@@ -1,6 +1,6 @@
 # Proverbs 16:33
 
-> The <u>lot</u>[^a] is cast into the lap; but the whole disposing thereof *is* of the LORD.
+> The <u>lot</u>[^a] is cast into the lap; but the whole disposing thereof <i>is</i> of the LORD.
 
 [Proverbs 16:33](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.33?lang=eng#p33)
 

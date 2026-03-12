@@ -1,6 +1,6 @@
 # Romans 3:14
 
-> Whose mouth *is* full of cursing and <u>bitterness</u>[^a]:
+> Whose mouth <i>is</i> full of cursing and <u>bitterness</u>[^a]:
 
 [Romans 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.14?lang=eng#p14)
 

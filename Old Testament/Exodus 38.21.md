@@ -1,6 +1,6 @@
 # Exodus 38:21
 
-> ¶ This is the <u>sum</u>[^a] of the <u>tabernacle</u>[^b], *even* of the <u>tabernacle</u>[^c] of testimony, as it was counted, according to the commandment of Moses, *for* the service of the <u>Levites</u>[^d], by the hand of <u>Ithamar</u>[^e], son to Aaron the priest.
+> ¶ This is the <u>sum</u>[^a] of the <u>tabernacle</u>[^b], <i>even</i> of the <u>tabernacle</u>[^c] of testimony, as it was counted, according to the commandment of Moses, <i>for</i> the service of the <u>Levites</u>[^d], by the hand of <u>Ithamar</u>[^e], son to Aaron the priest.
 
 [Exodus 38:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/38.21?lang=eng#p21)
 

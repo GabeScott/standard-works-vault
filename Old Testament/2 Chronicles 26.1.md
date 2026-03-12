@@ -1,6 +1,6 @@
 # 2 Chronicles 26:1
 
-> Then all the people of Judah took <u>Uzziah</u>[^a], who *was* sixteen years old, and made him king in the room of his father Amaziah.
+> Then all the people of Judah took <u>Uzziah</u>[^a], who <i>was</i> sixteen years old, and made him king in the room of his father Amaziah.
 
 [2 Chronicles 26:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.1?lang=eng#p1)
 

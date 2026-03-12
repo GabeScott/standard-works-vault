@@ -1,6 +1,6 @@
 # Joshua 3:10
 
-> And Joshua said, Hereby ye shall know that the <u>living God</u>[^a] *is* among you, and *that* he will without fail drive out from before you the <u>Canaanites</u>[^b], and the Hittites, and the Hivites, and the Perizzites, and the Girgashites, and the Amorites, and the Jebusites.
+> And Joshua said, Hereby ye shall know that the <u>living God</u>[^a] <i>is</i> among you, and <i>that</i> he will without fail drive out from before you the <u>Canaanites</u>[^b], and the Hittites, and the Hivites, and the Perizzites, and the Girgashites, and the Amorites, and the Jebusites.
 
 [Joshua 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3.10?lang=eng#p10)
 

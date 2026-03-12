@@ -1,6 +1,6 @@
 # Genesis 15:2
 
-> And Abram said, Lord GOD, what wilt thou give me, seeing I go childless, and the <u>steward</u>[^a] of my house *is* this Eliezer of Damascus?
+> And Abram said, Lord GOD, what wilt thou give me, seeing I go childless, and the <u>steward</u>[^a] of my house <i>is</i> this Eliezer of Damascus?
 
 [Genesis 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.2?lang=eng#p2)
 

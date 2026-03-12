@@ -1,6 +1,6 @@
 # Daniel 6:3
 
-> Then this Daniel was preferred above the presidents and princes, because an excellent <u>spirit</u>[^a] *was* in him; and the king thought to set him <u>over</u>[^b] the whole realm.
+> Then this Daniel was preferred above the presidents and princes, because an excellent <u>spirit</u>[^a] <i>was</i> in him; and the king thought to set him <u>over</u>[^b] the whole realm.
 
 [Daniel 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.3?lang=eng#p3)
 

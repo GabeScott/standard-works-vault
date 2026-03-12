@@ -1,6 +1,6 @@
 # Joshua 7:23
 
-> And they took them out of the midst of the tent, and brought them unto Joshua, and unto all the children of Israel, and laid them out before the Lord .
+> And they took them out of the midst of the tent, and brought them unto Joshua, and unto all the children of Israel, and laid them out before the LORD.
 
 [Joshua 7:23](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/7.23?lang=eng#p23)
 

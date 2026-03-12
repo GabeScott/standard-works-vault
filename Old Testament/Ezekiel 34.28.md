@@ -1,6 +1,6 @@
 # Ezekiel 34:28
 
-> And they shall no more be a prey to the heathen, neither shall the beast of the land devour them; but they shall dwell <u>safely</u>[^a], and none shall make *them* afraid.
+> And they shall no more be a prey to the heathen, neither shall the beast of the land devour them; but they shall dwell <u>safely</u>[^a], and none shall make <i>them</i> afraid.
 
 [Ezekiel 34:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.28?lang=eng#p28)
 

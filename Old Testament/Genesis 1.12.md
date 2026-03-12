@@ -1,6 +1,6 @@
 # Genesis 1:12
 
-> And the earth <u>brought forth</u>[^a] grass, *and* herb yielding seed after his kind, and the tree yielding fruit, whose seed *was* in itself, after his <u>kind</u>[^b]: and God saw that *it was* good.
+> And the earth <u>brought forth</u>[^a] grass, <i>and</i> herb yielding seed after his kind, and the tree yielding fruit, whose seed <i>was</i> in itself, after his <u>kind</u>[^b]: and God saw that <i>it was</i> good.
 
 [Genesis 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.12?lang=eng#p12)
 

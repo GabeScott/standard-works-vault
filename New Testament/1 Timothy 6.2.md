@@ -1,6 +1,6 @@
 # 1 Timothy 6:2
 
-> And they that have believing masters, let them not despise *them,* because they are <u>brethren</u>[^a]; but rather do *them* <u>service</u>[^b], because they are faithful and beloved, partakers of the benefit. These things teach and exhort.
+> And they that have believing masters, let them not despise <i>them,</i> because they are <u>brethren</u>[^a]; but rather do <i>them</i> <u>service</u>[^b], because they are faithful and beloved, partakers of the benefit. These things teach and exhort.
 
 [1 Timothy 6:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.2?lang=eng#p2)
 

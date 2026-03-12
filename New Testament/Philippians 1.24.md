@@ -1,6 +1,6 @@
 # Philippians 1:24
 
-> Nevertheless to <u>abide</u>[^a] in the flesh *is* more needful for you.
+> Nevertheless to <u>abide</u>[^a] in the flesh <i>is</i> more needful for you.
 
 [Philippians 1:24](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.24?lang=eng#p24)
 

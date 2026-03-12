@@ -1,6 +1,6 @@
 # Genesis 24:63
 
-> And Isaac went out to <u>meditate</u>[^a] in the field at the eventide: and he lifted up his eyes, and saw, and, behold, the camels *were* coming.
+> And Isaac went out to <u>meditate</u>[^a] in the field at the eventide: and he lifted up his eyes, and saw, and, behold, the camels <i>were</i> coming.
 
 [Genesis 24:63](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.63?lang=eng#p63)
 

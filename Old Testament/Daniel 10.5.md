@@ -1,6 +1,6 @@
 # Daniel 10:5
 
-> Then I lifted up mine eyes, and looked, and behold a certain man <u>clothed</u>[^a] in linen, whose loins *were* girded with fine gold of Uphaz:
+> Then I lifted up mine eyes, and looked, and behold a certain man <u>clothed</u>[^a] in linen, whose loins <i>were</i> girded with fine gold of Uphaz:
 
 [Daniel 10:5](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/10.5?lang=eng#p5)
 

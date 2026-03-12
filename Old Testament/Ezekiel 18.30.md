@@ -1,6 +1,6 @@
 # Ezekiel 18:30
 
-> Therefore I will <u>judge</u>[^a] you, O house of Israel, every one according to his ways, saith the Lord GOD. Repent, and turn *yourselves* from all your <u>transgressions</u>[^b]; so iniquity shall not be your ruin.
+> Therefore I will <u>judge</u>[^a] you, O house of Israel, every one according to his ways, saith the Lord GOD. Repent, and turn <i>yourselves</i> from all your <u>transgressions</u>[^b]; so iniquity shall not be your ruin.
 
 [Ezekiel 18:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.30?lang=eng#p30)
 

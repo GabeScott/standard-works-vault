@@ -1,6 +1,6 @@
 # Judges 13:3
 
-> And the <u>angel</u>[^a] of the LORD appeared unto the woman, and said unto her, Behold now, thou *art* <u>barren</u>[^b], and bearest not: but thou shalt conceive, and bear a son.
+> And the <u>angel</u>[^a] of the LORD appeared unto the woman, and said unto her, Behold now, thou <i>art</i> <u>barren</u>[^b], and bearest not: but thou shalt conceive, and bear a son.
 
 [Judges 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/13.3?lang=eng#p3)
 

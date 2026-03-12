@@ -1,6 +1,6 @@
 # 2 Chronicles 36:12
 
-> And he did *that which was* <u>evil</u>[^a] in the sight of the LORD his God, *and* humbled not himself before <u>Jeremiah</u>[^b] the prophet *speaking* from the mouth of the LORD.
+> And he did <i>that which was</i> <u>evil</u>[^a] in the sight of the LORD his God, <i>and</i> humbled not himself before <u>Jeremiah</u>[^b] the prophet <i>speaking</i> from the mouth of the LORD.
 
 [2 Chronicles 36:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.12?lang=eng#p12)
 

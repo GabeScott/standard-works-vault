@@ -1,6 +1,6 @@
 # Mark 13:8
 
-> For <u>nation</u>[^a] shall rise against nation, and kingdom against kingdom: and there shall be earthquakes in divers places, and there shall be famines and troubles: these *are* the beginnings of sorrows.
+> For <u>nation</u>[^a] shall rise against nation, and kingdom against kingdom: and there shall be earthquakes in divers places, and there shall be famines and troubles: these <i>are</i> the beginnings of sorrows.
 
 [Mark 13:8](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.8?lang=eng#p8)
 

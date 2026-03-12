@@ -1,6 +1,6 @@
 # Exodus 27:3
 
-> And thou shalt make his <u>pans</u>[^a] to receive his ashes, and his shovels, and his basins, and his fleshhooks, and his firepans: all the vessels thereof thou shalt make *of* brass.
+> And thou shalt make his <u>pans</u>[^a] to receive his ashes, and his shovels, and his basins, and his fleshhooks, and his firepans: all the vessels thereof thou shalt make <i>of</i> brass.
 
 [Exodus 27:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/27.3?lang=eng#p3)
 

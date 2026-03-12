@@ -1,6 +1,6 @@
 # Habakkuk 3:7
 
-> I saw the tents of <u>Cushan</u>[^a] in affliction: *and* the curtains of the land of <u>Midian</u>[^b] did tremble.
+> I saw the tents of <u>Cushan</u>[^a] in affliction: <i>and</i> the curtains of the land of <u>Midian</u>[^b] did tremble.
 
 [Habakkuk 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.7?lang=eng#p7)
 

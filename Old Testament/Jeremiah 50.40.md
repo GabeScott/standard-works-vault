@@ -1,6 +1,6 @@
 # Jeremiah 50:40
 
-> As God overthrew <u>Sodom</u>[^a] and Gomorrah and the neighbour *cities* thereof, saith the LORD; *so* shall no man abide there, neither shall any son of man dwell therein.
+> As God overthrew <u>Sodom</u>[^a] and Gomorrah and the neighbour <i>cities</i> thereof, saith the LORD; <i>so</i> shall no man abide there, neither shall any son of man dwell therein.
 
 [Jeremiah 50:40](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.40?lang=eng#p40)
 

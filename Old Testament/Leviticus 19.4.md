@@ -1,6 +1,6 @@
 # Leviticus 19:4
 
-> ¶ Turn ye not unto <u>idols</u>[^a], nor make to yourselves molten gods: I *am* the LORD your God.
+> ¶ Turn ye not unto <u>idols</u>[^a], nor make to yourselves molten gods: I <i>am</i> the LORD your God.
 
 [Leviticus 19:4](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.4?lang=eng#p4)
 

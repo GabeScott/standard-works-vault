@@ -1,6 +1,6 @@
 # Matthew 18:17
 
-> And if he shall neglect to hear them, tell *it* unto the <u>church</u>[^a]: but if he <u>neglect</u>[^b] to hear the <u>church</u>[^c], let him be unto thee as an heathen man and a publican.
+> And if he shall neglect to hear them, tell <i>it</i> unto the <u>church</u>[^a]: but if he <u>neglect</u>[^b] to hear the <u>church</u>[^c], let him be unto thee as an heathen man and a publican.
 
 [Matthew 18:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.17?lang=eng#p17)
 

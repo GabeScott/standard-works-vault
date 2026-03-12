@@ -1,6 +1,6 @@
 # Genesis 25:9
 
-> And his sons Isaac and Ishmael <u>buried</u>[^a] him in the cave of <u>Machpelah</u>[^b], in the field of Ephron the son of Zohar the Hittite, which *is* before Mamre;
+> And his sons Isaac and Ishmael <u>buried</u>[^a] him in the cave of <u>Machpelah</u>[^b], in the field of Ephron the son of Zohar the Hittite, which <i>is</i> before Mamre;
 
 [Genesis 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.9?lang=eng#p9)
 

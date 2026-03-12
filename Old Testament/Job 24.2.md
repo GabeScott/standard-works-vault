@@ -1,6 +1,6 @@
 # Job 24:2
 
-> *Some* remove the <u>landmarks</u>[^a]; they violently take away flocks, and feed *thereof.*
+> <i>Some</i> remove the <u>landmarks</u>[^a]; they violently take away flocks, and feed <i>thereof.</i>
 
 [Job 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/job/24.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Ezra 6:19
 
-> And the children of the captivity kept the <u>passover</u>[^a] upon the <u>fourteenth</u>[^b] *day* of the first month.
+> And the children of the captivity kept the <u>passover</u>[^a] upon the <u>fourteenth</u>[^b] <i>day</i> of the first month.
 
 [Ezra 6:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.19?lang=eng#p19)
 

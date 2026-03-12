@@ -1,6 +1,6 @@
 # Luke 24:36
 
-> ¶ And as they thus spake, Jesus himself <u>stood</u>[^a] in the midst of them, and saith unto them, <u>Peace</u>[^b] *be* unto you.
+> ¶ And as they thus spake, Jesus himself <u>stood</u>[^a] in the midst of them, and saith unto them, <u>Peace</u>[^b] <i>be</i> unto you.
 
 [Luke 24:36](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.36?lang=eng#p36)
 

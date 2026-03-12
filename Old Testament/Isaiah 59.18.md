@@ -1,6 +1,6 @@
 # Isaiah 59:18
 
-> According to *their* <u>deeds</u>[^a], accordingly he will <u>repay</u>[^b], fury to his adversaries, <u>recompence</u>[^c] to his enemies; to the islands he will repay recompence.
+> According to <i>their</i> <u>deeds</u>[^a], accordingly he will <u>repay</u>[^b], fury to his adversaries, <u>recompence</u>[^c] to his enemies; to the islands he will repay recompence.
 
 [Isaiah 59:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/59.18?lang=eng#p18)
 

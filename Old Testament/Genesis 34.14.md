@@ -1,6 +1,6 @@
 # Genesis 34:14
 
-> <u>And</u>[^a] they said unto them, We cannot do this thing, to give our sister to one that is <u>uncircumcised</u>[^b]; for that *were* a reproach unto us:
+> <u>And</u>[^a] they said unto them, We cannot do this thing, to give our sister to one that is <u>uncircumcised</u>[^b]; for that <i>were</i> a reproach unto us:
 
 [Genesis 34:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/34.14?lang=eng#p14)
 

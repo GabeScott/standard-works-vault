@@ -1,6 +1,6 @@
 # Proverbs 12:10
 
-> A righteous *man* regardeth the life of his <u>beast</u>[^a]: but the tender mercies of the wicked *are* <u>cruel</u>[^b].
+> A righteous <i>man</i> regardeth the life of his <u>beast</u>[^a]: but the tender mercies of the wicked <i>are</i> <u>cruel</u>[^b].
 
 [Proverbs 12:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.10?lang=eng#p10)
 

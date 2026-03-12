@@ -1,6 +1,6 @@
 # Isaiah 42:14
 
-> I have long time holden my peace; I have been still, *and* <u>refrained</u>[^a] myself: *now* will I cry like a travailing woman; I will <u>destroy</u>[^b] and devour at once.
+> I have long time holden my peace; I have been still, <i>and</i> <u>refrained</u>[^a] myself: <i>now</i> will I cry like a travailing woman; I will <u>destroy</u>[^b] and devour at once.
 
 [Isaiah 42:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.14?lang=eng#p14)
 

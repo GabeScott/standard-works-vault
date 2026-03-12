@@ -1,6 +1,6 @@
 # Luke 13:27
 
-> But he shall say, I tell you, I know you not whence ye are; <u>depart</u>[^a] from me, all *ye* workers of iniquity.
+> But he shall say, I tell you, I know you not whence ye are; <u>depart</u>[^a] from me, all <i>ye</i> workers of iniquity.
 
 [Luke 13:27](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.27?lang=eng#p27)
 

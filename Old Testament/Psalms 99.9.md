@@ -1,6 +1,6 @@
 # Psalms 99:9
 
-> Exalt the LORD our God, and <u>worship</u>[^a] at his <u>holy hill</u>[^b]; for the LORD our God *is* holy.
+> Exalt the LORD our God, and <u>worship</u>[^a] at his <u>holy hill</u>[^b]; for the LORD our God <i>is</i> holy.
 
 [Psalms 99:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/99.9?lang=eng#p9)
 

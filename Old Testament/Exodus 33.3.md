@@ -1,6 +1,6 @@
 # Exodus 33:3
 
-> Unto a land <u>flowing</u>[^a] with milk and honey: for I will not go up in the midst of thee; for thou *art* a stiffnecked people: lest I consume thee in the way.
+> Unto a land <u>flowing</u>[^a] with milk and honey: for I will not go up in the midst of thee; for thou <i>art</i> a stiffnecked people: lest I consume thee in the way.
 
 [Exodus 33:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.3?lang=eng#p3)
 

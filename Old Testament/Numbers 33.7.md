@@ -1,6 +1,6 @@
 # Numbers 33:7
 
-> And they removed from Etham, and <u>turned</u>[^a] again unto Pi-hahiroth, which *is* before Baal-zephon: and they pitched before Migdol.
+> And they removed from Etham, and <u>turned</u>[^a] again unto Pi-hahiroth, which <i>is</i> before Baal-zephon: and they pitched before Migdol.
 
 [Numbers 33:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.7?lang=eng#p7)
 

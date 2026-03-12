@@ -1,6 +1,6 @@
 # Psalms 86:1
 
-> <u>Bow down</u>[^a] thine ear, O LORD, hear me: for I *am* <u>poor</u>[^b] and needy.
+> <u>Bow down</u>[^a] thine ear, O LORD, hear me: for I <i>am</i> <u>poor</u>[^b] and needy.
 
 [Psalms 86:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/86.1?lang=eng#p1)
 

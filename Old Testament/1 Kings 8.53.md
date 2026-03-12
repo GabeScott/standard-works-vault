@@ -1,6 +1,6 @@
 # 1 Kings 8:53
 
-> For thou didst <u>separate</u>[^a] them from among all the people of the earth, *to be* <u>thine</u>[^b] inheritance, as thou spakest by the hand of Moses thy servant, when thou broughtest our fathers out of Egypt, O Lord GOD.
+> For thou didst <u>separate</u>[^a] them from among all the people of the earth, <i>to be</i> <u>thine</u>[^b] inheritance, as thou spakest by the hand of Moses thy servant, when thou broughtest our fathers out of Egypt, O Lord GOD.
 
 [1 Kings 8:53](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.53?lang=eng#p53)
 

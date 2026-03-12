@@ -1,6 +1,6 @@
 # Ezekiel 18:26
 
-> When a righteous *man* <u>turneth</u>[^a] away from his righteousness, and committeth iniquity, and <u>dieth</u>[^b] in them; for his iniquity that he hath done shall he die.
+> When a righteous <i>man</i> <u>turneth</u>[^a] away from his righteousness, and committeth iniquity, and <u>dieth</u>[^b] in them; for his iniquity that he hath done shall he die.
 
 [Ezekiel 18:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.26?lang=eng#p26)
 

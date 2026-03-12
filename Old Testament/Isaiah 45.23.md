@@ -1,6 +1,6 @@
 # Isaiah 45:23
 
-> I have sworn by myself, the word is gone out of my mouth *in* righteousness, and shall not return, That unto me every <u>knee</u>[^a] shall bow, every tongue shall <u>swear</u>[^b].
+> I have sworn by myself, the word is gone out of my mouth <i>in</i> righteousness, and shall not return, That unto me every <u>knee</u>[^a] shall bow, every tongue shall <u>swear</u>[^b].
 
 [Isaiah 45:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.23?lang=eng#p23)
 

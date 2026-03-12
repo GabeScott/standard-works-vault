@@ -1,6 +1,6 @@
 # Isaiah 63:16
 
-> Doubtless thou *art* our <u>father</u>[^a], though Abraham <u>be ignorant</u>[^b] of us, and Israel acknowledge us not: thou, O LORD, *art* our father, our redeemer; thy name *is* from <u>everlasting</u>[^c].
+> Doubtless thou <i>art</i> our <u>father</u>[^a], though Abraham <u>be ignorant</u>[^b] of us, and Israel acknowledge us not: thou, O LORD, <i>art</i> our father, our redeemer; thy name <i>is</i> from <u>everlasting</u>[^c].
 
 [Isaiah 63:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.16?lang=eng#p16)
 

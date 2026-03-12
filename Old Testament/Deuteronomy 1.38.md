@@ -1,6 +1,6 @@
 # Deuteronomy 1:38
 
-> *But* <u>Joshua</u>[^a] the son of Nun, which standeth before thee, he shall go in thither: encourage him: for he shall cause Israel to inherit it.
+> <i>But</i> <u>Joshua</u>[^a] the son of Nun, which standeth before thee, he shall go in thither: encourage him: for he shall cause Israel to inherit it.
 
 [Deuteronomy 1:38](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.38?lang=eng#p38)
 

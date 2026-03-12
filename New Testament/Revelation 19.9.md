@@ -1,6 +1,6 @@
 # Revelation 19:9
 
-> And he saith unto me, Write, Blessed *are* they which are called unto the <u>marriage</u>[^a] <u>supper</u>[^b] of the <u>Lamb</u>[^c]. And he saith unto me, These are the true sayings of God.
+> And he saith unto me, Write, Blessed <i>are</i> they which are called unto the <u>marriage</u>[^a] <u>supper</u>[^b] of the <u>Lamb</u>[^c]. And he saith unto me, These are the true sayings of God.
 
 [Revelation 19:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.9?lang=eng#p9)
 

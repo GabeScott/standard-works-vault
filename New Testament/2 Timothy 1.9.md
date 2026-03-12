@@ -1,6 +1,6 @@
 # 2 Timothy 1:9
 
-> Who hath saved us, and called *us* with an holy <u>calling</u>[^a], not according to our works, but according to his own purpose and <u>grace</u>[^b], which was given us in Christ Jesus before the world began,
+> Who hath saved us, and called <i>us</i> with an holy <u>calling</u>[^a], not according to our works, but according to his own purpose and <u>grace</u>[^b], which was given us in Christ Jesus before the world began,
 
 [2 Timothy 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # Psalms 105:15
 
-> *Saying,* Touch not mine <u>anointed</u>[^a], and do my <u>prophets</u>[^b] no harm.
+> <i>Saying,</i> Touch not mine <u>anointed</u>[^a], and do my <u>prophets</u>[^b] no harm.
 
 [Psalms 105:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.15?lang=eng#p15)
 

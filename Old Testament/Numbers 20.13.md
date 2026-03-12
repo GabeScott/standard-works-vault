@@ -1,6 +1,6 @@
 # Numbers 20:13
 
-> This *is* the water of <u>Meribah</u>[^a]; because the children of Israel <u>strove</u>[^b] with the LORD, and he was sanctified in them.
+> This <i>is</i> the water of <u>Meribah</u>[^a]; because the children of Israel <u>strove</u>[^b] with the LORD, and he was sanctified in them.
 
 [Numbers 20:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/20.13?lang=eng#p13)
 

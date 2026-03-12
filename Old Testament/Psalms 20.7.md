@@ -1,6 +1,6 @@
 # Psalms 20:7
 
-> Some <u>trust</u>[^a] in chariots, and some in horses: but we will remember the name of the LORD our God.
+> Some <i><u>trust</u></i>[^a] in chariots, and some in horses: but we will remember the name of the LORD our God.
 
 [Psalms 20:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/20.7?lang=eng#p7)
 

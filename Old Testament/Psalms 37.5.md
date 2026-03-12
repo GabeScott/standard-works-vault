@@ -1,6 +1,6 @@
 # Psalms 37:5
 
-> <u>Commit</u>[^a] thy <u>way</u>[^b] unto the LORD; trust also in him; and he shall bring *it* to pass.
+> <u>Commit</u>[^a] thy <u>way</u>[^b] unto the LORD; trust also in him; and he shall bring <i>it</i> to pass.
 
 [Psalms 37:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.5?lang=eng#p5)
 

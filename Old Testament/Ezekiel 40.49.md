@@ -1,6 +1,6 @@
 # Ezekiel 40:49
 
-> The length of the <u>porch</u>[^a] *was* twenty cubits, and the breadth eleven cubits; and *he brought me* by the steps whereby they went up to it: and *there were* <u>pillars</u>[^b] by the posts, one on this side, and another on that side.
+> The length of the <u>porch</u>[^a] <i>was</i> twenty cubits, and the breadth eleven cubits; and <i>he brought me</i> by the steps whereby they went up to it: and <i>there were</i> <u>pillars</u>[^b] by the posts, one on this side, and another on that side.
 
 [Ezekiel 40:49](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.49?lang=eng#p49)
 

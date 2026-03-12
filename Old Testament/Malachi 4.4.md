@@ -1,6 +1,6 @@
 # Malachi 4:4
 
-> ¶ Remember ye the law of Moses my servant, which I <u>commanded</u>[^a] unto him in <u>Horeb</u>[^b] for all Israel, *with* the statutes and judgments.
+> ¶ Remember ye the law of Moses my servant, which I <u>commanded</u>[^a] unto him in <u>Horeb</u>[^b] for all Israel, <i>with</i> the statutes and judgments.
 
 [Malachi 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/4.4?lang=eng#p4)
 

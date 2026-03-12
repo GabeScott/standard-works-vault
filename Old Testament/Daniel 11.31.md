@@ -1,6 +1,6 @@
 # Daniel 11:31
 
-> And arms shall stand on his part, and they shall <u>pollute</u>[^a] <u>the sanctuary</u>[^b] of strength, and shall take away the daily *sacrifice,* and they shall place the <u>abomination</u>[^c] that maketh desolate.
+> And arms shall stand on his part, and they shall <u>pollute</u>[^a] <u>the sanctuary</u>[^b] of strength, and shall take away the daily <i>sacrifice,</i> and they shall place the <u>abomination</u>[^c] that maketh desolate.
 
 [Daniel 11:31](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.31?lang=eng#p31)
 

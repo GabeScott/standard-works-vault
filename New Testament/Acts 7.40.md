@@ -1,6 +1,6 @@
 # Acts 7:40
 
-> Saying unto Aaron, Make us <u>gods</u>[^a] to go before us: for *as for* this Moses, which brought us out of the land of Egypt, we wot not what is become of him.
+> Saying unto Aaron, Make us <u>gods</u>[^a] to go before us: for <i>as for</i> this Moses, which brought us out of the land of Egypt, we wot not what is become of him.
 
 [Acts 7:40](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.40?lang=eng#p40)
 

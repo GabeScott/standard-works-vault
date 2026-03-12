@@ -1,6 +1,6 @@
 # 1 Peter 2:8
 
-> And a <u>stone</u>[^a] of <u>stumbling</u>[^b], and a <u>rock</u>[^c] of <u>offence</u>[^d], *even to them* which <u>stumble</u>[^e] at the word, being disobedient: whereunto also they were <u>appointed</u>[^f].
+> And a <u>stone</u>[^a] of <u>stumbling</u>[^b], and a <u>rock</u>[^c] of <u>offence</u>[^d], <i>even to them</i> which <u>stumble</u>[^e] at the word, being disobedient: whereunto also they were <u>appointed</u>[^f].
 
 [1 Peter 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.8?lang=eng#p8)
 

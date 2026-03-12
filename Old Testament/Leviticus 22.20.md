@@ -1,6 +1,6 @@
 # Leviticus 22:20
 
-> *But* whatsoever hath a <u>blemish</u>[^a], *that* shall ye not offer: for it shall not be <u>acceptable</u>[^b] for you.
+> <i>But</i> whatsoever hath a <u>blemish</u>[^a], <i>that</i> shall ye not offer: for it shall not be <u>acceptable</u>[^b] for you.
 
 [Leviticus 22:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/22.20?lang=eng#p20)
 

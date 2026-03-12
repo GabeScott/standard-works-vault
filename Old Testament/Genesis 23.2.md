@@ -1,6 +1,6 @@
 # Genesis 23:2
 
-> And Sarah <u>died</u>[^a] in Kirjath-arba; the same *is* <u>Hebron</u>[^b] in the land of Canaan: and Abraham came to mourn for Sarah, and to weep for her.
+> And Sarah <u>died</u>[^a] in Kirjath-arba; the same <i>is</i> <u>Hebron</u>[^b] in the land of Canaan: and Abraham came to mourn for Sarah, and to weep for her.
 
 [Genesis 23:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.2?lang=eng#p2)
 

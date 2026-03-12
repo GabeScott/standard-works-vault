@@ -1,6 +1,6 @@
 # Exodus 25:4
 
-> And <u>blue</u>[^a], and purple, and scarlet, and fine <u>linen</u>[^b], and goats’ *hair,*
+> And <u>blue</u>[^a], and purple, and scarlet, and fine <u>linen</u>[^b], and goats’ <i>hair,</i>
 
 [Exodus 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.4?lang=eng#p4)
 

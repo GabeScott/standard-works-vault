@@ -1,6 +1,6 @@
 # Micah 1:1
 
-> The word of the LORD that came to <u>Micah</u>[^a] the Morasthite in the days of <u>Jotham</u>[^b], <u>Ahaz</u>[^c], *and* <u>Hezekiah</u>[^d], kings of Judah, which he saw concerning Samaria and Jerusalem.
+> The word of the LORD that came to <u>Micah</u>[^a] the Morasthite in the days of <u>Jotham</u>[^b], <u>Ahaz</u>[^c], <i>and</i> <u>Hezekiah</u>[^d], kings of Judah, which he saw concerning Samaria and Jerusalem.
 
 [Micah 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/1.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # 2 Peter 1:13
 
-> Yea, I think it <u>meet</u>[^a], as long as I am in this <u>tabernacle</u>[^b], to stir you up by putting *you* in remembrance;
+> Yea, I think it <u>meet</u>[^a], as long as I am in this <u>tabernacle</u>[^b], to stir you up by putting <i>you</i> in remembrance;
 
 [2 Peter 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.13?lang=eng#p13)
 

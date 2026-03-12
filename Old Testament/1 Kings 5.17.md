@@ -1,6 +1,6 @@
 # 1 Kings 5:17
 
-> And the king commanded, and they brought great stones, <u>costly</u>[^a] stones, *and* hewed <u>stones</u>[^b], to lay the foundation of the house.
+> And the king commanded, and they brought great stones, <u>costly</u>[^a] stones, <i>and</i> hewed <u>stones</u>[^b], to lay the foundation of the house.
 
 [1 Kings 5:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/5.17?lang=eng#p17)
 

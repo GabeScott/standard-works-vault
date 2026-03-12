@@ -1,6 +1,6 @@
 # Deuteronomy 2:9
 
-> And the LORD said unto me, Distress not the <u>Moabites</u>[^a], neither contend with them in battle: for I will not give thee of their land *for* a possession; because I have given <u>Ar</u>[^b] unto the children of Lot *for* a possession.
+> And the LORD said unto me, Distress not the <u>Moabites</u>[^a], neither contend with them in battle: for I will not give thee of their land <i>for</i> a possession; because I have given <u>Ar</u>[^b] unto the children of Lot <i>for</i> a possession.
 
 [Deuteronomy 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/2.9?lang=eng#p9)
 

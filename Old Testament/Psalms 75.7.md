@@ -1,6 +1,6 @@
 # Psalms 75:7
 
-> But God *is* the <u>judge</u>[^a]: he putteth <u>down</u>[^b] one, and setteth up another.
+> But God <i>is</i> the <u>judge</u>[^a]: he putteth <u>down</u>[^b] one, and setteth up another.
 
 [Psalms 75:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/75.7?lang=eng#p7)
 

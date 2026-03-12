@@ -1,6 +1,6 @@
 # Numbers 11:28
 
-> And <u>Joshua</u>[^a] the son of <u>Nun</u>[^b], the servant of Moses, *one* of his young men, answered and said, My lord Moses, forbid them.
+> And <u>Joshua</u>[^a] the son of <u>Nun</u>[^b], the servant of Moses, <i>one</i> of his young men, answered and said, My lord Moses, forbid them.
 
 [Numbers 11:28](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.28?lang=eng#p28)
 

@@ -1,6 +1,6 @@
 # 1 Samuel 1:15
 
-> And Hannah answered and said, No, my lord, I *am* a woman of a sorrowful spirit: I have drunk neither wine nor strong drink, but have <u>poured</u>[^a] out my soul before the LORD.
+> And Hannah answered and said, No, my lord, I <i>am</i> a woman of a sorrowful spirit: I have drunk neither wine nor strong drink, but have <u>poured</u>[^a] out my soul before the LORD.
 
 [1 Samuel 1:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/1.15?lang=eng#p15)
 

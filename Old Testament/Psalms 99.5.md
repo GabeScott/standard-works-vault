@@ -1,6 +1,6 @@
 # Psalms 99:5
 
-> Exalt ye the LORD our God, and worship at his <u>footstool</u>[^a]; *for* he *is* holy.
+> Exalt ye the LORD our God, and worship at his <u>footstool</u>[^a]; <i>for</i> he <i>is</i> holy.
 
 [Psalms 99:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/99.5?lang=eng#p5)
 

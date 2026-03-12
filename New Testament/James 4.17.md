@@ -1,6 +1,6 @@
 # James 4:17
 
-> Therefore to him that <u>knoweth</u>[^a] to do good, and <u>doeth</u>[^b] *it* not, to him it is <u>sin</u>[^c].
+> Therefore to him that <u>knoweth</u>[^a] to do good, and <u>doeth</u>[^b] <i>it</i> not, to him it is <u>sin</u>[^c].
 
 [James 4:17](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.17?lang=eng#p17)
 

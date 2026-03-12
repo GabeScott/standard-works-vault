@@ -1,6 +1,6 @@
 # Genesis 49:5
 
-> ¶ <u>Simeon</u>[^a] and <u>Levi</u>[^b] *are* brethren; instruments of <u>cruelty</u>[^c] *are in* their habitations.
+> ¶ <u>Simeon</u>[^a] and <u>Levi</u>[^b] <i>are</i> brethren; instruments of <u>cruelty</u>[^c] <i>are in</i> their habitations.
 
 [Genesis 49:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.5?lang=eng#p5)
 

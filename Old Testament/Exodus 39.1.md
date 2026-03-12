@@ -1,6 +1,6 @@
 # Exodus 39:1
 
-> And of the blue, and purple, and scarlet, they <u>made</u>[^a] <u>cloths of service</u>[^b], to do service in the holy *place,* and made the holy <u>garments</u>[^c] for Aaron; as the LORD commanded Moses.
+> And of the blue, and purple, and scarlet, they <u>made</u>[^a] <u>cloths of service</u>[^b], to do service in the holy <i>place,</i> and made the holy <u>garments</u>[^c] for Aaron; as the LORD commanded Moses.
 
 [Exodus 39:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.1?lang=eng#p1)
 

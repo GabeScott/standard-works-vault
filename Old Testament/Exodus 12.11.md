@@ -1,6 +1,6 @@
 # Exodus 12:11
 
-> ¶ And thus shall ye eat it; *with* your loins <u>girded</u>[^a], your shoes on your feet, and your staff in your hand; and ye shall eat it in <u>haste</u>[^b]: it *is* the LORD’s passover.
+> ¶ And thus shall ye eat it; <i>with</i> your loins <u>girded</u>[^a], your shoes on your feet, and your staff in your hand; and ye shall eat it in <u>haste</u>[^b]: it <i>is</i> the LORD’s passover.
 
 [Exodus 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.11?lang=eng#p11)
 

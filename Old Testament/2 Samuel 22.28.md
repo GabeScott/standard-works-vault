@@ -1,6 +1,6 @@
 # 2 Samuel 22:28
 
-> And the <u>afflicted</u>[^a] people thou wilt save: but thine eyes *are* upon the <u>haughty</u>[^b], *that* thou mayest bring *them* down.
+> And the <u>afflicted</u>[^a] people thou wilt save: but thine eyes <i>are</i> upon the <u>haughty</u>[^b], <i>that</i> thou mayest bring <i>them</i> down.
 
 [2 Samuel 22:28](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.28?lang=eng#p28)
 

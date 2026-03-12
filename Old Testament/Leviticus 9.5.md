@@ -1,6 +1,6 @@
 # Leviticus 9:5
 
-> ¶ And they brought *that* which Moses commanded before the tabernacle of the congregation: and all the congregation drew <u>near</u>[^a] and stood before the LORD.
+> ¶ And they brought <i>that</i> which Moses commanded before the tabernacle of the congregation: and all the congregation drew <u>near</u>[^a] and stood before the LORD.
 
 [Leviticus 9:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/9.5?lang=eng#p5)
 

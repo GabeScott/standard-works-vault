@@ -1,6 +1,6 @@
 # Isaiah 27:13
 
-> And it shall come to pass in that day, *that* the <u>great trumpet</u>[^a] shall be blown, and they shall come which were ready to perish in the land of Assyria, and the outcasts in the land of Egypt, and shall worship the LORD in the <u>holy</u>[^b] mount at Jerusalem.
+> And it shall come to pass in that day, <i>that</i> the <u>great trumpet</u>[^a] shall be blown, and they shall come which were ready to perish in the land of Assyria, and the outcasts in the land of Egypt, and shall worship the LORD in the <u>holy</u>[^b] mount at Jerusalem.
 
 [Isaiah 27:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/27.13?lang=eng#p13)
 

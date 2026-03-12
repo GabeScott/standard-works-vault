@@ -1,6 +1,6 @@
 # Ezekiel 2:9
 
-> ¶ And when I looked, behold, an hand *was* sent unto me; and, lo, a <u>roll</u>[^a] of a <u>book</u>[^b] *was* therein;
+> ¶ And when I looked, behold, an hand <i>was</i> sent unto me; and, lo, a <u>roll</u>[^a] of a <u>book</u>[^b] <i>was</i> therein;
 
 [Ezekiel 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/2.9?lang=eng#p9)
 

@@ -1,6 +1,6 @@
 # 1 Corinthians 9:22
 
-> To the weak became I as <u>weak</u>[^a], that I might gain the weak: I am made <u>all</u>[^b] things to all *men,* that I might by all means save some.
+> To the weak became I as <u>weak</u>[^a], that I might gain the weak: I am made <u>all</u>[^b] things to all <i>men,</i> that I might by all means save some.
 
 [1 Corinthians 9:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.22?lang=eng#p22)
 

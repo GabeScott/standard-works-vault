@@ -1,6 +1,6 @@
 # Isaiah 26:16
 
-> LORD, in <u>trouble</u>[^a] have they visited thee, they poured out a prayer *when* thy <u>chastening</u>[^b] *was* upon them.
+> LORD, in <u>trouble</u>[^a] have they visited thee, they poured out a prayer <i>when</i> thy <u>chastening</u>[^b] <i>was</i> upon them.
 
 [Isaiah 26:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.16?lang=eng#p16)
 

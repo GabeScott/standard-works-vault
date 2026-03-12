@@ -1,6 +1,6 @@
 # Numbers 13:27
 
-> And they told him, and said, We came unto the land whither thou sentest us, and surely it <u>floweth</u>[^a] with milk and honey; and this *is* the fruit of it.
+> And they told him, and said, We came unto the land whither thou sentest us, and surely it <u>floweth</u>[^a] with milk and honey; and this <i>is</i> the fruit of it.
 
 [Numbers 13:27](https://www.churchofjesuschrist.org/study/scriptures/ot/num/13.27?lang=eng#p27)
 

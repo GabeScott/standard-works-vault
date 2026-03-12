@@ -1,6 +1,6 @@
 # Psalms 116:12
 
-> What shall I <u>render</u>[^a] unto the LORD *for* all his benefits toward me?
+> What shall I <u>render</u>[^a] unto the LORD <i>for</i> all his benefits toward me?
 
 [Psalms 116:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.12?lang=eng#p12)
 

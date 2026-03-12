@@ -1,6 +1,6 @@
 # Genesis 46:2
 
-> And God spake unto Israel in the <u>visions</u>[^a] of the night, and said, Jacob, Jacob. And he said, Here *am* I.
+> And God spake unto Israel in the <u>visions</u>[^a] of the night, and said, Jacob, Jacob. And he said, Here <i>am</i> I.
 
 [Genesis 46:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.2?lang=eng#p2)
 

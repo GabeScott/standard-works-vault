@@ -1,6 +1,6 @@
 # Judges 5:5
 
-> The mountains <u>melted</u>[^a] from before the LORD, *even* that <u>Sinai</u>[^b] from before the LORD God of Israel.
+> The mountains <u>melted</u>[^a] from before the LORD, <i>even</i> that <u>Sinai</u>[^b] from before the LORD God of Israel.
 
 [Judges 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.5?lang=eng#p5)
 

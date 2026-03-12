@@ -1,6 +1,6 @@
 # Nehemiah 11:16
 
-> And Shabbethai and Jozabad, of the <u>chief</u>[^a] of the <u>Levites</u>[^b], *had* the <u>oversight</u>[^c] of <u>the</u>[^d] outward <u>business</u>[^e] of the house of God.
+> And Shabbethai and Jozabad, of the <u>chief</u>[^a] of the <u>Levites</u>[^b], <i>had</i> the <u>oversight</u>[^c] of <u>the</u>[^d] outward <u>business</u>[^e] of the house of God.
 
 [Nehemiah 11:16](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/11.16?lang=eng#p16)
 

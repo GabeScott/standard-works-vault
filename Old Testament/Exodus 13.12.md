@@ -1,6 +1,6 @@
 # Exodus 13:12
 
-> That thou shalt set apart unto the LORD <u>all</u>[^a] that openeth the matrix, and every <u>firstling</u>[^b] that cometh of a beast which thou hast; the males *shall be* the LORD’s.
+> That thou shalt set apart unto the LORD <u>all</u>[^a] that openeth the matrix, and every <u>firstling</u>[^b] that cometh of a beast which thou hast; the males <i>shall be</i> the LORD’s.
 
 [Exodus 13:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.12?lang=eng#p12)
 

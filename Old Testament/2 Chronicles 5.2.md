@@ -1,6 +1,6 @@
 # 2 Chronicles 5:2
 
-> ¶ Then Solomon assembled the <u>elders</u>[^a] of Israel, and all the heads of the tribes, the chief of the fathers of the children of Israel, unto Jerusalem, to bring up the <u>ark</u>[^b] of the covenant of the LORD out of the city of David, which *is* Zion.
+> ¶ Then Solomon assembled the <u>elders</u>[^a] of Israel, and all the heads of the tribes, the chief of the fathers of the children of Israel, unto Jerusalem, to bring up the <u>ark</u>[^b] of the covenant of the LORD out of the city of David, which <i>is</i> Zion.
 
 [2 Chronicles 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/5.2?lang=eng#p2)
 

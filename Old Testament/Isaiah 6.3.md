@@ -1,6 +1,6 @@
 # Isaiah 6:3
 
-> And one cried unto another, and said, Holy, holy, holy, *is* the <u>Lord of hosts</u>[^a]: the whole earth *is* full of his <u>glory</u>[^b].
+> And one cried unto another, and said, Holy, holy, holy, <i>is</i> the <u>Lord of hosts</u>[^a]: the whole earth <i>is</i> full of his <u>glory</u>[^b].
 
 [Isaiah 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.3?lang=eng#p3)
 

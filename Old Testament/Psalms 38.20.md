@@ -1,6 +1,6 @@
 # Psalms 38:20
 
-> They also that <u>render</u>[^a] evil for good are mine adversaries; because I follow *the thing that* good *is.*
+> They also that <u>render</u>[^a] evil for good are mine adversaries; because I follow <i>the thing that</i> good <i>is.</i>
 
 [Psalms 38:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/38.20?lang=eng#p20)
 

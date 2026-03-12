@@ -1,6 +1,6 @@
 # Esther 2:10
 
-> Esther had not shewed her people nor her kindred: for Mordecai had <u>charged</u>[^a] her that she should not shew *it.*
+> Esther had not shewed her people nor her kindred: for Mordecai had <u>charged</u>[^a] her that she should not shew <i>it.</i>
 
 [Esther 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/2.10?lang=eng#p10)
 

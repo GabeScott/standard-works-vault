@@ -1,6 +1,6 @@
 # Mark 12:30
 
-> And thou shalt <u>love</u>[^a] the Lord thy God with all thy <u>heart</u>[^b], and with all thy soul, and with all thy mind, and with all thy <u>strength</u>[^c]: this *is* the first commandment.
+> And thou shalt <u>love</u>[^a] the Lord thy God with all thy <u>heart</u>[^b], and with all thy soul, and with all thy mind, and with all thy <u>strength</u>[^c]: this <i>is</i> the first commandment.
 
 [Mark 12:30](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.30?lang=eng#p30)
 

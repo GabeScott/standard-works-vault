@@ -1,6 +1,6 @@
 # Daniel 9:13
 
-> As *it is* written in the <u>law</u>[^a] of Moses, all this evil is come upon us: yet made we not our prayer before the LORD our God, that we might turn from our iniquities, and understand thy truth.
+> As <i>it is</i> written in the <u>law</u>[^a] of Moses, all this evil is come upon us: yet made we not our prayer before the LORD our God, that we might turn from our iniquities, and understand thy truth.
 
 [Daniel 9:13](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.13?lang=eng#p13)
 

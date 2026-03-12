@@ -1,6 +1,6 @@
 # Mark 12:44
 
-> For all *they* did cast in of their <u>abundance</u>[^a]; but she of her <u>want</u>[^b] did <u>cast</u>[^c] in <u>all</u>[^d] that she had, *even* all her living.
+> For all <i>they</i> did cast in of their <u>abundance</u>[^a]; but she of her <u>want</u>[^b] did <u>cast</u>[^c] in <u>all</u>[^d] that she had, <i>even</i> all her living.
 
 [Mark 12:44](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.44?lang=eng#p44)
 

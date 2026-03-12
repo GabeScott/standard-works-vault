@@ -1,6 +1,6 @@
 # Joel 3:13
 
-> Put ye in the <u>sickle</u>[^a], for the <u>harvest</u>[^b] is ripe: come, get you down; for the <u>press</u>[^c] is full, the <u>fats</u>[^d] overflow; for their wickedness *is* great.
+> Put ye in the <u>sickle</u>[^a], for the <u>harvest</u>[^b] is ripe: come, get you down; for the <u>press</u>[^c] is full, the <u>fats</u>[^d] overflow; for their wickedness <i>is</i> great.
 
 [Joel 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.13?lang=eng#p13)
 

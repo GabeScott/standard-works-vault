@@ -1,6 +1,6 @@
 # 1 Samuel 2:28
 
-> And did I <u>choose</u>[^a] him out of all the tribes of Israel *to be* my priest, to offer upon mine altar, to burn incense, to wear an <u>ephod</u>[^b] before me? and did I give unto the house of thy father all the <u>offerings</u>[^c] made by fire of the children of Israel?
+> And did I <u>choose</u>[^a] him out of all the tribes of Israel <i>to be</i> my priest, to offer upon mine altar, to burn incense, to wear an <u>ephod</u>[^b] before me? and did I give unto the house of thy father all the <u>offerings</u>[^c] made by fire of the children of Israel?
 
 [1 Samuel 2:28](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.28?lang=eng#p28)
 

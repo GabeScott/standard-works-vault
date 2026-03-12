@@ -1,6 +1,6 @@
 # Jeremiah 48:34
 
-> From the cry of <u>Heshbon</u>[^a] *even* unto Elealeh, *and even* unto Jahaz, have they uttered their voice, from Zoar *even* unto Horonaim, *as* an heifer of three years old: for the waters also of Nimrim shall be desolate.
+> From the cry of <u>Heshbon</u>[^a] <i>even</i> unto Elealeh, <i>and even</i> unto Jahaz, have they uttered their voice, from Zoar <i>even</i> unto Horonaim, <i>as</i> an heifer of three years old: for the waters also of Nimrim shall be desolate.
 
 [Jeremiah 48:34](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/48.34?lang=eng#p34)
 

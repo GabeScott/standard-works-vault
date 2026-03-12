@@ -1,6 +1,6 @@
 # Isaiah 19:25
 
-> Whom the LORD of hosts shall bless, saying, Blessed *be* Egypt my people, and Assyria the work of my hands, and <u>Israel</u>[^a] mine <u>inheritance</u>[^b].
+> Whom the LORD of hosts shall bless, saying, Blessed <i>be</i> Egypt my people, and Assyria the work of my hands, and <u>Israel</u>[^a] mine <u>inheritance</u>[^b].
 
 [Isaiah 19:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.25?lang=eng#p25)
 

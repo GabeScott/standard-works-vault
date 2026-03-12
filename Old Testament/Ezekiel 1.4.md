@@ -1,6 +1,6 @@
 # Ezekiel 1:4
 
-> ¶ And I looked, and, behold, a <u>whirlwind</u>[^a] came out of the north, a great cloud, and a <u>fire infolding itself</u>[^b], and a brightness *was* about it, and out of the midst thereof as the colour of amber, out of the midst of the fire.
+> ¶ And I looked, and, behold, a <u>whirlwind</u>[^a] came out of the north, a great cloud, and a <u>fire infolding itself</u>[^b], and a brightness <i>was</i> about it, and out of the midst thereof as the colour of amber, out of the midst of the fire.
 
 [Ezekiel 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.4?lang=eng#p4)
 

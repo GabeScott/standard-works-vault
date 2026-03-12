@@ -1,6 +1,6 @@
 # Exodus 6:7
 
-> And I will take you to me for a <u>people</u>[^a], and I will be to you a <u>God</u>[^b]: and ye shall <u>know</u>[^c] that I *am* the LORD your God, which bringeth you out from under the burdens of the Egyptians.
+> And I will take you to me for a <u>people</u>[^a], and I will be to you a <u>God</u>[^b]: and ye shall <u>know</u>[^c] that I <i>am</i> the LORD your God, which bringeth you out from under the burdens of the Egyptians.
 
 [Exodus 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.7?lang=eng#p7)
 

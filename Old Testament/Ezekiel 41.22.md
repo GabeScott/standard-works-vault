@@ -1,6 +1,6 @@
 # Ezekiel 41:22
 
-> The <u>altar</u>[^a] of wood *was* three cubits high, and the length thereof two cubits; and the corners thereof, and the length thereof, and the walls thereof, *were* of wood: and he said unto me, This *is* the <u>table</u>[^b] that *is* before the LORD.
+> The <u>altar</u>[^a] of wood <i>was</i> three cubits high, and the length thereof two cubits; and the corners thereof, and the length thereof, and the walls thereof, <i>were</i> of wood: and he said unto me, This <i>is</i> the <u>table</u>[^b] that <i>is</i> before the LORD.
 
 [Ezekiel 41:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/41.22?lang=eng#p22)
 

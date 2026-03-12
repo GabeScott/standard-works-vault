@@ -1,6 +1,6 @@
 # Lamentations 1:2
 
-> <u>She</u>[^a] weepeth sore in the night, and her tears *are* on her cheeks: among all her <u>lovers</u>[^b] she hath none to <u>comfort</u>[^c] *her:* all her friends have dealt treacherously with her, they are become her enemies.
+> <u>She</u>[^a] weepeth sore in the night, and her tears <i>are</i> on her cheeks: among all her <u>lovers</u>[^b] she hath none to <u>comfort</u>[^c] <i>her:</i> all her friends have dealt treacherously with her, they are become her enemies.
 
 [Lamentations 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.2?lang=eng#p2)
 

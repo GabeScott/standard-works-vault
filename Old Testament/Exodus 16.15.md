@@ -1,6 +1,6 @@
 # Exodus 16:15
 
-> And when the children of Israel saw *it,* they said one to another, <u>It</u>[^a] *is* <u>manna</u>[^b]: for they wist not what it *was.* And Moses said unto them, This *is* the <u>bread</u>[^c] which the LORD hath given you to eat.
+> And when the children of Israel saw <i>it,</i> they said one to another, <u>It</u>[^a] <i>is</i> <u>manna</u>[^b]: for they wist not what it <i>was.</i> And Moses said unto them, This <i>is</i> the <u>bread</u>[^c] which the LORD hath given you to eat.
 
 [Exodus 16:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.15?lang=eng#p15)
 

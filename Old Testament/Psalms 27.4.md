@@ -1,6 +1,6 @@
 # Psalms 27:4
 
-> One *thing* have I desired of the LORD, that will I seek after; that I may <u>dwell</u>[^a] in the <u>house</u>[^b] of the LORD all the days of my life, to behold the <u>beauty</u>[^c] of the LORD, and to <u>inquire</u>[^d] in his temple.
+> One <i>thing</i> have I desired of the LORD, that will I seek after; that I may <u>dwell</u>[^a] in the <u>house</u>[^b] of the LORD all the days of my life, to behold the <u>beauty</u>[^c] of the LORD, and to <u>inquire</u>[^d] in his temple.
 
 [Psalms 27:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/27.4?lang=eng#p4)
 

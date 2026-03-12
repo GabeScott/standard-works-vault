@@ -1,6 +1,6 @@
 # 1 John 2:2
 
-> And he is the <u>propitiation</u>[^a] for our sins: and not for ours only, but also for *the sins of* the whole <u>world</u>[^b].
+> And he is the <u>propitiation</u>[^a] for our sins: and not for ours only, but also for <i>the sins of</i> the whole <u>world</u>[^b].
 
 [1 John 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.2?lang=eng#p2)
 

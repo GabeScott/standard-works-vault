@@ -1,6 +1,6 @@
 # Deuteronomy 1:17
 
-> Ye shall not <u>respect persons</u>[^a] in <u>judgment</u>[^b]; *but* ye shall hear the small as well as the great; ye shall not be <u>afraid</u>[^c] of the face of man; for the judgment *is* God’s: and the cause that is too hard for you, bring *it* unto me, and I will hear it.
+> Ye shall not <u>respect persons</u>[^a] in <u>judgment</u>[^b]; <i>but</i> ye shall hear the small as well as the great; ye shall not be <u>afraid</u>[^c] of the face of man; for the judgment <i>is</i> God’s: and the cause that is too hard for you, bring <i>it</i> unto me, and I will hear it.
 
 [Deuteronomy 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.17?lang=eng#p17)
 

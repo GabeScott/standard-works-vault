@@ -1,6 +1,6 @@
 # Exodus 26:33
 
-> ¶ And thou shalt hang up the veil under the taches, that thou mayest bring in thither within the veil the <u>ark</u>[^a] of the testimony: and the <u>veil</u>[^b] shall divide unto you between the holy *place* and the most <u>holy</u>[^c].
+> ¶ And thou shalt hang up the veil under the taches, that thou mayest bring in thither within the veil the <u>ark</u>[^a] of the testimony: and the <u>veil</u>[^b] shall divide unto you between the holy <i>place</i> and the most <u>holy</u>[^c].
 
 [Exodus 26:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/26.33?lang=eng#p33)
 

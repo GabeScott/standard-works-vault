@@ -1,6 +1,6 @@
 # Genesis 17:17
 
-> <u>Then</u>[^a] Abraham fell upon his face, and <u>laughed</u>[^b], and said in his heart, Shall *a child* be born unto him that is an <u>hundred</u>[^c] years old? and shall Sarah, that is ninety years old, bear?
+> <u>Then</u>[^a] Abraham fell upon his face, and <u>laughed</u>[^b], and said in his heart, Shall <i>a child</i> be born unto him that is an <u>hundred</u>[^c] years old? and shall Sarah, that is ninety years old, bear?
 
 [Genesis 17:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.17?lang=eng#p17)
 

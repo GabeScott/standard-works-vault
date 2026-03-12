@@ -1,6 +1,6 @@
 # Jeremiah 2:22
 
-> For though thou <u>wash</u>[^a] thee with <u>nitre</u>[^b], and take thee much soap, *yet* thine iniquity is marked before me, saith the Lord GOD.
+> For though thou <u>wash</u>[^a] thee with <u>nitre</u>[^b], and take thee much soap, <i>yet</i> thine iniquity is marked before me, saith the Lord GOD.
 
 [Jeremiah 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.22?lang=eng#p22)
 

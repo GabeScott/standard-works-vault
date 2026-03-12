@@ -1,6 +1,6 @@
 # 1 Samuel 13:19
 
-> ¶ Now there was no <u>smith</u>[^a] found throughout all the land of Israel: for the Philistines said, Lest the Hebrews make *them* swords or spears:
+> ¶ Now there was no <u>smith</u>[^a] found throughout all the land of Israel: for the Philistines said, Lest the Hebrews make <i>them</i> swords or spears:
 
 [1 Samuel 13:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/13.19?lang=eng#p19)
 

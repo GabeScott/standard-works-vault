@@ -1,6 +1,6 @@
 # 2 Chronicles 25:4
 
-> But he slew not their children, but *did* as *it is* written in the law in the book of Moses, where the LORD commanded, saying, The fathers shall not die for the children, neither shall the children die for the fathers, but every man shall die for his own <u>sin</u>[^a].
+> But he slew not their children, but <i>did</i> as <i>it is</i> written in the law in the book of Moses, where the LORD commanded, saying, The fathers shall not die for the children, neither shall the children die for the fathers, but every man shall die for his own <u>sin</u>[^a].
 
 [2 Chronicles 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/25.4?lang=eng#p4)
 

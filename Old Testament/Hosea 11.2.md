@@ -1,6 +1,6 @@
 # Hosea 11:2
 
-> *As* they called them, so they went from them: they <u>sacrificed</u>[^a] unto <u>Baalim</u>[^b], and burned incense to graven images.
+> <i>As</i> they called them, so they went from them: they <u>sacrificed</u>[^a] unto <u>Baalim</u>[^b], and burned incense to graven images.
 
 [Hosea 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/11.2?lang=eng#p2)
 

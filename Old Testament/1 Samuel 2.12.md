@@ -1,6 +1,6 @@
 # 1 Samuel 2:12
 
-> ¶ Now the <u>sons</u>[^a] of Eli *were* <u>sons</u>[^b] of <u>Belial</u>[^c]; they knew not the LORD.
+> ¶ Now the <u>sons</u>[^a] of Eli <i>were</i> <u>sons</u>[^b] of <u>Belial</u>[^c]; they knew not the LORD.
 
 [1 Samuel 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.12?lang=eng#p12)
 

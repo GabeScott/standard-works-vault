@@ -1,6 +1,6 @@
 # Deuteronomy 6:16
 
-> ¶ Ye shall not <u>tempt</u>[^a] the LORD your God, as ye tempted *him* in Massah.
+> ¶ Ye shall not <u>tempt</u>[^a] the LORD your God, as ye tempted <i>him</i> in Massah.
 
 [Deuteronomy 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Hosea 5:6
 
-> They shall go with their flocks and with their herds to seek the LORD; but they shall not find *him;* he hath <u>withdrawn</u>[^a] himself from them.
+> They shall go with their flocks and with their herds to seek the LORD; but they shall not find <i>him;</i> he hath <u>withdrawn</u>[^a] himself from them.
 
 [Hosea 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/5.6?lang=eng#p6)
 

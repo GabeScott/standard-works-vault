@@ -1,6 +1,6 @@
 # Hosea 12:5
 
-> Even the LORD God of hosts; the LORD *is* his <u>memorial</u>[^a].
+> Even the LORD God of hosts; the LORD <i>is</i> his <u>memorial</u>[^a].
 
 [Hosea 12:5](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 32:25
 
-> The <u>sword</u>[^a] without, and terror within, shall destroy both the young man and the virgin, the suckling *also* with the man of gray hairs.
+> The <u>sword</u>[^a] without, and terror within, shall destroy both the young man and the virgin, the suckling <i>also</i> with the man of gray hairs.
 
 [Deuteronomy 32:25](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.25?lang=eng#p25)
 

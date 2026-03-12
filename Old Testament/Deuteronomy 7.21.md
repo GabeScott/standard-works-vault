@@ -1,6 +1,6 @@
 # Deuteronomy 7:21
 
-> Thou shalt not be affrighted at them: for the LORD thy God *is* among you, a mighty God and <u>terrible</u>[^a].
+> Thou shalt not be affrighted at them: for the LORD thy God <i>is</i> among you, a mighty God and <u>terrible</u>[^a].
 
 [Deuteronomy 7:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.21?lang=eng#p21)
 

@@ -1,6 +1,6 @@
 # 1 Chronicles 27:6
 
-> This *is that* <u>Benaiah</u>[^a], *who was* mighty *among* the thirty, and above the thirty: and in his course *was* Ammizabad his son.
+> This <i>is that</i> <u>Benaiah</u>[^a], <i>who was</i> mighty <i>among</i> the thirty, and above the thirty: and in his course <i>was</i> Ammizabad his son.
 
 [1 Chronicles 27:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/27.6?lang=eng#p6)
 

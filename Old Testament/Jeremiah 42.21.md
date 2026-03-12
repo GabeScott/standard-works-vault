@@ -1,6 +1,6 @@
 # Jeremiah 42:21
 
-> And *now* I have this day declared *it* to you; but ye have not <u>obeyed</u>[^a] the voice of the LORD your God, nor any *thing* for the which he hath sent me unto you.
+> And <i>now</i> I have this day declared <i>it</i> to you; but ye have not <u>obeyed</u>[^a] the voice of the LORD your God, nor any <i>thing</i> for the which he hath sent me unto you.
 
 [Jeremiah 42:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/42.21?lang=eng#p21)
 

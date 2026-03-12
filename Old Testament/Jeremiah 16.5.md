@@ -1,6 +1,6 @@
 # Jeremiah 16:5
 
-> For thus saith the LORD, Enter not into the house of <u>mourning</u>[^a], neither go to lament nor bemoan them: for I have taken away my peace from this people, saith the LORD, *even* lovingkindness and mercies.
+> For thus saith the LORD, Enter not into the house of <u>mourning</u>[^a], neither go to lament nor bemoan them: for I have taken away my peace from this people, saith the LORD, <i>even</i> lovingkindness and mercies.
 
 [Jeremiah 16:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.5?lang=eng#p5)
 

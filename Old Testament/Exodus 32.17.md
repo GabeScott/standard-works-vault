@@ -1,6 +1,6 @@
 # Exodus 32:17
 
-> And when <u>Joshua</u>[^a] heard the noise of the people as they <u>shouted</u>[^b], he said unto Moses, *There is* a noise of war in the camp.
+> And when <u>Joshua</u>[^a] heard the noise of the people as they <u>shouted</u>[^b], he said unto Moses, <i>There is</i> a noise of war in the camp.
 
 [Exodus 32:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.17?lang=eng#p17)
 

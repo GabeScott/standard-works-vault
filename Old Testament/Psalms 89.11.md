@@ -1,6 +1,6 @@
 # Psalms 89:11
 
-> The heavens *are* thine, the earth also *is* thine: *as for* the <u>world</u>[^a] and the fulness thereof, thou hast founded them.
+> The heavens <i>are</i> thine, the earth also <i>is</i> thine: <i>as for</i> the <u>world</u>[^a] and the fulness thereof, thou hast founded them.
 
 [Psalms 89:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Ecclesiastes 3:22
 
-> Wherefore I perceive that *there is* nothing better, than that a man should rejoice in his own <u>works</u>[^a]; for that *is* his portion: for who shall bring him to see what shall be after him?
+> Wherefore I perceive that <i>there is</i> nothing better, than that a man should rejoice in his own <u>works</u>[^a]; for that <i>is</i> his portion: for who shall bring him to see what shall be after him?
 
 [Ecclesiastes 3:22](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.22?lang=eng#p22)
 

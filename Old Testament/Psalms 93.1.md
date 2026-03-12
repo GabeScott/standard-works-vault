@@ -1,6 +1,6 @@
 # Psalms 93:1
 
-> The LORD reigneth, he is <u>clothed</u>[^a] with majesty; the LORD is clothed with strength, *wherewith* he hath girded himself: the world also is stablished, that it cannot be moved.
+> The LORD reigneth, he is <u>clothed</u>[^a] with majesty; the LORD is clothed with strength, <i>wherewith</i> he hath girded himself: the world also is stablished, that it cannot be moved.
 
 [Psalms 93:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/93.1?lang=eng#p1)
 

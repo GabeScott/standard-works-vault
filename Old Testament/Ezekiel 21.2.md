@@ -1,6 +1,6 @@
 # Ezekiel 21:2
 
-> Son of man, set thy <u>face</u>[^a] toward Jerusalem, and <u>drop thy word toward</u>[^b] the holy places, and prophesy against the <u>land of Israel</u>[^c],
+> Son of man, set thy <u>face</u>[^a] toward Jerusalem, and <i><u>drop thy word toward</u></i>[^b] the holy places, and prophesy against the <u>land of Israel</u>[^c],
 
 [Ezekiel 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.2?lang=eng#p2)
 

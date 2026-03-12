@@ -1,6 +1,6 @@
 # Isaiah 50:10
 
-> ¶ Who *is* among you that feareth the LORD, that obeyeth the <u>voice</u>[^a] of his <u>servant</u>[^b], that walketh *in* <u>darkness</u>[^c], and hath no <u>light</u>[^d]? let him <u>trust</u>[^e] in the name of the LORD, and <u>stay upon</u>[^f] his God.
+> ¶ Who <i>is</i> among you that feareth the LORD, that obeyeth the <u>voice</u>[^a] of his <u>servant</u>[^b], that walketh <i>in</i> <u>darkness</u>[^c], and hath no <u>light</u>[^d]? let him <u>trust</u>[^e] in the name of the LORD, and <u>stay upon</u>[^f] his God.
 
 [Isaiah 50:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.10?lang=eng#p10)
 

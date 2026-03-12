@@ -1,6 +1,6 @@
 # Psalms 89:8
 
-> O LORD God of hosts, who *is* a strong LORD like unto thee? <u>or to thy faithfulness</u>[^a] round about thee?
+> O LORD God of hosts, who <i>is</i> a strong LORD like unto thee? <u>or to thy faithfulness</u>[^a] round about thee?
 
 [Psalms 89:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.8?lang=eng#p8)
 

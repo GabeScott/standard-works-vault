@@ -1,6 +1,6 @@
 # Ezekiel 48:29
 
-> This *is* the land which ye shall divide by lot unto the tribes of Israel for <u>inheritance</u>[^a], and these *are* their portions, saith the Lord GOD.
+> This <i>is</i> the land which ye shall divide by lot unto the tribes of Israel for <u>inheritance</u>[^a], and these <i>are</i> their portions, saith the Lord GOD.
 
 [Ezekiel 48:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.29?lang=eng#p29)
 

@@ -1,6 +1,6 @@
 # Mark 12:19
 
-> Master, Moses wrote unto us, If a man’s brother die, and leave *his* wife *behind him,* and leave no children, that his <u>brother</u>[^a] should take his wife, and raise up seed unto his brother.
+> Master, Moses wrote unto us, If a man’s brother die, and leave <i>his</i> wife <i>behind him,</i> and leave no children, that his <u>brother</u>[^a] should take his wife, and raise up seed unto his brother.
 
 [Mark 12:19](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.19?lang=eng#p19)
 

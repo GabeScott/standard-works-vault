@@ -1,6 +1,6 @@
 # John 7:36
 
-> What manner of saying is this that he said, Ye shall seek me, and shall not find me: and where I am, thither ye cannot come?
+> What <i>manner of</i> saying is this that he said, Ye shall seek me, and shall not find <i>me:</i> and where I am, <i>thither</i> ye cannot come?
 
 [John 7:36](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.36?lang=eng#p36)
 

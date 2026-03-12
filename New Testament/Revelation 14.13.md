@@ -1,6 +1,6 @@
 # Revelation 14:13
 
-> And I heard a voice from heaven saying unto me, Write, <u>Blessed</u>[^a] *are* the <u>dead</u>[^b] which <u>die</u>[^c] in the Lord from henceforth: Yea, saith the Spirit, that they may <u>rest</u>[^d] from their labours; and their works do follow them.
+> And I heard a voice from heaven saying unto me, Write, <u>Blessed</u>[^a] <i>are</i> the <u>dead</u>[^b] which <u>die</u>[^c] in the Lord from henceforth: Yea, saith the Spirit, that they may <u>rest</u>[^d] from their labours; and their works do follow them.
 
 [Revelation 14:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.13?lang=eng#p13)
 

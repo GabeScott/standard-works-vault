@@ -1,6 +1,6 @@
 # 1 Corinthians 15:24
 
-> Then *cometh* the end, when he shall have delivered up the kingdom to God, even the Father; when he shall have <u>put down</u>[^a] all <u>rule</u>[^b] and all <u>authority</u>[^c] and <u>power</u>[^d].
+> Then <i>cometh</i> the end, when he shall have delivered up the kingdom to God, even the Father; when he shall have <u>put down</u>[^a] all <u>rule</u>[^b] and all <u>authority</u>[^c] and <u>power</u>[^d].
 
 [1 Corinthians 15:24](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.24?lang=eng#p24)
 

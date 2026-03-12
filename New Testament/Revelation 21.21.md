@@ -1,6 +1,6 @@
 # Revelation 21:21
 
-> And the twelve gates *were* twelve pearls; every several gate was of one pearl: and the street of the city *was* pure <u>gold</u>[^a], as it were transparent <u>glass</u>[^b].
+> And the twelve gates <i>were</i> twelve pearls; every several gate was of one pearl: and the street of the city <i>was</i> pure <u>gold</u>[^a], as it were transparent <u>glass</u>[^b].
 
 [Revelation 21:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.21?lang=eng#p21)
 

@@ -1,6 +1,6 @@
 # Proverbs 5:21
 
-> For the <u>ways</u>[^a] of man *are* before the <u>eyes</u>[^b] of the LORD, and he <u>pondereth</u>[^c] all his goings.
+> For the <u>ways</u>[^a] of man <i>are</i> before the <u>eyes</u>[^b] of the LORD, and he <u>pondereth</u>[^c] all his goings.
 
 [Proverbs 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/5.21?lang=eng#p21)
 

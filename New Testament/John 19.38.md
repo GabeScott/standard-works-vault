@@ -1,6 +1,6 @@
 # John 19:38
 
-> ¶ And after this <u>Joseph of Arimathæa</u>[^a], being a disciple of Jesus, but secretly for <u>fear</u>[^b] of the Jews, besought Pilate that he might take away the body of Jesus: and Pilate gave *him* leave. He came therefore, and took the body of Jesus.
+> ¶ And after this <u>Joseph of Arimathæa</u>[^a], being a disciple of Jesus, but secretly for <u>fear</u>[^b] of the Jews, besought Pilate that he might take away the body of Jesus: and Pilate gave <i>him</i> leave. He came therefore, and took the body of Jesus.
 
 [John 19:38](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.38?lang=eng#p38)
 

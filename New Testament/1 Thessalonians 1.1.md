@@ -1,6 +1,6 @@
 # 1 Thessalonians 1:1
 
-> Paul, and <u>Silvanus</u>[^a], and <u>Timotheus</u>[^b], <u>unto</u>[^c] the <u>church</u>[^d] of the <u>Thessalonians</u>[^e] *which is* in God the Father and *in* the Lord Jesus Christ: Grace *be* unto you, and peace, from God our Father, and the Lord Jesus Christ.
+> Paul, and <u>Silvanus</u>[^a], and <u>Timotheus</u>[^b], <u>unto</u>[^c] the <u>church</u>[^d] of the <u>Thessalonians</u>[^e] <i>which is</i> in God the Father and <i>in</i> the Lord Jesus Christ: Grace <i>be</i> unto you, and peace, from God our Father, and the Lord Jesus Christ.
 
 [1 Thessalonians 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/1.1?lang=eng#p1)
 

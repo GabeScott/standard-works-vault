@@ -1,6 +1,6 @@
 # Matthew 11:10
 
-> For this is *he,* of whom it is written, Behold, I send my <u>messenger</u>[^a] before thy face, which shall <u>prepare</u>[^b] thy way before thee.
+> For this is <i>he,</i> of whom it is written, Behold, I send my <u>messenger</u>[^a] before thy face, which shall <u>prepare</u>[^b] thy way before thee.
 
 [Matthew 11:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.10?lang=eng#p10)
 

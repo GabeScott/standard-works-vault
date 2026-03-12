@@ -1,6 +1,6 @@
 # Exodus 35:12
 
-> The <u>ark</u>[^a], and the staves thereof, *with* the mercy seat, and the veil of the covering,
+> The <u>ark</u>[^a], and the staves thereof, <i>with</i> the mercy seat, and the veil of the covering,
 
 [Exodus 35:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.12?lang=eng#p12)
 

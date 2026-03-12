@@ -1,6 +1,6 @@
 # Joshua 15:13
 
-> ¶ And unto <u>Caleb</u>[^a] the son of Jephunneh he gave a part among the children of Judah, according to the commandment of the LORD to Joshua, *even* the city of Arba the father of Anak, which *city is* Hebron.
+> ¶ And unto <u>Caleb</u>[^a] the son of Jephunneh he gave a part among the children of Judah, according to the commandment of the LORD to Joshua, <i>even</i> the city of Arba the father of Anak, which <i>city is</i> Hebron.
 
 [Joshua 15:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/15.13?lang=eng#p13)
 

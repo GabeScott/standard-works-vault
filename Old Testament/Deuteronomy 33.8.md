@@ -1,6 +1,6 @@
 # Deuteronomy 33:8
 
-> ¶ And of <u>Levi</u>[^a] he said, *Let* thy Thummim and thy <u>Urim</u>[^b] *be* with thy holy one, whom thou didst prove at Massah, *and with* whom thou didst <u>strive</u>[^c] at the waters of <u>Meribah</u>[^d];
+> ¶ And of <u>Levi</u>[^a] he said, <i>Let</i> thy Thummim and thy <u>Urim</u>[^b] <i>be</i> with thy holy one, whom thou didst prove at Massah, <i>and with</i> whom thou didst <u>strive</u>[^c] at the waters of <u>Meribah</u>[^d];
 
 [Deuteronomy 33:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # Isaiah 28:13
 
-> But the word of the LORD was unto them precept upon precept, <u>precept</u>[^a] upon precept; line upon line, line upon line; here a little, *and* there a little; that they might go, and <u>fall</u>[^b] backward, and be broken, and snared, and taken.
+> But the word of the LORD was unto them precept upon precept, <u>precept</u>[^a] upon precept; line upon line, line upon line; here a little, <i>and</i> there a little; that they might go, and <u>fall</u>[^b] backward, and be broken, and snared, and taken.
 
 [Isaiah 28:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.13?lang=eng#p13)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 28:11
 
-> Now hear me therefore, and deliver the <u>captives</u>[^a] again, which ye have taken captive of your brethren: for the fierce wrath of the LORD *is* upon you.
+> Now hear me therefore, and deliver the <u>captives</u>[^a] again, which ye have taken captive of your brethren: for the fierce wrath of the LORD <i>is</i> upon you.
 
 [2 Chronicles 28:11](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/28.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Deuteronomy 31:3
 
-> The LORD thy God, he will go over before thee, *and* he will destroy these nations from before thee, and thou shalt <u>possess</u>[^a] them: *and* Joshua, he shall go over before thee, as the LORD hath said.
+> The LORD thy God, he will go over before thee, <i>and</i> he will destroy these nations from before thee, and thou shalt <u>possess</u>[^a] them: <i>and</i> Joshua, he shall go over before thee, as the LORD hath said.
 
 [Deuteronomy 31:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.3?lang=eng#p3)
 

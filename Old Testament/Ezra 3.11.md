@@ -1,6 +1,6 @@
 # Ezra 3:11
 
-> And they sang together by course in praising and giving <u>thanks</u>[^a] unto the LORD; because *he is* <u>good</u>[^b], for his mercy *endureth* for ever toward Israel. And all the people shouted with a great shout, when they <u>praised</u>[^c] the LORD, because the foundation of the house of the LORD was laid.
+> And they sang together by course in praising and giving <u>thanks</u>[^a] unto the LORD; because <i>he is</i> <u>good</u>[^b], for his mercy <i>endureth</i> for ever toward Israel. And all the people shouted with a great shout, when they <u>praised</u>[^c] the LORD, because the foundation of the house of the LORD was laid.
 
 [Ezra 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/3.11?lang=eng#p11)
 

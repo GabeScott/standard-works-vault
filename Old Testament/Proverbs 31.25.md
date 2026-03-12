@@ -1,6 +1,6 @@
 # Proverbs 31:25
 
-> Strength and honour *are* her <u>clothing</u>[^a]; and she shall rejoice in time to come.
+> Strength and honour <i>are</i> her <u>clothing</u>[^a]; and she shall rejoice in time to come.
 
 [Proverbs 31:25](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.25?lang=eng#p25)
 

@@ -1,6 +1,6 @@
 # Leviticus 13:13
 
-> Then the priest shall <u>consider</u>[^a]: and, behold, *if* the leprosy have covered all his flesh, he shall pronounce *him* clean *that hath* the plague: it is all turned white: he *is* clean.
+> Then the priest shall <u>consider</u>[^a]: and, behold, <i>if</i> the leprosy have covered all his flesh, he shall pronounce <i>him</i> clean <i>that hath</i> the plague: it is all turned white: he <i>is</i> clean.
 
 [Leviticus 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.13?lang=eng#p13)
 

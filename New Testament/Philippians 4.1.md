@@ -1,6 +1,6 @@
 # Philippians 4:1
 
-> Therefore, my brethren dearly beloved and longed for, my joy and crown, so <u>stand fast</u>[^a] in the Lord, *my* dearly beloved.
+> Therefore, my brethren dearly beloved and longed for, my joy and crown, so <u>stand fast</u>[^a] in the Lord, <i>my</i> dearly beloved.
 
 [Philippians 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.1?lang=eng#p1)
 

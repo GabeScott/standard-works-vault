@@ -1,6 +1,6 @@
 # Psalms 14:3
 
-> They are all gone aside, they are *all* together become <u>filthy</u>[^a]: *there is* <u>none</u>[^b] that doeth good, no, not one.
+> They are all gone aside, they are <i>all</i> together become <u>filthy</u>[^a]: <i>there is</i> <u>none</u>[^b] that doeth good, no, not one.
 
 [Psalms 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/14.3?lang=eng#p3)
 

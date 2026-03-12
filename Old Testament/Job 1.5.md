@@ -1,6 +1,6 @@
 # Job 1:5
 
-> And it was so, when the days of *their* feasting were gone about, that Job sent and sanctified them, and rose up early in the morning, and offered burnt <u>offerings</u>[^a] *according* to the number of them all: for Job said, It may be that my <u>sons</u>[^b] have sinned, and <u>cursed</u>[^c] God in their hearts. Thus did Job continually.
+> And it was so, when the days of <i>their</i> feasting were gone about, that Job sent and sanctified them, and rose up early in the morning, and offered burnt <u>offerings</u>[^a] <i>according</i> to the number of them all: for Job said, It may be that my <u>sons</u>[^b] have sinned, and <u>cursed</u>[^c] God in their hearts. Thus did Job continually.
 
 [Job 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.5?lang=eng#p5)
 

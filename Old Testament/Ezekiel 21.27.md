@@ -1,6 +1,6 @@
 # Ezekiel 21:27
 
-> I will overturn, overturn, overturn, it: and it shall be no *more,* until he <u>come</u>[^a] <u>whose</u>[^b] <u>right</u>[^c] it is; and I will give it *him.*
+> I will overturn, overturn, overturn, it: and it shall be no <i>more,</i> until he <u>come</u>[^a] <u>whose</u>[^b] <u>right</u>[^c] it is; and I will give it <i>him.</i>
 
 [Ezekiel 21:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.27?lang=eng#p27)
 

@@ -1,6 +1,6 @@
 # 2 Kings 2:2
 
-> And <u>Elijah</u>[^a] said unto Elisha, Tarry here, I pray thee; for the LORD hath sent me to <u>Beth-el</u>[^b]. And Elisha said *unto him, As* the LORD liveth, and *as* thy soul liveth, I will not <u>leave</u>[^c] thee. So they went down to Beth-el.
+> And <u>Elijah</u>[^a] said unto Elisha, Tarry here, I pray thee; for the LORD hath sent me to <u>Beth-el</u>[^b]. And Elisha said <i>unto him, As</i> the LORD liveth, and <i>as</i> thy soul liveth, I will not <u>leave</u>[^c] thee. So they went down to Beth-el.
 
 [2 Kings 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/2.2?lang=eng#p2)
 

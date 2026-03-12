@@ -1,6 +1,6 @@
 # Proverbs 18:4
 
-> The words of a man’s mouth *are as* deep <u>waters</u>[^a], *and* the wellspring of wisdom *as* a flowing brook.
+> The words of a man’s mouth <i>are as</i> deep <u>waters</u>[^a], <i>and</i> the wellspring of wisdom <i>as</i> a flowing brook.
 
 [Proverbs 18:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.4?lang=eng#p4)
 

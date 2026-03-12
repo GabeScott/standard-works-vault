@@ -1,6 +1,6 @@
 # Hebrews 2:4
 
-> God also bearing *them* witness, both with <u>signs</u>[^a] and <u>wonders</u>[^b], and with divers miracles, and gifts of the Holy Ghost, according to his own <u>will</u>[^c]?
+> God also bearing <i>them</i> witness, both with <u>signs</u>[^a] and <u>wonders</u>[^b], and with divers miracles, and gifts of the Holy Ghost, according to his own <u>will</u>[^c]?
 
 [Hebrews 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.4?lang=eng#p4)
 

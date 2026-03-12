@@ -1,6 +1,6 @@
 # Philippians 4:18
 
-> But I have all, and <u>abound</u>[^a]: I am full, having received of <u>Epaphroditus</u>[^b] the things *which were sent* from you, an odour of a sweet smell, a sacrifice acceptable, wellpleasing to God.
+> But I have all, and <u>abound</u>[^a]: I am full, having received of <u>Epaphroditus</u>[^b] the things <i>which were sent</i> from you, an odour of a sweet smell, a sacrifice acceptable, wellpleasing to God.
 
 [Philippians 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.18?lang=eng#p18)
 

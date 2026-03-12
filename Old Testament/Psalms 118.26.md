@@ -1,6 +1,6 @@
 # Psalms 118:26
 
-> <u>Blessed</u>[^a] *be* he that cometh in the name of the LORD: we have blessed you out of the house of the LORD.
+> <u>Blessed</u>[^a] <i>be</i> he that cometh in the name of the LORD: we have blessed you out of the house of the LORD.
 
 [Psalms 118:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.26?lang=eng#p26)
 

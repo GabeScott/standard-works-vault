@@ -1,6 +1,6 @@
 # Genesis 25:28
 
-> And Isaac loved Esau, because he did eat of *his* <u>venison</u>[^a]: but <u>Rebekah</u>[^b] loved Jacob.
+> And Isaac loved Esau, because he did eat of <i>his</i> <u>venison</u>[^a]: but <u>Rebekah</u>[^b] loved Jacob.
 
 [Genesis 25:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.28?lang=eng#p28)
 

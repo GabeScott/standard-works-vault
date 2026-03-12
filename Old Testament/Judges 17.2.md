@@ -1,6 +1,6 @@
 # Judges 17:2
 
-> And he said unto his mother, The eleven hundred *shekels* of silver that were taken from thee, about which thou cursedst, and spakest of also in mine ears, behold, the silver *is* with me; I took it. And his mother said, <u>Blessed</u>[^a] *be thou* of the LORD, my son.
+> And he said unto his mother, The eleven hundred <i>shekels</i> of silver that were taken from thee, about which thou cursedst, and spakest of also in mine ears, behold, the silver <i>is</i> with me; I took it. And his mother said, <u>Blessed</u>[^a] <i>be thou</i> of the LORD, my son.
 
 [Judges 17:2](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/17.2?lang=eng#p2)
 

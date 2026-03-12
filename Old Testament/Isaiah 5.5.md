@@ -1,6 +1,6 @@
 # Isaiah 5:5
 
-> And now go to; I will tell you what I will do to my <u>vineyard</u>[^a]: I will <u>take away</u>[^b] the hedge thereof, and it shall be eaten up; *and* break down the <u>wall</u>[^c] thereof, and it shall be trodden down:
+> And now go to; I will tell you what I will do to my <u>vineyard</u>[^a]: I will <u>take away</u>[^b] the hedge thereof, and it shall be eaten up; <i>and</i> break down the <u>wall</u>[^c] thereof, and it shall be trodden down:
 
 [Isaiah 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.5?lang=eng#p5)
 

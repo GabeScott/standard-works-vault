@@ -1,6 +1,6 @@
 # 2 Kings 21:16
 
-> Moreover Manasseh <u>shed</u>[^a] innocent <u>blood</u>[^b] very much, till he had filled Jerusalem from one end to another; beside his sin wherewith he made Judah to sin, in doing *that which was* evil in the sight of the LORD.
+> Moreover Manasseh <u>shed</u>[^a] innocent <u>blood</u>[^b] very much, till he had filled Jerusalem from one end to another; beside his sin wherewith he made Judah to sin, in doing <i>that which was</i> evil in the sight of the LORD.
 
 [2 Kings 21:16](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.16?lang=eng#p16)
 

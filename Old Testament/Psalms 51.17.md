@@ -1,6 +1,6 @@
 # Psalms 51:17
 
-> The <u>sacrifices</u>[^a] of God *are* a broken spirit: a broken and a <u>contrite heart</u>[^b], O God, thou wilt not despise.
+> The <u>sacrifices</u>[^a] of God <i>are</i> a broken spirit: a broken and a <u>contrite heart</u>[^b], O God, thou wilt not despise.
 
 [Psalms 51:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.17?lang=eng#p17)
 

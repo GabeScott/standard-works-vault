@@ -1,6 +1,6 @@
 # Acts 12:4
 
-> And when he had apprehended him, he put *him* in <u>prison</u>[^a], and delivered *him* to four <u>quaternions</u>[^b] of soldiers to keep him; intending after <u>Easter</u>[^c] to bring him forth to the people.
+> And when he had apprehended him, he put <i>him</i> in <u>prison</u>[^a], and delivered <i>him</i> to four <u>quaternions</u>[^b] of soldiers to keep him; intending after <u>Easter</u>[^c] to bring him forth to the people.
 
 [Acts 12:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/12.4?lang=eng#p4)
 

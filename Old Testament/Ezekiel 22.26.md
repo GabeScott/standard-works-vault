@@ -1,6 +1,6 @@
 # Ezekiel 22:26
 
-> Her <u>priests</u>[^a] have <u>violated</u>[^b] my law, and have profaned mine holy things: they have put no <u>difference</u>[^c] between the holy and profane, neither have they shewed *difference* between the unclean and the clean, and have hid their eyes from my <u>sabbaths</u>[^d], and I am <u>profaned</u>[^e] among them.
+> Her <u>priests</u>[^a] have <u>violated</u>[^b] my law, and have profaned mine holy things: they have put no <u>difference</u>[^c] between the holy and profane, neither have they shewed <i>difference</i> between the unclean and the clean, and have hid their eyes from my <u>sabbaths</u>[^d], and I am <u>profaned</u>[^e] among them.
 
 [Ezekiel 22:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Acts 9:41
 
-> And he gave her *his* hand, and lifted her up, and when he had called the <u>saints</u>[^a] and widows, presented her <u>alive</u>[^b].
+> And he gave her <i>his</i> hand, and lifted her up, and when he had called the <u>saints</u>[^a] and widows, presented her <u>alive</u>[^b].
 
 [Acts 9:41](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.41?lang=eng#p41)
 

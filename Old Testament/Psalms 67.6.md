@@ -1,6 +1,6 @@
 # Psalms 67:6
 
-> *Then* shall the <u>earth</u>[^a] yield her <u>increase</u>[^b]; *and* God, *even* our own God, shall bless us.
+> <i>Then</i> shall the <u>earth</u>[^a] yield her <u>increase</u>[^b]; <i>and</i> God, <i>even</i> our own God, shall bless us.
 
 [Psalms 67:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/67.6?lang=eng#p6)
 

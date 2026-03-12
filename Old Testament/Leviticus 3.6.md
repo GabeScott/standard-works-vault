@@ -1,6 +1,6 @@
 # Leviticus 3:6
 
-> ¶ And if his offering for a sacrifice of peace offering unto the LORD *be* of the flock; male or female, he shall offer it without <u>blemish</u>[^a].
+> ¶ And if his offering for a sacrifice of peace offering unto the LORD <i>be</i> of the flock; male or female, he shall offer it without <u>blemish</u>[^a].
 
 [Leviticus 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/3.6?lang=eng#p6)
 

@@ -1,6 +1,6 @@
 # 1 Kings 11:1
 
-> But king <u>Solomon</u>[^a] loved many <u>strange</u>[^b] <u>women</u>[^c], together with the <u>daughter</u>[^d] of <u>Pharaoh</u>[^e], women of the Moabites, Ammonites, Edomites, Zidonians, *and* Hittites;
+> But king <u>Solomon</u>[^a] loved many <u>strange</u>[^b] <u>women</u>[^c], together with the <u>daughter</u>[^d] of <u>Pharaoh</u>[^e], women of the Moabites, Ammonites, Edomites, Zidonians, <i>and</i> Hittites;
 
 [1 Kings 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.1?lang=eng#p1)
 

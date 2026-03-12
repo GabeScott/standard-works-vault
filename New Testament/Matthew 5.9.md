@@ -1,6 +1,6 @@
 # Matthew 5:9
 
-> Blessed *are* the <u>peacemakers</u>[^a]: for they shall be called the <u>children</u>[^b] of God.
+> Blessed <i>are</i> the <u>peacemakers</u>[^a]: for they shall be called the <u>children</u>[^b] of God.
 
 [Matthew 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.9?lang=eng#p9)
 

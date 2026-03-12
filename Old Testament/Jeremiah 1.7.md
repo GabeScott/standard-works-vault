@@ -1,6 +1,6 @@
 # Jeremiah 1:7
 
-> ¶ But the LORD said unto me, Say not, I *am* a child: for thou shalt go to all that I shall <u>send</u>[^a] thee, and whatsoever I <u>command</u>[^b] thee thou shalt <u>speak</u>[^c].
+> ¶ But the LORD said unto me, Say not, I <i>am</i> a child: for thou shalt go to all that I shall <u>send</u>[^a] thee, and whatsoever I <u>command</u>[^b] thee thou shalt <u>speak</u>[^c].
 
 [Jeremiah 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.7?lang=eng#p7)
 

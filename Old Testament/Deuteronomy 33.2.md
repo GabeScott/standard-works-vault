@@ -1,6 +1,6 @@
 # Deuteronomy 33:2
 
-> And he said, The LORD came from Sinai, and rose up from Seir unto them; he <u>shined</u>[^a] forth from mount <u>Paran</u>[^b], and he came with ten thousands of saints: from his right hand *went* a fiery law for them.
+> And he said, The LORD came from Sinai, and rose up from Seir unto them; he <u>shined</u>[^a] forth from mount <u>Paran</u>[^b], and he came with ten thousands of saints: from his right hand <i>went</i> a fiery law for them.
 
 [Deuteronomy 33:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.2?lang=eng#p2)
 

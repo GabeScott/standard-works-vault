@@ -1,6 +1,6 @@
 # Zechariah 10:1
 
-> Ask ye of the LORD rain in the time of the <u>latter</u>[^a] rain; *so* the LORD shall make bright clouds, and give them showers of rain, to every one grass in the field.
+> Ask ye of the LORD rain in the time of the <u>latter</u>[^a] rain; <i>so</i> the LORD shall make bright clouds, and give them showers of rain, to every one grass in the field.
 
 [Zechariah 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/10.1?lang=eng#p1)
 

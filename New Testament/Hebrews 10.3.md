@@ -1,8 +1,9 @@
 # Hebrews 10:3
 
-> But in those *sacrifices there is* a <u>remembrance</u>[^b] again *made* of sins every year.
+> But in those <i><u>sacrifices</u></i>[^a]<i> there is</i> a <u>remembrance</u>[^b] again <i>made</i> of sins every year.
 
 [Hebrews 10:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.3?lang=eng#p3)
 
 
-[^b]: [[Leviticus 16.21|Lev. 16:21]]; [[Hebrews 9.7|Heb. 9:7]].  
+[^a]: [[Sacrifice|TG Sacrifice]].
+[^b]: [[Leviticus 16.21|Lev. 16:21]]; [[Hebrews 9.7|Heb. 9:7]].

@@ -1,6 +1,6 @@
 # Ephesians 4:6
 
-> One God and <u>Father</u>[^a] of all, who *is* above all, and through all, and in you all.
+> One God and <u>Father</u>[^a] of all, who <i>is</i> above all, and through all, and in you all.
 
 [Ephesians 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.6?lang=eng#p6)
 

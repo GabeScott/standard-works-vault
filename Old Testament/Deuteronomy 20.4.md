@@ -1,6 +1,6 @@
 # Deuteronomy 20:4
 
-> For the LORD your God *is* he that goeth with you, to <u>fight</u>[^a] for you against your enemies, to save you.
+> For the LORD your God <i>is</i> he that goeth with you, to <u>fight</u>[^a] for you against your enemies, to save you.
 
 [Deuteronomy 20:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.4?lang=eng#p4)
 

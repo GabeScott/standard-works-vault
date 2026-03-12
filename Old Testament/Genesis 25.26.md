@@ -1,6 +1,6 @@
 # Genesis 25:26
 
-> And after that came his brother out, and his hand took hold on Esau’s <u>heel</u>[^a]; and his <u>name</u>[^b] was called <u>Jacob</u>[^c]: and Isaac *was* threescore years old when she bare them.
+> And after that came his brother out, and his hand took hold on Esau’s <u>heel</u>[^a]; and his <u>name</u>[^b] was called <u>Jacob</u>[^c]: and Isaac <i>was</i> threescore years old when she bare them.
 
 [Genesis 25:26](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.26?lang=eng#p26)
 

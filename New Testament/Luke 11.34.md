@@ -1,6 +1,6 @@
 # Luke 11:34
 
-> The light of the body is the <u>eye</u>[^a]: therefore when thine eye is <u>single</u>[^b], thy whole body also is full of light; but when *thine eye* is evil, thy body also *is* full of <u>darkness</u>[^c].
+> The light of the body is the <u>eye</u>[^a]: therefore when thine eye is <u>single</u>[^b], thy whole body also is full of light; but when <i>thine eye</i> is evil, thy body also <i>is</i> full of <u>darkness</u>[^c].
 
 [Luke 11:34](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.34?lang=eng#p34)
 

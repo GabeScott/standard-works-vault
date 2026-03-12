@@ -1,6 +1,6 @@
 # Exodus 15:3
 
-> The LORD *is* a man of <u>war</u>[^a]: the LORD *is* his <u>name</u>[^b].
+> The LORD <i>is</i> a man of <u>war</u>[^a]: the LORD <i>is</i> his <u>name</u>[^b].
 
 [Exodus 15:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.3?lang=eng#p3)
 

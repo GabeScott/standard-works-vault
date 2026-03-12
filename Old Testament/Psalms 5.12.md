@@ -1,6 +1,6 @@
 # Psalms 5:12
 
-> For thou, LORD, wilt bless the <u>righteous</u>[^a]; with favour wilt thou compass him as *with* a shield.
+> For thou, LORD, wilt bless the <u>righteous</u>[^a]; with favour wilt thou compass him as <i>with</i> a shield.
 
 [Psalms 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/5.12?lang=eng#p12)
 

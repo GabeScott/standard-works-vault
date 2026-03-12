@@ -1,6 +1,6 @@
 # Jeremiah 20:1
 
-> Now <u>Pashur</u>[^a] the son of <u>Immer</u>[^b] the priest, who *was* also <u>chief governor</u>[^c] in the house of the LORD, heard that Jeremiah prophesied these things.
+> Now <u>Pashur</u>[^a] the son of <u>Immer</u>[^b] the priest, who <i>was</i> also <u>chief governor</u>[^c] in the house of the LORD, heard that Jeremiah prophesied these things.
 
 [Jeremiah 20:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.1?lang=eng#p1)
 

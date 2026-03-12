@@ -1,6 +1,6 @@
 # Proverbs 18:10
 
-> The name of the LORD *is* a strong <u>tower</u>[^a]: the righteous runneth into it, and is safe.
+> The name of the LORD <i>is</i> a strong <u>tower</u>[^a]: the righteous runneth into it, and is safe.
 
 [Proverbs 18:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.10?lang=eng#p10)
 

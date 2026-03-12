@@ -1,6 +1,6 @@
 # Zechariah 12:2
 
-> Behold, I will make Jerusalem a <u>cup</u>[^a] of trembling unto all the <u>people</u>[^b] round about, when they shall be in the siege both against Judah *and* against Jerusalem.
+> Behold, I will make Jerusalem a <u>cup</u>[^a] of trembling unto all the <u>people</u>[^b] round about, when they shall be in the siege both against Judah <i>and</i> against Jerusalem.
 
 [Zechariah 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/12.2?lang=eng#p2)
 

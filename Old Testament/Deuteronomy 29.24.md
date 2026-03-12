@@ -1,6 +1,6 @@
 # Deuteronomy 29:24
 
-> Even all nations shall say, <u>Wherefore</u>[^a] hath the LORD <u>done</u>[^b] thus unto this land? what *meaneth* the heat of this great anger?
+> Even all nations shall say, <u>Wherefore</u>[^a] hath the LORD <u>done</u>[^b] thus unto this land? what <i>meaneth</i> the heat of this great anger?
 
 [Deuteronomy 29:24](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.24?lang=eng#p24)
 

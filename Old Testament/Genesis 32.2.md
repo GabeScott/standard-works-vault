@@ -1,6 +1,6 @@
 # Genesis 32:2
 
-> And when Jacob saw them, he said, This *is* God’s <u>host</u>[^a]: and he called the name of that place <u>Mahanaim</u>[^b].
+> And when Jacob saw them, he said, This <i>is</i> God’s <u>host</u>[^a]: and he called the name of that place <u>Mahanaim</u>[^b].
 
 [Genesis 32:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.2?lang=eng#p2)
 

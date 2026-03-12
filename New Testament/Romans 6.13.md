@@ -1,6 +1,6 @@
 # Romans 6:13
 
-> Neither <u>yield</u>[^a] ye your <u>members</u>[^b] *as* <u>instruments</u>[^c] of unrighteousness unto sin: but <u>yield</u>[^d] yourselves unto God, as those that are alive from the dead, and your members *as* instruments of <u>righteousness</u>[^e] unto God.
+> Neither <u>yield</u>[^a] ye your <u>members</u>[^b] <i>as</i> <u>instruments</u>[^c] of unrighteousness unto sin: but <u>yield</u>[^d] yourselves unto God, as those that are alive from the dead, and your members <i>as</i> instruments of <u>righteousness</u>[^e] unto God.
 
 [Romans 6:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.13?lang=eng#p13)
 

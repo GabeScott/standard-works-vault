@@ -1,6 +1,6 @@
 # Psalms 40:3
 
-> And he hath put a <u>new</u>[^a] <u>song</u>[^b] in my mouth, *even* praise unto our God: many shall see *it,* and fear, and shall trust in the LORD.
+> And he hath put a <u>new</u>[^a] <u>song</u>[^b] in my mouth, <i>even</i> praise unto our God: many shall see <i>it,</i> and fear, and shall trust in the LORD.
 
 [Psalms 40:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/40.3?lang=eng#p3)
 

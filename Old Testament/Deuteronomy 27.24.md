@@ -1,6 +1,6 @@
 # Deuteronomy 27:24
 
-> Cursed *be* he that <u>smiteth</u>[^a] his <u>neighbour</u>[^b] <u>secretly</u>[^c]. And all the people shall say, Amen.
+> Cursed <i>be</i> he that <u>smiteth</u>[^a] his <u>neighbour</u>[^b] <u>secretly</u>[^c]. And all the people shall say, Amen.
 
 [Deuteronomy 27:24](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.24?lang=eng#p24)
 

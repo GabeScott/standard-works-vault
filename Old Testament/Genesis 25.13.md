@@ -1,6 +1,6 @@
 # Genesis 25:13
 
-> And these *are* the names of the sons of <u>Ishmael</u>[^a], by their names, according to their generations: the firstborn of Ishmael, Nebajoth; and Kedar, and Adbeel, and Mibsam,
+> And these <i>are</i> the names of the sons of <u>Ishmael</u>[^a], by their names, according to their generations: the firstborn of Ishmael, Nebajoth; and Kedar, and Adbeel, and Mibsam,
 
 [Genesis 25:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.13?lang=eng#p13)
 

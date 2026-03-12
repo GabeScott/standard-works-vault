@@ -1,6 +1,6 @@
 # Luke 14:28
 
-> For which of you, intending to build a tower, sitteth not down first, and <u>counteth</u>[^a] the <u>cost</u>[^b], whether he have *sufficient* to <u>finish</u>[^c] *it?*
+> For which of you, intending to build a tower, sitteth not down first, and <u>counteth</u>[^a] the <u>cost</u>[^b], whether he have <i>sufficient</i> to <u>finish</u>[^c] <i>it?</i>
 
 [Luke 14:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.28?lang=eng#p28)
 

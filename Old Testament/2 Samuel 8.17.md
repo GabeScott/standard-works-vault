@@ -1,6 +1,6 @@
 # 2 Samuel 8:17
 
-> And <u>Zadok</u>[^a] the son of Ahitub, and Ahimelech the son of Abiathar, *were* the priests; and Seraiah *was* the <u>scribe</u>[^b];
+> And <u>Zadok</u>[^a] the son of Ahitub, and Ahimelech the son of Abiathar, <i>were</i> the priests; and Seraiah <i>was</i> the <u>scribe</u>[^b];
 
 [2 Samuel 8:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/8.17?lang=eng#p17)
 

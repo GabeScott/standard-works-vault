@@ -1,6 +1,6 @@
 # Ezekiel 24:2
 
-> Son of man, write thee the name of the day, *even* of this same day: the <u>king</u>[^a] of <u>Babylon</u>[^b] set himself against Jerusalem this same day.
+> Son of man, write thee the name of the day, <i>even</i> of this same day: the <u>king</u>[^a] of <u>Babylon</u>[^b] set himself against Jerusalem this same day.
 
 [Ezekiel 24:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.2?lang=eng#p2)
 

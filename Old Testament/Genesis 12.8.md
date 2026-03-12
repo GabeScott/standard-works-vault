@@ -1,6 +1,6 @@
 # Genesis 12:8
 
-> And he removed from thence unto a mountain on the east of <u>Beth-el</u>[^a], and pitched his tent, *having* <u>Beth-el</u>[^b] on the west, and <u>Hai</u>[^c] on the east: and there he builded an altar unto the LORD, and <u>called upon</u>[^d] the <u>name</u>[^e] of the LORD.
+> And he removed from thence unto a mountain on the east of <u>Beth-el</u>[^a], and pitched his tent, <i>having</i> <u>Beth-el</u>[^b] on the west, and <u>Hai</u>[^c] on the east: and there he builded an altar unto the LORD, and <u>called upon</u>[^d] the <u>name</u>[^e] of the LORD.
 
 [Genesis 12:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/12.8?lang=eng#p8)
 

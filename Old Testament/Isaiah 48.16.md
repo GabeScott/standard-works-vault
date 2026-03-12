@@ -1,6 +1,6 @@
 # Isaiah 48:16
 
-> ¶ Come ye near unto me, hear ye this; I have not spoken in <u>secret</u>[^a] from the beginning; from the time that it was, there *am* I: and now the Lord GOD, and his Spirit, hath <u>sent</u>[^b] me.
+> ¶ Come ye near unto me, hear ye this; I have not spoken in <u>secret</u>[^a] from the beginning; from the time that it was, there <i>am</i> I: and now the Lord GOD, and his Spirit, hath <u>sent</u>[^b] me.
 
 [Isaiah 48:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.16?lang=eng#p16)
 

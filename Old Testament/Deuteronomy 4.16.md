@@ -1,6 +1,6 @@
 # Deuteronomy 4:16
 
-> Lest ye <u>corrupt</u>[^a] *yourselves,* and make you a graven <u>image</u>[^b], the similitude of any figure, the likeness of male or female,
+> Lest ye <u>corrupt</u>[^a] <i>yourselves,</i> and make you a graven <u>image</u>[^b], the similitude of any figure, the likeness of male or female,
 
 [Deuteronomy 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.16?lang=eng#p16)
 

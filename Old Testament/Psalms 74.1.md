@@ -1,6 +1,6 @@
 # Psalms 74:1
 
-> O God, why hast thou <u>cast</u>[^a] *us* off for ever? *why* doth thine anger smoke against the sheep of thy pasture?
+> O God, why hast thou <u>cast</u>[^a] <i>us</i> off for ever? <i>why</i> doth thine anger smoke against the sheep of thy pasture?
 
 [Psalms 74:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.1?lang=eng#p1)
 

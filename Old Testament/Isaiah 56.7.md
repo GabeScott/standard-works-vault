@@ -1,6 +1,6 @@
 # Isaiah 56:7
 
-> Even them will I bring to my holy <u>mountain</u>[^a], and make them joyful in my <u>house</u>[^b] of <u>prayer</u>[^c]: their burnt offerings and their sacrifices *shall be* <u>accepted</u>[^d] upon mine altar; for mine <u>house</u>[^e] shall be called an house of prayer for <u>all</u>[^f] <u>people</u>[^g].
+> Even them will I bring to my holy <u>mountain</u>[^a], and make them joyful in my <u>house</u>[^b] of <u>prayer</u>[^c]: their burnt offerings and their sacrifices <i>shall be</i> <u>accepted</u>[^d] upon mine altar; for mine <u>house</u>[^e] shall be called an house of prayer for <u>all</u>[^f] <u>people</u>[^g].
 
 [Isaiah 56:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.7?lang=eng#p7)
 

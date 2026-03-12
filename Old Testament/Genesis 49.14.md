@@ -1,6 +1,6 @@
 # Genesis 49:14
 
-> ¶ <u>Issachar</u>[^a] *is* a strong ass couching down between two burdens:
+> ¶ <u>Issachar</u>[^a] <i>is</i> a strong ass couching down between two burdens:
 
 [Genesis 49:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.14?lang=eng#p14)
 

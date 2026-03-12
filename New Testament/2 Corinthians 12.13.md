@@ -1,6 +1,6 @@
 # 2 Corinthians 12:13
 
-> For what is it wherein ye were inferior to other churches, except *it be* that I myself was not <u>burdensome</u>[^a] to you? forgive me this wrong.
+> For what is it wherein ye were inferior to other churches, except <i>it be</i> that I myself was not <u>burdensome</u>[^a] to you? forgive me this wrong.
 
 [2 Corinthians 12:13](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.13?lang=eng#p13)
 

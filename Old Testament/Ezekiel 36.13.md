@@ -1,6 +1,6 @@
 # Ezekiel 36:13
 
-> Thus saith the Lord GOD; Because they say unto you, Thou *land* devourest up men, and hast <u>bereaved</u>[^a] thy nations;
+> Thus saith the Lord GOD; Because they say unto you, Thou <i>land</i> devourest up men, and hast <u>bereaved</u>[^a] thy nations;
 
 [Ezekiel 36:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.13?lang=eng#p13)
 

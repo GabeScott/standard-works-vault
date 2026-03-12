@@ -1,6 +1,6 @@
 # Joshua 13:8
 
-> With whom the <u>Reubenites</u>[^a] and the Gadites have received their inheritance, which Moses gave them, beyond Jordan eastward, *even* as Moses the servant of the LORD gave them;
+> With whom the <u>Reubenites</u>[^a] and the Gadites have received their inheritance, which Moses gave them, beyond Jordan eastward, <i>even</i> as Moses the servant of the LORD gave them;
 
 [Joshua 13:8](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/13.8?lang=eng#p8)
 

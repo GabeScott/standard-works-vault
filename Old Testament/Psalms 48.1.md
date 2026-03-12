@@ -1,6 +1,6 @@
 # Psalms 48:1
 
-> Great *is* the LORD, and greatly to be praised in the city of our God, *in* <u>the</u>[^a] <u>mountain</u>[^b] of his <u>holiness</u>[^c].
+> Great <i>is</i> the LORD, and greatly to be praised in the city of our God, <i>in</i> <u>the</u>[^a] <u>mountain</u>[^b] of his <u>holiness</u>[^c].
 
 [Psalms 48:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/48.1?lang=eng#p1)
 

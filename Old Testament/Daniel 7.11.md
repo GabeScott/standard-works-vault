@@ -1,6 +1,6 @@
 # Daniel 7:11
 
-> I beheld then because of the voice of the great words which the horn spake: I beheld *even* till the <u>beast</u>[^a] was slain, and his body destroyed, and given to the burning <u>flame</u>[^b].
+> I beheld then because of the voice of the great words which the horn spake: I beheld <i>even</i> till the <u>beast</u>[^a] was slain, and his body destroyed, and given to the burning <u>flame</u>[^b].
 
 [Daniel 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.11?lang=eng#p11)
 

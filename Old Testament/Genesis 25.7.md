@@ -1,6 +1,6 @@
 # Genesis 25:7
 
-> And these *are* the <u>days</u>[^a] of the years of <u>Abraham’s</u>[^b] life which he lived, an hundred threescore and fifteen years.
+> And these <i>are</i> the <u>days</u>[^a] of the years of <u>Abraham’s</u>[^b] life which he lived, an hundred threescore and fifteen years.
 
 [Genesis 25:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.7?lang=eng#p7)
 

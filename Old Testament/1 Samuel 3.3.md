@@ -1,6 +1,6 @@
 # 1 Samuel 3:3
 
-> And ere the <u>lamp</u>[^a] of God went out in the temple of the LORD, where the ark of God *was,* and Samuel was laid down *to sleep;*
+> And ere the <u>lamp</u>[^a] of God went out in the temple of the LORD, where the ark of God <i>was,</i> and Samuel was laid down <i>to sleep;</i>
 
 [1 Samuel 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/3.3?lang=eng#p3)
 

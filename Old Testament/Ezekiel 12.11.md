@@ -1,6 +1,6 @@
 # Ezekiel 12:11
 
-> Say, I *am* your <u>sign</u>[^a]: like as I have <u>done</u>[^b], so shall it be done unto them: they shall remove *and* go into captivity.
+> Say, I <i>am</i> your <u>sign</u>[^a]: like as I have <u>done</u>[^b], so shall it be done unto them: they shall remove <i>and</i> go into captivity.
 
 [Ezekiel 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/12.11?lang=eng#p11)
 

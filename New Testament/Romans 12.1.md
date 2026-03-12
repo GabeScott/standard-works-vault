@@ -1,6 +1,6 @@
 # Romans 12:1
 
-> I beseech you therefore, brethren, by the mercies of God, that ye present your <u>bodies</u>[^a] a living <u>sacrifice</u>[^b], holy, <u>acceptable</u>[^c] unto God, *which is* your reasonable <u>service</u>[^d].
+> I beseech you therefore, brethren, by the mercies of God, that ye present your <u>bodies</u>[^a] a living <u>sacrifice</u>[^b], holy, <u>acceptable</u>[^c] unto God, <i>which is</i> your reasonable <u>service</u>[^d].
 
 [Romans 12:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.1?lang=eng#p1)
 

@@ -1,6 +1,6 @@
 # Isaiah 8:7
 
-> Now therefore, behold, the Lord bringeth up upon <u>them</u>[^a] the <u>waters</u>[^b] of the river, strong and many, *even* the king of <u>Assyria</u>[^c], and all his glory: and he shall come up over all his channels, and go over all his banks:
+> Now therefore, behold, the Lord bringeth up upon <u>them</u>[^a] the <u>waters</u>[^b] of the river, strong and many, <i>even</i> the king of <u>Assyria</u>[^c], and all his glory: and he shall come up over all his channels, and go over all his banks:
 
 [Isaiah 8:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.7?lang=eng#p7)
 

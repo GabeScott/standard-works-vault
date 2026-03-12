@@ -1,6 +1,6 @@
 # Psalms 78:21
 
-> Therefore the LORD heard *this,* and was wroth: so a <u>fire</u>[^a] was kindled against Jacob, and anger also came up against Israel;
+> Therefore the LORD heard <i>this,</i> and was wroth: so a <u>fire</u>[^a] was kindled against Jacob, and anger also came up against Israel;
 
 [Psalms 78:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.21?lang=eng#p21)
 

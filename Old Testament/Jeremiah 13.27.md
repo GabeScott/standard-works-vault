@@ -1,6 +1,6 @@
 # Jeremiah 13:27
 
-> I have seen thine adulteries, and thy neighings, the lewdness of thy whoredom, *and* thine <u>abominations</u>[^a] on the hills in the fields. Woe unto thee, O Jerusalem! wilt thou not be made <u>clean</u>[^b]? when *shall it* once *be?*
+> I have seen thine adulteries, and thy neighings, the lewdness of thy whoredom, <i>and</i> thine <u>abominations</u>[^a] on the hills in the fields. Woe unto thee, O Jerusalem! wilt thou not be made <u>clean</u>[^b]? when <i>shall it</i> once <i>be?</i>
 
 [Jeremiah 13:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/13.27?lang=eng#p27)
 

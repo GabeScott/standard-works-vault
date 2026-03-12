@@ -1,6 +1,6 @@
 # Proverbs 11:10
 
-> When it goeth well with the <u>righteous</u>[^a], the city rejoiceth: and when the wicked perish, *there is* shouting.
+> When it goeth well with the <u>righteous</u>[^a], the city rejoiceth: and when the wicked perish, <i>there is</i> shouting.
 
 [Proverbs 11:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.10?lang=eng#p10)
 

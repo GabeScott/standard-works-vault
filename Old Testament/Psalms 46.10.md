@@ -1,6 +1,6 @@
 # Psalms 46:10
 
-> Be <u>still</u>[^a], and <u>know</u>[^b] that I *am* God: I will be <u>exalted</u>[^c] among the heathen, I will be exalted in the earth.
+> Be <u>still</u>[^a], and <u>know</u>[^b] that I <i>am</i> God: I will be <u>exalted</u>[^c] among the heathen, I will be exalted in the earth.
 
 [Psalms 46:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/46.10?lang=eng#p10)
 

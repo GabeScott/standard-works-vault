@@ -1,6 +1,6 @@
 # Ezekiel 48:15
 
-> ¶ And the five thousand, that are left in the breadth over against the five and twenty thousand, shall be a <u>profane</u>[^a] *place* for the city, for dwelling, and for <u>suburbs</u>[^b]: and the city shall be in the midst thereof.
+> ¶ And the five thousand, that are left in the breadth over against the five and twenty thousand, shall be a <u>profane</u>[^a] <i>place</i> for the city, for dwelling, and for <u>suburbs</u>[^b]: and the city shall be in the midst thereof.
 
 [Ezekiel 48:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/48.15?lang=eng#p15)
 

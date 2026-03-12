@@ -1,6 +1,6 @@
 # Isaiah 2:22
 
-> <u>Cease</u>[^a] ye from man, whose breath *is* in his nostrils: for <u>wherein</u>[^b] is he to be accounted of?
+> <u>Cease</u>[^a] ye from man, whose breath <i>is</i> in his nostrils: for <u>wherein</u>[^b] is he to be accounted of?
 
 [Isaiah 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.22?lang=eng#p22)
 

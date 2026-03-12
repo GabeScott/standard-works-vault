@@ -1,6 +1,6 @@
 # Galatians 5:14
 
-> For all the <u>law</u>[^a] is fulfilled in one word, *even* in this; Thou shalt <u>love</u>[^b] thy neighbour as thyself.
+> For all the <u>law</u>[^a] is fulfilled in one word, <i>even</i> in this; Thou shalt <u>love</u>[^b] thy neighbour as thyself.
 
 [Galatians 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.14?lang=eng#p14)
 

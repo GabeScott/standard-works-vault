@@ -1,6 +1,6 @@
 # Exodus 3:6
 
-> Moreover he said, <u>I am</u>[^a] the <u>God</u>[^b] of thy father, the God of Abraham, the God of Isaac, and the God of Jacob. And Moses hid his face; for he was <u>afraid</u>[^c] to <u>look</u>[^d] upon God.
+> Moreover he said, <i><u>I am</u></i>[^a] the <u>God</u>[^b] of thy father, the God of Abraham, the God of Isaac, and the God of Jacob. And Moses hid his face; for he was <u>afraid</u>[^c] to <u>look</u>[^d] upon God.
 
 [Exodus 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.6?lang=eng#p6)
 

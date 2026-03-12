@@ -1,6 +1,6 @@
 # Ezekiel 20:42
 
-> And ye shall <u>know</u>[^a] that I *am* the LORD, when I shall bring you into the land of Israel, into the country *for* the which I <u>lifted up mine hand</u>[^b] to give it to your fathers.
+> And ye shall <u>know</u>[^a] that I <i>am</i> the LORD, when I shall bring you into the land of Israel, into the country <i>for</i> the which I <u>lifted up mine hand</u>[^b] to give it to your fathers.
 
 [Ezekiel 20:42](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.42?lang=eng#p42)
 

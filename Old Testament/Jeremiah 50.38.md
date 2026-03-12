@@ -1,6 +1,6 @@
 # Jeremiah 50:38
 
-> A <u>drought</u>[^a] *is* upon her waters; and they shall be <u>dried</u>[^b] up: for it *is* the land of graven images, and they are mad upon *their* idols.
+> A <u>drought</u>[^a] <i>is</i> upon her waters; and they shall be <u>dried</u>[^b] up: for it <i>is</i> the land of graven images, and they are mad upon <i>their</i> idols.
 
 [Jeremiah 50:38](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.38?lang=eng#p38)
 

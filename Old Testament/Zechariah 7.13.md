@@ -1,6 +1,6 @@
 # Zechariah 7:13
 
-> Therefore it is come to pass, *that* as he cried, and they would not hear; so <u>they</u>[^a] <u>cried</u>[^b], and I would not hear, saith the LORD of hosts:
+> Therefore it is come to pass, <i>that</i> as he cried, and they would not hear; so <u>they</u>[^a] <u>cried</u>[^b], and I would not hear, saith the LORD of hosts:
 
 [Zechariah 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/7.13?lang=eng#p13)
 

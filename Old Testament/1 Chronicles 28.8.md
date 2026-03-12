@@ -1,6 +1,6 @@
 # 1 Chronicles 28:8
 
-> Now therefore in the sight of all Israel the congregation of the LORD, and in the audience of our God, keep and seek for all the commandments of the LORD your God: that ye may possess this good <u>land</u>[^a], and leave *it* for an inheritance for your children after you for ever.
+> Now therefore in the sight of all Israel the congregation of the LORD, and in the audience of our God, keep and seek for all the commandments of the LORD your God: that ye may possess this good <u>land</u>[^a], and leave <i>it</i> for an inheritance for your children after you for ever.
 
 [1 Chronicles 28:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/28.8?lang=eng#p8)
 

@@ -1,6 +1,6 @@
 # 2 Kings 18:6
 
-> For he <u>clave</u>[^a] to the LORD, *and* departed not from following him, but kept his commandments, which the LORD commanded Moses.
+> For he <u>clave</u>[^a] to the LORD, <i>and</i> departed not from following him, but kept his commandments, which the LORD commanded Moses.
 
 [2 Kings 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/18.6?lang=eng#p6)
 

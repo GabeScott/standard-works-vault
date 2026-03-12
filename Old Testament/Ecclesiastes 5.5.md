@@ -1,6 +1,6 @@
 # Ecclesiastes 5:5
 
-> Better *is it* that thou shouldest not vow, than that thou shouldest <u>vow</u>[^a] and not pay.
+> Better <i>is it</i> that thou shouldest not vow, than that thou shouldest <u>vow</u>[^a] and not pay.
 
 [Ecclesiastes 5:5](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # Proverbs 9:12
 
-> If thou be <u>wise</u>[^a], thou shalt be wise for thyself: but *if* thou scornest, thou alone shalt <u>bear</u>[^b] *it.*
+> If thou be <u>wise</u>[^a], thou shalt be wise for thyself: but <i>if</i> thou scornest, thou alone shalt <u>bear</u>[^b] <i>it.</i>
 
 [Proverbs 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/9.12?lang=eng#p12)
 

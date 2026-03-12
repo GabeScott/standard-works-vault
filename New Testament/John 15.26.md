@@ -1,6 +1,6 @@
 # John 15:26
 
-> But when the <u>Comforter</u>[^a] is come, whom I will send unto you from the Father, *even* the Spirit of truth, which proceedeth from the Father, he shall <u>testify</u>[^b] of me:
+> But when the <u>Comforter</u>[^a] is come, whom I will send unto you from the Father, <i>even</i> the Spirit of truth, which proceedeth from the Father, he shall <u>testify</u>[^b] of me:
 
 [John 15:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.26?lang=eng#p26)
 

@@ -1,6 +1,6 @@
 # Exodus 35:22
 
-> And they came, both men and women, as many as were willing hearted, *and* brought <u>bracelets</u>[^a], and earrings, and rings, and tablets, all <u>jewels of gold</u>[^b]: and every man that offered *offered* an <u>offering</u>[^c] of gold unto the LORD.
+> And they came, both men and women, as many as were willing hearted, <i>and</i> brought <u>bracelets</u>[^a], and earrings, and rings, and tablets, all <u>jewels of gold</u>[^b]: and every man that offered <i>offered</i> an <u>offering</u>[^c] of gold unto the LORD.
 
 [Exodus 35:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.22?lang=eng#p22)
 

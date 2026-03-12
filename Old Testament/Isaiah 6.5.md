@@ -1,6 +1,6 @@
 # Isaiah 6:5
 
-> ¶ Then said I, Woe *is* me! for I am <u>undone</u>[^a]; because I *am* a man of <u>unclean</u>[^b] lips, and I dwell in the midst of a people of unclean lips: for mine eyes have <u>seen</u>[^c] the <u>King</u>[^d], the LORD of hosts.
+> ¶ Then said I, Woe <i>is</i> me! for I am <u>undone</u>[^a]; because I <i>am</i> a man of <u>unclean</u>[^b] lips, and I dwell in the midst of a people of unclean lips: for mine eyes have <u>seen</u>[^c] the <u>King</u>[^d], the LORD of hosts.
 
 [Isaiah 6:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.5?lang=eng#p5)
 

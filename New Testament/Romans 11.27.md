@@ -1,6 +1,6 @@
 # Romans 11:27
 
-> For this *is* my <u>covenant</u>[^a] unto them, when I shall take away their sins.
+> For this <i>is</i> my <u>covenant</u>[^a] unto them, when I shall take away their sins.
 
 [Romans 11:27](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.27?lang=eng#p27)
 

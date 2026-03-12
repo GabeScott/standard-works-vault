@@ -1,6 +1,6 @@
 # Psalms 136:22
 
-> *Even* an <u>heritage</u>[^a] unto Israel his servant: for his mercy *endureth* for ever.
+> <i>Even</i> an <u>heritage</u>[^a] unto Israel his servant: for his mercy <i>endureth</i> for ever.
 
 [Psalms 136:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.22?lang=eng#p22)
 

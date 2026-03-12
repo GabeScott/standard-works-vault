@@ -1,6 +1,6 @@
 # Romans 14:1
 
-> Him that is <u>weak</u>[^a] in the faith receive ye, *but* not to <u>doubtful</u>[^b] <u>disputations</u>[^c].
+> Him that is <u>weak</u>[^a] in the faith receive ye, <i>but</i> not to <u>doubtful</u>[^b] <u>disputations</u>[^c].
 
 [Romans 14:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.1?lang=eng#p1)
 

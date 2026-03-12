@@ -1,6 +1,6 @@
 # Proverbs 21:22
 
-> A <u>wise</u>[^a] *man* scaleth the city of the mighty, and casteth down the strength of the confidence thereof.
+> A <u>wise</u>[^a] <i>man</i> scaleth the city of the mighty, and casteth down the strength of the confidence thereof.
 
 [Proverbs 21:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.22?lang=eng#p22)
 

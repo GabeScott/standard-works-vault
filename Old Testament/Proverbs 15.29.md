@@ -1,6 +1,6 @@
 # Proverbs 15:29
 
-> The LORD *is* <u>far</u>[^a] from the <u>wicked</u>[^b]: but he heareth the prayer of the righteous.
+> The LORD <i>is</i> <u>far</u>[^a] from the <u>wicked</u>[^b]: but he heareth the prayer of the righteous.
 
 [Proverbs 15:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.29?lang=eng#p29)
 

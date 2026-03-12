@@ -1,6 +1,6 @@
 # Leviticus 19:14
 
-> ¶ Thou shalt not <u>curse</u>[^a] the <u>deaf</u>[^b], nor put a <u>stumblingblock</u>[^c] before the <u>blind</u>[^d], but shalt fear thy God: I *am* <u>the Lord</u>[^e].
+> ¶ Thou shalt not <u>curse</u>[^a] the <u>deaf</u>[^b], nor put a <u>stumblingblock</u>[^c] before the <u>blind</u>[^d], but shalt fear thy God: I <i>am</i> <u>the Lord</u>[^e].
 
 [Leviticus 19:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.14?lang=eng#p14)
 

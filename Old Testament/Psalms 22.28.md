@@ -1,6 +1,6 @@
 # Psalms 22:28
 
-> For the <u>kingdom</u>[^a] *is* the LORD’s: and he *is* the <u>governor</u>[^b] among the nations.
+> For the <u>kingdom</u>[^a] <i>is</i> the LORD’s: and he <i>is</i> the <u>governor</u>[^b] among the nations.
 
 [Psalms 22:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.28?lang=eng#p28)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 29:24
 
-> And the priests killed them, and they made <u>reconciliation</u>[^a] with their blood upon the altar, to make an <u>atonement</u>[^b] for all Israel: for the king commanded *that* the burnt offering and the sin offering *should be made* for all Israel.
+> And the priests killed them, and they made <u>reconciliation</u>[^a] with their blood upon the altar, to make an <u>atonement</u>[^b] for all Israel: for the king commanded <i>that</i> the burnt offering and the sin offering <i>should be made</i> for all Israel.
 
 [2 Chronicles 29:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.24?lang=eng#p24)
 

@@ -1,6 +1,6 @@
 # John 14:2
 
-> In my Father’s <u>house</u>[^a] are many <u>mansions</u>[^b]: if *it were* not *so,* I would have told you. I go to prepare a place for you.
+> In my Father’s <u>house</u>[^a] are many <u>mansions</u>[^b]: if <i>it were</i> not <i>so,</i> I would have told you. I go to prepare a place for you.
 
 [John 14:2](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.2?lang=eng#p2)
 

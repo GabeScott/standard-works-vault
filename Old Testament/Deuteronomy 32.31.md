@@ -1,6 +1,6 @@
 # Deuteronomy 32:31
 
-> For their rock *is* not as our <u>Rock</u>[^a], even our enemies themselves *being* judges.
+> For their rock <i>is</i> not as our <u>Rock</u>[^a], even our enemies themselves <i>being</i> judges.
 
 [Deuteronomy 32:31](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.31?lang=eng#p31)
 

@@ -1,6 +1,6 @@
 # Proverbs 22:26
 
-> Be not thou *one* of them that <u>strike hands</u>[^a], *or* of them that are <u>sureties</u>[^b] for debts.
+> Be not thou <i>one</i> of them that <u>strike hands</u>[^a], <i>or</i> of them that are <u>sureties</u>[^b] for debts.
 
 [Proverbs 22:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.26?lang=eng#p26)
 

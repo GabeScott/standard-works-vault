@@ -1,6 +1,6 @@
 # Isaiah 65:4
 
-> <u>Which remain</u>[^a] among the graves, and lodge in the monuments, which eat swine’s flesh, and broth of abominable *things is in* their vessels;
+> <u>Which remain</u>[^a] among the graves, and lodge in the monuments, which eat swine’s flesh, and broth of abominable <i>things is in</i> their vessels;
 
 [Isaiah 65:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.4?lang=eng#p4)
 

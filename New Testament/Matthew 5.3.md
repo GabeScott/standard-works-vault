@@ -1,6 +1,6 @@
 # Matthew 5:3
 
-> <u>Blessed</u>[^a] *are* the <u>poor in spirit</u>[^b]: for theirs is the <u>kingdom</u>[^c] of heaven.
+> <u>Blessed</u>[^a] <i>are</i> the <u>poor in spirit</u>[^b]: for theirs is the <u>kingdom</u>[^c] of heaven.
 
 [Matthew 5:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.3?lang=eng#p3)
 

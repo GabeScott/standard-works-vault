@@ -1,6 +1,6 @@
 # Exodus 11:3
 
-> And the LORD gave the people <u>favour</u>[^a] in the sight of the Egyptians. Moreover the man Moses *was* very great in the land of Egypt, in the sight of Pharaoh’s servants, and in the sight of the people.
+> And the LORD gave the people <u>favour</u>[^a] in the sight of the Egyptians. Moreover the man Moses <i>was</i> very great in the land of Egypt, in the sight of Pharaoh’s servants, and in the sight of the people.
 
 [Exodus 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/11.3?lang=eng#p3)
 

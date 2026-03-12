@@ -1,6 +1,6 @@
 # Revelation 4:8
 
-> And the four beasts had each of them six wings about *him;* and *they were* full of eyes within: and they rest not day and night, saying, Holy, holy, holy, <u>Lord God</u>[^a] <u>Almighty</u>[^b], which was, and is, and is to come.
+> And the four beasts had each of them six wings about <i>him;</i> and <i>they were</i> full of eyes within: and they rest not day and night, saying, Holy, holy, holy, <u>Lord God</u>[^a] <u>Almighty</u>[^b], which was, and is, and is to come.
 
 [Revelation 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/4.8?lang=eng#p8)
 

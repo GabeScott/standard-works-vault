@@ -1,6 +1,6 @@
 # 2 Samuel 6:2
 
-> And David arose, and went with all the people that *were* with him from Baale of Judah, to bring up from thence the <u>ark</u>[^a] of God, whose name is called by the name of the LORD of hosts that dwelleth *between* the <u>cherubims</u>[^b].
+> And David arose, and went with all the people that <i>were</i> with him from Baale of Judah, to bring up from thence the <u>ark</u>[^a] of God, whose name is called by the name of the LORD of hosts that dwelleth <i>between</i> the <u>cherubims</u>[^b].
 
 [2 Samuel 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.2?lang=eng#p2)
 

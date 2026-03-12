@@ -1,6 +1,6 @@
 # Malachi 3:5
 
-> And I will come near to you to <u>judgment</u>[^a]; and I will be a swift witness against the <u>sorcerers</u>[^b], and against the <u>adulterers</u>[^c], and against <u>false</u>[^d] swearers, and against those that <u>oppress</u>[^e] the hireling in *his* <u>wages</u>[^f], the <u>widow</u>[^g], and the fatherless, and that turn aside the <u>stranger</u>[^h] *from his right,* and fear not me, saith the LORD of hosts.
+> And I will come near to you to <u>judgment</u>[^a]; and I will be a swift witness against the <u>sorcerers</u>[^b], and against the <u>adulterers</u>[^c], and against <u>false</u>[^d] swearers, and against those that <u>oppress</u>[^e] the hireling in <i>his</i> <u>wages</u>[^f], the <u>widow</u>[^g], and the fatherless, and that turn aside the <u>stranger</u>[^h] <i>from his right,</i> and fear not me, saith the LORD of hosts.
 
 [Malachi 3:5](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.5?lang=eng#p5)
 

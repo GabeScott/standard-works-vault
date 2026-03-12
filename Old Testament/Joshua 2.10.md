@@ -1,6 +1,6 @@
 # Joshua 2:10
 
-> For we have <u>heard</u>[^a] how the LORD dried up the water of the <u>Red sea</u>[^b] for you, when ye came out of Egypt; and what ye did unto the two kings of the <u>Amorites</u>[^c], that *were* on the other side Jordan, Sihon and Og, whom ye utterly destroyed.
+> For we have <u>heard</u>[^a] how the LORD dried up the water of the <u>Red sea</u>[^b] for you, when ye came out of Egypt; and what ye did unto the two kings of the <u>Amorites</u>[^c], that <i>were</i> on the other side Jordan, Sihon and Og, whom ye utterly destroyed.
 
 [Joshua 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/2.10?lang=eng#p10)
 

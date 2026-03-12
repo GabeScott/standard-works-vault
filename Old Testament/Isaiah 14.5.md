@@ -1,6 +1,6 @@
 # Isaiah 14:5
 
-> The LORD hath broken the <u>staff</u>[^a] of the <u>wicked</u>[^b], *and* the sceptre of the rulers.
+> The LORD hath broken the <u>staff</u>[^a] of the <u>wicked</u>[^b], <i>and</i> the sceptre of the rulers.
 
 [Isaiah 14:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.5?lang=eng#p5)
 

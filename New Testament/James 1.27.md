@@ -1,6 +1,6 @@
 # James 1:27
 
-> Pure <u>religion</u>[^a] and undefiled before God and the Father is this, To <u>visit</u>[^b] the <u>fatherless</u>[^c] and <u>widows</u>[^d] in their <u>affliction</u>[^e], *and* to keep himself <u>unspotted</u>[^f] from <u>the</u>[^g] <u>world</u>[^h].
+> Pure <u>religion</u>[^a] and undefiled before God and the Father is this, To <u>visit</u>[^b] the <u>fatherless</u>[^c] and <u>widows</u>[^d] in their <u>affliction</u>[^e], <i>and</i> to keep himself <u>unspotted</u>[^f] from <u>the</u>[^g] <u>world</u>[^h].
 
 [James 1:27](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.27?lang=eng#p27)
 

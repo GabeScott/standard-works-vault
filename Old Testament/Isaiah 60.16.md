@@ -1,6 +1,6 @@
 # Isaiah 60:16
 
-> Thou shalt also suck the <u>milk</u>[^a] of the Gentiles, and shalt suck the breast of <u>kings</u>[^b]: and thou shalt know that I the LORD *am* thy <u>Saviour</u>[^c] and thy Redeemer, the mighty One of Jacob.
+> Thou shalt also suck the <u>milk</u>[^a] of the Gentiles, and shalt suck the breast of <u>kings</u>[^b]: and thou shalt know that I the LORD <i>am</i> thy <u>Saviour</u>[^c] and thy Redeemer, the mighty One of Jacob.
 
 [Isaiah 60:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.16?lang=eng#p16)
 

@@ -1,6 +1,6 @@
 # Exodus 14:21
 
-> And Moses stretched out his hand over the <u>sea</u>[^a]; and the LORD <u>caused</u>[^b] the <u>sea</u>[^c] to <u>go back</u>[^d] by a strong east wind all that night, and made the sea <u>dry</u>[^e] *land,* and the <u>waters</u>[^f] were <u>divided</u>[^g].
+> And Moses stretched out his hand over the <u>sea</u>[^a]; and the LORD <u>caused</u>[^b] the <u>sea</u>[^c] to <i><u>go back</u></i>[^d] by a strong east wind all that night, and made the sea <u>dry</u>[^e] <i>land,</i> and the <u>waters</u>[^f] were <u>divided</u>[^g].
 
 [Exodus 14:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/14.21?lang=eng#p21)
 

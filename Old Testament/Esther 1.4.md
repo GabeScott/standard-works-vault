@@ -1,6 +1,6 @@
 # Esther 1:4
 
-> When he shewed the <u>riches</u>[^a] of his glorious kingdom and the honour of his excellent majesty many days, *even* an hundred and fourscore days.
+> When he shewed the <u>riches</u>[^a] of his glorious kingdom and the honour of his excellent majesty many days, <i>even</i> an hundred and fourscore days.
 
 [Esther 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/1.4?lang=eng#p4)
 

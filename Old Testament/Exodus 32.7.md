@@ -1,6 +1,6 @@
 # Exodus 32:7
 
-> ¶ And the LORD said unto Moses, Go, get thee down; for thy people, which thou broughtest out of the land of Egypt, have <u>corrupted</u>[^a] *themselves:*
+> ¶ And the LORD said unto Moses, Go, get thee down; for thy people, which thou broughtest out of the land of Egypt, have <u>corrupted</u>[^a] <i>themselves:</i>
 
 [Exodus 32:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.7?lang=eng#p7)
 

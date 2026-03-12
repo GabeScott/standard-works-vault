@@ -1,6 +1,6 @@
 # 1 Chronicles 1:27
 
-> Abram; the same *is* <u>Abraham</u>[^a].
+> Abram; the same <i>is</i> <u>Abraham</u>[^a].
 
 [1 Chronicles 1:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/1.27?lang=eng#p27)
 

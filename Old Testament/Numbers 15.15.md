@@ -1,6 +1,6 @@
 # Numbers 15:15
 
-> <u>One</u>[^a] ordinance *shall be both* for you of the congregation, and also for the stranger that sojourneth *with you,* an ordinance for ever in your generations: as ye *are,* so shall the <u>stranger</u>[^b] be before the LORD.
+> <u>One</u>[^a] ordinance <i>shall be both</i> for you of the congregation, and also for the stranger that sojourneth <i>with you,</i> an ordinance for ever in your generations: as ye <i>are,</i> so shall the <u>stranger</u>[^b] be before the LORD.
 
 [Numbers 15:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.15?lang=eng#p15)
 

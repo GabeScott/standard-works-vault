@@ -1,6 +1,6 @@
 # Psalms 119:148
 
-> <u>Mine</u>[^a] eyes prevent the *night* watches, that I might meditate in thy word.
+> <u>Mine</u>[^a] eyes prevent the <i>night</i> watches, that I might meditate in thy word.
 
 [Psalms 119:148](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.148?lang=eng#p148)
 

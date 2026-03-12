@@ -1,6 +1,6 @@
 # Deuteronomy 8:15
 
-> Who led thee through that great and terrible wilderness, *wherein were* fiery <u>serpents</u>[^a], and scorpions, and <u>drought</u>[^b], where *there was* no water; who brought thee forth <u>water</u>[^c] out of the rock of flint;
+> Who led thee through that great and terrible wilderness, <i>wherein were</i> fiery <u>serpents</u>[^a], and scorpions, and <u>drought</u>[^b], where <i>there was</i> no water; who brought thee forth <u>water</u>[^c] out of the rock of flint;
 
 [Deuteronomy 8:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.15?lang=eng#p15)
 

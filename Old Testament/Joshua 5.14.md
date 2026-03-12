@@ -1,6 +1,6 @@
 # Joshua 5:14
 
-> And he said, Nay; but *as* captain of the <u>host</u>[^a] of the LORD am I now come. And Joshua fell on his face to the earth, and did worship, and said unto him, What saith my lord unto his servant?
+> And he said, Nay; but <i>as</i> captain of the <u>host</u>[^a] of the LORD am I now come. And Joshua fell on his face to the earth, and did worship, and said unto him, What saith my lord unto his servant?
 
 [Joshua 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.14?lang=eng#p14)
 

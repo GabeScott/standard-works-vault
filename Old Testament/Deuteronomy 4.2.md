@@ -1,6 +1,6 @@
 # Deuteronomy 4:2
 
-> Ye shall not <u>add</u>[^a] unto the word which I command you, neither shall ye diminish *ought* from it, that ye may keep the commandments of the LORD your God which I command you.
+> Ye shall not <u>add</u>[^a] unto the word which I command you, neither shall ye diminish <i>ought</i> from it, that ye may keep the commandments of the LORD your God which I command you.
 
 [Deuteronomy 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.2?lang=eng#p2)
 

@@ -1,6 +1,6 @@
 # Acts 16:22
 
-> And the multitude rose up together against them: and the magistrates rent off their clothes, and commanded to <u>beat</u>[^a] *them.*
+> And the multitude rose up together against them: and the magistrates rent off their clothes, and commanded to <u>beat</u>[^a] <i>them.</i>
 
 [Acts 16:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.22?lang=eng#p22)
 

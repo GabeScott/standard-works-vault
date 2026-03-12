@@ -1,6 +1,6 @@
 # Luke 10:23
 
-> ¶ And he turned him unto *his* disciples, and said privately, Blessed *are* the <u>eyes</u>[^a] which see the things that ye see:
+> ¶ And he turned him unto <i>his</i> disciples, and said privately, Blessed <i>are</i> the <u>eyes</u>[^a] which see the things that ye see:
 
 [Luke 10:23](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.23?lang=eng#p23)
 

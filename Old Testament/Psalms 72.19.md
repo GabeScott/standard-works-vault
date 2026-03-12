@@ -1,6 +1,6 @@
 # Psalms 72:19
 
-> And blessed *be* his glorious name for ever: and let the whole earth be <u>filled</u>[^a] *with* his <u>glory</u>[^b]; Amen, and Amen.
+> And blessed <i>be</i> his glorious name for ever: and let the whole earth be <u>filled</u>[^a] <i>with</i> his <u>glory</u>[^b]; Amen, and Amen.
 
 [Psalms 72:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/72.19?lang=eng#p19)
 

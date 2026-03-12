@@ -1,6 +1,6 @@
 # Exodus 19:4
 
-> Ye have seen what I did unto the Egyptians, and *how* I bare you on <u>eagles’</u>[^a] wings, and brought you unto myself.
+> Ye have seen what I did unto the Egyptians, and <i>how</i> I bare you on <u>eagles’</u>[^a] wings, and brought you unto myself.
 
 [Exodus 19:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.4?lang=eng#p4)
 

@@ -1,6 +1,6 @@
 # Psalms 109:21
 
-> But do thou for me, O GOD the Lord, for thy <u>name’s</u>[^a] sake: because thy mercy *is* good, deliver thou me.
+> But do thou for me, O GOD the Lord, for thy <u>name’s</u>[^a] sake: because thy mercy <i>is</i> good, deliver thou me.
 
 [Psalms 109:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/109.21?lang=eng#p21)
 

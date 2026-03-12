@@ -1,6 +1,6 @@
 # Matthew 3:11
 
-> <u>I</u>[^a] indeed <u>baptize</u>[^b] you with water unto <u>repentance</u>[^c]: but <u>he</u>[^d] that cometh after me is mightier than I, whose shoes I am not <u>worthy</u>[^e] to bear: he shall <u>baptize</u>[^f] you with the Holy Ghost, and *with* <u>fire</u>[^g]:
+> <u>I</u>[^a] indeed <u>baptize</u>[^b] you with water unto <u>repentance</u>[^c]: but <u>he</u>[^d] that cometh after me is mightier than I, whose shoes I am not <u>worthy</u>[^e] to bear: he shall <u>baptize</u>[^f] you with the Holy Ghost, and <i>with</i> <u>fire</u>[^g]:
 
 [Matthew 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.11?lang=eng#p11)
 

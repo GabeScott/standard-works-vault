@@ -1,6 +1,6 @@
 # Ephesians 5:11
 
-> And have no <u>fellowship</u>[^a] with the unfruitful works of <u>darkness</u>[^b], but rather <u>reprove</u>[^c] *them.*
+> And have no <u>fellowship</u>[^a] with the unfruitful works of <u>darkness</u>[^b], but rather <u>reprove</u>[^c] <i>them.</i>
 
 [Ephesians 5:11](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.11?lang=eng#p11)
 

@@ -1,6 +1,6 @@
 # Romans 8:10
 
-> And if <u>Christ</u>[^a] *be* in you, <u>the</u>[^b] body *is* dead because of sin; but the Spirit *is* life because of <u>righteousness</u>[^c].
+> And if <u>Christ</u>[^a] <i>be</i> in you, <u>the</u>[^b] body <i>is</i> dead because of sin; but the Spirit <i>is</i> life because of <u>righteousness</u>[^c].
 
 [Romans 8:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.10?lang=eng#p10)
 

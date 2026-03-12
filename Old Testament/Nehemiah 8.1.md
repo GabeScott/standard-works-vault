@@ -1,6 +1,6 @@
 # Nehemiah 8:1
 
-> And all the people gathered themselves together as one man into the street that *was* before the <u>water gate</u>[^a]; and they spake unto <u>Ezra</u>[^b] the <u>scribe</u>[^c] to bring the book of the law of Moses, which the LORD had commanded to Israel.
+> And all the people gathered themselves together as one man into the street that <i>was</i> before the <u>water gate</u>[^a]; and they spake unto <u>Ezra</u>[^b] the <u>scribe</u>[^c] to bring the book of the law of Moses, which the LORD had commanded to Israel.
 
 [Nehemiah 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.1?lang=eng#p1)
 

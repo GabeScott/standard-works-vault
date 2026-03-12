@@ -1,6 +1,6 @@
 # 1 Kings 8:21
 
-> And I have set there a place for the ark, wherein *is* the <u>covenant</u>[^a] of the LORD, which he made with our fathers, when he brought them out of the land of Egypt.
+> And I have set there a place for the ark, wherein <i>is</i> the <u>covenant</u>[^a] of the LORD, which he made with our fathers, when he brought them out of the land of Egypt.
 
 [1 Kings 8:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.21?lang=eng#p21)
 

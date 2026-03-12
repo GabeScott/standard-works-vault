@@ -1,6 +1,6 @@
 # Ezekiel 36:20
 
-> And when they entered unto the heathen, whither they went, they <u>profaned</u>[^a] my holy name, when they said to them, These *are* the people of the LORD, and are gone forth <u>out of his land</u>[^b].
+> And when they entered unto the heathen, whither they went, they <u>profaned</u>[^a] my holy name, when they said to them, These <i>are</i> the people of the LORD, and are gone forth <u>out of his land</u>[^b].
 
 [Ezekiel 36:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.20?lang=eng#p20)
 

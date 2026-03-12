@@ -1,6 +1,6 @@
 # Romans 7:18
 
-> For I know that in me (that is, in my <u>flesh</u>[^a],) <u>dwelleth</u>[^b] no good thing: for to will is present with me; but *how* to <u>perform</u>[^c] that which is good I find not.
+> For I know that in me (that is, in my <u>flesh</u>[^a],) <u>dwelleth</u>[^b] no good thing: for to will is present with me; but <i>how</i> to <u>perform</u>[^c] that which is good I find not.
 
 [Romans 7:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.18?lang=eng#p18)
 

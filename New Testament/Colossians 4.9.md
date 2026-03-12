@@ -1,6 +1,6 @@
 # Colossians 4:9
 
-> With <u>Onesimus</u>[^a], a faithful and beloved brother, who is *one* of you. They shall make known unto you all things which *are done* here.
+> With <u>Onesimus</u>[^a], a faithful and beloved brother, who is <i>one</i> of you. They shall make known unto you all things which <i>are done</i> here.
 
 [Colossians 4:9](https://www.churchofjesuschrist.org/study/scriptures/nt/col/4.9?lang=eng#p9)
 

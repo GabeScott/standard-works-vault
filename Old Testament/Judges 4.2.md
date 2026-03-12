@@ -1,6 +1,6 @@
 # Judges 4:2
 
-> And the LORD <u>sold</u>[^a] them into the hand of Jabin king of Canaan, that reigned in Hazor; the captain of whose host *was* Sisera, which dwelt in Harosheth of the Gentiles.
+> And the LORD <u>sold</u>[^a] them into the hand of Jabin king of Canaan, that reigned in Hazor; the captain of whose host <i>was</i> Sisera, which dwelt in Harosheth of the Gentiles.
 
 [Judges 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/4.2?lang=eng#p2)
 

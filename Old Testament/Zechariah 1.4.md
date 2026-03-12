@@ -1,6 +1,6 @@
 # Zechariah 1:4
 
-> Be ye not as your <u>fathers</u>[^a], unto whom the former prophets have cried, saying, Thus saith the LORD of hosts; Turn ye now from your evil ways, and *from* your evil doings: but they did <u>not hear</u>[^b], nor <u>hearken</u>[^c] unto me, saith the LORD.
+> Be ye not as your <u>fathers</u>[^a], unto whom the former prophets have cried, saying, Thus saith the LORD of hosts; Turn ye now from your evil ways, and <i>from</i> your evil doings: but they did <u>not hear</u>[^b], nor <u>hearken</u>[^c] unto me, saith the LORD.
 
 [Zechariah 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.4?lang=eng#p4)
 

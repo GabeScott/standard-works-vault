@@ -1,6 +1,6 @@
 # Leviticus 20:21
 
-> And if a man shall take his brother’s wife, it *is* <u>an unclean thing</u>[^a]: he hath uncovered his brother’s nakedness; they shall be childless.
+> And if a man shall take his brother’s wife, it <i>is</i> <u>an unclean thing</u>[^a]: he hath uncovered his brother’s nakedness; they shall be childless.
 
 [Leviticus 20:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.21?lang=eng#p21)
 

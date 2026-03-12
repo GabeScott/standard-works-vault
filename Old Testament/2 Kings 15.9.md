@@ -1,6 +1,6 @@
 # 2 Kings 15:9
 
-> And he did *that which was* evil in the sight of the LORD, as his fathers had done: he departed not from the sins of <u>Jeroboam</u>[^a] the son of Nebat, who made Israel to sin.
+> And he did <i>that which was</i> evil in the sight of the LORD, as his fathers had done: he departed not from the sins of <u>Jeroboam</u>[^a] the son of Nebat, who made Israel to sin.
 
 [2 Kings 15:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/15.9?lang=eng#p9)
 

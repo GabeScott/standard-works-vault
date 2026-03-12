@@ -1,6 +1,6 @@
 # Isaiah 30:18
 
-> ¶ And therefore will the LORD <u>wait</u>[^a], that he may be gracious unto you, and therefore will he be exalted, that he may have mercy upon you: for the LORD *is* a God of <u>judgment</u>[^b]: blessed *are* all they that <u>wait</u>[^c] for him.
+> ¶ And therefore will the LORD <u>wait</u>[^a], that he may be gracious unto you, and therefore will he be exalted, that he may have mercy upon you: for the LORD <i>is</i> a God of <u>judgment</u>[^b]: blessed <i>are</i> all they that <u>wait</u>[^c] for him.
 
 [Isaiah 30:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.18?lang=eng#p18)
 

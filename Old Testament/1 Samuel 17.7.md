@@ -1,6 +1,6 @@
 # 1 Samuel 17:7
 
-> And the <u>staff</u>[^a] of his spear *was* like a weaver’s beam; and his spear’s head *weighed* six hundred shekels of iron: and one bearing a shield went before him.
+> And the <u>staff</u>[^a] of his spear <i>was</i> like a weaver’s beam; and his spear’s head <i>weighed</i> six hundred shekels of iron: and one bearing a shield went before him.
 
 [1 Samuel 17:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.7?lang=eng#p7)
 

@@ -1,6 +1,6 @@
 # John 14:12
 
-> Verily, verily, I say unto you, He that <u>believeth</u>[^a] on me, the works that I do shall he do also; and greater *works* than these shall he do; because I <u>go</u>[^b] unto my <u>Father</u>[^c].
+> Verily, verily, I say unto you, He that <u>believeth</u>[^a] on me, the works that I do shall he do also; and greater <i>works</i> than these shall he do; because I <u>go</u>[^b] unto my <u>Father</u>[^c].
 
 [John 14:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.12?lang=eng#p12)
 

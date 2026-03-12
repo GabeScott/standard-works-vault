@@ -1,6 +1,6 @@
 # Psalms 17:5
 
-> <u>Hold</u>[^a] up my goings in thy paths, *that* my footsteps slip not.
+> <u>Hold</u>[^a] up my goings in thy paths, <i>that</i> my footsteps slip not.
 
 [Psalms 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/17.5?lang=eng#p5)
 

@@ -1,6 +1,6 @@
 # 2 Chronicles 30:8
 
-> Now be ye not <u>stiffnecked</u>[^a], as your fathers *were, but* <u>yield</u>[^b] yourselves unto the LORD, and enter into his sanctuary, which he hath sanctified for ever: and serve the LORD your God, that the fierceness of his wrath may turn away from you.
+> Now be ye not <u>stiffnecked</u>[^a], as your fathers <i>were, but</i> <u>yield</u>[^b] yourselves unto the LORD, and enter into his sanctuary, which he hath sanctified for ever: and serve the LORD your God, that the fierceness of his wrath may turn away from you.
 
 [2 Chronicles 30:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.8?lang=eng#p8)
 

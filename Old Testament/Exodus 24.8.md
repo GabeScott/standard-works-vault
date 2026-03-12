@@ -1,6 +1,6 @@
 # Exodus 24:8
 
-> And Moses took the <u>blood</u>[^a], and <u>sprinkled</u>[^b] *it* on the people, and said, Behold the <u>blood</u>[^c] of the <u>covenant</u>[^d], which the LORD hath made with you concerning all these words.
+> And Moses took the <u>blood</u>[^a], and <u>sprinkled</u>[^b] <i>it</i> on the people, and said, Behold the <u>blood</u>[^c] of the <u>covenant</u>[^d], which the LORD hath made with you concerning all these words.
 
 [Exodus 24:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.8?lang=eng#p8)
 

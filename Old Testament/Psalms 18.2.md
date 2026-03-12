@@ -1,6 +1,6 @@
 # Psalms 18:2
 
-> The LORD *is* my <u>rock</u>[^a], and my <u>fortress</u>[^b], and my deliverer; my God, my <u>strength</u>[^c], in whom I will <u>trust</u>[^d]; my buckler, and the horn of my salvation, *and* my high tower.
+> The LORD <i>is</i> my <u>rock</u>[^a], and my <u>fortress</u>[^b], and my deliverer; my God, my <u>strength</u>[^c], in whom I will <u>trust</u>[^d]; my buckler, and the horn of my salvation, <i>and</i> my high tower.
 
 [Psalms 18:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/18.2?lang=eng#p2)
 

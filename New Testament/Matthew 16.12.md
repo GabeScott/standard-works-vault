@@ -1,6 +1,6 @@
 # Matthew 16:12
 
-> Then understood they how that he bade *them* not beware of the leaven of bread, but of the <u>doctrine</u>[^a] of the Pharisees and of the <u>Sadducees</u>[^b].
+> Then understood they how that he bade <i>them</i> not beware of the leaven of bread, but of the <u>doctrine</u>[^a] of the Pharisees and of the <u>Sadducees</u>[^b].
 
 [Matthew 16:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.12?lang=eng#p12)
 

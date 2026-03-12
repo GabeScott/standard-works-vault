@@ -1,6 +1,6 @@
 # John 1:7
 
-> The same came for a <u>witness</u>[^a], to bear <u>witness</u>[^b] of the Light, that all *men* through him might <u>believe</u>[^c].
+> The same came for a <u>witness</u>[^a], to bear <u>witness</u>[^b] of the Light, that all <i>men</i> through him might <u>believe</u>[^c].
 
 [John 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.7?lang=eng#p7)
 

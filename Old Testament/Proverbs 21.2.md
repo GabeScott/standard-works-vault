@@ -1,6 +1,6 @@
 # Proverbs 21:2
 
-> Every way of a man *is* right in his <u>own eyes</u>[^a]: but the LORD <u>pondereth</u>[^b] the <u>hearts</u>[^c].
+> Every way of a man <i>is</i> right in his <u>own eyes</u>[^a]: but the LORD <u>pondereth</u>[^b] the <u>hearts</u>[^c].
 
 [Proverbs 21:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.2?lang=eng#p2)
 

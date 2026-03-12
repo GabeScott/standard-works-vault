@@ -1,6 +1,6 @@
 # 2 Kings 21:12
 
-> Therefore thus saith the LORD God of Israel, Behold, I *am* bringing *such* evil upon Jerusalem and Judah, that whosoever heareth of it, both his ears shall <u>tingle</u>[^a].
+> Therefore thus saith the LORD God of Israel, Behold, I <i>am</i> bringing <i>such</i> evil upon Jerusalem and Judah, that whosoever heareth of it, both his ears shall <u>tingle</u>[^a].
 
 [2 Kings 21:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.12?lang=eng#p12)
 

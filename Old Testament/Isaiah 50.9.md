@@ -1,6 +1,6 @@
 # Isaiah 50:9
 
-> Behold, the Lord GOD will help me; who *is* he *that* shall condemn me? lo, they all shall wax <u>old</u>[^a] as a garment; the <u>moth</u>[^b] shall eat them up.
+> Behold, the Lord GOD will help me; who <i>is</i> he <i>that</i> shall condemn me? lo, they all shall wax <u>old</u>[^a] as a garment; the <u>moth</u>[^b] shall eat them up.
 
 [Isaiah 50:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.9?lang=eng#p9)
 
