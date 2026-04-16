@@ -30,7 +30,7 @@ Jesus Christ walking with His disciples on the road to Emmaus reveals a covenant
 
 Each Sabbath we invite all to come worship Jesus Christ in the community of His restored Church. In the sacramental ordinance, we covenant that we are willing to take upon us the name of Jesus Christ, always remember Him, and keep His commandments. He promises we can always have His Spirit to be with us.[^17] As we witness and remember Jesus each week, we abide and walk with Him.
 
-Just as the disciples on the road to Emmaus ask Jesus to abide with them,[^18] Jesus Christ promises to abide with us. In the Gospel of John, [[John 14.1|John 14]][[John 14.2|]][[John 14.3|]][[John 14.4|]][[John 14.5|]][[John 14.6|]][[John 14.7|]][[John 14.8|]][[John 14.9|]][[John 14.10|]][[John 14.11|]][[John 14.12|]][[John 14.13|]][[John 14.14|]][[John 14.15|]][[John 14.16|]][[John 14.17|]][[John 14.18|]][[John 14.19|]][[John 14.20|]][[John 14.21|]][[John 14.22|]][[John 14.23|]][[John 14.24|]][[John 14.25|]][[John 14.26|]][[John 14.27|]][[John 14.28|]][[John 14.29|]][[John 14.30|]][[John 14.31|]], Jesus teaches His disciples and us how He can remain, belong, walk with us. His faithfulness is stronger than the cords of death.[^19]
+Just as the disciples on the road to Emmaus ask Jesus to abide with them,[^18] Jesus Christ promises to abide with us. In the Gospel of John, [[John 14.1|chapters 14 and 15]][[John 14.2|]][[John 14.3|]][[John 14.4|]][[John 14.5|]][[John 14.6|]][[John 14.7|]][[John 14.8|]][[John 14.9|]][[John 14.10|]][[John 14.11|]][[John 14.12|]][[John 14.13|]][[John 14.14|]][[John 14.15|]][[John 14.16|]][[John 14.17|]][[John 14.18|]][[John 14.19|]][[John 14.20|]][[John 14.21|]][[John 14.22|]][[John 14.23|]][[John 14.24|]][[John 14.25|]][[John 14.26|]][[John 14.27|]][[John 14.28|]][[John 14.29|]][[John 14.30|]][[John 14.31|]], Jesus teaches His disciples and us how He can remain, belong, walk with us. His faithfulness is stronger than the cords of death.[^19]
 
 When we have a question, problem, or joy, Jesus Christ says, “I am your answer—your way, your truth, your life.”[^20]
 
@@ -85,29 +85,29 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^5]: [[Luke 24.29|Luke 24:29]]. Two beloved hymns are “Abide with Me; ’Tis Eventide” (*Hymns*, no. 165) and “Abide with Me!” (*Hymns*, no. 166).
 
-[^6]: See [[Luke 24.29|Luke 24:29]], [[Luke 24.30|Luke 24:30]], [[Luke 24.31|Luke 24:31]].
+[^6]: See [[Luke 24.29|Luke 24:29–31]][[Luke 24.30|]][[Luke 24.31|]].
 
 [^7]: [[Mark 16.9|Mark 16:9]].
 
-[^8]: See [[John 20.11|John 20:11]], [[John 20.14|John 20:14]], [[John 20.15|John 20:15]].
+[^8]: See [[John 20.11|John 20:11, 14–15]][[John 20.14|]][[John 20.15|]].
 
 [^9]: [[Mark 16.12|Mark 16:12]].
 
-[^10]: See [[Luke 24.33|Luke 24:33]], [[Luke 24.34|Luke 24:34]], [[Luke 24.35|Luke 24:35]].
+[^10]: See [[Luke 24.33|Luke 24:33–35]][[Luke 24.34|]][[Luke 24.35|]].
 
 [^11]: [[Mark 16.14|Mark 16:14]].
 
-[^12]: [[Luke 24.36|Luke 24:36]], [[Luke 24.39|Luke 24:39]].
+[^12]: [[Luke 24.36|Luke 24:36, 39]][[Luke 24.39|]].
 
 [^13]: [[Luke 24.42|Luke 24:42]].
 
 [^14]: [[Luke 24.32|Luke 24:32]].
 
-[^15]: See [[Luke 24.30|Luke 24:30]], [[Luke 24.31|Luke 24:31]].
+[^15]: See [[Luke 24.30|Luke 24:30–31]][[Luke 24.31|]].
 
 [^16]: See [[Moses 6.34|Moses 6:34]]. This, of course, is also our 2026 youth theme. Dear youth of the noble birthright, you can witness and remember Jesus Christ regularly through the ordinance and covenant of the sacrament. Do your best to abide and walk with Him. Let the promises of Easter be real for you each day. Be faithful and prayerful, kind and helpful, clean and pure. Learn and grow. His Spirit will be with you. I promise.
 
-[^17]: See [[D&C 20.77|D&C 20:77]], [[D&C 20.79|D&C 20:79]].
+[^17]: See [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
 
 [^18]: With the disciples on the road to Emmaus, we sing: “Abide with me! fast falls the eventide; the darkness deepens. Lord, with me abide!” Continuing: “Earth’s joys grow dim; its glories pass away. Change and decay in all around I see; O thou who changest not, abide with me!” (“Abide with Me!,” *Hymns*, no. 166).
 
@@ -125,7 +125,7 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^25]: [[John 14.21|John 14:21]].
 
-[^26]: [[John 14.23|John 14:23]]; see also [[1 John 3.24|1 John 3:24]]; [[Revelation 3.20|Revelation 3:20]]; [[D&C 88.3|D&C 88:3]]; [[D&C 130.3|D&C 130:3]]. Regarding [[John 14.23|John 14:23]], [[D&C 130.3|D&C 130:3]] states, “The appearing of the Father and the Son, in that verse, is a personal appearance; and the idea that the Father and the Son dwell in a man’s heart is an old sectarian notion, and is false.” With reverence, we note that to make abode occurs when someone comes to abide—we abide in abode.
+[^26]: [[John 14.23|John 14:23]]; see also [[1 John 3.24|1 John 3:24]]; [[Revelation 3.20|Revelation 3:20]]; [[D&C 88.3|Doctrine and Covenants 88:3]]; [[D&C 130.3|130:3]]. Regarding [[John 14.23|John 14:23]], [[D&C 130.3|Doctrine and Covenants 130:3]] states, “The appearing of the Father and the Son, in that verse, is a personal appearance; and the idea that the Father and the Son dwell in a man’s heart is an old sectarian notion, and is false.” With reverence, we note that to make abode occurs when someone comes to abide—we abide in abode.
 
 [^27]: See [[John 15.1|John 15:1]].
 
@@ -145,7 +145,7 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^35]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
-[^36]: [[2 Nephi 11.5|2 Nephi 11:5]].
+[^36]: [[2 Nephi 11.5|2 Nephi 11:5]].
 
 [^37]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18) (2007), 49.
 

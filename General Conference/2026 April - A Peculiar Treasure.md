@@ -47,7 +47,7 @@ I testify that as we obey the Savior’s voice and keep our covenants—even by 
 
 [^7]: Dallin H. Oaks, “[[2024 October - Following Christ.md|Following Christ]],” *Liahona*, Nov. 2024, 24.
 
-[^8]: [[D&C 97.8|D&C 97:8]].
+[^8]: [[D&C 97.8|Doctrine and Covenants 97:8]].
 
 [^9]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Liahona*, May 2009, 21; emphasis added.
 

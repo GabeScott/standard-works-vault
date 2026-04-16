@@ -36,7 +36,7 @@ Those eternal truths are often proven through invitation.
 
 ## Invitations
 
-In [[Matthew 14.1|Matthew 14]][[Matthew 14.2|]][[Matthew 14.3|]][[Matthew 14.4|]][[Matthew 14.5|]][[Matthew 14.6|]][[Matthew 14.7|]][[Matthew 14.8|]][[Matthew 14.9|]][[Matthew 14.10|]][[Matthew 14.11|]][[Matthew 14.12|]][[Matthew 14.13|]][[Matthew 14.14|]][[Matthew 14.15|]][[Matthew 14.16|]][[Matthew 14.17|]][[Matthew 14.18|]][[Matthew 14.19|]][[Matthew 14.20|]][[Matthew 14.21|]][[Matthew 14.22|]][[Matthew 14.23|]][[Matthew 14.24|]][[Matthew 14.25|]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]][[Matthew 14.32|]][[Matthew 14.33|]][[Matthew 14.34|]][[Matthew 14.35|]][[Matthew 14.36|]] Peter and the other disciples were caught in a storm when Jesus approached the ship. Peter cried out, “Lord, if it be thou, bid me come unto thee on the water.” And Jesus answered with an invitation: “Come.” So Peter stepped out of the boat. “He walked on the water, to go to Jesus.”[^5]
+In [[Matthew 14.1|Matthew 14,]][[Matthew 14.2|]][[Matthew 14.3|]][[Matthew 14.4|]][[Matthew 14.5|]][[Matthew 14.6|]][[Matthew 14.7|]][[Matthew 14.8|]][[Matthew 14.9|]][[Matthew 14.10|]][[Matthew 14.11|]][[Matthew 14.12|]][[Matthew 14.13|]][[Matthew 14.14|]][[Matthew 14.15|]][[Matthew 14.16|]][[Matthew 14.17|]][[Matthew 14.18|]][[Matthew 14.19|]][[Matthew 14.20|]][[Matthew 14.21|]][[Matthew 14.22|]][[Matthew 14.23|]][[Matthew 14.24|]][[Matthew 14.25|]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]][[Matthew 14.32|]][[Matthew 14.33|]][[Matthew 14.34|]][[Matthew 14.35|]][[Matthew 14.36|]] Peter and the other disciples were caught in a storm when Jesus approached the ship. Peter cried out, “Lord, if it be thou, bid me come unto thee on the water.” And Jesus answered with an invitation: “Come.” So Peter stepped out of the boat. “He walked on the water, to go to Jesus.”[^5]
 
 Best day.
 
@@ -103,21 +103,21 @@ Jesus Christ is our strength. This I know. Of this I bear witness in the name of
 
 [^2]: See [[Moses 6.34|Moses 6:34]].
 
-[^3]: See [[Matthew 16.13|Matthew 16:13]], [[Matthew 16.14|Matthew 16:14]], [[Matthew 16.15|Matthew 16:15]], [[Matthew 16.16|Matthew 16:16]], [[Matthew 16.17|Matthew 16:17]].
+[^3]: See [[Matthew 16.13|Matthew 16:13–17]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]].
 
-[^4]: See [[Matthew 16.21|Matthew 16:21]], [[Matthew 16.22|Matthew 16:22]], [[Matthew 16.23|Matthew 16:23]].
+[^4]: See [[Matthew 16.21|Matthew 16:21–23]][[Matthew 16.22|]][[Matthew 16.23|]].
 
-[^5]: [[Matthew 14.28|Matthew 14:28]], [[Matthew 14.29|Matthew 14:29]].
+[^5]: [[Matthew 14.28|Matthew 14:28, 29]][[Matthew 14.29|]].
 
 [^6]: See [[Matthew 14.30|Matthew 14:30]].
 
 [^7]: [[Luke 22.61|Luke 22:61]].
 
-[^8]: See [[Luke 22.32|Luke 22:32]], [[Luke 22.33|Luke 22:33]], [[Luke 22.34|Luke 22:34]]; see also [[Luke 22.61|Luke 22:61]].
+[^8]: See [[Luke 22.32|Luke 22:32–34]][[Luke 22.33|]][[Luke 22.34|]]; see also [[Luke 22.61|Luke 22:61]].
 
 [^9]: [[John 21.17|John 21:17]].
 
-[^10]: Joseph Smith experienced something similar when he feared man more than God. On that day he was reminded of the importance of continuing in faith and then received these words from the Lord: “Behold, thou art Joseph, and thou wast chosen to do the work of the Lord. … Repent of that which thou hast done … \[;\] thou art still chosen, and art again called to the work” ([[D&C 3.9|D&C 3:9]], [[D&C 3.10|D&C 3:10]]).
+[^10]: Joseph Smith experienced something similar when he feared man more than God. On that day he was reminded of the importance of continuing in faith and then received these words from the Lord: “Behold, thou art Joseph, and thou wast chosen to do the work of the Lord. … Repent of that which thou hast done … \[;\] thou art still chosen, and art again called to the work” ([[D&C 3.9|Doctrine and Covenants 3:9, 10]][[D&C 3.10|]]).
 
 [^11]: Scripture tells us that Peter was a skilled fisherman, but we don’t read anywhere that he was trained as a shepherd. The Lord was calling him to a greater work, inviting Peter to become who the Lord knew he was capable of becoming.
 
@@ -143,5 +143,5 @@ Jesus Christ is our strength. This I know. Of this I bear witness in the name of
 
 [^22]: See [[John 20.1|John 20:1]].
 
-[^23]: See [[John 20.5|John 20:5]], [[John 20.6|John 20:6]], [[John 20.7|John 20:7]].
+[^23]: See [[John 20.5|John 20:5–7]][[John 20.6|]][[John 20.7|]].
 

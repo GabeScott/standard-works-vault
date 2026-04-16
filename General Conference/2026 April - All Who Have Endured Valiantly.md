@@ -1,6 +1,6 @@
 # All Who Have Endured Valiantly
 
-([[D&C 121.29|D&C 121:29]])
+([[D&C 121.29|Doctrine and Covenants 121:29]])
 
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
@@ -72,17 +72,11 @@ He “came and dwelt in the flesh,”[^27] and “he received not of the fulness
 
 I am now going to read three scriptures that contain the phrase “endure to the end.” I will insert the phrase “is possessed of the pure love of Christ” in each verse so we can learn a vital and eternal lesson.
 
-1. 
-The Savior taught His ancient Apostles: “He that *endureth to the end \[or is possessed of the pure love of Christ\]* shall be saved.”[^31]
+1. The Savior taught His ancient Apostles: “He that *endureth to the end \[or is possessed of the pure love of Christ\]* shall be saved.”[^31]
 
+2. Nephi testified: “I heard a voice from the Father, saying: Yea, the words of my Beloved are true and faithful. He that *endureth to the end \[or is possessed of the pure love of Christ\]*, the same shall be saved.”[^32]
 
-2. 
-Nephi testified: “I heard a voice from the Father, saying: Yea, the words of my Beloved are true and faithful. He that *endureth to the end \[or is possessed of the pure love of Christ\]*, the same shall be saved.”[^32]
-
-
-3. 
-Alma declared: “He that findeth mercy and *endureth to the end \[or is possessed of the pure love of Christ\]* the same shall be saved.”[^33]
-
+3. Alma declared: “He that findeth mercy and *endureth to the end \[or is possessed of the pure love of Christ\]* the same shall be saved.”[^33]
 
 Enduring to the end is linked inextricably to the spiritual gift of charity. Enduring to the end is not merely a relentless determination to grit our teeth, hold on to the limits of our physical strength and mental capacity, and push through the challenges and adversities of mortal life; it is so much more than that.
 
@@ -101,31 +95,31 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 
 
-[^1]: [[3 Nephi 15.9|3 Nephi 15:9]].
+[^1]: [[3 Nephi 15.9|3 Nephi 15:9]].
 
-[^2]: [[D&C 14.7|D&C 14:7]].
+[^2]: [[D&C 14.7|Doctrine and Covenants 14:7]].
 
-[^3]: See [[Mosiah 5.2|Mosiah 5:2]], [[Mosiah 5.7|Mosiah 5:7]].
+[^3]: See [[Mosiah 5.2|Mosiah 5:2, 7]][[Mosiah 5.7|]].
 
 [^4]: See [[Mosiah 3.19|Mosiah 3:19]].
 
 [^5]: [[Moroni 10.32|Moroni 10:32]].
 
-[^6]: See [[Mosiah 27.24|Mosiah 27:24]], [[Mosiah 27.25|Mosiah 27:25]], [[Mosiah 27.26|Mosiah 27:26]].
+[^6]: See [[Mosiah 27.24|Mosiah 27:24–26]][[Mosiah 27.25|]][[Mosiah 27.26|]].
 
-[^7]: See [[D&C 84.20|D&C 84:20]], [[D&C 84.21|D&C 84:21]].
+[^7]: See [[D&C 84.20|Doctrine and Covenants 84:20–21]][[D&C 84.21|]].
 
-[^8]: See [[D&C 18.23|D&C 18:23]].
+[^8]: See [[D&C 18.23|Doctrine and Covenants 18:23]].
 
-[^9]: [[D&C 109.15|D&C 109:15]].
+[^9]: [[D&C 109.15|Doctrine and Covenants 109:15]].
 
-[^10]: See [[Alma 5.12|Alma 5:12]], [[Alma 5.13|Alma 5:13]], [[Alma 5.14|Alma 5:14]].
+[^10]: See [[Alma 5.12|Alma 5:12–14]][[Alma 5.13|]][[Alma 5.14|]].
 
-[^11]: [[D&C 4.2|D&C 4:2]].
+[^11]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
-[^12]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 27.26|Mosiah 27:26]].
+[^12]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 27.26|Mosiah 27:26]].
 
-[^13]: [[2 Nephi 2.8|2 Nephi 2:8]].
+[^13]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^14]: Topics and Questions, “[Spiritual Gifts](https://churchofjesuschrist.org/study/manual/gospel-topics/spiritual-gifts?lang=eng),” Gospel Library.
 
@@ -149,29 +143,29 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 [^24]: “How Great the Wisdom and the Love,” *Hymns*, no. 195.
 
-[^25]: [[D&C 93.21|D&C 93:21]].
+[^25]: [[D&C 93.21|Doctrine and Covenants 93:21]].
 
-[^26]: See [[D&C 93.23|D&C 93:23]].
+[^26]: See [[D&C 93.23|Doctrine and Covenants 93:23]].
 
-[^27]: [[D&C 93.11|D&C 93:11]].
+[^27]: [[D&C 93.11|Doctrine and Covenants 93:11]].
 
-[^28]: [[D&C 93.13|D&C 93:13]].
+[^28]: [[D&C 93.13|Doctrine and Covenants 93:13]].
 
-[^29]: See [[D&C 93.19|D&C 93:19]], [[D&C 93.20|D&C 93:20]].
+[^29]: See [[D&C 93.19|Doctrine and Covenants 93:19–20]][[D&C 93.20|]].
 
-[^30]: See [[D&C 93.12|D&C 93:12]], [[D&C 93.13|D&C 93:13]][[D&C 93.20|D&C 93:20]].
+[^30]: See [[D&C 93.12|Doctrine and Covenants 93:12–13, 20]][[D&C 93.13|]][[D&C 93.20|]].
 
 [^31]: [[Matthew 10.22|Matthew 10:22]]; emphasis added.
 
-[^32]: [[2 Nephi 31.15|2 Nephi 31:15]]; emphasis added.
+[^32]: [[2 Nephi 31.15|2 Nephi 31:15]]; emphasis added.
 
 [^33]: [[Alma 32.13|Alma 32:13]]; emphasis added.
 
-[^34]: See [[Alma 26.11|Alma 26:11]]; [[Alma 27.18|Alma 27:18]]; [[3 Nephi 27.30|3 Nephi 27:30]].
+[^34]: See [[Alma 26.11|Alma 26:11]]; [[Alma 27.18|27:18]]; [[3 Nephi 27.30|3 Nephi 27:30]].
 
-[^35]: [[3 Nephi 9.22|3 Nephi 9:22]].
+[^35]: [[3 Nephi 9.22|3 Nephi 9:22]].
 
 [^36]: See [[Mosiah 5.2|Mosiah 5:2]].
 
-[^37]: [[D&C 121.29|D&C 121:29]]; emphasis added.
+[^37]: [[D&C 121.29|Doctrine and Covenants 121:29]]; emphasis added.
 

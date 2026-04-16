@@ -87,15 +87,15 @@ I testify that Jesus Christ restored His Church, *The Church of Jesus Christ of 
 
 [^4]: See [[Acts 9.4|Acts 9:4]].
 
-[^5]: See [[Joseph Smith History 1.17|Joseph Smith History 1:17]].
+[^5]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
 [^6]: [[Alma 7.13|Alma 7:13]].
 
-[^7]: [[Alma 7.11|Alma 7:11]], [[Alma 7.12|Alma 7:12]].
+[^7]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-[^8]: [[D&C 121.1|D&C 121:1]].
+[^8]: [[D&C 121.1|Doctrine and Covenants 121:1]].
 
-[^9]: [[D&C 88.6|D&C 88:6]].
+[^9]: [[D&C 88.6|Doctrine and Covenants 88:6]].
 
 [^10]: “[A Child’s Prayer](https://churchofjesuschrist.org/study/manual/childrens-songbook/a-childs-prayer?lang=eng),” *Children’s Songbook*, 12.
 
@@ -103,7 +103,7 @@ I testify that Jesus Christ restored His Church, *The Church of Jesus Christ of 
 
 [^12]: [[John 17.3|John 17:3]].
 
-[^13]: See [[Psalms 23.2|Psalms 23:2]]; [[John 10.11|John 10:11]].
+[^13]: See [[Psalms 23.2|Psalm 23:2]]; [[John 10.11|John 10:11]].
 
 [^14]: See [[John 8.12|John 8:12]].
 
@@ -113,5 +113,5 @@ I testify that Jesus Christ restored His Church, *The Church of Jesus Christ of 
 
 [^17]: See [[John 14.6|John 14:6]].
 
-[^18]: [[3 Nephi 25.2|3 Nephi 25:2]].
+[^18]: [[3 Nephi 25.2|3 Nephi 25:2]].
 

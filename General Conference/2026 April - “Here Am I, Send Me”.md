@@ -45,19 +45,19 @@ I bear my witness that God, our Heavenly Father, and His Son, Jesus Christ, love
 
 [^1]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
-[^2]: See [[D&C 93.29|D&C 93:29]].
+[^2]: See [[D&C 93.29|Doctrine and Covenants 93:29]].
 
 [^3]: “Because God desired to help His children progress, He decided to create an earth on which we could receive a body, learn through experience, develop divine attributes, and be proven to see if we would keep God’s commandments” (Dallin H. Oaks, “[[2025 April - Divine Helps for Mortality.md|Divine Helps for Mortality]],” *Liahona*, May 2025, 104).
 
 [^4]: [[Abraham 3.27|Abraham 3:27]].
 
-[^5]: See [[Matthew 22.36|Matthew 22:36]], [[Matthew 22.37|Matthew 22:37]], [[Matthew 22.38|Matthew 22:38]], [[Matthew 22.39|Matthew 22:39]], [[Matthew 22.40|Matthew 22:40]].
+[^5]: See [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
-[^6]: See [[Alma 7.11|Alma 7:11]], [[Alma 7.12|Alma 7:12]], [[Alma 7.13|Alma 7:13]].
+[^6]: See [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
-[^7]: See [[Matthew 27.50|Matthew 27:50]]; [[Matthew 28.5|Matthew 28:5]], [[Matthew 28.6|Matthew 28:6]].
+[^7]: See [[Matthew 27.50|Matthew 27:50]]; [[Matthew 28.5|28:5–6]][[Matthew 28.6|]].
 
-[^8]: See [[Isaiah 53.4|Isaiah 53:4]], [[Isaiah 53.5|Isaiah 53:5]].
+[^8]: See [[Isaiah 53.4|Isaiah 53:4–5]][[Isaiah 53.5|]].
 
 [^9]: See [[Alma 38.9|Alma 38:9]].
 
@@ -65,13 +65,13 @@ I bear my witness that God, our Heavenly Father, and His Son, Jesus Christ, love
 
 [^11]: See [[Ether 4.12|Ether 4:12]].
 
-[^12]: See [[Matthew 14.15|Matthew 14:15]], [[Matthew 14.16|Matthew 14:16]], [[Matthew 14.17|Matthew 14:17]], [[Matthew 14.18|Matthew 14:18]], [[Matthew 14.19|Matthew 14:19]], [[Matthew 14.20|Matthew 14:20]], [[Matthew 14.21|Matthew 14:21]]; [[John 6.5|John 6:5]], [[John 6.6|John 6:6]], [[John 6.7|John 6:7]], [[John 6.8|John 6:8]], [[John 6.9|John 6:9]], [[John 6.10|John 6:10]], [[John 6.11|John 6:11]], [[John 6.12|John 6:12]], [[John 6.13|John 6:13]].
+[^12]: See [[Matthew 14.15|Matthew 14:15–21]][[Matthew 14.16|]][[Matthew 14.17|]][[Matthew 14.18|]][[Matthew 14.19|]][[Matthew 14.20|]][[Matthew 14.21|]]; [[John 6.5|John 6:5–13]][[John 6.6|]][[John 6.7|]][[John 6.8|]][[John 6.9|]][[John 6.10|]][[John 6.11|]][[John 6.12|]][[John 6.13|]].
 
 [^13]: See [[Alma 37.6|Alma 37:6]].
 
-[^14]: See [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^14]: See [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
-[^15]: See [[D&C 130.18|D&C 130:18]].
+[^15]: See [[D&C 130.18|Doctrine and Covenants 130:18]].
 
 [^16]: “[Holding Hands Around the World](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/holding-hands-around-the-world?lang=eng),” *Hymns for Home and Church*, Gospel Library.
 

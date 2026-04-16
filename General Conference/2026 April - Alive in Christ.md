@@ -16,7 +16,7 @@ The literal Resurrection of Jesus is the subject of so many scriptures that it i
 
 “The spirit and the body shall be reunited again in its perfect form. …
 
-“Now, this restoration shall come to all, both old and young, both bond and free, both male and female, both the wicked and the righteous” ([[Alma 11.43|Alma 11:43]], [[Alma 11.44|Alma 11:44]]).
+“Now, this restoration shall come to all, both old and young, both bond and free, both male and female, both the wicked and the righteous” ([[Alma 11.43|Alma 11:43–44]][[Alma 11.44|]]).
 
 I wonder if we fully appreciate the enormous significance of this belief in a literal, universal resurrection. The conviction that death is not the conclusion of our identity changes the whole perspective of our mortal life. It affects how we look on the physical challenges of mortality. It gives us the strength and perspective to endure the mortal challenges faced by each of us and by those we love. It signifies that mortal deficiencies are only temporary! It also gives us the courage to face our own death or that of loved ones—even deaths we might call premature.
 
@@ -26,13 +26,13 @@ Our belief in the Resurrection also encourages us to fulfill our family responsi
 
 Living worthy to meet Christ is no easy task. Many current writers characterize the time in which we live as toxic, a time of contempt or hostility toward adversaries. This hostility affects many different relationships in society, involving many whose Christian beliefs should orient them otherwise.
 
-Our Savior, Jesus Christ, taught us how to relate to one another. The great commandments in the law, He taught, were to love—God and neighbor (see [[Matthew 22.37|Matthew 22:37]], [[Matthew 22.38|Matthew 22:38]], [[Matthew 22.39|Matthew 22:39]]).
+Our Savior, Jesus Christ, taught us how to relate to one another. The great commandments in the law, He taught, were to love—God and neighbor (see [[Matthew 22.37|Matthew 22:37–39]][[Matthew 22.38|]][[Matthew 22.39|]]).
 
-Asked, “Who is my neighbour?” Jesus answered with a parable that praised the merciful action of a Samaritan, who belonged to a group the Jews isolated and held in contempt (see [[Luke 10.29|Luke 10:29]], [[Luke 10.30|Luke 10:30]], [[Luke 10.31|Luke 10:31]], [[Luke 10.32|Luke 10:32]], [[Luke 10.33|Luke 10:33]], [[Luke 10.34|Luke 10:34]], [[Luke 10.35|Luke 10:35]], [[Luke 10.36|Luke 10:36]], [[Luke 10.37|Luke 10:37]]). But Jesus’s teachings about the circle of love went far beyond Samaritans. In the Sermon on the Mount, He declared:
+Asked, “Who is my neighbour?” Jesus answered with a parable that praised the merciful action of a Samaritan, who belonged to a group the Jews isolated and held in contempt (see [[Luke 10.29|Luke 10:29–37]][[Luke 10.30|]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]][[Luke 10.36|]][[Luke 10.37|]]). But Jesus’s teachings about the circle of love went far beyond Samaritans. In the Sermon on the Mount, He declared:
 
 “Ye have heard that it hath been said, Thou shalt love thy neighbour, and hate thine enemy.
 
-“But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you” ([[Matthew 5.43|Matthew 5:43]], [[Matthew 5.44|Matthew 5:44]]).
+“But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you” ([[Matthew 5.43|Matthew 5:43–44]][[Matthew 5.44|]]).
 
 What a revolutionary teaching for personal relationships! Love even your enemies! But who are our enemies? The full meaning of *enemies* in the sources from which King James’s translators chose the word *enemies* includes military foes but even extends to any who actively oppose one another. Today we might say that we are commanded to *love our adversaries*. All mortals are beloved children of God. As President David O. McKay taught, “There is no better way to manifest love for God than to show an unselfish love for one’s fellowmen.”[^1]
 
@@ -52,7 +52,7 @@ Each of us can strive to follow our Savior in His teachings about how to relate 
 
 This balancing is not easy. When we seek to keep all the commandments in our personal lives, we are sometimes accused of having no love for those who don’t. When we show personal love and support loving causes, we are sometimes misunderstood as implying support for results that contradict our other religious duties. But as followers of Christ, we should seek to live peaceably and lovingly with other children of God who do not share our values and do not have the covenant obligations we have assumed. In a democratic government we should seek fairness for all. In countless circumstances, strangers’ suspicions or even hostility gradually gives way to friendship when personal contacts produce mutual respect.
 
-The Prophet Joseph Smith taught that we should “pour forth love” to all people.[^3] Speaking of our Savior, the Apostle John wrote, “We love him, because he first loved us” ([[1 John 4.19|1 John 4:19]]). We can follow the example of Jesus Christ, who is our role model, by choosing to love others—even if they show little or no love toward us. He declared, “Blessed are the peacemakers: for they shall be called the children of God” ([[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]]).
+The Prophet Joseph Smith taught that we should “pour forth love” to all people.[^3] Speaking of our Savior, the Apostle John wrote, “We love him, because he first loved us” ([[1 John 4.19|1 John 4:19]]). We can follow the example of Jesus Christ, who is our role model, by choosing to love others—even if they show little or no love toward us. He declared, “Blessed are the peacemakers: for they shall be called the children of God” ([[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]]).
 
 Peacemakers! How it would change the world if followers of Christ would forgo harsh and hurtful words in all their communications.
 

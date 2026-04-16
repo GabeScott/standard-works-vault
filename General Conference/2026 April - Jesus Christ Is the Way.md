@@ -69,37 +69,37 @@ Brothers and sisters, our Father in Heaven desires all His children to come home
 
 [^5]: See “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p13#p13),” Gospel Library.
 
-[^6]: See [[Moses 6.34|Moses 6:34]]; see also [[2 Nephi 26.33|2 Nephi 26:33]].
+[^6]: See [[Moses 6.34|Moses 6:34]]; see also [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^7]: See D. Todd Christofferson, “[[2021 April - Why the Covenant Path.md|Why the Covenant Path]],”* Liahona*, May 2021, 116.
 
-[^8]: See [[2 Nephi 31.17|2 Nephi 31:17]], [[2 Nephi 31.18|2 Nephi 31:18]], [[2 Nephi 31.19|2 Nephi 31:19]], [[2 Nephi 31.20|2 Nephi 31:20]].
+[^8]: See [[2 Nephi 31.17|2 Nephi 31:17–20]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
 
 [^9]: [[John 3.5|John 3:5]].
 
 [^10]: David A. Bednar, “[[2023 April - “Abide in Me, and I in You; Therefore Walk with Me”.md|Abide in Me, and I in You; Therefore Walk with Me]],” *Liahona*, May 2023, 124.
 
-[^11]: See [[D&C 82.10|D&C 82:10]].
+[^11]: See [[D&C 82.10|Doctrine and Covenants 82:10]].
 
-[^12]: See [[D&C 82.10|D&C 82:10]].
+[^12]: See [[D&C 82.10|Doctrine and Covenants 82:10]].
 
-[^13]: See [[2 Nephi 31.19|2 Nephi 31:19]], [[2 Nephi 31.20|2 Nephi 31:20]].
+[^13]: See [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]].
 
-[^14]: [[John 6.66|John 6:66]], [[John 6.67|John 6:67]].
+[^14]: [[John 6.66|John 6:66, 67]][[John 6.67|]].
 
-[^15]: [[John 6.68|John 6:68]], [[John 6.69|John 6:69]].
+[^15]: [[John 6.68|John 6:68–69]][[John 6.69|]].
 
 [^16]: See [[Mosiah 3.13|Mosiah 3:13]].
 
 [^17]: [[Luke 10.16|Luke 10:16]].
 
-[^18]: [[D&C 1.16|D&C 1:16]].
+[^18]: [[D&C 1.16|Doctrine and Covenants 1:16]].
 
-[^19]: [[Ephesians 2.20|Ephesians 2:20]]; compare [[1 Nephi 8.26|1 Nephi 8:26]], [[1 Nephi 8.27|1 Nephi 8:27]] and [[1 Nephi 11.34|1 Nephi 11:34]], [[1 Nephi 11.35|1 Nephi 11:35]], [[1 Nephi 11.36|1 Nephi 11:36]]. Interestingly, the great and spacious building stood high in the air—in other words, it had no foundation, “and the fall thereof was exceedingly great” ([[1 Nephi 11.36|1 Nephi 11:36]]). Additionally, those who occupy that building are described as they who fight against the Apostles of the Lamb.
+[^19]: [[Ephesians 2.20|Ephesians 2:20]]; compare [[1 Nephi 8.26|1 Nephi 8:26–27]][[1 Nephi 8.27|]] and [[1 Nephi 11.34|1 Nephi 11:34–36]][[1 Nephi 11.35|]][[1 Nephi 11.36|]]. Interestingly, the great and spacious building stood high in the air—in other words, it had no foundation, “and the fall thereof was exceedingly great” ([[1 Nephi 11.36|1 Nephi 11:36]]). Additionally, those who occupy that building are described as they who fight against the Apostles of the Lamb.
 
 [^20]: [[Ephesians 4.14|Ephesians 4:14]].
 
-[^21]: [[D&C 124.45|D&C 124:45]].
+[^21]: [[D&C 124.45|Doctrine and Covenants 124:45]].
 
 [^22]: See Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), speeches.byu.edu.
 

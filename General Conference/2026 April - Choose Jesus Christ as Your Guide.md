@@ -61,33 +61,33 @@ This Easter morning, may we *all* accept Christ’s invitation to be our guide a
 
 [^3]: [[Moses 6.34|Moses 6:34]].
 
-[^4]: [[3 Nephi 9.13|3 Nephi 9:13]].
+[^4]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
-[^5]: [[2 Nephi 26.33|2 Nephi 26:33]]; emphasis added.
+[^5]: [[2 Nephi 26.33|2 Nephi 26:33]]; emphasis added.
 
 [^6]: [[Mosiah 3.8|Mosiah 3:8]].
 
 [^7]: [[Matthew 11.28|Matthew 11:28]].
 
-[^8]: [[3 Nephi 18.16|3 Nephi 18:16]].
+[^8]: [[3 Nephi 18.16|3 Nephi 18:16]].
 
-[^9]: [[3 Nephi 27.21|3 Nephi 27:21]].
+[^9]: [[3 Nephi 27.21|3 Nephi 27:21]].
 
-[^10]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 122; see also [[Alma 7.11|Alma 7:11]], [[Alma 7.12|Alma 7:12]], [[Alma 7.13|Alma 7:13]].
+[^10]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 122; see also [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
 [^11]: President Nelson taught:
 
-[^12]: See [[Mosiah 3.19|Mosiah 3:19]]; [[Mosiah 27.25|Mosiah 27:25]], [[Mosiah 27.26|Mosiah 27:26]].
+[^12]: See [[Mosiah 3.19|Mosiah 3:19]]; [[Mosiah 27.25|27:25–26]][[Mosiah 27.26|]].
 
 [^13]: When I was in the border area, as the days wore on, I noticed myself at times becoming *casual* in my efforts to follow my guide. My attention would drift, and I would become less careful. Then, back at camp, I would hear of someone injured or killed in the border region who had stepped on a mine. This would resharpen my focus. I’ve often thought back to my time in the border region and have asked myself, “Why did I *ever* allow myself to become casual even for a moment when I knew that casualness could lead to casualties?”
 
 [^14]: [[Romans 3.23|Romans 3:23]]; emphasis added.
 
-[^15]: See [[Moroni 7.27|Moroni 7:27]], [[Moroni 7.28|Moroni 7:28]]: “Christ hath ascended into heaven, and hath sat down on the right hand of God, to claim of the Father his rights of mercy, which he hath upon the children of men. … For he hath answered the ends of the law.”
+[^15]: See [[Moroni 7.27|Moroni 7:27–28]][[Moroni 7.28|]]: “Christ hath ascended into heaven, and hath sat down on the right hand of God, to claim of the Father his rights of mercy, which he hath upon the children of men. … For he hath answered the ends of the law.”
 
-[^16]: [[3 Nephi 9.13|3 Nephi 9:13]], [[3 Nephi 9.14|3 Nephi 9:14]]; emphasis added.
+[^16]: [[3 Nephi 9.13|3 Nephi 9:13–14]][[3 Nephi 9.14|]]; emphasis added.
 
-[^17]: Satan’s spiritual land mines—and other opposition, tribulation, and uncertainty that are a part of mortality—can at times paralyze us with fear. However, knowing that Jesus Christ is a personal and perfect guide, who has power to heal us when we misstep, should increase our faith and cast out such fear. When fear arises, may we remember, trust, and act upon these reassuring words of Christ: “Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness” ([[Isaiah 41.10|Isaiah 41:10]]). And “fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. … For I am the Lord thy God, the Holy One of Israel, thy Saviour” ([[Isaiah 43.1|Isaiah 43:1]], [[Isaiah 43.3|Isaiah 43:3]]).
+[^17]: Satan’s spiritual land mines—and other opposition, tribulation, and uncertainty that are a part of mortality—can at times paralyze us with fear. However, knowing that Jesus Christ is a personal and perfect guide, who has power to heal us when we misstep, should increase our faith and cast out such fear. When fear arises, may we remember, trust, and act upon these reassuring words of Christ: “Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness” ([[Isaiah 41.10|Isaiah 41:10]]). And “fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. … For I am the Lord thy God, the Holy One of Israel, thy Saviour” ([[Isaiah 43.1|Isaiah 43:1, 3]][[Isaiah 43.3|]]).
 
 [^18]: In Ryan Jensen, “[‘Jesus Christ Is the Way,’ President Oaks Says in First Interview as Church President](https://www.thechurchnews.com/leaders/2025/10/16/president-dallin-h-oaks-first-interview-as-church-president),” *Church News*, Oct. 16, 2025, thechurchnews.com.
 

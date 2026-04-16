@@ -93,13 +93,13 @@ I solemnly testify of this sacred promise in the name of Jesus Christ, amen.
 
 
 
-[^1]: [[Luke 24.5|Luke 24:5]], [[Luke 24.6|Luke 24:6]].
+[^1]: [[Luke 24.5|Luke 24:5–6]][[Luke 24.6|]].
 
 [^2]: [[Matthew 16.19|Matthew 16:19]].
 
 [^3]: Gordon B. Hinckley, “As One Who Loves the Prophet,” in Susan Easton Black and Charles D. Tate Jr., eds., *Joseph Smith: The Prophet, the Man* (1993), 6.
 
-[^4]: See [[D&C 132.19|D&C 132:19]]. President Russell M. Nelson said: “We need not be dismayed if our earnest efforts toward perfection now seem so arduous and endless. *Perfection is pending.* It can come in full only after the Resurrection and only through the Lord. It awaits all who love him and keep his commandments. It includes thrones, kingdoms, principalities, powers, and dominions. It is the end for which we are to endure. It is the eternal perfection that God has in store for each of us” (“[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign*, Nov. 1995, 88, emphasis added; see also John Taylor, *The Mediation and Atonement* \[1882\], 139–41).
+[^4]: See [[D&C 132.19|Doctrine and Covenants 132:19]]. President Russell M. Nelson said: “We need not be dismayed if our earnest efforts toward perfection now seem so arduous and endless. *Perfection is pending.* It can come in full only after the Resurrection and only through the Lord. It awaits all who love him and keep his commandments. It includes thrones, kingdoms, principalities, powers, and dominions. It is the end for which we are to endure. It is the eternal perfection that God has in store for each of us” (“[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign*, Nov. 1995, 88, emphasis added; see also John Taylor, *The Mediation and Atonement* \[1882\], 139–41).
 
 [^5]: See Brian J. Willoughby, *The Millennial Marriage* (2021), 14–16.
 
@@ -123,5 +123,5 @@ I solemnly testify of this sacred promise in the name of Jesus Christ, amen.
 
 [^15]: Personal correspondence, Feb. 3, 2026.
 
-[^16]: [[Isaiah 40.28|Isaiah 40:28]], [[Isaiah 40.29|Isaiah 40:29]][[Isaiah 40.31|Isaiah 40:31]]; emphasis added.
+[^16]: [[Isaiah 40.28|Isaiah 40:28–29, 31]][[Isaiah 40.29|]][[Isaiah 40.31|]]; emphasis added.
 

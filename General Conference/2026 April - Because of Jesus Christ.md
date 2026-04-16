@@ -38,6 +38,7 @@ You need not be like our little dog, Lady—confused, discouraged, and overwhelm
 >He will never leave me, even when I fall.
 >Jesus gives me power, lifts and comforts me,
 >Helping me to live and grow eternally.[^37]
+>
 
 Because Jesus Christ completed the Atonement, He has the power to help you along your earthly journey and to redeem you from death, both physical and spiritual. Celebrate the joyous message of Easter every day by reflecting every day on the blessings you receive because of Him.[^38] “Open wide your broken heart and let your Savior in!”[^39]
 
@@ -52,51 +53,51 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^3]: See Joseph Smith Translation, Matthew 27:54 (in [[Matthew 27.50|Matthew 27:50]], footnote *a*).
 
-[^4]: See [[Mosiah 15.7|Mosiah 15:7]], [[Mosiah 15.8|Mosiah 15:8]], [[Mosiah 15.9|Mosiah 15:9]], [[Mosiah 15.10|Mosiah 15:10]].
+[^4]: See [[Mosiah 15.7|Mosiah 15:7–10]][[Mosiah 15.8|]][[Mosiah 15.9|]][[Mosiah 15.10|]].
 
 [^5]: [[Matthew 28.18|Matthew 28:18]].
 
-[^6]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+[^6]: See [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^7]: [[John 14.6|John 14:6]].
 
 [^8]: See Hebrews 2:10, New International Reader’s Version.
 
-[^9]: See [[D&C 138.15|D&C 138:15]], [[D&C 138.16|D&C 138:16]], [[D&C 138.17|D&C 138:17]].
+[^9]: See [[D&C 138.15|Doctrine and Covenants 138:15–17]][[D&C 138.16|]][[D&C 138.17|]].
 
-[^10]: See [[Mosiah 15.8|Mosiah 15:8]], [[Mosiah 15.9|Mosiah 15:9]]; [[Alma 11.37|Alma 11:37]].
+[^10]: See [[Mosiah 15.8|Mosiah 15:8–9]][[Mosiah 15.9|]]; [[Alma 11.37|Alma 11:37]].
 
 [^11]: [[Alma 34.31|Alma 34:31]].
 
 [^12]: See [[Alma 11.40|Alma 11:40]].
 
-[^13]: The [[Articles of Faith 1.3|Articles of Faith 1:3]] states, “We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.”
+[^13]: The [[Articles of Faith 1.3|third article of faith]] states, “We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.”
 
-[^14]: See [[Mosiah 26.29|Mosiah 26:29]], [[Mosiah 26.30|Mosiah 26:30]].
+[^14]: See [[Mosiah 26.29|Mosiah 26:29–30]][[Mosiah 26.30|]].
 
-[^15]: See [[Ezekiel 33.12|Ezekiel 33:12]], [[Ezekiel 33.14|Ezekiel 33:14]], [[Ezekiel 33.15|Ezekiel 33:15]], [[Ezekiel 33.16|Ezekiel 33:16]]. Although we will suffer for sins that we have not repented of, we will not suffer further punishment for sins for which we have repented (see Dallin H. Oaks, “[[2022 April - Divine Love in the Father’s Plan.md|Divine Love in the Father’s Plan]],” *Liahona*, May 2022, 101).
+[^15]: See [[Ezekiel 33.12|Ezekiel 33:12, 14–16]][[Ezekiel 33.14|]][[Ezekiel 33.15|]][[Ezekiel 33.16|]]. Although we will suffer for sins that we have not repented of, we will not suffer further punishment for sins for which we have repented (see Dallin H. Oaks, “[[2022 April - Divine Love in the Father’s Plan.md|Divine Love in the Father’s Plan]],” *Liahona*, May 2022, 101).
 
 [^16]: *The Scarlet Letter* is an 1850 novel by Nathaniel Hawthorne set in 17th-century Puritan New England (a strict religious community in colonial America). The protagonist, Hester Prynne, is convicted of adultery and forced to wear a scarlet letter “A” on her clothing. The letter serves as a visible symbol of shame, a public punishment.
 
-[^17]: See “It Is Well with My Soul,” *Hymns for Home and Church*, Gospel Library; [[Colossians 2.13|Colossians 2:13]], [[Colossians 2.14|Colossians 2:14]], [[Colossians 2.15|Colossians 2:15]].
+[^17]: See “It Is Well with My Soul,” *Hymns for Home and Church*, Gospel Library; [[Colossians 2.13|Colossians 2:13–15]][[Colossians 2.14|]][[Colossians 2.15|]].
 
-[^18]: See “As Bread Is Broken,” *Hymn for Home and Church*, Gospel Library.
+[^18]: See “As Bread Is Broken,” *Hymns for Home and Church*, Gospel Library.
 
-[^19]: [[D&C 58.42|D&C 58:42]], [[D&C 58.43|D&C 58:43]] includes the following criterion: “By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them.” Moroni taught that Church leaders responded the way the Savior directed: “But as oft as they repented and sought forgiveness, with real intent, they were forgiven” ([[Moroni 6.8|Moroni 6:8]]).
+[^19]: [[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]] includes the following criterion: “By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them.” Moroni taught that Church leaders responded the way the Savior directed: “But as oft as they repented and sought forgiveness, with real intent, they were forgiven” ([[Moroni 6.8|Moroni 6:8]]).
 
 [^20]: [[Zephaniah 3.17|Zephaniah 3:17]].
 
-[^21]: See [[Alma 7.11|Alma 7:11]], [[Alma 7.12|Alma 7:12]]; see also Dallin H. Oaks, “[[2015 October - Strengthened by the Atonement of Jesus Christ.md|Strengthened by the Atonement of Jesus Christ]],” *Liahona*, Nov. 2015, 61–64.
+[^21]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]; see also Dallin H. Oaks, “[[2015 October - Strengthened by the Atonement of Jesus Christ.md|Strengthened by the Atonement of Jesus Christ]],” *Liahona*, Nov. 2015, 61–64.
 
 [^22]: “Where Can I Turn for Peace?,” *Hymns*, no. 129.
 
 [^23]: See M. Russell Ballard, “[Suicide: Some Things We Know, and Some We Do Not](https://churchofjesuschrist.org/study/ensign/1987/10/suicide-some-things-we-know-and-some-we-do-not?lang=eng&id=p24#p24),” *Ensign*, Oct. 1987, 8.
 
-[^24]: [[D&C 137.9|D&C 137:9]]; see also [[2 Nephi 9.41|2 Nephi 9:41]].
+[^24]: [[D&C 137.9|Doctrine and Covenants 137:9]]; see also [[2 Nephi 9.41|2 Nephi 9:41]].
 
 [^25]: See “Heavenly Father’s Plan of Salvation,” in *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 48.
 
-[^26]: See [[2 Nephi 2.1|2 Nephi 2:1]], [[2 Nephi 2.2|2 Nephi 2:2]].
+[^26]: See [[2 Nephi 2.1|2 Nephi 2:1–2]][[2 Nephi 2.2|]].
 
 [^27]: See “How Firm a Foundation,” *Hymns*, no. 85.
 
@@ -124,7 +125,7 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^39]: “Behold the Wounds in Jesus’ Hands,” *Hymns for Home and Church*, Gospel Library.
 
-[^40]: [[D&C 138.3|D&C 138:3]].
+[^40]: [[D&C 138.3|Doctrine and Covenants 138:3]].
 
 [^41]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 

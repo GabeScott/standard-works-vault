@@ -67,17 +67,17 @@ I testify that I know that Jesus Christ lives. He loves us and blesses us. He co
 
 [^1]: [[John 14.27|John 14:27]].
 
-[^2]: [[Psalms 9.9|Psalms 9:9]], [[Psalms 9.10|Psalms 9:10]].
+[^2]: [[Psalms 9.9|Psalm 9:9–10]][[Psalms 9.10|]].
 
-[^3]: [[Luke 11.9|Luke 11:9]], [[Luke 11.10|Luke 11:10]].
+[^3]: [[Luke 11.9|Luke 11:9–10]][[Luke 11.10|]].
 
-[^4]: [[Alma 34.26|Alma 34:26]], [[Alma 34.27|Alma 34:27]].
+[^4]: [[Alma 34.26|Alma 34:26, 27]][[Alma 34.27|]].
 
-[^5]: [[Matthew 6.6|Matthew 6:6]], [[Matthew 6.7|Matthew 6:7]], [[Matthew 6.8|Matthew 6:8]].
+[^5]: [[Matthew 6.6|Matthew 6:6–8]][[Matthew 6.7|]][[Matthew 6.8|]].
 
-[^6]: [[Mosiah 24.12|Mosiah 24:12]], [[Mosiah 24.13|Mosiah 24:13]], [[Mosiah 24.14|Mosiah 24:14]], [[Mosiah 24.15|Mosiah 24:15]].
+[^6]: [[Mosiah 24.12|Mosiah 24:12–15]][[Mosiah 24.13|]][[Mosiah 24.14|]][[Mosiah 24.15|]].
 
-[^7]: [[D&C 19.38|D&C 19:38]].
+[^7]: [[D&C 19.38|Doctrine and Covenants 19:38]].
 
 [^8]: [[Alma 17.3|Alma 17:3]].
 

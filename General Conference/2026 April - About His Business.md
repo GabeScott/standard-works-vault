@@ -57,31 +57,31 @@ When 12-year-old Jesus was found by His parents teaching in the temple, He told 
 
 [^1]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [29.2.1.1](https://churchofjesuschrist.org/study/manual/general-handbook/29-meetings-in-the-church?lang=eng&id=p18#p18), Gospel Library.
 
-[^2]: See [[Ephesians 2.19|Ephesians 2:19]], [[Ephesians 2.20|Ephesians 2:20]], [[Ephesians 2.21|Ephesians 2:21]], [[Ephesians 2.22|Ephesians 2:22]].
+[^2]: See [[Ephesians 2.19|Ephesians 2:19–22]][[Ephesians 2.20|]][[Ephesians 2.21|]][[Ephesians 2.22|]].
 
-[^3]: See [[D&C 28.13|D&C 28:13]].
+[^3]: See [[D&C 28.13|Doctrine and Covenants 28:13]].
 
-[^4]: See [[Philippians 2.1|Philippians 2:1]], [[Philippians 2.2|Philippians 2:2]], [[Philippians 2.3|Philippians 2:3]], [[Philippians 2.4|Philippians 2:4]].
+[^4]: See [[Philippians 2.1|Philippians 2:1–4]][[Philippians 2.2|]][[Philippians 2.3|]][[Philippians 2.4|]].
 
-[^5]: See [[D&C 38.27|D&C 38:27]].
+[^5]: See [[D&C 38.27|Doctrine and Covenants 38:27]].
 
-[^6]: See [[Romans 12.4|Romans 12:4]], [[Romans 12.5|Romans 12:5]].
+[^6]: See [[Romans 12.4|Romans 12:4–5]][[Romans 12.5|]].
 
 [^7]: President Jeffrey R. Holland taught: “Be kind regarding human frailty—your own as well as that of those who serve with you in a Church led by volunteer, mortal men and women. Except in the case of His only perfect Begotten Son, imperfect people are all God has ever had to work with. That must be terribly frustrating to Him, but He deals with it. So should we. And when you see imperfection, remember that the limitation is *not* in the divinity of the work. As one gifted writer has suggested, when the infinite fulness is poured forth, it is not the oil’s fault if there is some loss because finite vessels can’t quite contain it all. Those finite vessels include you and me, so be patient and kind and forgiving“ (“[[2013 April - “Lord, I Believe”.md|Lord, I Believe]],” *Liahona*, May 2013, 94).
 
-[^8]: “Heavenly Father gave Jesus Christ a sacred mission to fulfill (see [[Luke 4.18|Luke 4:18]], [[Luke 4.19|Luke 4:19]]; [[John 6.38|John 6:38]]; [[3 Nephi 27.14|3 Nephi 27:14]], [[3 Nephi 27.15|3 Nephi 27:15]], [[3 Nephi 27.16|3 Nephi 27:16]]). During His ministry, the Savior trusted His disciples with important responsibilities (see [[Luke 10.1|Luke 10:1]], [[Luke 10.2|Luke 10:2]], [[Luke 10.3|Luke 10:3]], [[Luke 10.4|Luke 10:4]], [[Luke 10.5|Luke 10:5]], [[Luke 10.6|Luke 10:6]], [[Luke 10.7|Luke 10:7]], [[Luke 10.8|Luke 10:8]], [[Luke 10.9|Luke 10:9]]). Likewise, the Lord calls men and women to serve in the Church today through inspired invitations from His servants. These opportunities to serve are known as callings.
+[^8]: “Heavenly Father gave Jesus Christ a sacred mission to fulfill (see [[Luke 4.18|Luke 4:18–19]][[Luke 4.19|]]; [[John 6.38|John 6:38]]; [[3 Nephi 27.14|3 Nephi 27:14–16]][[3 Nephi 27.15|]][[3 Nephi 27.16|]]). During His ministry, the Savior trusted His disciples with important responsibilities (see [[Luke 10.1|Luke 10:1–9]][[Luke 10.2|]][[Luke 10.3|]][[Luke 10.4|]][[Luke 10.5|]][[Luke 10.6|]][[Luke 10.7|]][[Luke 10.8|]][[Luke 10.9|]]). Likewise, the Lord calls men and women to serve in the Church today through inspired invitations from His servants. These opportunities to serve are known as callings.
 
 [^9]: See *General Handbook*, [30.0](https://churchofjesuschrist.org/study/manual/general-handbook/30-callings-in-the-church?lang=eng&id=p61#p61).
 
-[^10]: See [[Proverbs 3.4|Proverbs 3:4]], [[Proverbs 3.5|Proverbs 3:5]]; [[Isaiah 55.8|Isaiah 55:8]], [[Isaiah 55.9|Isaiah 55:9]], [[Isaiah 55.10|Isaiah 55:10]], [[Isaiah 55.11|Isaiah 55:11]].
+[^10]: See [[Proverbs 3.4|Proverbs 3:4–5]][[Proverbs 3.5|]]; [[Isaiah 55.8|Isaiah 55:8–11]][[Isaiah 55.9|]][[Isaiah 55.10|]][[Isaiah 55.11|]].
 
 [^11]: See *General Handbook*, [30.1.1](https://churchofjesuschrist.org/study/manual/general-handbook/30-callings-in-the-church?lang=eng&id=p63-p68#p63).
 
-[^12]: See [[Mosiah 2.22|Mosiah 2:22]], [[Mosiah 2.23|Mosiah 2:23]], [[Mosiah 2.24|Mosiah 2:24]].
+[^12]: See [[Mosiah 2.22|Mosiah 2:22–24]][[Mosiah 2.23|]][[Mosiah 2.24|]].
 
-[^13]: See [[Matthew 4.18|Matthew 4:18]], [[Matthew 4.19|Matthew 4:19]], [[Matthew 4.20|Matthew 4:20]], [[Matthew 4.21|Matthew 4:21]], [[Matthew 4.22|Matthew 4:22]].
+[^13]: See [[Matthew 4.18|Matthew 4:18–22]][[Matthew 4.19|]][[Matthew 4.20|]][[Matthew 4.21|]][[Matthew 4.22|]].
 
-[^14]: See [[John 21.1|John 21:1]], [[John 21.2|John 21:2]], [[John 21.3|John 21:3]], [[John 21.4|John 21:4]], [[John 21.5|John 21:5]], [[John 21.6|John 21:6]], [[John 21.7|John 21:7]], [[John 21.8|John 21:8]], [[John 21.9|John 21:9]], [[John 21.10|John 21:10]], [[John 21.11|John 21:11]], [[John 21.12|John 21:12]], [[John 21.13|John 21:13]], [[John 21.14|John 21:14]], [[John 21.15|John 21:15]], [[John 21.16|John 21:16]], [[John 21.17|John 21:17]].
+[^14]: See [[John 21.1|John 21:1–17]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]].
 
 [^15]: “You are called of God. The Lord knows you. He knows whom He would have serve in every position in His Church. He chose you. He has prepared a way so that He could issue your call. He restored the keys of the priesthood to Joseph Smith. Those keys have been passed down in an unbroken line. … Through those keys, other priesthood servants were given keys to preside in stakes and wards, in districts and branches. It was through those keys that the Lord called you. Those keys confer a right to revelation. And revelation comes in answer to prayer. The person who was inspired to recommend you for this call didn’t do it because they liked you or because they needed someone to do a particular task. They prayed and felt an answer that you were the one to be called” (Henry B. Eyring, “[[2002 October - Rise to Your Call.md|Rise to Your Call]],” *Liahona*, Nov. 2002, 76).
 

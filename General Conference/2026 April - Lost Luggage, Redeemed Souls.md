@@ -62,9 +62,17 @@ May I offer two cases where I feel the Lord would be deeply pleased with those w
 
 The first is in our role as assigned ministering brothers and sisters—adults and youth.
 
-Please know you represent the Lord, scripturally aligned, serving those who are “numbered among the people of the church of Christ,” whose “names \[are\] taken, that they might be remembered and nourished by the good word of God, to keep them in the right way.”[^4] We “are to ‘watch over’ Church members and ‘be with and strengthen them’ ([[D&C 20.53|D&C 20:53]]).”[^5] The greatest success in missionary work comes as we act in normal and natural ways; the same is true in ministering.
+Please know you represent the Lord, scripturally aligned, serving those who are “numbered among the people of the church of Christ,” whose “names \[are\] taken, that they might be remembered and nourished by the good word of God, to keep them in the right way.”[^4] We “are to ‘watch over’ Church members and ‘be with and strengthen them’ ([[D&C 20.53|Doctrine and Covenants 20:53]]).”[^5] The greatest success in missionary work comes as we act in normal and natural ways; the same is true in ministering.
 
 I invite you to contemplate how you can:
+
+- Provide Christlike love, caring, and service.
+
+- Offer help and comfort in times of spiritual or temporal need.
+
+- Prayerfully seek the guidance of the Spirit.
+
+- Help prepare families to make and keep sacred covenants with God as they receive ordinances.[^6]
 
 Consider your ministering assignment as “Christlike caring”[^7] of the Lord’s most treasured possessions, who at the end of their mortal journey can be claimed and redeemed by Him. I invite you to implement small acts of kindness and care into your ministering, becoming better ministers of Jesus Christ.
 
@@ -121,21 +129,21 @@ That we may fulfill that mission for ourselves and diligently care for others as
 
 [^7]: First Presidency letter, Apr. 2, 2018.
 
-[^8]: [[D&C 93.40|D&C 93:40]].
+[^8]: [[D&C 93.40|Doctrine and Covenants 93:40]].
 
-[^9]: See [[D&C 115.6|D&C 115:6]].
+[^9]: See [[D&C 115.6|Doctrine and Covenants 115:6]].
 
 [^10]: “What you can and must do for the rising generation is provide rich, nourishing soil with access to flowing heavenly water. Remove weeds and anything that would block heavenly sunlight. Create the best possible conditions for growth. Patiently allow the rising generation to make inspired choices, and let God work His miracle. The result will be more beautiful and more stunning and more joyful than anything you could accomplish just by yourself” (Dieter F. Uchtdorf, “[[2023 April - Jesus Christ Is the Strength of Parents.md|Jesus Christ Is the Strength of Parents]],” *Liahona*, May 2023, 58).
 
-[^11]: See [[Matthew 16.24|Matthew 16:24]]; [[Mark 8.34|Mark 8:34]]; [[D&C 112.14|D&C 112:14]].
+[^11]: See [[Matthew 16.24|Matthew 16:24]]; [[Mark 8.34|Mark 8:34]]; [[D&C 112.14|Doctrine and Covenants 112:14]].
 
-[^12]: See [[D&C 20.69|D&C 20:69]]; [[D&C 46.7|D&C 46:7]].
+[^12]: See [[D&C 20.69|Doctrine and Covenants 20:69]]; [[D&C 46.7|46:7]].
 
-[^13]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^13]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^14]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p9#p9)” (worldwide youth devotional, June 3, 2018), Gospel Library.
 
 [^15]: Dieter F. Uchtdorf, “[[2022 October - Jesus Christ Is the Strength of Youth.md|Jesus Christ Is the Strength of Youth]],” *Liahona*, Nov. 2022, 10.
 
-[^16]: “God’s love is so great that, except for the few who deliberately become sons of perdition, He has provided a destiny of glory for all of His children (see [[D&C 76.43|D&C 76:43]])” (Dallin H. Oaks, “[[2020 April - The Great Plan.md|The Great Plan]],” *Liahona*, May 2020, 95).
+[^16]: “God’s love is so great that, except for the few who deliberately become sons of perdition, He has provided a destiny of glory for all of His children (see [[D&C 76.43|Doctrine and Covenants 76:43]])” (Dallin H. Oaks, “[[2020 April - The Great Plan.md|The Great Plan]],” *Liahona*, May 2020, 95).
 

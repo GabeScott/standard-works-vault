@@ -22,21 +22,13 @@ Nephi came to know that “there is none other way nor name given under heaven w
 
 Reflecting on his afflictions, temptations, and weakness, Nephi shares why he glories in Jesus Christ. He writes:
 
-- 
-“My God hath been my support.”[^7]
+- “My God hath been my support.”[^7]
 
+- “He hath led me through mine afflictions.”[^8]
 
-- 
-“He hath led me through mine afflictions.”[^8]
+- “He hath preserved me.”[^9]
 
-
-- 
-“He hath preserved me.”[^9]
-
-
-- 
-“He hath filled me with his love.”[^10]
-
+- “He hath filled me with his love.”[^10]
 
 We then read Nephi’s firm declaration: “Lord, I have trusted in thee, and I will trust in thee forever.”[^11]
 
@@ -77,29 +69,29 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 
 
-[^1]: [[2 Nephi 33.6|2 Nephi 33:6]].
+[^1]: [[2 Nephi 33.6|2 Nephi 33:6]].
 
-[^2]: See [[D&C 35.2|D&C 35:2]].
+[^2]: See [[D&C 35.2|Doctrine and Covenants 35:2]].
 
 [^3]: See [[Moses 7.53|Moses 7:53]].
 
-[^4]: See [[D&C 29.1|D&C 29:1]].
+[^4]: See [[D&C 29.1|Doctrine and Covenants 29:1]].
 
 [^5]: The Hebrew meaning of the name *Jesus* is “Jehovah saves” or “Jehovah is salvation” (see [[Matthew 1.21|Matthew 1:21]]; [New Testament Student Manual](https://churchofjesuschrist.org/study/manual/new-testament-student-manual/introduction-to-matthew/chapter-2?lang=eng&id=p14#p14) \[2018\], 14).
 
-[^6]: [[2 Nephi 31.21|2 Nephi 31:21]].
+[^6]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
-[^7]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^7]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
-[^8]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^8]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
-[^9]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^9]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
-[^10]: [[2 Nephi 4.21|2 Nephi 4:21]].
+[^10]: [[2 Nephi 4.21|2 Nephi 4:21]].
 
-[^11]: [[2 Nephi 4.34|2 Nephi 4:34]].
+[^11]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
-[^12]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^12]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
 [^13]: See [[Mosiah 28.4|Mosiah 28:4]].
 
@@ -111,7 +103,7 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^17]: See [[Isaiah 9.6|Isaiah 9:6]].
 
-[^18]: See [[D&C 18.11|D&C 18:11]].
+[^18]: See [[D&C 18.11|Doctrine and Covenants 18:11]].
 
 [^19]: See [[Alma 5.33|Alma 5:33]].
 
@@ -119,17 +111,17 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^21]: See [[Isaiah 49.16|Isaiah 49:16]].
 
-[^22]: See [[D&C 58.42|D&C 58:42]].
+[^22]: See [[D&C 58.42|Doctrine and Covenants 58:42]].
 
 [^23]: See [[John 10.11|John 10:11]].
 
 [^24]: See [[Alma 5.60|Alma 5:60]].
 
-[^25]: See [[3 Nephi 10.6|3 Nephi 10:6]].
+[^25]: See [[3 Nephi 10.6|3 Nephi 10:6]].
 
 [^26]: See [[Luke 19.10|Luke 19:10]].
 
-[^27]: See [[2 Nephi 26.24|2 Nephi 26:24]].
+[^27]: See [[2 Nephi 26.24|2 Nephi 26:24]].
 
 [^28]: See Patrick Kearon, “[[2024 April - God’s Intent Is to Bring You Home.md|God’s Intent Is to Bring You Home]],” *Liahona*, May 2024, 87–89.
 
@@ -137,13 +129,13 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^30]: See [[John 11.35|John 11:35]].
 
-[^31]: See [[Psalms 46.10|Psalms 46:10]].
+[^31]: See [[Psalms 46.10|Psalm 46:10]].
 
-[^32]: See [[2 Nephi 1.15|2 Nephi 1:15]].
+[^32]: See [[2 Nephi 1.15|2 Nephi 1:15]].
 
-[^33]: See [[D&C 45.3|D&C 45:3]].
+[^33]: See [[D&C 45.3|Doctrine and Covenants 45:3]].
 
-[^34]: [[D&C 45.5|D&C 45:5]].
+[^34]: [[D&C 45.5|Doctrine and Covenants 45:5]].
 
 [^35]: See [[Alma 42.15|Alma 42:15]].
 
@@ -153,11 +145,11 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^38]: Dale G. Renlund, “[Stronger and Closer Connection to God Through Multiple Covenants](https://speeches.byu.edu/talks/dale-g-renlund/stronger-and-closer-connection-to-god-through-multiple-covenants)” (Brigham Young University devotional, Mar. 5, 2024), 1, speeches.byu.edu.
 
-[^39]: See [[D&C 1.30|D&C 1:30]].
+[^39]: See [[D&C 1.30|Doctrine and Covenants 1:30]].
 
 [^40]: See [[Romans 11.26|Romans 11:26]].
 
-[^41]: See [[2 Nephi 9.10|2 Nephi 9:10]].
+[^41]: See [[2 Nephi 9.10|2 Nephi 9:10]].
 
 [^42]: See [[Alma 7.11|Alma 7:11]].
 
@@ -165,13 +157,13 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^44]: See [[Isaiah 9.6|Isaiah 9:6]].
 
-[^45]: See [[D&C 93.45|D&C 93:45]].
+[^45]: See [[D&C 93.45|Doctrine and Covenants 93:45]].
 
 [^46]: See Dale G. Renlund, “[[2021 April - Infuriating Unfairness.md|Infuriating Unfairness]],” *Liahona*, May 2021, 41–44.
 
-[^47]: [[D&C 88.63|D&C 88:63]].
+[^47]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-[^48]: See [[D&C 19.23|D&C 19:23]].
+[^48]: See [[D&C 19.23|Doctrine and Covenants 19:23]].
 
 [^49]: Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p45#p45),” *Liahona*, Oct. 2022, 10.
 

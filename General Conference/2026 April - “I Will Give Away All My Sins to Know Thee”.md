@@ -55,17 +55,17 @@ I testify that Jesus Christ is risen. He lives! This is what He wants us to do t
 
 
 
-[^1]: [[Alma 22.12|Alma 22:12]], [[Alma 22.13|Alma 22:13]], [[Alma 22.14|Alma 22:14]], [[Alma 22.15|Alma 22:15]], [[Alma 22.16|Alma 22:16]], [[Alma 22.17|Alma 22:17]], [[Alma 22.18|Alma 22:18]].
+[^1]: [[Alma 22.12|Alma 22:12–18]][[Alma 22.13|]][[Alma 22.14|]][[Alma 22.15|]][[Alma 22.16|]][[Alma 22.17|]][[Alma 22.18|]].
 
-[^2]: See [[D&C 58.28|D&C 58:28]].
+[^2]: See [[D&C 58.28|Doctrine and Covenants 58:28]].
 
-[^3]: [[John 17.3|John 17:3]].
+[^3]: [[John 17.3|John 17:3]].
 
-[^4]: [[John 14.6|John 14:6]].
+[^4]: [[John 14.6|John 14:6]].
 
 [^5]: See [Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/03-chapter-1?lang=eng&id=p4#p4) (2023), 2.
 
-[^6]: See [[Alma 22.18|Alma 22:18]].
+[^6]: See [[Alma 22.18|Alma 22:18]].
 
 [^7]: Dallin H. Oaks, “[[2003 October - Repentance and Change.md|Repentance and Change]],” *Liahona*, Nov. 2003, 37.
 
@@ -75,5 +75,5 @@ I testify that Jesus Christ is risen. He lives! This is what He wants us to do t
 
 [^10]: [Preach My Gospel](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/10-chapter-3-lesson-3?lang=eng&id=p52#p52), 65.
 
-[^11]: [[2 Nephi 25.20|2 Nephi 25:20]].
+[^11]: [[2 Nephi 25.20|2 Nephi 25:20]].
 

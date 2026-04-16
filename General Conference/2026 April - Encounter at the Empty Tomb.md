@@ -8,7 +8,7 @@ By President Dieter F. Uchtdorf - *Acting President of the Quorum of the Twelve
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2026/04/41uchtdorf?lang=eng)
 
-## “They … Came to the Tomb”
+## “They … Came to the Tomb”[^1]
 
 Nearly 2,000 years ago, a small group of women rose while it was still dark and made their way toward the tomb where the body of their beloved Lord, Jesus Christ, had been laid to rest.[^2]
 
@@ -124,6 +124,8 @@ My dear friends, on this holy Easter morning, I offer my witness: He is risen.
 
 I have stood at the entrance to the empty tomb and seen with spiritual eyes the eternal truth that Jesus Christ is not found among the dead but among the living.
 
+He lives!
+
 That testimony has made all the difference in my life.
 
 That encounter at the tomb will do the same for all who earnestly seek Him. It will make a difference to you.
@@ -135,7 +137,7 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^1]: Luke 24:1, New King James Version (NKJV).
 
-[^2]: See [[Luke 24.1|Luke 24:1]]
+[^2]: See [[Luke 24.1|Luke 24:1.]]
 
 [^3]: “Upon the Cross of Calvary,” *Hymns*, no. 184.
 
@@ -149,7 +151,7 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^8]: See [[Matthew 19.26|Matthew 19:26]].
 
-[^9]: See [[Romans 8.31|Romans 8:31]], [[Romans 8.35|Romans 8:35]], [[Romans 8.36|Romans 8:36]], [[Romans 8.37|Romans 8:37]], [[Romans 8.38|Romans 8:38]], [[Romans 8.39|Romans 8:39]].
+[^9]: See [[Romans 8.31|Romans 8:31, 35–39]][[Romans 8.35|]][[Romans 8.36|]][[Romans 8.37|]][[Romans 8.38|]][[Romans 8.39|]].
 
 [^10]: Matthew 28:6–7, NKJV; emphasis added.
 
@@ -163,11 +165,11 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^15]: [[John 14.6|John 14:6]].
 
-[^16]: [[3 Nephi 5.3|3 Nephi 5:3]]
+[^16]: [[3 Nephi 5.3|3 Nephi 5:3.]]
 
-[^17]: See [[Matthew 28.5|Matthew 28:5]], [[Matthew 28.6|Matthew 28:6]]
+[^17]: See [[Matthew 28.5|Matthew 28:5–6.]][[Matthew 28.6|]]
 
-[^18]: See [[Mosiah 5.2|Mosiah 5:2]]
+[^18]: See [[Mosiah 5.2|Mosiah 5:2.]]
 
 [^19]: See *For the Strength of Youth: A Guide for Making Choices* (2025). It is not only part of the weekly curriculum for the rising generation but a practical guide for parents, peers, and leaders alike.
 

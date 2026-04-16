@@ -10,7 +10,7 @@ By Elder Michael John U. Teh - *Of the Seventy*
 
 ## Follow the Prophet
 
-To the rich young man, Jesus said, “Sell all that thou hast, and distribute unto the poor⁠, and thou shalt have treasure in heaven: and come, follow me⁠.”[^1] The young man did not know that the path he was asked to tread would lead him to “treasures in heaven, where neither moth nor rust doth corrupt.”[^2]
+To the rich young man, Jesus said, “Sell all that thou hast, and distribute unto the poor, and thou shalt have treasure in heaven: and come, follow me.”[^1] The young man did not know that the path he was asked to tread would lead him to “treasures in heaven, where neither moth nor rust doth corrupt.”[^2]
 
 I am grateful for teachings received over the years that have helped me better follow the Savior. For my purpose today, I simply would like to focus on one. As the Primary song goes, “Follow the prophet; he knows the way.”[^3]
 
@@ -71,7 +71,7 @@ I testify that we are led today by a living prophet, President Dallin H. Oaks. 
 
 [^7]: Dallin H. Oaks, “[[1987 October - “The Light and Life of the World”.md|The Light and Life of the World]],” *Ensign*, Nov. 1987, 64.
 
-[^8]: See [[Ezekiel 33.2|Ezekiel 33:2]], [[Ezekiel 33.3|Ezekiel 33:3]], [[Ezekiel 33.4|Ezekiel 33:4]], [[Ezekiel 33.5|Ezekiel 33:5]], [[Ezekiel 33.6|Ezekiel 33:6]], [[Ezekiel 33.7|Ezekiel 33:7]].
+[^8]: See [[Ezekiel 33.2|Ezekiel 33:2–7]][[Ezekiel 33.3|]][[Ezekiel 33.4|]][[Ezekiel 33.5|]][[Ezekiel 33.6|]][[Ezekiel 33.7|]].
 
 [^9]: [[Mosiah 8.17|Mosiah 8:17]].
 

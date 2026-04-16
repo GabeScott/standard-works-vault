@@ -87,17 +87,17 @@ This month, as we celebrate and remember the Resurrection of our Savior, I invit
 
 [^4]: See [[Moses 1.30|Moses 1:30]].
 
-[^5]: See [[Moses 1.31|Moses 1:31]], [[Moses 1.32|Moses 1:32]], [[Moses 1.33|Moses 1:33]][[Moses 1.39|Moses 1:39]].
+[^5]: See [[Moses 1.31|Moses 1:31–33, 39]][[Moses 1.32|]][[Moses 1.33|]][[Moses 1.39|]].
 
-[^6]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^6]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^7]: Dallin H. Oaks, “[[2025 October - The Family-Centered Gospel of Jesus Christ.md|The Family-Centered Gospel of Jesus Christ]],” *Liahona*, Nov. 2025, 120, 121.
 
-[^8]: See [[D&C 49.15|D&C 49:15]], [[D&C 49.16|D&C 49:16]], [[D&C 49.17|D&C 49:17]]; see also “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
+[^8]: See [[D&C 49.15|Doctrine and Covenants 49:15–17]][[D&C 49.16|]][[D&C 49.17|]]; see also “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
-[^9]: [[D&C 2.3|D&C 2:3]].
+[^9]: [[D&C 2.3|Doctrine and Covenants 2:3]].
 
-[^10]: See [[Exodus 3.6|Exodus 3:6]], [[Exodus 3.15|Exodus 3:15]]; [[Matthew 22.32|Matthew 22:32]].
+[^10]: See [[Exodus 3.6|Exodus 3:6, 15]][[Exodus 3.15|]]; [[Matthew 22.32|Matthew 22:32]].
 
 [^11]: See Gerrit W. Gong, “[[2025 October - No One Sits Alone.md|No One Sits Alone]],” *Liahona*, Nov. 2025, 40–43.
 

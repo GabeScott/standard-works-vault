@@ -10,7 +10,7 @@ By Elder Jorge T. Becerra - *Of the Seventy*
 
 The prophet Alma asked several penetrating questions to help the Church members in Zarahemla have “a mighty change” of heart as disciples of Jesus Christ ([[Alma 5.12|Alma 5:12]]). Shortly thereafter, he taught the people of Gideon. Something he taught caught my attention as I read, “I have come having great hopes … that ye had humbled yourselves before God, and that … ye were not in the *awful dilemma* that our brethren were in at Zarahemla” ([[Alma 7.3|Alma 7:3]]; emphasis added).
 
-Later in the same sermon, he repeated, “I had much desire that ye were not in the *state of dilemma* like your brethren” ([[Alma 7.18|Alma 7:18]]; emphasis added). What was this awful dilemma? The footnote in [[Alma 7.18|Alma 7:18]] leads us to a possible answer. The Apostle James taught us what this dilemma could be: “A double minded man is unstable in all his ways” ([[James 1.8|James 1:8]]).
+Later in the same sermon, he repeated, “I had much desire that ye were not in the *state of dilemma* like your brethren” ([[Alma 7.18|Alma 7:18]]; emphasis added). What was this awful dilemma? The footnote in [[Alma 7.18|verse 18]] leads us to a possible answer. The Apostle James taught us what this dilemma could be: “A double minded man is unstable in all his ways” ([[James 1.8|James 1:8]]).
 
 A double-minded person is one who is wavering, indecisive, or conflicted, someone who lacks commitment to a single purpose or belief. One way to overcome double-mindedness is to learn to put God *first* in our lives. Jesus Christ taught, “Seek ye *first* the kingdom of God, and his righteousness” ([[Matthew 6.33|Matthew 6:33]]; emphasis added).
 
@@ -18,7 +18,7 @@ From the beginning of time, God has taught His children to put Him *first* in th
 
 “And after many days an angel of the Lord appeared unto Adam, saying: Why dost thou offer sacrifices unto the Lord? And Adam said unto him: I know not, save the Lord commanded me.
 
-“And then the angel spake, saying: This thing is a similitude of the sacrifice of the Only Begotten of the Father, which is full of grace and truth” ([[Moses 5.5|Moses 5:5]], [[Moses 5.6|Moses 5:6]], [[Moses 5.7|Moses 5:7]]; emphasis added).
+“And then the angel spake, saying: This thing is a similitude of the sacrifice of the Only Begotten of the Father, which is full of grace and truth” ([[Moses 5.5|Moses 5:5–7]][[Moses 5.6|]][[Moses 5.7|]]; emphasis added).
 
 Please notice that the Lord commanded Adam and Eve to offer the *firstlings* of their flocks. In other words, He commanded them to put God *first* to avoid the spiritual dilemma of double-mindedness.
 

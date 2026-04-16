@@ -65,21 +65,21 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^4]: [[John 8.12|John 8:12]].
 
-[^5]: [[2 Nephi 25.19|2 Nephi 25:19]].
+[^5]: [[2 Nephi 25.19|2 Nephi 25:19]].
 
-[^6]: [[D&C 42.1|D&C 42:1]].
+[^6]: [[D&C 42.1|Doctrine and Covenants 42:1]].
 
 [^7]: See [[Alma 22.14|Alma 22:14]].
 
-[^8]: See [[D&C 76.17|D&C 76:17]].
+[^8]: See [[D&C 76.17|Doctrine and Covenants 76:17]].
 
-[^9]: [[1 Timothy 6.15|1 Timothy 6:15]].
+[^9]: [[1 Timothy 6.15|1 Timothy 6:15]].
 
-[^10]: [[Mosiah 27.31|Mosiah 27:31]]; see also [[Isaiah 45.23|Isaiah 45:23]]; [[Philippians 2.10|Philippians 2:10]], [[Philippians 2.11|Philippians 2:11]]; [[D&C 76.110|D&C 76:110]]; [[D&C 88.104|D&C 88:104]].
+[^10]: [[Mosiah 27.31|Mosiah 27:31]]; see also [[Isaiah 45.23|Isaiah 45:23]]; [[Philippians 2.10|Philippians 2:10–11]][[Philippians 2.11|]]; [[D&C 76.110|Doctrine and Covenants 76:110]]; [[D&C 88.104|88:104]].
 
 [^11]: All four Gospels in the New Testament refer to women coming to the tomb on that Sunday morning. Those mentioned are Mary, Joanna, Mary the mother of James, Salome, and others (see [[Mark 16.1|Mark 16:1]]; [[Luke 24.10|Luke 24:10]]). They brought spices with them (see [[Mark 16.1|Mark 16:1]]). By tradition, the women did not attend to the body immediately, but in honor of the Sabbath they waited (see [[Luke 23.56|Luke 23:56]]).
 
-[^12]: See [[Luke 24.5|Luke 24:5]], [[Luke 24.6|Luke 24:6]].
+[^12]: See [[Luke 24.5|Luke 24:5–6]][[Luke 24.6|]].
 
 [^13]: Dallin H. Oaks, “[[2000 April - Resurrection.md|Resurrection]],” *Ensign*, May 2000, 14; *Liahona*, July 2000, 16.
 
@@ -91,21 +91,21 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^17]: [[Luke 24.39|Luke 24:39]].
 
-[^18]: See [[Luke 24.13|Luke 24:13]], [[Luke 24.14|Luke 24:14]], [[Luke 24.15|Luke 24:15]], [[Luke 24.16|Luke 24:16]], [[Luke 24.17|Luke 24:17]], [[Luke 24.18|Luke 24:18]], [[Luke 24.19|Luke 24:19]], [[Luke 24.20|Luke 24:20]], [[Luke 24.21|Luke 24:21]], [[Luke 24.22|Luke 24:22]], [[Luke 24.23|Luke 24:23]], [[Luke 24.24|Luke 24:24]], [[Luke 24.25|Luke 24:25]], [[Luke 24.26|Luke 24:26]], [[Luke 24.27|Luke 24:27]], [[Luke 24.28|Luke 24:28]], [[Luke 24.29|Luke 24:29]], [[Luke 24.30|Luke 24:30]], [[Luke 24.31|Luke 24:31]], [[Luke 24.32|Luke 24:32]].
+[^18]: See [[Luke 24.13|Luke 24:13–32]][[Luke 24.14|]][[Luke 24.15|]][[Luke 24.16|]][[Luke 24.17|]][[Luke 24.18|]][[Luke 24.19|]][[Luke 24.20|]][[Luke 24.21|]][[Luke 24.22|]][[Luke 24.23|]][[Luke 24.24|]][[Luke 24.25|]][[Luke 24.26|]][[Luke 24.27|]][[Luke 24.28|]][[Luke 24.29|]][[Luke 24.30|]][[Luke 24.31|]][[Luke 24.32|]].
 
 [^19]: [[Moses 7.35|Moses 7:35]].
 
-[^20]: See [[1 Corinthians 15.6|1 Corinthians 15:6]]. The Holy Land is very much a backdrop to the narratives of both the New and Old Testaments, though it is not mentioned explicitly in the Bible. It has been called the “Promised Land” and at the time of Christ’s ministry would have included the areas of Galilee, Judea, and Samaria.
+[^20]: See [[1 Corinthians 15.6|1 Corinthians 15:6]]. The Holy Land is very much a backdrop to the narratives of both the New and Old Testaments, though it is not mentioned explicitly in the Bible. It has been called the “Promised Land” and at the time of Christ’s ministry would have included the areas of Galilee, Judea, and Samaria.
 
-[^21]: In the land called Bountiful, a great multitude of the people of Nephi gathered around the temple and marveled at the changes that had taken place in the land (see [[3 Nephi 11.1|3 Nephi 11:1]]).
+[^21]: In the land called Bountiful, a great multitude of the people of Nephi gathered around the temple and marveled at the changes that had taken place in the land (see [[3 Nephi 11.1|3 Nephi 11:1]]).
 
-[^22]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^22]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
-[^23]: [[3 Nephi 11.8|3 Nephi 11:8]].
+[^23]: [[3 Nephi 11.8|3 Nephi 11:8]].
 
-[^24]: [[3 Nephi 11.9|3 Nephi 11:9]].
+[^24]: [[3 Nephi 11.9|3 Nephi 11:9]].
 
-[^25]: [[3 Nephi 11.10|3 Nephi 11:10]].
+[^25]: [[3 Nephi 11.10|3 Nephi 11:10]].
 
 [^26]: See [[Matthew 14.31|Matthew 14:31]].
 
@@ -113,25 +113,25 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^28]: See [[John 13.5|John 13:5]].
 
-[^29]: [[Luke 22.19|Luke 22:19]]. At the Last Supper, Jesus Christ instituted the sacrament, explaining the ordinance to His Twelve Apostles (see also the sacrament prayers used in today’s worship services in [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|Moroni 5:2]]; [[D&C 20.75|D&C 20:75]], [[D&C 20.76|D&C 20:76]], [[D&C 20.77|D&C 20:77]], [[D&C 20.78|D&C 20:78]], [[D&C 20.79|D&C 20:79]]).
+[^29]: [[Luke 22.19|Luke 22:19]]. At the Last Supper, Jesus Christ instituted the sacrament, explaining the ordinance to His Twelve Apostles (see also the sacrament prayers used in today’s worship services in [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|5:2]]; [[D&C 20.75|Doctrine and Covenants 20:75–79]][[D&C 20.76|]][[D&C 20.77|]][[D&C 20.78|]][[D&C 20.79|]]).
 
 [^30]: [[Isaiah 41.10|Isaiah 41:10]].
 
-[^31]: [[3 Nephi 11.14|3 Nephi 11:14]].
+[^31]: [[3 Nephi 11.14|3 Nephi 11:14]].
 
-[^32]: [[3 Nephi 11.15|3 Nephi 11:15]]. The number of those gathered at the temple is mentioned in [[3 Nephi 17.25|3 Nephi 17:25]].
+[^32]: [[3 Nephi 11.15|3 Nephi 11:15]]. The number of those gathered at the temple is mentioned in [[3 Nephi 17.25|3 Nephi 17:25]].
 
-[^33]: [[3 Nephi 17.11|3 Nephi 17:11]].
+[^33]: [[3 Nephi 17.11|3 Nephi 17:11]].
 
-[^34]: [[3 Nephi 17.21|3 Nephi 17:21]].
+[^34]: [[3 Nephi 17.21|3 Nephi 17:21]].
 
 [^35]: See Ronald A. Rasband, “[[2012 April - Special Lessons.md|Special Lessons]],” *Liahona*, May 2012, 80–82.
 
-[^36]: [[3 Nephi 17.7|3 Nephi 17:7]].
+[^36]: [[3 Nephi 17.7|3 Nephi 17:7]].
 
 [^37]: [[John 9.3|John 9:3]].
 
-[^38]: [[Psalms 30.5|Psalms 30:5]].
+[^38]: [[Psalms 30.5|Psalm 30:5]].
 
 [^39]: [[John 14.19|John 14:19]].
 
@@ -145,5 +145,5 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^44]: “He Is Risen!,” *Hymns*, no. 199.
 
-[^45]: See [[D&C 107.23|D&C 107:23]].
+[^45]: See [[D&C 107.23|Doctrine and Covenants 107:23]].
 
