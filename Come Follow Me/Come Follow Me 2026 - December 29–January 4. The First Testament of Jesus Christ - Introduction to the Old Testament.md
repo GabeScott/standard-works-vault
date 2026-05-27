@@ -20,16 +20,16 @@ One way to find rich spiritual nourishment in the Old Testament is to look for t
 
 What do these examples teach about Him? What other references to Jesus Christ in the Old Testament are you already familiar with?
 
-In his message “[[2023 October - Jesus Christ Is the Treasure.md|Jesus Christ Is the Treasure]],” Elder Dale G. Renlund encouraged us to “remember and always focus on Jesus Christ” (*Liahona*, Nov. 2023, 98). Consider reading his message, looking for things you can do to find Jesus Christ not only in the Old Testament but also in your life.
+In his message “[[2023 October - Jesus Christ Is the Treasure.md|Jesus Christ Is the Treasure]],” Elder Dale G. Renlund encouraged us to “remember and always focus on Jesus Christ” (*Liahona*, Nov. 2023, 98). Consider reading his message, looking for things you can do to find Jesus Christ not only in the Old Testament but also in your life.
 
-See also “[Types or Symbols of Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng&id=title15-p161#title15)” in Guide to the Scriptures, “[Jesus Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng),” Gospel Library; “[Seek the Lord Early](https://churchofjesuschrist.orghttps://www.churchofjesuschrist.org/media/music/songs/seek-the-lord-early),” *Children’s Songbook*, 108.
+See also “[Types or Symbols of Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng&id=title15-p161#title15)” in Guide to the Scriptures, “[Jesus Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng),” Gospel Library; “[Seek the Lord Early](https://www.churchofjesuschrist.org/media/music/songs/seek-the-lord-early),” *Children’s Songbook*, 108.
 
-> **Look for symbols that testify of Jesus Christ.** The Lord taught Adam, “All things have their likeness, and all things are created and made to bear record of me” ([[Moses 6.63|Moses 6:63]]). Whether you are studying or teaching, focusing on Jesus Christ can help you find meaning in the scriptures and increase your love for and faith in Him. (See *Teaching in the Savior’s Way*, [7](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/04-part-1/05-teach-about-jesus-christ?lang=eng).)
+> **Look for symbols that testify of Jesus Christ.** The Lord taught Adam, “All things have their likeness, and all things are created and made to bear record of me” ([[Moses 6.63|Moses 6:63]]). Whether you are studying or teaching, focusing on Jesus Christ can help you find meaning in the scriptures and increase your love for and faith in Him. (See *Teaching in the Savior’s Way*, [7](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/04-part-1/05-teach-about-jesus-christ?lang=eng).)
 
 
 ### Jesus Christ is Jehovah in the Old Testament.
 
-President Dallin H. Oaks taught: “The Father introduced His Only Begotten Son, Jesus Christ, as our Savior and Redeemer and gave us the command to ‘hear Him.’ From this direction we conclude that the scriptural records of words spoken by ‘God’ or the ‘Lord’ are almost always the words of Jehovah, our risen Lord, Jesus Christ” (“[[2023 April - The Teachings of Jesus Christ.md|The Teachings of Jesus Christ]],” *Liahona*, May 2023, 102).
+President Dallin H. Oaks taught: “The Father introduced His Only Begotten Son, Jesus Christ, as our Savior and Redeemer and gave us the command to ‘hear Him.’ From this direction we conclude that the scriptural records of words spoken by ‘God’ or the ‘Lord’ are almost always the words of Jehovah, our risen Lord, Jesus Christ” (“[[2023 April - The Teachings of Jesus Christ.md|The Teachings of Jesus Christ]],” *Liahona*, May 2023, 102).
 
 When the leaders of the Jews challenged Jesus about His identity, He declared, “Before Abraham was, I am.” These words shocked the people who heard Jesus, and they were ready to stone Him (see [[John 8.58|John 8:58–59]][[John 8.59|]]). Consider reading [[Exodus 3.13|Exodus 3:13–15]][[Exodus 3.14|]][[Exodus 3.15|]]; [[Exodus 6.3|6:3–5]][[Exodus 6.4|]][[Exodus 6.5|]] to see why some Jews were so upset at what Jesus said.
 
@@ -51,7 +51,7 @@ Here are some examples of Old Testament accounts restored through Joseph Smith: 
 
 ### The Old Testament helps me understand my covenant relationship with God.
 
-The Old Testament is the story of God seeking to make us His “peculiar treasure” by covenant ([[Exodus 19.5|Exodus 19:5]]). For that reason, a good way to prepare to read the Old Testament is to learn about covenants—specifically the everlasting covenant God offered to ancient prophets like Abraham, Isaac, Jacob, and their posterity. And a great way to learn about covenants is to study President Russell M. Nelson’s message “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng)” (*Liahona*, October 2022, 4–11).
+The Old Testament is the story of God seeking to make us His “peculiar treasure” by covenant ([[Exodus 19.5|Exodus 19:5]]). For that reason, a good way to prepare to read the Old Testament is to learn about covenants—specifically the everlasting covenant God offered to ancient prophets like Abraham, Isaac, Jacob, and their posterity. And a great way to learn about covenants is to study President Russell M. Nelson’s message “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng)” (*Liahona*, October 2022, 4–11).
 
 As you read, ask yourself: Why are covenants important to me? What “special kind of love and mercy” do I receive from God as I keep my covenants with Him? As you read the Old Testament this year, be watching for things God wants to teach you about your covenant relationship with Him.
 
@@ -73,11 +73,11 @@ See also [[Jeremiah 31.31|Jeremiah 31:31–34]][[Jeremiah 31.32|]][[Jeremiah 31.
 
 - Covenants are a major theme in the Old Testament. To introduce this theme to your children, you could talk with them about promises they make and keep with family or friends and why keeping these promises is important. You could then look at a picture of a baptism and talk about the promise, or covenant, we make with God when we are baptized (see [[Mosiah 18.10|Mosiah 18:10, 13]][[Mosiah 18.13|]]). You could also show a picture of the temple and share your feelings about the covenants we make there.
 
-- This week’s activity page could help your children be excited to make and keep covenants with Heavenly Father. You could also sing a song about making covenants, like “[When I Am Baptized](https://churchofjesuschrist.orghttps://www.churchofjesuschrist.org/media/music/songs/when-i-am-baptized)” (*Children’s Songbook*, 103).
+- This week’s activity page could help your children be excited to make and keep covenants with Heavenly Father. You could also sing a song about making covenants, like “[When I Am Baptized](https://www.churchofjesuschrist.org/media/music/songs/when-i-am-baptized)” (*Children’s Songbook*, 103).
 
 ### Jesus Christ is Jehovah in the Old Testament.
 
-- Do your children know anyone who goes by different names in different settings? Perhaps a parent or teacher is addressed differently at work, at home, and at church. Talk about those names; then read [[Exodus 6.3|Exodus 6:3]] together and invite your children to find the names Jesus Christ was known by before He was born (see also the Joseph Smith Translation in footnote *c*).
+- Do your children know anyone who goes by different names in different settings? Perhaps a parent or teacher is addressed differently at work, at home, and at church. Talk about those names; then read [[Exodus 6.3|Exodus 6:3]] together and invite your children to find the names Jesus Christ was known by before He was born (see also the Joseph Smith Translation in footnote *c*).
 
 > For more, see this month’s issue of the [Friend](https://churchofjesuschrist.org/study/magazines/friend?lang=eng) magazine.
 

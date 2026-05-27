@@ -6,7 +6,7 @@ Jonah was on a ship headed for Tarshish. There’s nothing wrong with sailing to
 
 So He keeps sending prophets—like Jonah, Amos, Obadiah, and our prophets today—with the message that if we repent, we will not be cast off forever. Of all the “secrets” God reveals (see [[Amos 3.7|Amos 3:7]]), this one is among the most precious: that because of Jesus Christ, it’s not too late to change. He still wants to help us live up to the covenants we made with Him, and He’s willing to offer us another chance.
 
-For more about these books, see “[Amos](https://churchofjesuschrist.org/study/scriptures/bd/amos?lang=eng),” “[Obadiah](https://churchofjesuschrist.org/study/scriptures/bd/obadiah?lang=eng),” and “[Jonah](https://churchofjesuschrist.org/study/scriptures/bd/jonah?lang=eng)” in the Bible Dictionary.
+For more about these books, see “[[BD Amos|Amos]],” “[[BD Obadiah|Obadiah]],” and “[[BD Jonah|Jonah]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 
@@ -17,7 +17,7 @@ In [[Amos 3.3|Amos 3:3–6]][[Amos 3.4|]][[Amos 3.5|]][[Amos 3.6|]], the prophet
 
 What has the Lord revealed to you through His prophets?
 
-Elder Ulisses Soares said that “having prophets is a sign of God’s love” (“[[2018 April - Prophets Speak by the Power of the Holy Spirit.md|Prophets Speak by the Power of the Holy Spirit]],” *Ensign* or *Liahona*, May 2018, 99). Consider how you would complete this sentence: “I know God loves me, because He sends prophets who …” Here are some scriptures that can help: [[Deuteronomy 18.18|Deuteronomy 18:18]]; [[Ezekiel 3.16|Ezekiel 3:16–17]][[Ezekiel 3.17|]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]]; [[1 Nephi 22.2|1 Nephi 22:2]]; [[D&C 21.4|Doctrine and Covenants 21:4–6]][[D&C 21.5|]][[D&C 21.6|]]; [[D&C 84.36|84:36–38]][[D&C 84.37|]][[D&C 84.38|]]; [[D&C 107.91|107:91–92]][[D&C 107.92|]].
+Elder Ulisses Soares said that “having prophets is a sign of God’s love” (“[[2018 April - Prophets Speak by the Power of the Holy Spirit.md|Prophets Speak by the Power of the Holy Spirit]],” *Ensign* or *Liahona*, May 2018, 99). Consider how you would complete this sentence: “I know God loves me, because He sends prophets who …” Here are some scriptures that can help: [[Deuteronomy 18.18|Deuteronomy 18:18]]; [[Ezekiel 3.16|Ezekiel 3:16–17]][[Ezekiel 3.17|]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]]; [[1 Nephi 22.2|1 Nephi 22:2]]; [[D&C 21.4|Doctrine and Covenants 21:4–6]][[D&C 21.5|]][[D&C 21.6|]]; [[D&C 84.36|84:36–38]][[D&C 84.37|]][[D&C 84.38|]]; [[D&C 107.91|107:91–92]][[D&C 107.92|]].
 
 What would you say to someone who feels prophets are not needed today?
 
@@ -42,9 +42,9 @@ See also “The Great Apostasy” (video), Gospel Library.
 [[Obadiah 1.21|Obadiah 1:21]]
 ### Who are the “saviours … on mount Zion”?
 
-Referring to [[Obadiah 1.21|Obadiah 1:21]], President Gordon B. Hinckley explained that we become saviors on Mount Zion when we receive ordinances for the dead in the temple (see “[[2004 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2004, 105). How is doing that work similar—if only in a small way—to what the Savior did for us? How has doing this work helped you feel closer to the Savior?
+Referring to [[Obadiah 1.21|Obadiah 1:21]], President Gordon B. Hinckley explained that we become saviors on Mount Zion when we receive ordinances for the dead in the temple (see “[[2004 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2004, 105). How is doing that work similar—if only in a small way—to what the Savior did for us? How has doing this work helped you feel closer to the Savior?
 
-See also “[Holy Temples on Mount Zion](https://churchofjesuschrist.org/study/manual/hymns/holy-temples-on-mount-zion?lang=eng),” *Hymns*, no. 289.
+See also “[Holy Temples on Mount Zion](https://churchofjesuschrist.org/study/manual/hymns/holy-temples-on-mount-zion?lang=eng),” *Hymns*, no. 289.
 
 [[Jonah 1.1|Jonah 1–4]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]
 ### The Lord is merciful to all who turn to Him.
@@ -52,6 +52,16 @@ See also “[Holy Temples on Mount Zion](https://churchofjesuschrist.org/study/m
 Nineveh was an enemy of Israel known for its violence and cruelty. To Jonah, it seemed unrealistic that they were ready to repent. It might be interesting to compare Jonah’s attitude (see [[Jonah 1.1|Jonah 1]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]; [[Jonah 3.1|3–4]][[Jonah 3.2|]][[Jonah 3.3|]][[Jonah 3.4|]][[Jonah 3.5|]][[Jonah 3.6|]][[Jonah 3.7|]][[Jonah 3.8|]][[Jonah 3.9|]][[Jonah 3.10|]]) to the feelings of Alma and the sons of Mosiah (see [[Mosiah 28.1|Mosiah 28:1–5]][[Mosiah 28.2|]][[Mosiah 28.3|]][[Mosiah 28.4|]][[Mosiah 28.5|]]; [[Alma 17.23|Alma 17:23–25]][[Alma 17.24|]][[Alma 17.25|]]). What do you learn from [[Jonah 3.1|Jonah 3]][[Jonah 3.2|]][[Jonah 3.3|]][[Jonah 3.4|]][[Jonah 3.5|]][[Jonah 3.6|]][[Jonah 3.7|]][[Jonah 3.8|]][[Jonah 3.9|]][[Jonah 3.10|]] that inspires you to share the gospel even with people who may not seem ready to change?
 
 As you read Jonah, look for examples of the Lord’s mercy. Why do you feel Jonah was “displeased” and “very angry” ([[Jonah 4.1|Jonah 4:1]]) when the Lord extended mercy to the people of Nineveh? What do you feel the Lord was trying to teach him in [[Jonah 4.1|chapter 4]][[Jonah 4.2|]][[Jonah 4.3|]][[Jonah 4.4|]][[Jonah 4.5|]][[Jonah 4.6|]][[Jonah 4.7|]][[Jonah 4.8|]][[Jonah 4.9|]][[Jonah 4.10|]][[Jonah 4.11|]]? Ponder how you have experienced His mercy in your life. What do you learn from Jonah that can help you be more merciful?
+
+### Scripture Helps
+
+- [What is a “plumbline”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/46-amos-obadiah-jonah?lang=eng&id=p_eIMmP-p_qkvng#p_eIMmP)
+
+- [What do we know about the cities of Nineveh and Tarshish?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/46-amos-obadiah-jonah?lang=eng&id=p_jL6K0-p_ueZv2#p_jL6K0)
+
+- [What was the meaning of Jonah’s experience with the gourd?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/46-amos-obadiah-jonah?lang=eng&id=p_qCtVt-p_hiaA4#p_qCtVt)
+
+[Click to see more.](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/46-amos-obadiah-jonah?lang=eng)
 
 ## Ideas for Teaching Children
 
@@ -64,7 +74,7 @@ Because this Sunday is the fifth Sunday of the month, Primary teachers are encou
 
 - To learn more about what prophets do, you and your children could review [recent messages from the current President of the Church](https://churchofjesuschrist.org/study/books-and-lessons/teachings-of-presidents?lang=eng). You could also sing a song like “[Follow the Prophet](https://churchofjesuschrist.org/study/manual/childrens-songbook/follow-the-prophet?lang=eng)” (*Children’s Songbook*, 110–11). Share with each other why you choose to follow God’s prophet.
 
-> **Help children memorize scriptures.** Elder Richard G. Scott shared: “To memorize a scripture is to forge a new friendship. It is like discovering a new individual who can help in time of need, give inspiration and comfort, and be a source of motivation for needed change” (“[[2011 October - The Power of Scripture.md|The Power of Scripture]],” *Ensign*, Nov. 2011, 6). To help your children memorize all or part of [[Amos 3.7|Amos 3:7]], you could write it down and repeat it together. Then you could erase or cover a few words at a time until your children can repeat the entire verse from memory.
+> **Help children memorize scriptures.** Elder Richard G. Scott shared: “To memorize a scripture is to forge a new friendship. It is like discovering a new individual who can help in time of need, give inspiration and comfort, and be a source of motivation for needed change” (“[[2011 October - The Power of Scripture.md|The Power of Scripture]],” *Ensign*, Nov. 2011, 6). To help your children memorize all or part of [[Amos 3.7|Amos 3:7]], you could write it down and repeat it together. Then you could erase or cover a few words at a time until your children can repeat the entire verse from memory.
 
 
 [[Amos 8.11|Amos 8:11–12]][[Amos 8.12|]]

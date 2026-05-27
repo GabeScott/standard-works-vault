@@ -2,7 +2,7 @@
 
 [Link](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/12?lang=eng)
 
-It had been about 22 years since Joseph’s brothers sold him into slavery. Joseph had suffered many trials, including false accusations and imprisonment. When he finally saw his brothers again, Joseph was the governor of all Egypt, second only to the pharaoh. He could easily have taken revenge on his brothers, and considering what they had done to Joseph, that might seem understandable. And yet Joseph forgave them. Not only that, but he helped them see divine purpose in his suffering. “God meant it unto good” ([[Genesis 50.20|Genesis 50:20]]), he told them, because it put him in a position to save “all his father’s household” ([[Genesis 47.12|Genesis 47:12]]) from famine.
+It had been about 22 years since Joseph’s brothers sold him into slavery. Joseph had suffered many trials, including false accusations and imprisonment. When he finally saw his brothers again, Joseph was the governor of all Egypt, second only to the pharaoh. He could easily have taken revenge on his brothers, and considering what they had done to Joseph, that might seem understandable. And yet Joseph forgave them. Not only that, but he helped them see divine purpose in his suffering. “God meant it unto good” ([[Genesis 50.20|Genesis 50:20]]), he told them, because it put him in a position to save “all his father’s household” ([[Genesis 47.12|Genesis 47:12]]) from famine.
 
 In many ways, Joseph was like Jesus Christ. Even though our sins caused Jesus great suffering, He offers forgiveness, delivering all of us from a fate far worse than famine. Whether we need to receive forgiveness or extend it—at some point we all need to do both—Joseph’s example points us to the Savior, the true source of healing and reconciliation.
 
@@ -32,7 +32,7 @@ Reading about Joseph forgiving his brothers of the terrible things they had done
 
 - What blessings came from Joseph’s forgiveness of his brothers? For example, compare the relationships in Jacob’s family at the beginning of the story (see, for example, [[Genesis 37.3|Genesis 37:3–11]][[Genesis 37.4|]][[Genesis 37.5|]][[Genesis 37.6|]][[Genesis 37.7|]][[Genesis 37.8|]][[Genesis 37.9|]][[Genesis 37.10|]][[Genesis 37.11|]]) with the relationships at the end (see [[Genesis 45.9|Genesis 45:9–15]][[Genesis 45.10|]][[Genesis 45.11|]][[Genesis 45.12|]][[Genesis 45.13|]][[Genesis 45.14|]][[Genesis 45.15|]]; [[Genesis 50.15|50:15–21]][[Genesis 50.16|]][[Genesis 50.17|]][[Genesis 50.18|]][[Genesis 50.19|]][[Genesis 50.20|]][[Genesis 50.21|]]). How might things have turned out differently if Joseph had not been willing to forgive?
 
-- Consider writing down the name of someone who may need your forgiveness—whether or not they have asked for forgiveness. What can you do to invite the Savior’s healing power into that situation? If forgiving seems too difficult, consider reviewing the counsel of Elder Gerrit W. Gong in the last six paragraphs of his message “[[2022 October - Happy and Forever.md|Happy and Forever]]” (*Liahona*, Nov. 2022, 85). What do you find that gives you hope that you can forgive?
+- Consider writing down the name of someone who may need your forgiveness—whether or not they have asked for forgiveness. What can you do to invite the Savior’s healing power into that situation? If forgiving seems too difficult, consider reviewing the counsel of Elder Gerrit W. Gong in the last six paragraphs of his message “[[2022 October - Happy and Forever.md|Happy and Forever]]” (*Liahona*, Nov. 2022, 85). What do you find that gives you hope that you can forgive?
 
 See also [[D&C 64.9|Doctrine and Covenants 64:9–11]][[D&C 64.10|]][[D&C 64.11|]]; “Forgiveness: My Burden Was Made Light” (video), Gospel Library.
 
@@ -45,14 +45,16 @@ As you read about Judah’s blessing in [[Genesis 49.8|Genesis 49:8–12]][[Gene
 
 Reading these blessings might inspire you to review your patriarchal blessing—or, if you don’t have one, to receive one. What words and phrases in your blessing turn your thoughts to Jesus Christ?
 
-See also Randall K. Bennett, “[[2023 April - Your Patriarchal Blessing—Inspired Direction from Heavenly Father.md|Your Patriarchal Blessing—Inspired Direction from Heavenly Father]],” *Liahona*, May 2023, 42–44.
+Members can access their patriarchal blessing from the Home section of the Gospel Library app when signed in using their Church Account.
+
+See also Randall K. Bennett, “[[2023 April - Your Patriarchal Blessing—Inspired Direction from Heavenly Father.md|Your Patriarchal Blessing—Inspired Direction from Heavenly Father]],” *Liahona*, May 2023, 42–44.
 
 [[Genesis 50.19|Genesis 50:19–21]][[Genesis 50.20|]][[Genesis 50.21|]]
 ### God can help me find meaning in my trials.
 
 Though it may not have been clear while he was going through it, Joseph was eventually able to look back on his adversity in Egypt and see that “God meant it unto good” ([[Genesis 50.20|Genesis 50:20]]). If you could have visited Joseph while he was in the pit or in prison, how would you have comforted him? How can [[Genesis 50.19|Genesis 50:19–21]][[Genesis 50.20|]][[Genesis 50.21|]] help you in your times of trial?
 
-See also [[D&C 122.1|Doctrine and Covenants 122]][[D&C 122.2|]][[D&C 122.3|]][[D&C 122.4|]][[D&C 122.5|]][[D&C 122.6|]][[D&C 122.7|]][[D&C 122.8|]][[D&C 122.9|]]; “[How Firm a Foundation](https://churchofjesuschrist.org/study/manual/hymns/how-firm-a-foundation?lang=eng),” *Hymns*, no. 85.
+See also [[D&C 122.1|Doctrine and Covenants 122]][[D&C 122.2|]][[D&C 122.3|]][[D&C 122.4|]][[D&C 122.5|]][[D&C 122.6|]][[D&C 122.7|]][[D&C 122.8|]][[D&C 122.9|]]; “[How Firm a Foundation](https://churchofjesuschrist.org/study/manual/hymns/how-firm-a-foundation?lang=eng),” *Hymns*, no. 85.
 
 [[Genesis 50.24|Genesis 50:24–25]][[Genesis 50.25|]]
 ### “A seer shall the Lord my God raise up.”
@@ -83,7 +85,7 @@ As you read [[Genesis 50.24|Genesis 50:24–25]][[Genesis 50.25|]] and [[JST Gen
 > **As you prepare to teach, ask, “What will my children do to learn?”** For example, in this activity your children are acting out or retelling a story. Doing this will help them remember both what happened and the gospel principles contained in the story.
 
 
-- You or your children may want to share an experience when they forgave someone or when someone forgave them. You could then sing a song such as “[Love One Another](https://churchofjesuschrist.org/study/manual/childrens-songbook/love-one-another?lang=eng)” (*Children’s Songbook*, 136) or “[Help Me, Dear Father](https://churchofjesuschrist.org/study/manual/childrens-songbook/help-me-dear-father?lang=eng)” (*Children’s Songbook*, 99).
+- You or your children may want to share an experience when they forgave someone or when someone forgave them. You could then sing a song such as “[Love One Another](https://churchofjesuschrist.org/study/manual/childrens-songbook/love-one-another?lang=eng)” (*Children’s Songbook*, 136) or “[Help Me, Dear Father](https://churchofjesuschrist.org/study/manual/childrens-songbook/help-me-dear-father?lang=eng)” (*Children’s Songbook*, 99).
 
 [[Genesis 48.8|Genesis 48:8–9]][[Genesis 48.9|]]
 ### The Lord helps me through priesthood blessings.

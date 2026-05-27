@@ -4,7 +4,7 @@
 
 It had taken several generations, but the Lord’s promise was about to be fulfilled: the children of Israel were finally going to inherit the promised land. But in their way stood the Jordan River, the walls of Jericho, and a mighty people who had rejected the Lord (see [[1 Nephi 17.35|1 Nephi 17:35]]). And they would have to face all of that without their beloved leader Moses. The situation may have made some Israelites feel weak and fearful, but the Lord said, “Be strong and of a good courage.” What reason did they have to be courageous? It wasn’t because of their own strength—or even Moses’s or Joshua’s—but because “the Lord thy God is with thee whithersoever thou goest” ([[Joshua 1.9|Joshua 1:9]]). When we have our own rivers to cross and walls to bring down, wonderful things can happen in our lives because “the Lord will do wonders among \[us\]” ([[Joshua 3.5|Joshua 3:5]]).
 
-For an overview of the book of Joshua, see “[Joshua, book of](https://churchofjesuschrist.org/study/scriptures/bd/joshua-book-of?lang=eng)” in the Bible Dictionary.
+For an overview of the book of Joshua, see “[[BD Joshua Book Of|Joshua, book of]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 
@@ -30,11 +30,11 @@ When the Lord invites us to read the scriptures, He often uses words that go bey
 | **[[Mosiah 1.7\|Mosiah 1:7]]** |  | Prosper in the land |
 | **[[Helaman 3.29\|Helaman 3:29–30]][[Helaman 3.30\|]]** |  |  |
 | **[[D&C 84.85\|Doctrine and Covenants 84:85]]** |  |  |
-| **Russell M. Nelson, “Hear Him,” *Ensign* or *Liahona*, May 2020, [[2020 April - Hear Him.md\|last paragraph on page 89]]** |  |  |
+| **Russell M. Nelson, “Hear Him,” *Ensign* or *Liahona*, May 2020, [[2020 April - Hear Him.md\|last paragraph on page 89]]** |  |  |
 
 How has the Lord fulfilled these promises in your life? Now may be a good time to evaluate your scripture study habits. What’s going well? What do you feel inspired to do to have more meaningful experiences with the word of God?
 
-See also “[As I Search the Holy Scriptures](https://churchofjesuschrist.org/study/manual/hymns/as-i-search-the-holy-scriptures?lang=eng),” *Hymns*, no. 277.
+See also “[As I Search the Holy Scriptures](https://churchofjesuschrist.org/study/manual/hymns/as-i-search-the-holy-scriptures?lang=eng),” *Hymns*, no. 277.
 
 [[Joshua 2.1|Joshua 2]][[Joshua 2.2|]][[Joshua 2.3|]][[Joshua 2.4|]][[Joshua 2.5|]][[Joshua 2.6|]][[Joshua 2.7|]][[Joshua 2.8|]][[Joshua 2.9|]][[Joshua 2.10|]][[Joshua 2.11|]][[Joshua 2.12|]][[Joshua 2.13|]][[Joshua 2.14|]][[Joshua 2.15|]][[Joshua 2.16|]][[Joshua 2.17|]][[Joshua 2.18|]][[Joshua 2.19|]][[Joshua 2.20|]][[Joshua 2.21|]][[Joshua 2.22|]][[Joshua 2.23|]][[Joshua 2.24|]]
 ### Both faith and works are necessary for salvation.
@@ -64,7 +64,7 @@ The Lord worked wonders among His people as He led them into the promised land, 
 
 Joshua’s final teachings to the Israelites in [[Joshua 23.1|Joshua 23–24]][[Joshua 23.2|]][[Joshua 23.3|]][[Joshua 23.4|]][[Joshua 23.5|]][[Joshua 23.6|]][[Joshua 23.7|]][[Joshua 23.8|]][[Joshua 23.9|]][[Joshua 23.10|]][[Joshua 23.11|]][[Joshua 23.12|]][[Joshua 23.13|]][[Joshua 23.14|]][[Joshua 23.15|]][[Joshua 23.16|]] include important warnings, counsel, and promised blessings. Perhaps you could make a list of what you find. Considering everything the Israelites had been through, why do you think Joshua chose to tell them these things at the end of his life? What do you find that inspires you to “cleave unto the Lord”? ([[Joshua 23.8|Joshua 23:8]]).
 
-See also Dale G. Renlund, “[[2018 October - Choose You This Day.md|Choose You This Day]],” *Ensign* or *Liahona*, Nov. 2018, 104–6.
+See also Dale G. Renlund, “[[2018 October - Choose You This Day.md|Choose You This Day]],” *Ensign* or *Liahona*, Nov. 2018, 104–6.
 
 ### Scripture Helps
 
@@ -78,10 +78,10 @@ See also Dale G. Renlund, “[[2018 October - Choose You This Day.md|Choose You
 
 ## Ideas for Teaching Children
 
-[[Joshua 1.1|Joshua 1–4]][[Joshua 1.2|]][[Joshua 1.3|]][[Joshua 1.4|]][[Joshua 1.5|]][[Joshua 1.6|]][[Joshua 1.7|]][[Joshua 1.8|]][[Joshua 1.9|]][[Joshua 1.10|]][[Joshua 1.11|]][[Joshua 1.12|]][[Joshua 1.13|]][[Joshua 1.14|]][[Joshua 1.15|]][[Joshua 1.16|]][[Joshua 1.17|]][[Joshua 1.18|]]; [[Joshua 6.1|6]][[Joshua 6.2|]][[Joshua 6.3|]][[Joshua 6.4|]][[Joshua 6.5|]][[Joshua 6.6|]][[Joshua 6.7|]][[Joshua 6.8|]][[Joshua 6.9|]][[Joshua 6.10|]][[Joshua 6.11|]][[Joshua 6.12|]][[Joshua 6.13|]][[Joshua 6.14|]][[Joshua 6.15|]][[Joshua 6.16|]][[Joshua 6.17|]][[Joshua 6.18|]][[Joshua 6.19|]][[Joshua 6.20|]][[Joshua 6.21|]][[Joshua 6.22|]][[Joshua 6.23|]][[Joshua 6.24|]][[Joshua 6.25|]][[Joshua 6.26|]][[Joshua 6.27|]]
+[[Joshua 1.1|Joshua 1–4]][[Joshua 1.2|]][[Joshua 1.3|]][[Joshua 1.4|]][[Joshua 1.5|]][[Joshua 1.6|]][[Joshua 1.7|]][[Joshua 1.8|]][[Joshua 1.9|]][[Joshua 1.10|]][[Joshua 1.11|]][[Joshua 1.12|]][[Joshua 1.13|]][[Joshua 1.14|]][[Joshua 1.15|]][[Joshua 1.16|]][[Joshua 1.17|]][[Joshua 1.18|]]; [[Joshua 6.1|6]][[Joshua 6.2|]][[Joshua 6.3|]][[Joshua 6.4|]][[Joshua 6.5|]][[Joshua 6.6|]][[Joshua 6.7|]][[Joshua 6.8|]][[Joshua 6.9|]][[Joshua 6.10|]][[Joshua 6.11|]][[Joshua 6.12|]][[Joshua 6.13|]][[Joshua 6.14|]][[Joshua 6.15|]][[Joshua 6.16|]][[Joshua 6.17|]][[Joshua 6.18|]][[Joshua 6.19|]][[Joshua 6.20|]][[Joshua 6.21|]][[Joshua 6.22|]][[Joshua 6.23|]][[Joshua 6.24|]][[Joshua 6.25|]][[Joshua 6.26|]][[Joshua 6.27|]]
 ### “Be strong and of a good courage.”
 
-- Here is one way to help your children “be strong and of a good courage” ([[Joshua 1.6|Joshua 1:6]]) through Jesus Christ. Invite them to find a phrase that is repeated in [[Joshua 1.6|Joshua 1:6, 9]][[Joshua 1.9|]], and [[Joshua 1.18|18]], and write it down or memorize it. Help your children think of situations where they might need this message, just as Joshua did. You could also review together some of the stories in [[Joshua 1.1|Joshua 1–4]][[Joshua 1.2|]][[Joshua 1.3|]][[Joshua 1.4|]][[Joshua 1.5|]][[Joshua 1.6|]][[Joshua 1.7|]][[Joshua 1.8|]][[Joshua 1.9|]][[Joshua 1.10|]][[Joshua 1.11|]][[Joshua 1.12|]][[Joshua 1.13|]][[Joshua 1.14|]][[Joshua 1.15|]][[Joshua 1.16|]][[Joshua 1.17|]][[Joshua 1.18|]]; [[Joshua 6.1|6]][[Joshua 6.2|]][[Joshua 6.3|]][[Joshua 6.4|]][[Joshua 6.5|]][[Joshua 6.6|]][[Joshua 6.7|]][[Joshua 6.8|]][[Joshua 6.9|]][[Joshua 6.10|]][[Joshua 6.11|]][[Joshua 6.12|]][[Joshua 6.13|]][[Joshua 6.14|]][[Joshua 6.15|]][[Joshua 6.16|]][[Joshua 6.17|]][[Joshua 6.18|]][[Joshua 6.19|]][[Joshua 6.20|]][[Joshua 6.21|]][[Joshua 6.22|]][[Joshua 6.23|]][[Joshua 6.24|]][[Joshua 6.25|]][[Joshua 6.26|]][[Joshua 6.27|]] (see also “[Joshua the Prophet](https://churchofjesuschrist.org/study/manual/old-testament-stories-2022/joshua-the-prophet?lang=eng)” and “[Rahab and the Spies](https://churchofjesuschrist.org/study/manual/old-testament-stories-2022/rahab-and-the-spies?lang=eng)” in *Old Testament Stories*, 85–91). How did the people in these stories show courage and strength in the Lord?> 2:59
+- Here is one way to help your children “be strong and of a good courage” ([[Joshua 1.6|Joshua 1:6]]) through Jesus Christ. Invite them to find a phrase that is repeated in [[Joshua 1.6|Joshua 1:6, 9]][[Joshua 1.9|]], and [[Joshua 1.18|18]], and write it down or memorize it. Help your children think of situations where they might need this message, just as Joshua did. You could also review together some of the stories in [[Joshua 1.1|Joshua 1–4]][[Joshua 1.2|]][[Joshua 1.3|]][[Joshua 1.4|]][[Joshua 1.5|]][[Joshua 1.6|]][[Joshua 1.7|]][[Joshua 1.8|]][[Joshua 1.9|]][[Joshua 1.10|]][[Joshua 1.11|]][[Joshua 1.12|]][[Joshua 1.13|]][[Joshua 1.14|]][[Joshua 1.15|]][[Joshua 1.16|]][[Joshua 1.17|]][[Joshua 1.18|]]; [[Joshua 6.1|6]][[Joshua 6.2|]][[Joshua 6.3|]][[Joshua 6.4|]][[Joshua 6.5|]][[Joshua 6.6|]][[Joshua 6.7|]][[Joshua 6.8|]][[Joshua 6.9|]][[Joshua 6.10|]][[Joshua 6.11|]][[Joshua 6.12|]][[Joshua 6.13|]][[Joshua 6.14|]][[Joshua 6.15|]][[Joshua 6.16|]][[Joshua 6.17|]][[Joshua 6.18|]][[Joshua 6.19|]][[Joshua 6.20|]][[Joshua 6.21|]][[Joshua 6.22|]][[Joshua 6.23|]][[Joshua 6.24|]][[Joshua 6.25|]][[Joshua 6.26|]][[Joshua 6.27|]] (see also “[Joshua the Prophet](https://churchofjesuschrist.org/study/manual/old-testament-stories-2022/joshua-the-prophet?lang=eng)” and “[Rahab and the Spies](https://churchofjesuschrist.org/study/manual/old-testament-stories-2022/rahab-and-the-spies?lang=eng)” in *Old Testament Stories*, 85–91). How did the people in these stories show courage and strength in the Lord?> 2:59
 > 1:39
 
 
@@ -101,7 +101,7 @@ See also Dale G. Renlund, “[[2018 October - Choose You This Day.md|Choose You
 
 - What could you do to help your children learn to choose to follow Jesus Christ, as Joshua invited the Israelites to do? You might invite them to:
 
-> **Use a variety of activities.** “All children are different, and as they develop, their needs will change. Varying your teaching methods will help you meet their diverse needs” (*Teaching in the Savior’s Way*, [31](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=p10#p10)).
+> **Use a variety of activities.** “All children are different, and as they develop, their needs will change. Varying your teaching methods will help you meet their diverse needs” (*Teaching in the Savior’s Way*, [31](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=p10#p10)).
 
 
 > For more, see this month’s issue of the *[Friend](https://churchofjesuschrist.org/study/magazines/friend?lang=eng)* magazine.

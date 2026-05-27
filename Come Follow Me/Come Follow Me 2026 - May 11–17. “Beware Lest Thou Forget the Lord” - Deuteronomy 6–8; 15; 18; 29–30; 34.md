@@ -4,7 +4,7 @@
 
 Moses’s earthly ministry began on a mountain, when God spoke to him from a burning bush (see [[Exodus 3.1|Exodus 3:1–10]][[Exodus 3.2|]][[Exodus 3.3|]][[Exodus 3.4|]][[Exodus 3.5|]][[Exodus 3.6|]][[Exodus 3.7|]][[Exodus 3.8|]][[Exodus 3.9|]][[Exodus 3.10|]]). It also ended on a mountain, more than 40 years later, when God gave him a glimpse of the promised land from the top of Mount Nebo (see [[Deuteronomy 34.1|Deuteronomy 34:1–4]][[Deuteronomy 34.2|]][[Deuteronomy 34.3|]][[Deuteronomy 34.4|]]). Moses had spent his life preparing the children of Israel to enter that promised land, and the book of Deuteronomy records his final instructions, reminders, exhortations, and pleadings with the Israelites. Reading his words makes it clear that the real object of Moses’s ministry—the preparation the people needed—wasn’t about wilderness survival, conquering enemies, or building a nation. It was about learning to love God, obey Him, and remain loyal to Him. That’s the preparation we all need to enter the promised land of eternal life. So although Moses never set foot in the “land flowing with milk and honey” ([[Exodus 3.8|Exodus 3:8]]), because of his faith and faithfulness, he did enter the promised land that God has prepared for all those who follow Him.
 
-For an overview of Deuteronomy, see “[Deuteronomy](https://churchofjesuschrist.org/study/scriptures/bd/deuteronomy?lang=eng)” in the Bible Dictionary.
+For an overview of Deuteronomy, see “[[BD Deuteronomy|Deuteronomy]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 
@@ -29,9 +29,9 @@ In the passages below, look for the word *heart*, and ponder what it might symbo
 
 One way to organize your thoughts could be to draw a heart and write inside it things that the Lord says you should have in your heart. Then you could write outside it things that you should keep out of your heart.
 
-How do you show that you love God with all your heart? For ideas, see “[Love God, love your neighbor](https://churchofjesuschrist.org/study/manual/for-the-strength-of-youth/04-neighbor?lang=eng)” in *For the Strength of Youth: A Guide for Making Choices*, 10–12.
+How do you show that you love God with all your heart? For ideas, see “Love God, love your neighbor” in *For the Strength of Youth: A Guide for Making Choices*, 10–12.
 
-See also M. Russell Ballard, “[[2021 October - “Lovest Thou Me More Than These”.md|Lovest Thou Me More Than These?]],” *Liahona*, Nov. 2021, 51–53.
+See also M. Russell Ballard, “[[2021 October - “Lovest Thou Me More Than These”.md|Lovest Thou Me More Than These?]],” *Liahona*, Nov. 2021, 51–53.
 
 > **Seek your own spiritual insights.** *Come, Follow Me* suggests passages and principles to focus on in the scriptures, but don’t let that limit your study. As you read Deuteronomy, you might discover a principle that is not highlighted here. Let the Spirit guide you to what you need to learn.
 
@@ -43,9 +43,9 @@ Most of the Israelites who would enter the promised land had not seen the plague
 
 What counsel do you find in [[Deuteronomy 6.4|Deuteronomy 6:4–12, 20–25]][[Deuteronomy 6.5|]][[Deuteronomy 6.6|]][[Deuteronomy 6.7|]][[Deuteronomy 6.8|]][[Deuteronomy 6.9|]][[Deuteronomy 6.10|]][[Deuteronomy 6.11|]][[Deuteronomy 6.12|]][[Deuteronomy 6.20|]][[Deuteronomy 6.21|]][[Deuteronomy 6.22|]][[Deuteronomy 6.23|]][[Deuteronomy 6.24|]][[Deuteronomy 6.25|]] that could help you remember the great things God has done for you? What are you inspired to do so that the word of the Lord will daily “be in thine heart”? ([[Deuteronomy 6.6|verse 6]]).
 
-You might also study Brother Jan E. Newman’s message “[[2023 October - Preserving the Voice of the Covenant People in the Rising Generation.md|Preserving the Voice of the Covenant People in the Rising Generation]]” (*Liahona*, Nov. 2023, 36–38) and consider how you will pass your faith in Christ to future generations.
+You might also study Brother Jan E. Newman’s message “[[2023 October - Preserving the Voice of the Covenant People in the Rising Generation.md|Preserving the Voice of the Covenant People in the Rising Generation]]” (*Liahona*, Nov. 2023, 36–38) and consider how you will pass your faith in Christ to future generations.
 
-See also [[Deuteronomy 11.18|Deuteronomy 11:18–21]][[Deuteronomy 11.19|]][[Deuteronomy 11.20|]][[Deuteronomy 11.21|]]; Dale G. Renlund, “[[2020 April - Consider the Goodness and Greatness of God.md|Consider the Goodness and Greatness of God]],” *Ensign* or *Liahona*, May 2020, 41–44; Bible Dictionary, “[Frontlets or phylacteries](https://churchofjesuschrist.org/study/scriptures/bd/frontlets?lang=eng).”
+See also [[Deuteronomy 11.18|Deuteronomy 11:18–21]][[Deuteronomy 11.19|]][[Deuteronomy 11.20|]][[Deuteronomy 11.21|]]; Dale G. Renlund, “[[2020 April - Consider the Goodness and Greatness of God.md|Consider the Goodness and Greatness of God]],” *Ensign* or *Liahona*, May 2020, 41–44; Bible Dictionary, “[[BD Frontlets|Frontlets or phylacteries]].”
 
 [[Deuteronomy 15.1|Deuteronomy 15:1–15]][[Deuteronomy 15.2|]][[Deuteronomy 15.3|]][[Deuteronomy 15.4|]][[Deuteronomy 15.5|]][[Deuteronomy 15.6|]][[Deuteronomy 15.7|]][[Deuteronomy 15.8|]][[Deuteronomy 15.9|]][[Deuteronomy 15.10|]][[Deuteronomy 15.11|]][[Deuteronomy 15.12|]][[Deuteronomy 15.13|]][[Deuteronomy 15.14|]][[Deuteronomy 15.15|]]
 ### Helping people in need involves generous hands and willing hearts.
@@ -54,7 +54,7 @@ We haven’t yet arrived at the day “when there shall be no poor among you” 
 
 What does it mean to “open thine hand wide” to people in need? ([[Deuteronomy 15.8|verses 8, 11]][[Deuteronomy 15.11|]]). What do you learn from the Lord’s example about helping people in need? (see [[Deuteronomy 15.15|verse 15]]).
 
-See also “[Have I Done Any Good?](https://churchofjesuschrist.org/study/manual/hymns/have-i-done-any-good?lang=eng),” *Hymns*, no. 223.
+See also “[Have I Done Any Good?](https://churchofjesuschrist.org/study/manual/hymns/have-i-done-any-good?lang=eng),” *Hymns*, no. 223.
 
 [[Deuteronomy 18.15|Deuteronomy 18:15–19]][[Deuteronomy 18.16|]][[Deuteronomy 18.17|]][[Deuteronomy 18.18|]][[Deuteronomy 18.19|]]
 ### Moses was “like unto” Jesus Christ.
@@ -93,7 +93,7 @@ It might be interesting to compare Moses’s words in [[Deuteronomy 29.9|Deutero
 [[Deuteronomy 18.15|Deuteronomy 18:15–18]][[Deuteronomy 18.16|]][[Deuteronomy 18.17|]][[Deuteronomy 18.18|]]
 ### Prophets teach us about Jesus Christ.
 
-- As you read [[Deuteronomy 18.18|Deuteronomy 18:18]] together, help your children understand that the Prophet like Moses in this verse is Jesus Christ. Maybe you could look at pictures of things Moses did and things Jesus Christ did, and let your children match them (see *Gospel Art Book*, [nos. 15](https://churchofjesuschrist.org/study/manual/gospel-art-book/old-testament?lang=eng&id=figure15#figure15), [16](https://churchofjesuschrist.org/study/manual/gospel-art-book/old-testament?lang=eng&id=figure16#figure16), [38](https://churchofjesuschrist.org/study/manual/gospel-art-book/new-testament?lang=eng&id=figure11#figure11), [39](https://churchofjesuschrist.org/study/manual/gospel-art-book/new-testament?lang=eng&id=figure12#figure12)). What has our prophet today taught us about the Savior?
+- As you read [[Deuteronomy 18.18|Deuteronomy 18:18]] together, help your children understand that the Prophet like Moses in this verse is Jesus Christ. Maybe you could look at pictures of things Moses did and things Jesus Christ did, and let your children match them (see *Gospel Art Book*, [nos. 15](https://churchofjesuschrist.org/study/manual/gospel-art-book/old-testament?lang=eng&id=figure15#figure15), [16](https://churchofjesuschrist.org/study/manual/gospel-art-book/old-testament?lang=eng&id=figure16#figure16), [38](https://churchofjesuschrist.org/study/manual/gospel-art-book/new-testament?lang=eng&id=figure11#figure11), [39](https://churchofjesuschrist.org/study/manual/gospel-art-book/new-testament?lang=eng&id=figure12#figure12)). What has our prophet today taught us about the Savior?
 
 [[Deuteronomy 29.12|Deuteronomy 29:12–13]][[Deuteronomy 29.13|]]; [[Deuteronomy 30.8|30:8–10]][[Deuteronomy 30.9|]][[Deuteronomy 30.10|]]
 ### Because of my covenants, I am part of God’s people.

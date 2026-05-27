@@ -6,7 +6,7 @@ Reading the Old Testament often means reading prophecies about destruction. The 
 
 Even though those prideful, wicked cities were destroyed, prideful wickedness persists. We may even detect traces of it in our own hearts. Old Testament prophets reveal how we can turn away from these evils. Perhaps that’s one reason we still read their words today. They weren’t just prophets of doom—they were prophets of deliverance. The descriptions of destruction are tempered by invitations to come unto Christ and receive His forgiveness. As Micah put it, the Lord does not delight in condemning us, but “he delighteth in mercy” ([[Micah 7.18|Micah 7:18]]). This was the Lord’s way anciently, and it is His way today. “His ways are everlasting” ([[Habakkuk 3.6|Habakkuk 3:6]]).
 
-For overviews of these books, see “[Micah](https://churchofjesuschrist.org/study/scriptures/bd/micah?lang=eng),” “[Nahum](https://churchofjesuschrist.org/study/scriptures/bd/nahum?lang=eng),” “[Habakkuk](https://churchofjesuschrist.org/study/scriptures/bd/habakkuk?lang=eng),” and “[Zephaniah](https://churchofjesuschrist.org/study/scriptures/bd/zephaniah?lang=eng)” in the Bible Dictionary.
+For overviews of these books, see “[[BD Micah|Micah]],” “[[BD Nahum|Nahum]],” “[[BD Habakkuk|Habakkuk]],” and “[[BD Zephaniah|Zephaniah]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 
@@ -15,7 +15,7 @@ For overviews of these books, see “[Micah](https://churchofjesuschrist.org/stu
 
 Micah invites us to imagine what it might be like to “come before the Lord, and bow … before the high God” ([[Micah 6.6|Micah 6:6]]). What do [[Micah 6.6|verses 6–8]][[Micah 6.7|]][[Micah 6.8|]] suggest to you about what is important to the Lord as He evaluates your life?
 
-See also Dale G. Renlund, “[[2020 October - Do Justly, Love Mercy, and Walk Humbly with God.md|Do Justly, Love Mercy, and Walk Humbly with God]],” *Ensign* or *Liahona*, Nov. 2020, 109–12.
+See also Dale G. Renlund, “[[2020 October - Do Justly, Love Mercy, and Walk Humbly with God.md|Do Justly, Love Mercy, and Walk Humbly with God]],” *Ensign* or *Liahona*, Nov. 2020, 109–12.
 
 [[Nahum 1.1|Nahum 1]][[Nahum 1.2|]][[Nahum 1.3|]][[Nahum 1.4|]][[Nahum 1.5|]][[Nahum 1.6|]][[Nahum 1.7|]][[Nahum 1.8|]][[Nahum 1.9|]][[Nahum 1.10|]][[Nahum 1.11|]][[Nahum 1.12|]][[Nahum 1.13|]][[Nahum 1.14|]][[Nahum 1.15|]]
 ### The Lord is both powerful and merciful.
@@ -31,7 +31,7 @@ The Lord responded to Habakkuk’s questions by saying that He would send the Ch
 
 [[Habakkuk 3.1|Chapter 3]][[Habakkuk 3.2|]][[Habakkuk 3.3|]][[Habakkuk 3.4|]][[Habakkuk 3.5|]][[Habakkuk 3.6|]][[Habakkuk 3.7|]][[Habakkuk 3.8|]][[Habakkuk 3.9|]][[Habakkuk 3.10|]][[Habakkuk 3.11|]][[Habakkuk 3.12|]][[Habakkuk 3.13|]][[Habakkuk 3.14|]][[Habakkuk 3.15|]][[Habakkuk 3.16|]][[Habakkuk 3.17|]][[Habakkuk 3.18|]][[Habakkuk 3.19|]] is Habakkuk’s prayer of praise and faith. How is Habakkuk’s tone in [[Habakkuk 3.1|chapter 3]][[Habakkuk 3.2|]][[Habakkuk 3.3|]][[Habakkuk 3.4|]][[Habakkuk 3.5|]][[Habakkuk 3.6|]][[Habakkuk 3.7|]][[Habakkuk 3.8|]][[Habakkuk 3.9|]][[Habakkuk 3.10|]][[Habakkuk 3.11|]][[Habakkuk 3.12|]][[Habakkuk 3.13|]][[Habakkuk 3.14|]][[Habakkuk 3.15|]][[Habakkuk 3.16|]][[Habakkuk 3.17|]][[Habakkuk 3.18|]][[Habakkuk 3.19|]] different from [[Habakkuk 1.1|chapter 1]][[Habakkuk 1.2|]][[Habakkuk 1.3|]][[Habakkuk 1.4|]][[Habakkuk 1.5|]][[Habakkuk 1.6|]][[Habakkuk 1.7|]][[Habakkuk 1.8|]][[Habakkuk 1.9|]][[Habakkuk 1.10|]][[Habakkuk 1.11|]][[Habakkuk 1.12|]][[Habakkuk 1.13|]][[Habakkuk 1.14|]][[Habakkuk 1.15|]][[Habakkuk 1.16|]][[Habakkuk 1.17|]]? Here’s an idea to help you ponder [[Habakkuk 3.17|verses 17–19]][[Habakkuk 3.18|]][[Habakkuk 3.19|]]: Make a list of temporal and spiritual blessings God has given you. Then imagine that you lost the temporal blessings. How might that make you feel about the other blessings? Why might it be hard to “rejoice in the Lord” ([[Habakkuk 3.18|verse 18]]) during hardships like those described in [[Habakkuk 3.17|verse 17]]? Ponder how you can develop greater faith in God, even when life seems unfair.
 
-See also Gerrit W. Gong, “[[2024 April - All Things for Our Good.md|All Things for Our Good]],” *Liahona*, May 2024, 41–44; “[Lead, Kindly Light](https://churchofjesuschrist.org/study/manual/hymns/lead-kindly-light?lang=eng),” *Hymns*, no. 97; Topics and Questions, “[Seeking Answers to Questions](https://churchofjesuschrist.org/study/manual/gospel-topics/seeking-answers/01-intro-seeking-answers?lang=eng),” Gospel Library.
+See also Gerrit W. Gong, “[[2024 April - All Things for Our Good.md|All Things for Our Good]],” *Liahona*, May 2024, 41–44; “[Lead, Kindly Light](https://churchofjesuschrist.org/study/manual/hymns/lead-kindly-light?lang=eng),” *Hymns*, no. 97; Topics and Questions, “[Seeking Answers to Questions](https://churchofjesuschrist.org/study/manual/gospel-topics/seeking-answers/01-intro-seeking-answers?lang=eng),” Gospel Library.
 
 > **Be patient.** Sometimes we want answers to our questions right away, but spiritual insights take time and cannot be forced. As the Lord told Habakkuk, “Wait for it; because it will surely come” ([[Habakkuk 2.3|Habakkuk 2:3]]).
 
@@ -44,10 +44,20 @@ As you read Zephaniah’s prophecies, notice the attitudes and behaviors that le
 [[Zephaniah 3.14|Zephaniah 3:14–20]][[Zephaniah 3.15|]][[Zephaniah 3.16|]][[Zephaniah 3.17|]][[Zephaniah 3.18|]][[Zephaniah 3.19|]][[Zephaniah 3.20|]]
 ### The Lord will rejoice with His people in Zion.
 
-After reading [[Zephaniah 3.14|Zephaniah 3:14–20]][[Zephaniah 3.15|]][[Zephaniah 3.16|]][[Zephaniah 3.17|]][[Zephaniah 3.18|]][[Zephaniah 3.19|]][[Zephaniah 3.20|]], see how many ways you can complete this sentence: *“Be glad and rejoice with all the heart” because …* Why is it important to you to know about these reasons to rejoice? You might compare these verses to the experiences described in [[3 Nephi 17.1|3 Nephi 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]] and ponder how Jesus Christ feels about His people—including you.
+After reading [[Zephaniah 3.14|Zephaniah 3:14–20]][[Zephaniah 3.15|]][[Zephaniah 3.16|]][[Zephaniah 3.17|]][[Zephaniah 3.18|]][[Zephaniah 3.19|]][[Zephaniah 3.20|]], see how many ways you can complete this sentence: *“Be glad and rejoice with all the heart” because …* Why is it important to you to know about these reasons to rejoice? You might compare these verses to the experiences described in [[3 Nephi 17.1|3 Nephi 17]] and ponder how Jesus Christ feels about His people—including you.
 
 > For more, see this month’s issues of the *[Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng)* and [For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng) magazines.
 
+
+### Scripture Helps
+
+- [What does it mean that the Lord will gather Judah’s enemies “as the sheaves into the floor”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/47-micah-nahum-habakkuk-zephaniah?lang=eng&id=p_ic0ya-p_aB88D#p_ic0ya)
+
+- [What is the “remnant of Jacob”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/47-micah-nahum-habakkuk-zephaniah?lang=eng&id=p_iVVQV-p_cIjHC#p_iVVQV)
+
+- [What does it mean that the people of Judah were worshipping “the hosts of heaven”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/47-micah-nahum-habakkuk-zephaniah?lang=eng&id=p_nmEhC-p_ffg9y#p_nmEhC)
+
+[Click to see more.](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/47-micah-nahum-habakkuk-zephaniah?lang=eng)
 
 ## Ideas for Teaching Children
 
@@ -71,7 +81,7 @@ After reading [[Zephaniah 3.14|Zephaniah 3:14–20]][[Zephaniah 3.15|]][[Zephani
 
 - To illustrate [[Habakkuk 2.14|Habakkuk 2:14]], you and your children could fill a jar or other container with pictures or words representing things Jesus did or taught. How can we help fill the world with knowledge of the Lord?
 
-- You could also show your children a map of the world (see Church History Maps, no. 7, “[Map of the World](https://churchofjesuschrist.org/study/scriptures/history-maps/map-7?lang=eng)”). Help them find the place where they live and places where missionaries they know have served. You could sing together a song about sharing the gospel, such as “[We’ll Bring the World His Truth](https://churchofjesuschrist.org/study/manual/childrens-songbook/well-bring-the-world-his-truth-army-of-helaman?lang=eng)” (*Children’s Songbook*, 172–73). What can we tell others about Jesus Christ?
+- You could also show your children a map of the world (see Church History Maps, no. 7, “[Map of the World](https://churchofjesuschrist.org/study/scriptures/history-maps/map-7?lang=eng)”). Help them find the place where they live and places where missionaries they know have served. You could sing together a song about sharing the gospel, such as “[We’ll Bring the World His Truth](https://churchofjesuschrist.org/study/manual/childrens-songbook/well-bring-the-world-his-truth-army-of-helaman?lang=eng)” (*Children’s Songbook*, 172–73). What can we tell others about Jesus Christ?
 
 [[Zephaniah 3.14|Zephaniah 3:14–20]][[Zephaniah 3.15|]][[Zephaniah 3.16|]][[Zephaniah 3.17|]][[Zephaniah 3.18|]][[Zephaniah 3.19|]][[Zephaniah 3.20|]]
 ### Jesus Christ rejoices with those who follow Him.

@@ -24,7 +24,7 @@ That was thousands of years ago, but this covenant has been restored in our day.
 
 You are a child of the covenant. You make a covenant with God when you are baptized and when you partake of the sacrament. And you receive the fulness of the covenant with the sacred ordinances of the temple.
 
-Through these covenants and ordinances, we become God’s people.[^4] We are bound to Him “with everlasting ties.” “Once we make a covenant with God,” President Russell M. Nelson has taught, “we leave neutral ground forever. God will not abandon His relationship with those who have forged such a bond with Him. In fact, all those who have made a covenant with God have access to a special kind of love and mercy. … Because of our covenant with God, He will never tire in His efforts to help us, and we will never exhaust His merciful patience with us.”[^5] You will see this in the history of God’s covenant people in the Old Testament, and you will see it in your own life as one of His covenant children.
+Through these covenants and ordinances, we become God’s people.[^4] We are bound to Him “with everlasting ties.” “Once we make a covenant with God,” President Russell M. Nelson has taught, “we leave neutral ground forever. God will not abandon His relationship with those who have forged such a bond with Him. In fact, all those who have made a covenant with God have access to a special kind of love and mercy. … Because of our covenant with God, He will never tire in His efforts to help us, and we will never exhaust His merciful patience with us.”[^5] You will see this in the history of God’s covenant people in the Old Testament, and you will see it in your own life as one of His covenant children.
 
 This is the precious understanding granted to us because of the Restoration of the Abrahamic covenant through the Prophet Joseph Smith.[^6] So when you read about covenants in the Old Testament, don’t think just about God’s relationship with Abraham, Isaac, and Jacob. Think also about His relationship with you. When you read about the promise of numberless posterity,[^7] don’t think just about the millions who today call Abraham their father. Think also about God’s promise to you of eternal families and eternal increase.[^8] When you read about the promise of a land of inheritance, don’t think just about the land promised to Abraham. Think also about the celestial destiny of the earth itself—an inheritance promised to the “meek” who “wait upon the Lord” ([[Matthew 5.5|Matthew 5:5]]; [[Psalms 37.9|Psalm 37:9, 11]][[Psalms 37.11|]]).[^9] And when you read about the promise that God’s covenant people will bless “all the families of the earth” ([[Abraham 2.11|Abraham 2:11]]), don’t think just about the ministry of Abraham or the prophets who descended from him. Think also about what you can do—as a covenant follower of Jesus Christ—to be a blessing to the families around you.
 
@@ -39,7 +39,7 @@ This is the precious understanding granted to us because of the Restoration of t
 
 [^4]: See [[Exodus 6.7|Exodus 6:7]]; [[Deuteronomy 7.6|Deuteronomy 7:6]]; [[Deuteronomy 26.18|26:18]]; [[Ezekiel 11.20|Ezekiel 11:20]].
 
-[^5]: Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 5–6.
+[^5]: Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 5–6.
 
 [^6]: See [[D&C 110.12|Doctrine and Covenants 110:12]].
 

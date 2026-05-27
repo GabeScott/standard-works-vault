@@ -10,7 +10,7 @@ We have already seen a few examples of poetry sprinkled throughout the historica
 
 First, it might help you to know that Hebrew poetry in the Old Testament isn’t based on rhyme, like some other kinds of poetry. And although rhythm, wordplay, and repetition of sounds are common features of ancient Hebrew poetry, these things are typically lost in translation. One feature you will notice, however, is the repetition of thoughts or ideas, sometimes called “parallelism.” Here’s a simple example from Isaiah:
 
-Put on thy strength, O Zion;put on thy beautiful garments, O Jerusalem. ([[Isaiah 52.1|Isaiah 52:1]])
+Put on thy strength, O Zion;put on thy beautiful garments, O Jerusalem. ([[Isaiah 52.1|Isaiah 52:1]])
 
 [[Psalms 29.1|Psalm 29]][[Psalms 29.2|]][[Psalms 29.3|]][[Psalms 29.4|]][[Psalms 29.5|]][[Psalms 29.6|]][[Psalms 29.7|]][[Psalms 29.8|]][[Psalms 29.9|]][[Psalms 29.10|]][[Psalms 29.11|]] has many parallel lines—for example:
 

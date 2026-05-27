@@ -6,7 +6,7 @@ The house of Israel was in disarray. The kingdom had divided, with ten tribes fo
 
 In this setting, the Lord called Elijah to be a prophet. His life shows that a person can have great faith in the Lord even in bad circumstances. Sometimes the Lord responds to such faith with impressive, public miracles, like fire falling from heaven. But He also works quiet, private miracles, like feeding a faithful widow and her son. And most often the Lord’s miracles are so individual that they are known only to one person—for example, when the Lord reveals Himself to you through “a still small voice” ([[1 Kings 19.12|1 Kings 19:12]]).
 
-For more about Elijah, see “[Elijah](https://churchofjesuschrist.org/study/scriptures/bd/elijah?lang=eng)” in the Bible Dictionary.
+For more about Elijah, see “[[BD Elijah|Elijah]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 
@@ -26,14 +26,14 @@ How are Elisha’s actions in [[1 Kings 19.19|1 Kings 19:19–21]][[1 Kings 19.
 
 Think about sacrifices you’ve made to follow the Savior. What does [[1 Kings 17.8|1 Kings 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]]; [[1 Kings 19.19|19:19–21]][[1 Kings 19.20|]][[1 Kings 19.21|]] teach you about these sacrifices? How does your knowledge of the Savior help you when He asks you to make sacrifices? How has He blessed you?
 
-See also [[Matthew 4.18|Matthew 4:18–22]][[Matthew 4.19|]][[Matthew 4.20|]][[Matthew 4.21|]][[Matthew 4.22|]]; [[Matthew 6.25|6:25–33]][[Matthew 6.26|]][[Matthew 6.27|]][[Matthew 6.28|]][[Matthew 6.29|]][[Matthew 6.30|]][[Matthew 6.31|]][[Matthew 6.32|]][[Matthew 6.33|]]; [[Luke 4.24|Luke 4:24–26]][[Luke 4.25|]][[Luke 4.26|]]; “Elijah and the Widow of Zarephath” (video), Gospel Library; “[When Faith Endures](https://churchofjesuschrist.org/study/manual/hymns/when-faith-endures?lang=eng),” *Hymns*, no. 128.
+See also [[Matthew 4.18|Matthew 4:18–22]][[Matthew 4.19|]][[Matthew 4.20|]][[Matthew 4.21|]][[Matthew 4.22|]]; [[Matthew 6.25|6:25–33]][[Matthew 6.26|]][[Matthew 6.27|]][[Matthew 6.28|]][[Matthew 6.29|]][[Matthew 6.30|]][[Matthew 6.31|]][[Matthew 6.32|]][[Matthew 6.33|]]; [[Luke 4.24|Luke 4:24–26]][[Luke 4.25|]][[Luke 4.26|]]; “Elijah and the Widow of Zarephath” (video), Gospel Library; “[When Faith Endures](https://churchofjesuschrist.org/study/manual/hymns/when-faith-endures?lang=eng),” *Hymns*, no. 128.
 
 [[1 Kings 18.1|1 Kings 18]][[1 Kings 18.2|]][[1 Kings 18.3|]][[1 Kings 18.4|]][[1 Kings 18.5|]][[1 Kings 18.6|]][[1 Kings 18.7|]][[1 Kings 18.8|]][[1 Kings 18.9|]][[1 Kings 18.10|]][[1 Kings 18.11|]][[1 Kings 18.12|]][[1 Kings 18.13|]][[1 Kings 18.14|]][[1 Kings 18.15|]][[1 Kings 18.16|]][[1 Kings 18.17|]][[1 Kings 18.18|]][[1 Kings 18.19|]][[1 Kings 18.20|]][[1 Kings 18.21|]][[1 Kings 18.22|]][[1 Kings 18.23|]][[1 Kings 18.24|]][[1 Kings 18.25|]][[1 Kings 18.26|]][[1 Kings 18.27|]][[1 Kings 18.28|]][[1 Kings 18.29|]][[1 Kings 18.30|]][[1 Kings 18.31|]][[1 Kings 18.32|]][[1 Kings 18.33|]][[1 Kings 18.34|]][[1 Kings 18.35|]][[1 Kings 18.36|]][[1 Kings 18.37|]][[1 Kings 18.38|]][[1 Kings 18.39|]][[1 Kings 18.40|]][[1 Kings 18.41|]][[1 Kings 18.42|]][[1 Kings 18.43|]][[1 Kings 18.44|]][[1 Kings 18.45|]][[1 Kings 18.46|]]
 ### “If the Lord be God, follow him.”
 
 The Israelites might have felt they had good reasons to worship Baal, who was known as the god of storms and rain. After three years of drought, they desperately needed rain. And worshipping Baal was socially accepted and promoted by the king and queen. As you read [[1 Kings 18.1|1 Kings 18]][[1 Kings 18.2|]][[1 Kings 18.3|]][[1 Kings 18.4|]][[1 Kings 18.5|]][[1 Kings 18.6|]][[1 Kings 18.7|]][[1 Kings 18.8|]][[1 Kings 18.9|]][[1 Kings 18.10|]][[1 Kings 18.11|]][[1 Kings 18.12|]][[1 Kings 18.13|]][[1 Kings 18.14|]][[1 Kings 18.15|]][[1 Kings 18.16|]][[1 Kings 18.17|]][[1 Kings 18.18|]][[1 Kings 18.19|]][[1 Kings 18.20|]][[1 Kings 18.21|]][[1 Kings 18.22|]][[1 Kings 18.23|]][[1 Kings 18.24|]][[1 Kings 18.25|]][[1 Kings 18.26|]][[1 Kings 18.27|]][[1 Kings 18.28|]][[1 Kings 18.29|]][[1 Kings 18.30|]][[1 Kings 18.31|]][[1 Kings 18.32|]][[1 Kings 18.33|]][[1 Kings 18.34|]][[1 Kings 18.35|]][[1 Kings 18.36|]][[1 Kings 18.37|]][[1 Kings 18.38|]][[1 Kings 18.39|]][[1 Kings 18.40|]][[1 Kings 18.41|]][[1 Kings 18.42|]][[1 Kings 18.43|]][[1 Kings 18.44|]][[1 Kings 18.45|]][[1 Kings 18.46|]], think about why someone in our day might be indecisive about following the Lord. In this chapter, what do you think the Lord was trying to teach about Himself? What experiences have helped you commit to following the Savior?
 
-See also D. Todd Christofferson, “[Choice and Commitment](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2020/01/12christofferson?lang=eng)” (worldwide devotional for young adults, Jan. 12, 2020), Gospel Library.
+See also D. Todd Christofferson, “[Choice and Commitment](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2020/01/12christofferson?lang=eng)” (worldwide devotional for young adults, Jan. 12, 2020), Gospel Library.
 
 [[1 Kings 19.1|1 Kings 19:1–18]][[1 Kings 19.2|]][[1 Kings 19.3|]][[1 Kings 19.4|]][[1 Kings 19.5|]][[1 Kings 19.6|]][[1 Kings 19.7|]][[1 Kings 19.8|]][[1 Kings 19.9|]][[1 Kings 19.10|]][[1 Kings 19.11|]][[1 Kings 19.12|]][[1 Kings 19.13|]][[1 Kings 19.14|]][[1 Kings 19.15|]][[1 Kings 19.16|]][[1 Kings 19.17|]][[1 Kings 19.18|]]
 ### The Lord often speaks in quiet, simple ways.
@@ -49,6 +49,16 @@ See also [[Psalms 46.10|Psalm 46:10]].
 
 > For more, see this month’s issues of the *[Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng)* and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
 
+
+### Scripture Helps
+
+- [What happened to the kingdom during the reign of Rehoboam?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/25-1-kings-12-13-17-22?lang=eng&id=p_uljO7-p_yS0PC#p_uljO7)
+
+- [What did Elijah mean when he asked, “How long halt ye between two opinions?”](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/25-1-kings-12-13-17-22?lang=eng&id=p_eUPze-p_vl092#p_eUPze)
+
+- [Did the Lord send a lying spirit to Ahab’s prophets?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/25-1-kings-12-13-17-22?lang=eng&id=p_jjzFR-p_r74Ew#p_jjzFR)
+
+[Click to see more.](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/25-1-kings-12-13-17-22?lang=eng)
 
 ## Ideas for Teaching Children
 
