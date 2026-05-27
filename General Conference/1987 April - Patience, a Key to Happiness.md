@@ -95,4 +95,6 @@ I close with my testimony to you that patience is a divine attribute. I testify 
 
 
 
+
+
 #Patience

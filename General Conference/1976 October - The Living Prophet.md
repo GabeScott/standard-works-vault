@@ -47,4 +47,6 @@ May you receive in your heart through the Holy Ghost the same witness and testim
 
 
 
-#Spencer_W_Kimball #Testimony
+
+
+#Spencer_W._Kimball #Testimony

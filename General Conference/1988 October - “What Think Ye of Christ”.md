@@ -178,4 +178,6 @@ In all of this, we remember and rely on the Lord’s sure word: “Keep my comma
 
 
 
+
+
 #Atonement #Christianity #Jesus_Christ

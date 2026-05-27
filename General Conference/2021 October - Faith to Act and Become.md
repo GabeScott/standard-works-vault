@@ -87,4 +87,6 @@ I am grateful for prophets, seers, and revelators; they are the watchmen on the 
 
 
 
+
+
 #Discipleship #Faith #Jesus_Christ #Prayer #Scripture_Study

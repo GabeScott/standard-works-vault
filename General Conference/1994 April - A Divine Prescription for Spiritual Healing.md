@@ -69,4 +69,6 @@ I testify that while there are physical ailments that are not healed, all spirit
 
 
 
+
+
 #Commandments #Death #Forgiveness #Healing #Jesus_Christ #Mercy #Ordinances #Repentance #Sin

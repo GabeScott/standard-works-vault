@@ -119,4 +119,6 @@ I testify that God the Father knows and loves you. The Savior, the Lord Jesus Ch
 [^7]: [[D&C 78.17|Doctrine and Covenants 78:17–19]][[D&C 78.18|]][[D&C 78.19|]]; emphasis added.
 
 
+
+
 #Adversity #Church_Callings #Gratitude #Love #Sabbath #Sacrament #Service

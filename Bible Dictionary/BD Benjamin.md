@@ -1,0 +1,11 @@
+# Benjamin
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/benjamin?lang=eng)
+
+*Son of the right hand.* (1) Son of Jacob and Rachel; his birth, [[Genesis 35.18|Gen. 35:18]]; how brought to Egypt and treated by Joseph, [[Genesis 42.1|Gen. 42–45]][[Genesis 42.2|]][[Genesis 42.3|]][[Genesis 42.4|]][[Genesis 42.5|]][[Genesis 42.6|]][[Genesis 42.7|]][[Genesis 42.8|]][[Genesis 42.9|]][[Genesis 42.10|]][[Genesis 42.11|]][[Genesis 42.12|]][[Genesis 42.13|]][[Genesis 42.14|]][[Genesis 42.15|]][[Genesis 42.16|]][[Genesis 42.17|]][[Genesis 42.18|]][[Genesis 42.19|]][[Genesis 42.20|]][[Genesis 42.21|]][[Genesis 42.22|]][[Genesis 42.23|]][[Genesis 42.24|]][[Genesis 42.25|]][[Genesis 42.26|]][[Genesis 42.27|]][[Genesis 42.28|]][[Genesis 42.29|]][[Genesis 42.30|]][[Genesis 42.31|]][[Genesis 42.32|]][[Genesis 42.33|]][[Genesis 42.34|]][[Genesis 42.35|]][[Genesis 42.36|]][[Genesis 42.37|]][[Genesis 42.38|]]; blessing of, by Jacob, [[Genesis 49.27|49:27]]; by Moses, [[Deuteronomy 33.12|Deut. 33:12]]; border and cities, [[Joshua 18.11|Josh. 18:11–28]][[Joshua 18.12|]][[Joshua 18.13|]][[Joshua 18.14|]][[Joshua 18.15|]][[Joshua 18.16|]][[Joshua 18.17|]][[Joshua 18.18|]][[Joshua 18.19|]][[Joshua 18.20|]][[Joshua 18.21|]][[Joshua 18.22|]][[Joshua 18.23|]][[Joshua 18.24|]][[Joshua 18.25|]][[Joshua 18.26|]][[Joshua 18.27|]][[Joshua 18.28|]]; [[Joshua 21.4|21:4, 17]][[Joshua 21.17|]]; [[Judges 1.21|Judg. 1:21]]. The Benjamites were a warlike race and did great service in resisting the Philistine oppression. The tribe provided the first king in the person of Saul ([[1 Samuel 9.1|1 Sam. 9:1–2]][[1 Samuel 9.2|]]). At the division of the kingdom Benjamin joined the northern tribes ([[1 Kings 12.21|1 Kgs. 12:21]]), but the nearness to Jerusalem seems to have caused Benjamin gradually to become part of the kingdom of Judah. The most distinguished Benjamite was the Apostle Paul ([[Romans 11.1|Rom. 11:1]]).
+
+(2) [[1 Chronicles 7.10|1 Chr. 7:10]].
+
+(3) [[Ezra 10.32|Ezra 10:32]]; [[Nehemiah 3.23|Neh. 3:23]]; [[Nehemiah 12.34|12:34]].
+
+

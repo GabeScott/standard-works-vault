@@ -5,5 +5,5 @@
 [Colossians 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.17?lang=eng#p17)
 
 
-[^a]: [[1 Corinthians 10.31|1 Cor. 10:31]].
-[^b]: [[Colossians 1.12|Col. 1:12]]. [[Prayer, Pray|TG Prayer]].
+[^a]: [[1 Corinthians 10.31|1 Cor. 10:31]].  
+[^b]: [[Colossians 1.12|Col. 1:12]]. [[Prayer, Pray|TG Prayer]].  

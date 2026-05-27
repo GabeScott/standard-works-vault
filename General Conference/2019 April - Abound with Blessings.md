@@ -109,4 +109,6 @@ I invite you to faithfully activate heavenly power to receive specific blessings
 
 
 
+
+
 #Blessings #Faith #Obedience #Prayer #Spirituality

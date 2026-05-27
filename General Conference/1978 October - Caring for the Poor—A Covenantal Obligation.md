@@ -157,4 +157,6 @@ That each of us will fully discharge our obligation under that covenant, I humbl
 
 
 
+
+
 #Covenants #Welfare

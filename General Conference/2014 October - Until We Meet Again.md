@@ -37,4 +37,6 @@ Until we meet again in six months’ time, I ask the Lord’s blessings to be up
 
 
 
+
+
 #Prayer #Service

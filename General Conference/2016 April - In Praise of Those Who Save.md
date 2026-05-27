@@ -154,4 +154,6 @@ May the Lord bless you in your untiring and righteous efforts to be numbered amo
 [^7]: [[James 2.13|James 2:13]], English Standard Version.
 
 
+
+
 #Adversity #Charity #Family #Happiness #Jesus_Christ #Joy #Love #Marriage #Pride

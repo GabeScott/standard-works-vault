@@ -107,4 +107,6 @@ The faith, commitment, and courage of these young men is an example to all of us
 
 
 
+
+
 #Adversity #Commitment #Faith #Fellowshipping #Honesty #Jesus_Christ #Missionary_Work #Obedience #Pioneers #Sacrifice #Service

@@ -139,4 +139,6 @@ I bear witness of the reality of our Heavenly Father and our Redeemer, Jesus Chr
 
 
 
+
+
 #Commandments #God_The_Father #Jesus_Christ #Love #Prophets #Redemption #Repentance

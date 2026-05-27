@@ -118,4 +118,6 @@ Jesus Christ is our Savior, and this is His work. I so testify in the name of Je
 [^21]: [[D&C 6.32|Doctrine and Covenants 6:32]].
 
 
+
+
 #Aaronic_Priesthood #Missionary_Work #Priesthood #Priesthood_Quorums

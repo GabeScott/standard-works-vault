@@ -77,4 +77,6 @@ May the Spirit of the Lord be with us to help us magnify this great priesthood a
 
 
 
+
+
 #Apostasy #Loyalty #Priesthood

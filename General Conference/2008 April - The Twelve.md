@@ -195,4 +195,6 @@ I know that God is our Father. He introduced His Son, Jesus Christ, to Joseph Sm
 
 
 
+
+
 #Authority #Priesthood #Quorum_Of_The_Twelve_Apostles

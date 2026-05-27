@@ -137,4 +137,6 @@ I bear my witness of the *Holy One of Israel*—even the name of Jesus Christ. I
 
 
 
+
+
 #Commandments #Satan #Spirituality

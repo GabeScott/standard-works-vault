@@ -145,4 +145,6 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 
 
 
+
+
 #Conversion #Discipleship #Perspective #Pride #Priorities

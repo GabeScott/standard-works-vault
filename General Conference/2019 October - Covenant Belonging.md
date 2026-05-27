@@ -127,4 +127,6 @@ With us at the beginning, He is with us, in all our covenant belonging, to the e
 
 
 
+
+
 #Covenants #Ordinances

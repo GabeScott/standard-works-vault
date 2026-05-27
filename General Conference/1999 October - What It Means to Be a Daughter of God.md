@@ -132,4 +132,6 @@ My beloved sisters, I pray that the divine gifts in each of you may fully flower
 [^16]: “The Glorious Moments,” Sipuao Matuauto, *Ensign,* Aug. 1974, 64.
 
 
+
+
 #Adam_And_Eve #Divine_Nature #Education #God_The_Father #Individual_Worth #Plan_Of_Salvation #Relief_Society #Temple_Work #Women

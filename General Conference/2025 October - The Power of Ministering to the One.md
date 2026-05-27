@@ -109,4 +109,6 @@ My friends, I promise that as we *live* the doctrine of Christ and minister to t
 
 
 
+
+
 #Book_Of_Mormon #Church_Doctrine #Discipleship #Jesus_Christ #Love #Ministering #Temples

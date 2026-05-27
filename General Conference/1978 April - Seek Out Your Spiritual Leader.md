@@ -47,4 +47,6 @@ I pray that each of us might be more humble and desirous of receiving and obeyin
 
 
 
+
+
 #Leadership #Obedience

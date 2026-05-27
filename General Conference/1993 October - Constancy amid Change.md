@@ -229,4 +229,6 @@ Constancy amid change is assured by heavenly personages, plans, and principles. 
 
 
 
+
+
 #Atonement #Plan_Of_Salvation #Priesthood

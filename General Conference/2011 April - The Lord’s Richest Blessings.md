@@ -51,4 +51,6 @@ I testify that as we pay our tithing faithfully, the Lord will open the windows 
 
 
 
+
+
 #Faith #Tithing

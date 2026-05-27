@@ -98,4 +98,6 @@ Let us always be mindful of our Heavenly Father’s wonderful plan for us. He lo
 [^14]: [[D&C 6.36|Doctrine and Covenants 6:36]].
 
 
+
+
 #Adversity #Agency #Joy #Opposition #Plan_Of_Salvation

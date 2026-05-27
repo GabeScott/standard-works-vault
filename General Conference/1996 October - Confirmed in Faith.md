@@ -53,4 +53,6 @@ I testify that we belong to God as He is our creator. His Son’s Atonement vouc
 
 
 
+
+
 #Adversity #Covenants #Faith #Jesus_Christ #Love #Relief_Society #Women

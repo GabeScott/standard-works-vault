@@ -89,4 +89,6 @@ May each of us qualify for this blessing, I humbly pray, in the name of Jesus Ch
 
 
 
+
+
 #Faith #Prayer #Scriptures #Service #Testimony

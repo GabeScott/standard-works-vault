@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]]; [[Veil|Veil]].  
-[^b]: GR Holy of holies.  
+[^b]: GR Holy of Holies.  

@@ -122,4 +122,6 @@ I have learned through my own experience that the small and simple things of the
 [^30]: “Praise to the Man,” *Hymns*, no. 27.
 
 
+
+
 #Adversity #Discipleship #Jesus_Christ

@@ -69,4 +69,6 @@ Brethren, this work is true. Joseph Smith saw the Father and the Son, and he hea
 
 
 
+
+
 #Apostasy #Church_Callings #Financial_Management #Leadership #Priesthood #Prophets

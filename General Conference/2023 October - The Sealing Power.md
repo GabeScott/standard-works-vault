@@ -107,4 +107,6 @@ I testify that the sealing power and authority restored to earth through Joseph 
 
 
 
+
+
 #Family #Gathering #Marriage #Ordinances #Priesthood_Keys #Priesthood_Power #Sealings #Temple_Work

@@ -85,4 +85,6 @@ I testify that avoiding evil and destructive pursuits and sacrificing in order t
 
 
 
+
+
 #Honesty #Obedience #Sacrifice #Worldliness #Worthiness

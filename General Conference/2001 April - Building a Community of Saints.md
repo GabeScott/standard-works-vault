@@ -95,4 +95,6 @@ Historical information is from *Church History in the Fulness of Times,* 2nd ed.
 
 
 
+
+
 #Children #Church_History #Church_Membership #Education #Faith #Family #Fasting #Generosity #Home #Kindness #Love #Missionary_Work #Parents #Self-Reliance #Teaching #Temple_Work #Unity #Welfare #Work

@@ -140,4 +140,6 @@ May we plant the seeds of faith deep in our hearts. May we nourish these seeds a
 [^27]: See [[Alma 5.26|Alma 5:26]].
 
 
+
+
 #Adversity #Faith #Jesus_Christ #Obedience #Plan_Of_Salvation

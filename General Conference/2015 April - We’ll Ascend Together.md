@@ -141,4 +141,6 @@ emp.byui.edu/SATTERFIELDB/PDF/RoleManWoman2.pdf
 
 
 
+
+
 #Communication #Fatherhood #Kindness #Love #Marriage #Safety

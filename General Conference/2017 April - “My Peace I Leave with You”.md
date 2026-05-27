@@ -68,4 +68,6 @@ Because of the Atonement of Jesus Christ, the constant companionship of the Holy
 
 
 
+
+
 #Activation #Charity #Holy_Ghost #Humility #Peace #Service #Unity

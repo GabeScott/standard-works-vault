@@ -97,4 +97,6 @@ I bear you my solemn and yet joyful witness that the Lord Jesus Christ is at the
 
 
 
+
+
 #Bishops #Church_Callings #Church_Leadership #Faith #Jesus_Christ #Revelation

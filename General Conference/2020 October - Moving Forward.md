@@ -40,4 +40,6 @@ I pray that you will *choose* to lay hold upon the word of God as it is declared
 [^2]: [[Helaman 3.29|Helaman 3:29]]; emphasis added.
 
 
+
+
 #Adversity #Faith #Family_History

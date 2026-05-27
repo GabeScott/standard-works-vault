@@ -78,4 +78,6 @@ I testify of the importance of humility in our lives. I am grateful for the indi
 [^11]: “I Need Thee Every Hour,” *Hymns,* no. 98; see also Brent H. Nielson, “[I Need Thee Every Hour](https://churchofjesuschrist.org/study/ensign/2011/04/i-need-thee-every-hour?lang=eng),” *Ensign,* Apr. 2011, 16.
 
 
+
+
 #Adversity #Children #Humility #Music #Prophets

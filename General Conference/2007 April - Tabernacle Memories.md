@@ -49,4 +49,6 @@ As this building is rededicated today, may we pledge to rededicate our lives to 
 
 
 
+
+
 #Faith #General_Conference #Ordinances #Temple_Square

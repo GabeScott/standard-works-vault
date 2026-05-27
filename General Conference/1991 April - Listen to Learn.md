@@ -163,4 +163,6 @@ The wise listen to learn from the Lord. I testify of Him and certify that as we 
 
 
 
+
+
 #Family #Jesus_Christ #Listening #Prayer #Prophets

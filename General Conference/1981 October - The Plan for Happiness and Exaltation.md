@@ -45,4 +45,6 @@ With all the love of my heart, I extend an invitation to all to obtain a fulness
 
 
 
+
+
 #Adversity #Joy

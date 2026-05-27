@@ -95,4 +95,6 @@ I testify of the divinity of the gospel, restored in this latter day. I testify 
 
 
 
+
+
 #Adversity #Angels #Atonement #Attitude #Children #Covenants #Endurance #Example #Holy_Ghost #Jesus_Christ #Ordinances #Parenthood #Plan_Of_Salvation #Sacrament #Scripture_Study #Temptation #Word_Of_Wisdom

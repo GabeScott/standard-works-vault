@@ -67,4 +67,6 @@ May we truly minister and teach *all* of our people, but especially reach out to
 
 
 
+
+
 #Home_Teaching #Service

@@ -62,4 +62,6 @@ I testify that Jesus the Christ is the source of priesthood power. No power can 
 
 
 
+
+
 #Activation #Priesthood

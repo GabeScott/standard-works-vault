@@ -81,4 +81,6 @@ As we bind ourselves to act as covenant disciples, in whatever our level of capa
 
 
 
+
+
 #Covenants #Discipleship #God_The_Father #Jesus_Christ #Joy #Love

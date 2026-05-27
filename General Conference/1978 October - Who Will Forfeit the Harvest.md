@@ -41,4 +41,6 @@ Most of all, we forfeit the gift of eternal growth and progress. May we avoid th
 
 
 
+
+
 #Endurance #Obedience #Scriptures

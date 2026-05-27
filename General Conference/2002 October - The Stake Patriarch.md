@@ -145,4 +145,6 @@ I bear witness that this is a holy office, a sacred office, a blessing to this C
 
 
 
+
+
 #Church_Callings #Individual_Worth #Patriarchal_Blessings #Prophecy

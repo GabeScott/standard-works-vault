@@ -23,4 +23,6 @@ As I have read the scriptures, I have watched all of the prophets who have affec
 
 
 
+
+
 #Commitment

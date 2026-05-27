@@ -79,4 +79,6 @@ In the name of Jesus Christ, amen.
 
 
 
+
+
 #Example #Family #Fatherhood #Healing #Jesus_Christ #Leadership #Morality #Obedience #Ordinances #Priesthood #Sacrifice #Satan #Service #Sin

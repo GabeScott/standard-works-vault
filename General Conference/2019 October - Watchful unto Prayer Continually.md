@@ -125,4 +125,6 @@ I testify that pressing forward on the covenant path provides spiritual safety a
 
 
 
+
+
 #Spirituality #Temptation

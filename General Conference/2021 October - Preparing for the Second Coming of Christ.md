@@ -95,4 +95,6 @@ I conclude my remarks with a truly inspiring prophetic declaration from the Prop
 
 
 
+
+
 #Jesus_Christ #Preparation #Prophets #Second_Coming

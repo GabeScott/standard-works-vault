@@ -101,4 +101,6 @@ It is my prayer that we may do this, constantly, in the name of Jesus Christ, am
 
 
 
+
+
 #Church_Attendance #Joseph_Smith #Prayer #Scriptures #Spirituality #Truth

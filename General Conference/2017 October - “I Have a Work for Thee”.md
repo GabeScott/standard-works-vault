@@ -122,4 +122,6 @@ As we follow Christ’s example and yield ourselves to God, I testify that He wi
 [^9]: Elder Richard G. Scott explained: “God has a specific plan for your life. He will reveal parts of that plan to you as you look for it with faith and consistent obedience” (“[[2004 April - How to Live Well amid Increasing Evil.md|How to Live Well amid Increasing Evil]],” *Ensign* or *Liahona,* May 2004, 102).
 
 
+
+
 #Adversity #Service #Talents #Work

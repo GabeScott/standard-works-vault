@@ -251,4 +251,6 @@ I bear witness of the power of the Spirit and thank God that this incomparable g
 
 
 
+
+
 #Education #Faith #Holy_Ghost #Prayer #Reverence #Spirituality #Word_Of_Wisdom

@@ -93,4 +93,6 @@ And so, fear not. The things deemed weak by the world overthrow evils that appea
 
 
 
+
+
 #Covenants #Evil #Family #Fasting #Greed #Home #Morality #Sacrament #Sacrifice #Safety #Satan #Spirituality #Temples #Temptation #Tithing #Worldliness

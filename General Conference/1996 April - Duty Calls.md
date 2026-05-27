@@ -188,4 +188,6 @@ Brethren of the priesthood, may all of us remember our duty to prepare and our d
 
 
 
+
+
 #Church_Callings #Duty #Evil #Home_Teaching #Jesus_Christ #Priesthood #Teaching #Worldliness

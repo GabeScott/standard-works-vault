@@ -41,4 +41,6 @@ Every song, every scripture read, every story told, and all counsel given tonigh
 
 
 
+
+
 #Scripture_Study #Scriptures #Young_Women

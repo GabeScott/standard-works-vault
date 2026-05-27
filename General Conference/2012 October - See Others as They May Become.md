@@ -130,4 +130,6 @@ I pray that we will have the courage to extend the hand of fellowship, the tenac
 [^9]: [[Jeremiah 8.20|Jeremiah 8:20]].
 
 
+
+
 #Activation #Courage #Missionary_Work #Priesthood #Testimony

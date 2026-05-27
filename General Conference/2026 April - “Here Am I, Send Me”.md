@@ -1,6 +1,6 @@
 # “Here Am I, Send Me”
 
-By President Susan H. Porter - *Primary General President*
+By President Susan H. Porter - *Primary General President*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -43,11 +43,11 @@ I bear my witness that God, our Heavenly Father, and His Son, Jesus Christ, love
 
 
 
-[^1]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
+[^1]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
 [^2]: See [[D&C 93.29|Doctrine and Covenants 93:29]].
 
-[^3]: “Because God desired to help His children progress, He decided to create an earth on which we could receive a body, learn through experience, develop divine attributes, and be proven to see if we would keep God’s commandments” (Dallin H. Oaks, “[[2025 April - Divine Helps for Mortality.md|Divine Helps for Mortality]],” *Liahona*, May 2025, 104).
+[^3]: “Because God desired to help His children progress, He decided to create an earth on which we could receive a body, learn through experience, develop divine attributes, and be proven to see if we would keep God’s commandments” (Dallin H. Oaks, “[[2025 April - Divine Helps for Mortality.md|Divine Helps for Mortality]],” *Liahona*, May 2025, 104).
 
 [^4]: [[Abraham 3.27|Abraham 3:27]].
 
@@ -61,7 +61,7 @@ I bear my witness that God, our Heavenly Father, and His Son, Jesus Christ, love
 
 [^9]: See [[Alma 38.9|Alma 38:9]].
 
-[^10]: “Yes, men and women who turn their lives over to God will find out that he can make a lot more out of their lives than they can. He will deepen their joys, expand their vision, quicken their minds, strengthen their muscles, lift their spirits, multiply their blessings, increase their opportunities, comfort their souls, raise up friends, and pour out peace” (Ezra Taft Benson, “[Jesus Christ—Gifts and Expectations](https://speeches.byu.edu/talks/ezra-taft-benson/jesus-christ-gifts-expectations)” \[Brigham Young University devotional, Dec. 10, 1974\], speeches.byu.edu).
+[^10]: “Yes, men and women who turn their lives over to God will find out that he can make a lot more out of their lives than they can. He will deepen their joys, expand their vision, quicken their minds, strengthen their muscles, lift their spirits, multiply their blessings, increase their opportunities, comfort their souls, raise up friends, and pour out peace” (Ezra Taft Benson, “[Jesus Christ—Gifts and Expectations](https://speeches.byu.edu/talks/ezra-taft-benson/jesus-christ-gifts-expectations)” \[Brigham Young University devotional, Dec. 10, 1974\], speeches.byu.edu).
 
 [^11]: See [[Ether 4.12|Ether 4:12]].
 
@@ -73,5 +73,7 @@ I bear my witness that God, our Heavenly Father, and His Son, Jesus Christ, love
 
 [^15]: See [[D&C 130.18|Doctrine and Covenants 130:18]].
 
-[^16]: “[Holding Hands Around the World](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/holding-hands-around-the-world?lang=eng),” *Hymns for Home and Church*, Gospel Library.
+[^16]: “[Holding Hands Around the World](https://www.churchofjesuschrist.org/study/music/hymns-for-home-and-church/holding-hands-around-the-world?lang=eng),” *Hymns for Home and Church*, Gospel Library.
 
+
+#Children #Example #Jesus_Christ #Joy #Plan_Of_Salvation

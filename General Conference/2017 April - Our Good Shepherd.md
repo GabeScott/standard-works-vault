@@ -136,4 +136,6 @@ As His disciples, let us fully mirror His love and love one another so openly an
 [^32]: See [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
 
+
+
 #Adversity #Forgiveness #Healing #Humility #Jesus_Christ #Love #Sin #Tolerance

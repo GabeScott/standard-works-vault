@@ -76,4 +76,6 @@ Today I stand before you to bear my witness that Jesus Christ is the very Savior
 
 
 
+
+
 #Jesus_Christ #Love #Motherhood #Teaching

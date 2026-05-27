@@ -112,4 +112,6 @@ As we strive to place Him at the center of our lives, revelations unfold to us, 
 [^29]: See [[John 3.16|John 3:16]]; [[Alma 34.14|Alma 34:14]].
 
 
+
+
 #Adversity #Atonement #Discipleship #Hope #Jesus_Christ

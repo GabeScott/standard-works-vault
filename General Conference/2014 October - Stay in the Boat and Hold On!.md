@@ -110,4 +110,6 @@ Brothers and sisters, stay in the boat, use your life jackets, and hold on with 
 [^12]: First Presidency and Quorum of the Twelve Apostles letter, June 28, 2014.
 
 
+
+
 #Adversity #Apostasy #Prophets

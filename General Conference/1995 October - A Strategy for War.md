@@ -56,4 +56,6 @@ I testify that God lives, that His Son, Jesus Christ, has brought to pass the re
 
 
 
+
+
 #Abortion #Family #Homosexuality #Jesus_Christ #Media #Morality #Spirituality #Worldliness

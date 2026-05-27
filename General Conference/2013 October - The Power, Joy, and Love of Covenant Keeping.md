@@ -139,4 +139,6 @@ Let us remember that even those who have been wayward in the past or who are cur
 
 
 
+
+
 #Covenants #Love #Service

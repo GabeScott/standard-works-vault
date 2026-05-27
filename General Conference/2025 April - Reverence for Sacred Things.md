@@ -75,4 +75,6 @@ I testify to you that as we strive to incorporate such virtue into our daily liv
 
 
 
+
+
 #Discipleship #Joy #Reverence #Spiritual_Growth

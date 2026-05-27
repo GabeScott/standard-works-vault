@@ -156,4 +156,6 @@ Of this I testify—and of Jesus Christ as our Savior and our Redeemer—in the 
 [^20]: [[John 10.14|John 10:14, 15]][[John 10.15|]].
 
 
+
+
 #Adversity #Bullying #Compassion #Jesus_Christ #Kindness #Love #Unity

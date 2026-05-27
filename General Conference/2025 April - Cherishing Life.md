@@ -144,4 +144,6 @@ My dear brothers and sisters, the diminishing love for unborn children worldwide
 [^22]: [[John 13.35|John 13:35]]; see also [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
 
+
+
 #Abortion #Children #Family #Love

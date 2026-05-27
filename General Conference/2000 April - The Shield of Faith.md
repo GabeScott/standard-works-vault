@@ -121,4 +121,6 @@ This is the work of God. I believe and testify that, as Paul said, if we can “
 
 
 
+
+
 #Adversity #Compassion #Education #Evil #Faith #General_Conference #Humility #Media #Spirituality #Success #Temple_Square

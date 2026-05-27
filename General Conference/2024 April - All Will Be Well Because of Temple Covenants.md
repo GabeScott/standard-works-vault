@@ -91,4 +91,6 @@ I give you my sure witness that Jesus is the Christ. He lives and leads His Chur
 
 
 
+
+
 #Covenants #Ordinances #Peace #Sealings #Spiritual_Growth #Temples

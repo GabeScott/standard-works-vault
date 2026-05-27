@@ -55,4 +55,6 @@ Elder James E. Talmage said, “Gratitude is twin sister to humility; pride is a
 
 
 
+
+
 #Gratitude #Joy #Service

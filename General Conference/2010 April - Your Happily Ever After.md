@@ -124,4 +124,6 @@ As an Apostle of the Lord Jesus Christ, I leave you my blessing and give you a p
 [^9]: [[D&C 21.6|Doctrine and Covenants 21:6]].
 
 
+
+
 #Adversity #Joy #Obedience #Plan_Of_Salvation

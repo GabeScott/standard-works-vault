@@ -72,4 +72,6 @@ How I look forward to the day I will meet my sister Ann. I look forward to a joy
 [^8]: Kenneth Molony Palmer and Jill Garlick Palmer.
 
 
+
+
 #Adversity #Conversion #Faith #Jesus_Christ #Joy #Resurrection

@@ -51,4 +51,6 @@ I pray the Church will listen to President Kimball. I think it does. There is gr
 
 
 
-#Prophets #Spencer_W_Kimball
+
+
+#Prophets #Spencer_W._Kimball

@@ -54,4 +54,6 @@ Until we meet again in six months’ time, I ask the Lord’s blessings to be up
 [^2]: [[3 Nephi 11.28|3 Nephi 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]; emphasis added.
 
 
+
+
 #Adversity #Unity

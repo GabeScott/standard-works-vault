@@ -70,4 +70,6 @@ If I think celestial, I know that we are not left alone in this life. While we m
 [^8]: To truly understand happiness, we need to understand the role of blessings in our lives. The definition of *blessings* helps to clarify this concept: a blessing is “to confer divine favor upon someone. Anything contributing to true happiness, well-being, or prosperity is a blessing” (Guide to the Scriptures, “[Bless, Blessed, Blessing](https://churchofjesuschrist.org/study/scriptures/gs/bless-blessed-blessing?lang=eng&id=p1#p1),” Gospel Library). The world often confuses true happiness with temporary pleasure, which imitates a “happiness” that is short-lived.
 
 
+
+
 #Adversity #Faith #Jesus_Christ #Ministering

@@ -5,7 +5,7 @@
 [Ezekiel 20:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.26?lang=eng#p26)
 
 
-[^a]: IE as burnt sacrifices to Moloch.
-[^b]: [[2 Kings 21.6|2 Kgs. 21:6]]; [[2 Chronicles 28.3|2 Chr. 28:3]]; [[2 Chronicles 33.6|33:6]].
-[^c]: [[Helaman 12.3|Hel. 12:3]].
-[^d]: [[God, Knowledge about|TG God, Knowledge about]].
+[^a]: IE as burnt sacrifices to Moloch.  
+[^b]: [[2 Kings 21.6|2 Kgs. 21:6]]; [[2 Chronicles 28.3|2 Chr. 28:3]]; [[2 Chronicles 33.6|33:6]].  
+[^c]: [[Helaman 12.3|Hel. 12:3]].  
+[^d]: [[God, Knowledge about|TG God, Knowledge about]].  

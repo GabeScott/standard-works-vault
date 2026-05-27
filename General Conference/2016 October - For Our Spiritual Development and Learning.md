@@ -113,4 +113,6 @@ He lives. Jesus Christ is His Only Begotten Son and the Redeemer of mankind. Bec
 
 
 
+
+
 #Book_Of_Mormon #Faith #Scriptures #Trust

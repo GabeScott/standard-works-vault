@@ -115,4 +115,6 @@ The elements of the framework for personal revelation are overlapping and mutual
 
 
 
+
+
 #Holy_Ghost #Prophets #Revelation #Scriptures

@@ -1,0 +1,9 @@
+# Aramaic
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/aramaic?lang=eng)
+
+An official language of the Persian Empire, spoken widely throughout the Near East. Certain portions of the Old Testament are written in Aramaic ([[Ezra 4.1|Ezra 4:8–6:18]][[Ezra 4.2|]][[Ezra 4.3|]][[Ezra 4.4|]][[Ezra 4.5|]][[Ezra 4.6|]][[Ezra 4.7|]][[Ezra 4.8|]][[Ezra 4.9|]][[Ezra 4.10|]][[Ezra 4.11|]][[Ezra 4.12|]][[Ezra 4.13|]][[Ezra 4.14|]][[Ezra 4.15|]][[Ezra 4.16|]][[Ezra 4.17|]][[Ezra 4.18|]][[Ezra 4.19|]][[Ezra 4.20|]][[Ezra 4.21|]][[Ezra 4.22|]][[Ezra 4.23|]][[Ezra 4.24|]]; [[Ezra 7.12|7:12–26]][[Ezra 7.13|]][[Ezra 7.14|]][[Ezra 7.15|]][[Ezra 7.16|]][[Ezra 7.17|]][[Ezra 7.18|]][[Ezra 7.19|]][[Ezra 7.20|]][[Ezra 7.21|]][[Ezra 7.22|]][[Ezra 7.23|]][[Ezra 7.24|]][[Ezra 7.25|]][[Ezra 7.26|]]; [[Jeremiah 10.11|Jer. 10:11]]; [[Daniel 2.1|Dan. 2:4–7:28]][[Daniel 2.2|]][[Daniel 2.3|]][[Daniel 2.4|]][[Daniel 2.5|]][[Daniel 2.6|]][[Daniel 2.7|]][[Daniel 2.8|]][[Daniel 2.9|]][[Daniel 2.10|]][[Daniel 2.11|]][[Daniel 2.12|]][[Daniel 2.13|]][[Daniel 2.14|]][[Daniel 2.15|]][[Daniel 2.16|]][[Daniel 2.17|]][[Daniel 2.18|]][[Daniel 2.19|]][[Daniel 2.20|]][[Daniel 2.21|]][[Daniel 2.22|]][[Daniel 2.23|]][[Daniel 2.24|]][[Daniel 2.25|]][[Daniel 2.26|]][[Daniel 2.27|]][[Daniel 2.28|]][[Daniel 2.29|]][[Daniel 2.30|]][[Daniel 2.31|]][[Daniel 2.32|]][[Daniel 2.33|]][[Daniel 2.34|]][[Daniel 2.35|]][[Daniel 2.36|]][[Daniel 2.37|]][[Daniel 2.38|]][[Daniel 2.39|]][[Daniel 2.40|]][[Daniel 2.41|]][[Daniel 2.42|]][[Daniel 2.43|]][[Daniel 2.44|]][[Daniel 2.45|]][[Daniel 2.46|]][[Daniel 2.47|]][[Daniel 2.48|]][[Daniel 2.49|]]). Aramaic words are also found in Job, Song of Solomon, Jonah, Esther, the Hebrew parts of Daniel, and some of the Psalms.
+
+The common language of the Jews after the return from Babylon was Aramaic, and it is most probable that Jesus and the Twelve spoke Galilean Aramaic, rather than the Hebrew of earlier times. See also *[[BD Aram|Aram]].*
+
+

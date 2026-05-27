@@ -83,4 +83,6 @@ As difficult as it is to live in the turmoil surrounding us, our Savior’s comm
 
 
 
+
+
 #Contention #Jesus_Christ #Kindness #Love #Religious_Freedom #Respect #Truth

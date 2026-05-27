@@ -95,4 +95,6 @@ God lives! Jesus is the Christ, the Savior of the world. This is my solemn witne
 
 
 
+
+
 #Prayer #Scripture_Study

@@ -125,4 +125,6 @@ As followers of Christ, we teach and testify of Jesus Christ, our Perfect Role M
 
 
 
+
+
 #Commandments #Contention #Covenants #Discipleship #Jesus_Christ #Peacemaking

@@ -205,4 +205,6 @@ I affirm the truth of these teachings in the name of Jesus Christ, amen.
 
 
 
+
+
 #Jesus_Christ #Scripture_Study #Scriptures #Teaching

@@ -90,4 +90,6 @@ I testify that He lives and leads His Church. I am His witness. President Russel
 [^4]: [[Moroni 7.45|Moroni 7:45–48]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
 
 
+
+
 #Adversity #Charity #Endurance #Faith #Hope #Jesus_Christ #Meekness

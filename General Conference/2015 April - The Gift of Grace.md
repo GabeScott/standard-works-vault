@@ -227,4 +227,6 @@ I pray that we will see with new eyes and a new heart the eternal significance o
 
 
 
+
+
 #Atonement #Grace #Jesus_Christ #Obedience #Repentance #Resurrection

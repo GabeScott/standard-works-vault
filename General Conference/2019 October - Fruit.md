@@ -144,4 +144,6 @@ I humbly witness that Jesus Christ is the Son of God. His love, His power, and H
 [^24]: [[John 15.5|John 15:5]].
 
 
+
+
 #Activation #Faith #Jesus_Christ #Joy #Love #Opposition

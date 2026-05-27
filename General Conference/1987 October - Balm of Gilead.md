@@ -161,4 +161,6 @@ I bear witness of Him who is that comfort, in the name of Jesus Christ, amen.
 
 
 
+
+
 #Adversity #Forgiveness #Repentance

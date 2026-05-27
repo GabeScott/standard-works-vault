@@ -84,4 +84,6 @@ We too may wonder, “Is Heavenly Father really there?” only to rejoice—as m
 [^10]: Dieter F. Uchtdorf, “Receiving a Testimony of Light and Truth,” *Ensign* or *Liahona,* Nov. 2014, 22.
 
 
+
+
 #Activation #Conversion #Faith #Fellowshipping #Testimony

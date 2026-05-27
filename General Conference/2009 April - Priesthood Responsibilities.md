@@ -103,4 +103,6 @@ I know that the Church is true. I know that Joseph Smith is a prophet of God. I 
 
 
 
+
+
 #Family_Home_Evening #Priesthood #Responsibility

@@ -57,4 +57,6 @@ Remember the Lord said, “For them that honour me I will honour” ([[1 Samuel 
 
 
 
+
+
 #Commandments #God_The_Father #Jesus_Christ #Missionary_Work #Priesthood

@@ -5,5 +5,5 @@
 [Luke 1:72](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.72?lang=eng#p72)
 
 
-[^a]: [[Micah 7.20|Micah 7:20]]; [[Luke 1.54|Luke 1:55 (54–55)]][[Luke 1.55|]].
-[^b]: [[Covenants|TG Covenants]].
+[^a]: [[Micah 7.20|Micah 7:20]]; [[Luke 1.54|Luke 1:55 (54–55)]][[Luke 1.55|]].  
+[^b]: [[Covenants|TG Covenants]].  

@@ -97,4 +97,6 @@ I know that President Gordon B. Hinckley is the Lord’s prophet today. I am gra
 
 
 
+
+
 #Commandments #Commitment #Morality #Standards

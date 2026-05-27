@@ -121,4 +121,6 @@ May each of us qualify to receive them, I pray, in the name of Jesus Christ, ame
 
 
 
+
+
 #Faith #Family #Fatherhood #Home #Jesus_Christ #Obedience #Prayer #Sabbath #Service

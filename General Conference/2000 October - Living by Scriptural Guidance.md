@@ -141,4 +141,6 @@ We all *need* guidance through life. We *obtain* it best from the standard works
 
 
 
+
+
 #Endurance #Gratitude #Holy_Ghost #Honesty #Jesus_Christ #Obedience #Peace #Plan_Of_Salvation #Prayer #Repentance #Scripture_Study #Scriptures #Spirituality #Truth

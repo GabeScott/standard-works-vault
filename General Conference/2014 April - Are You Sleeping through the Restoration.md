@@ -168,4 +168,6 @@ Let us be awake and not be weary of well-doing, for we “are laying the foundat
 [^11]: [[2 Nephi 1.23|2 Nephi 1:23]].
 
 
+
+
 #Addiction #Jesus_Christ #Priorities #Restoration

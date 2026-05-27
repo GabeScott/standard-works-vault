@@ -107,4 +107,6 @@ I bear my witness that as we follow His perfect example, we can receive the gift
 
 
 
+
+
 #Charity #Jesus_Christ #Judging

@@ -38,4 +38,6 @@ Now, my beloved brothers and sisters, we adjourn for six months. May God be with
 
 
 
+
+
 #Adversity #Gratitude #Service

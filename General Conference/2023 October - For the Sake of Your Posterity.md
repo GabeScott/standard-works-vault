@@ -80,4 +80,6 @@ From the bottom of my heart, I invite you to think about it, to look ahead and e
 [^4]: [[D&C 76.79|Doctrine and Covenants 76:79]]; emphasis added.
 
 
+
+
 #Activation #Covenants #Family

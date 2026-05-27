@@ -5,4 +5,4 @@
 [Numbers 4:47](https://www.churchofjesuschrist.org/study/scriptures/ot/num/4.47?lang=eng#p47)
 
 
-[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  

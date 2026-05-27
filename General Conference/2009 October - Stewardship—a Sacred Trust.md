@@ -118,4 +118,6 @@ I bear my witness of this sacred truth in the name of Jesus Christ, amen.
 [^22]: [[Isaiah 58.10|Isaiah 58:10–12]][[Isaiah 58.11|]][[Isaiah 58.12|]].
 
 
+
+
 #Accountability #Family #Morality #Service #Virtue

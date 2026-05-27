@@ -5,5 +5,5 @@
 [1 Kings 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/20.11?lang=eng#p11)
 
 
-[^a]: OR armor.
-[^b]: [[Boast, Boasting|TG Boast]].
+[^a]: OR armor.  
+[^b]: [[Boast, Boasting|TG Boast]].  

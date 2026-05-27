@@ -59,4 +59,6 @@ I humbly declare that God, our Heavenly Father, lives and loves each of us, His 
 
 
 
+
+
 #Faith #Jesus_Christ #Obedience

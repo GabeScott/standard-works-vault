@@ -127,4 +127,6 @@ Brethren, I have been privileged, as boy and man, to enjoy the warm, comforting 
 
 
 
+
+
 #Covenants #Example #Family #Family_History #Fatherhood #Idol_Worship #Love #Marriage #Motherhood #Ordinances #Priesthood #Profanity #Respect #Reverence

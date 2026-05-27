@@ -142,4 +142,6 @@ I bear testimony that no matter the obstruction that may block our vision of gos
 [^16]: [[Moroni 7.44|Moroni 7:44]].
 
 
+
+
 #Adversity #Humility #Media #Perspective #Pride #Safety

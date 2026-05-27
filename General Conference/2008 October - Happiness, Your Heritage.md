@@ -163,4 +163,6 @@ Of this I testify, and leave you my blessing as an Apostle of the Lord, in the n
 
 
 
+
+
 #Attitude #Compassion #Joy #Talents #Women

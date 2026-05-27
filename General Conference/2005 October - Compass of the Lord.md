@@ -53,4 +53,6 @@ I stand today as a witness that our Father’s promises will all be fulfilled; t
 
 
 
+
+
 #Dedication #Faith #General_Conference #Obedience

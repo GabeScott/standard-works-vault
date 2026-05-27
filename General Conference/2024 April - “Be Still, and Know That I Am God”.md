@@ -121,4 +121,6 @@ I joyfully witness that God is our Heavenly Father, we are His children, and Jes
 
 
 
+
+
 #Covenants #God_The_Father #Jesus_Christ #Ordinances #Reverence #Sabbath #Temples

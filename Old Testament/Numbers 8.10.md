@@ -6,4 +6,4 @@
 
 
 [^a]: [[Joseph Smith History 1.68|JS—H 1:68]]; [[Articles of Faith 1.5|A of F 1:5]].  
-[^b]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^b]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  

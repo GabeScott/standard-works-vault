@@ -85,4 +85,6 @@ I declare my witness that Jesus is the Christ, our Savior and Redeemer. I know t
 
 
 
+
+
 #Covenants #Missionary_Work #Obedience #Preparation #Priesthood

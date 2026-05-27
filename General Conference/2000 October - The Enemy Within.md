@@ -103,4 +103,6 @@ Exaltation in the Father’s kingdom includes kingdoms, thrones, dominions, prin
 
 
 
+
+
 #Covenants #Home_Teaching #Honesty #Media #Obedience #Priesthood #Repentance #Satan #Self-Control #Temptation #Word_Of_Wisdom

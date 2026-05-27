@@ -79,4 +79,6 @@ Just as surely as the sisters knew—who walked along that sandy jungle trail—
 
 
 
+
+
 #Dedication #Faith #Hope #Temple_Work

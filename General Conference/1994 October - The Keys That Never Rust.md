@@ -107,4 +107,6 @@ As we conclude this historic conference, I am pleased to testify to the world of
 
 
 
+
+
 #Authority #Obedience #Priesthood #Prophets

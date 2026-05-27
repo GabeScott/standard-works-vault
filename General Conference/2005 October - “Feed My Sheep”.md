@@ -92,4 +92,6 @@ Of this I bear you my testimony in the name of Jesus Christ, amen.
 [^5]: [[Moroni 7.48|Moroni 7:48]].
 
 
+
+
 #Activation #Faith #Love #Patience

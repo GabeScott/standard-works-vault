@@ -69,4 +69,6 @@ Yes, these and many other characteristics and actions model a testimony. And thi
 
 
 
+
+
 #Commandments #Education #Faith #Holy_Ghost #Humility #Joseph_Smith #Spirituality #Testimony #Truth

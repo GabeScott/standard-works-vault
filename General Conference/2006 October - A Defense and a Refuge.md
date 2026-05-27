@@ -108,4 +108,6 @@ This Church will prosper. It will prevail. Of this I am absolutely certain. I be
 [^1]: See Journal of Wilford Woodruff, July 26, 1847, Archives of The Church of Jesus Christ of Latter-day Saints; see also B. H. Roberts, *A Comprehensive History of the Church,* 3:270–71.
 
 
+
+
 #Adversity #Family #Standards

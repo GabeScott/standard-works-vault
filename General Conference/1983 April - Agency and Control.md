@@ -85,4 +85,6 @@ The Lord was a teacher. I bear testimony of Him, and pray that He will bless all
 
 
 
+
+
 #Agency #Scriptures #Self-Control

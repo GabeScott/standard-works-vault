@@ -131,4 +131,6 @@ May we so live that we may always have the companionship of the Holy Spirit and 
 
 
 
+
+
 #Healing #Spirituality

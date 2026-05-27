@@ -141,4 +141,6 @@ I bear certain witness of the scriptures as a key to our spiritual protection. I
 
 
 
+
+
 #Last_Days #Peace #Repentance #Scripture_Study

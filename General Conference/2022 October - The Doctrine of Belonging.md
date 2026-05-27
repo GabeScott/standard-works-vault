@@ -141,4 +141,6 @@ I testify you do belong, in the name of Jesus Christ, amen.
 
 
 
+
+
 #Belonging #Covenants #Diversity #Gathering #Jesus_Christ #Sacrifice #Service #Unity #Zion

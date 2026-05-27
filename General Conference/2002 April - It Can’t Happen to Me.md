@@ -105,4 +105,6 @@ The sure way to have life’s joys and blessings come to you is to follow our li
 
 
 
+
+
 #Faith #Individual_Worth #Self-Control #Temptation

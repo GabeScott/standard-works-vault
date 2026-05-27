@@ -103,4 +103,6 @@ Obtain His forgiveness by repenting *now.* In the name of Jesus Christ, amen.
 
 
 
+
+
 #Agency #Atonement #Forgiveness #Healing #Jesus_Christ #Mercy #Morality #Obedience #Repentance #Sin #Temptation

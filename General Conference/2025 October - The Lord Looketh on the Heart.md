@@ -135,4 +135,6 @@ I know Jesus Christ lives. He is our Redeemer. And He loves you and me with all 
 
 
 
+
+
 #Commandments #Discipleship #Jesus_Christ #Obedience #Scripture_Study #Service

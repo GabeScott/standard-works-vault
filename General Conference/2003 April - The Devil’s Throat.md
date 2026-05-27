@@ -81,4 +81,6 @@ Brethren, we are living in a challenging time, and it is a time for us to stand 
 
 
 
+
+
 #Agency #Holy_Ghost #Obedience #Temptation

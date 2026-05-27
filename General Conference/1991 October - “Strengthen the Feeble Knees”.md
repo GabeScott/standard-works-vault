@@ -111,4 +111,6 @@ May God help us to strengthen the feeble knees of ourselves and those about us b
 
 
 
+
+
 #Adversity #Faith #Love #Sabbath

@@ -161,4 +161,6 @@ My humble plea today is that each of us will seek continuing revelation to guide
 
 
 
+
+
 #Prophets #Revelation

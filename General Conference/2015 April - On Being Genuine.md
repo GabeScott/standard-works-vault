@@ -149,4 +149,6 @@ I pray, brethren, that as we serve in our families, quorums, wards, stakes, comm
 
 
 
+
+
 #Conversion #Discipleship #Goals #Healing #Humility #Jesus_Christ #Service

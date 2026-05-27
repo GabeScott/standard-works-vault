@@ -121,4 +121,6 @@ As one who also stands as a special witness, I join my testimony with those beli
 
 
 
-#Gordon_B_Hinckley #Howard_W_Hunter #Jesus_Christ
+
+
+#Gordon_B._Hinckley #Howard_W._Hunter #Jesus_Christ

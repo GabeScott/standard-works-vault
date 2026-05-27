@@ -5,5 +5,5 @@
 [Ezekiel 45:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.1?lang=eng#p1)
 
 
-[^a]: [[Ezekiel 40.3|Ezek. 40:3]].
-[^b]: [[Revelation 11.1|Rev. 11:1]].
+[^a]: [[Ezekiel 40.3|Ezek. 40:3]].  
+[^b]: [[Revelation 11.1|Rev. 11:1]].  

@@ -109,4 +109,6 @@ I invite you to live the doctrine of Christ repeatedly, iteratively, and intenti
 
 
 
+
+
 #Baptism #Church_Doctrine #Covenants #Discipleship #Endurance #Faith #Holy_Ghost #Jesus_Christ #Repentance

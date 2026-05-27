@@ -96,4 +96,6 @@ In conclusion, may we have *vision.* May we put forth *effort.* May we exemplify
 
 
 
+
+
 #Faith #Prayer #Priesthood #Service

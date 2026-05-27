@@ -69,4 +69,6 @@ I know that God lives and that Jesus Christ is our Savior and Redeemer. I also t
 
 
 
+
+
 #Obedience #Repentance #Spirituality

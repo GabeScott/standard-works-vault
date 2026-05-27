@@ -5,7 +5,7 @@
 [1 Corinthians 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.7?lang=eng#p7)
 
 
-[^a]: [[Wisdom|TG Wisdom]].
-[^b]: [[Mysteries of Godliness|TG Mysteries of Godliness]].
-[^c]: [[Colossians 2.3|Col. 2:3]].
-[^d]: GR foreordained.
+[^a]: [[Wisdom|TG Wisdom]].  
+[^b]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  
+[^c]: [[Colossians 2.3|Col. 2:3]].  
+[^d]: GR foreordained.  

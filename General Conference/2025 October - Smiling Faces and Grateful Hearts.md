@@ -100,4 +100,6 @@ Just like those Saints in Africa, I know this promise is true. It is true there,
 [^4]: David A. Bednar, “[The Atonement and the Journey of Mortality](https://churchofjesuschrist.org/study/liahona/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng&id=p52#p52),” *Liahona*, Apr. 2012, 19.
 
 
+
+
 #Adversity #Gratitude #Jesus_Christ #Joy

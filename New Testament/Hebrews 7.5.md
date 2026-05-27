@@ -5,5 +5,5 @@
 [Hebrews 7:5](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.5?lang=eng#p5)
 
 
-[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  
 [^b]: [[Priesthood, Aaronic|TG Priesthood, Aaronic]].  

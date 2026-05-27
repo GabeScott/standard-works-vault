@@ -66,4 +66,6 @@ We love you. We know you, and we care for you. We are all God’s children, and 
 
 
 
+
+
 #Activation #Compassion #Disciplinary_Councils #Fellowshipping #Love #Repentance #Responsibility

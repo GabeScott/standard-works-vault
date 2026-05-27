@@ -73,4 +73,6 @@ As we step back from the world and assess our lives, now is the time to consider
 
 
 
+
+
 #Perspective #Priorities #Revelation #Truth

@@ -79,4 +79,6 @@ In the name of Jesus Christ. Amen.
 
 
 
+
+
 #Adversity #Agency #Sin #Temptation

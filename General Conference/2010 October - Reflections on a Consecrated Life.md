@@ -81,4 +81,6 @@ A consecrated life is a beautiful thing. Its strength and serenity are “as a v
 
 
 
+
+
 #Consecration #Integrity #Morality #Service #Work

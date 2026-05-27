@@ -39,4 +39,6 @@ I bear witness to you of the reality of the promises of the Father to us, His be
 
 
 
+
+
 #Family #Prayer #Preparation #Scripture_Study #Service

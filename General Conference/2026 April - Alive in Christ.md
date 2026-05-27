@@ -1,6 +1,6 @@
 # Alive in Christ
 
-By President Dallin H. Oaks - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Dallin H. Oaks - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -14,7 +14,7 @@ On this glorious Easter Sunday, I have chosen to speak first about the Resurrect
 
 The literal Resurrection of Jesus is the subject of so many scriptures that it is settled doctrine for believers of the Bible and Book of Mormon. For us, the *universal* Resurrection is equally certain. As the Book of Mormon teaches:
 
-“The spirit and the body shall be reunited again in its perfect form. …
+“The spirit and the body shall be reunited again in its perfect form. …
 
 “Now, this restoration shall come to all, both old and young, both bond and free, both male and female, both the wicked and the righteous” ([[Alma 11.43|Alma 11:43–44]][[Alma 11.44|]]).
 
@@ -34,7 +34,7 @@ Asked, “Who is my neighbour?” Jesus answered with a parable that praised the
 
 “But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you” ([[Matthew 5.43|Matthew 5:43–44]][[Matthew 5.44|]]).
 
-What a revolutionary teaching for personal relationships! Love even your enemies! But who are our enemies? The full meaning of *enemies* in the sources from which King James’s translators chose the word *enemies* includes military foes but even extends to any who actively oppose one another. Today we might say that we are commanded to *love our adversaries*. All mortals are beloved children of God. As President David O. McKay taught, “There is no better way to manifest love for God than to show an unselfish love for one’s fellowmen.”[^1]
+What a revolutionary teaching for personal relationships! Love even your enemies! But who are our enemies? The full meaning of *enemies* in the sources from which King James’s translators chose the word *enemies* includes military foes but even extends to any who actively oppose one another. Today we might say that we are commanded to *love our adversaries*. All mortals are beloved children of God. As President David O. McKay taught, “There is no better way to manifest love for God than to show an unselfish love for one’s fellowmen.”[^1]
 
 I witnessed this uncommon loving of an adversary at a stake conference many years ago. As I looked over the audience before the meeting began, I had an unusual impression to call on a particular woman in a yellow dress. I asked the stake president if he believed this woman would give a suitable talk if called on. He said he thought so. At my request, he later called her out of the audience to give a short talk.
 
@@ -44,7 +44,7 @@ One evening she heard a loud crash from this man’s room. Responding, she ran t
 
 As she knelt and held him in her arms and tried to give him comfort, he said, “I want to go home. I just want to go home.” In a short time, he was dead. She testified that being brought to see a despised enemy like this as a child of God was one of the great spiritual experiences of her life. For me, this was a lesson I needed to learn about our Heavenly Father’s love for all His children. That lesson can transform all of us to see each other as children of God who belong to each other.
 
-Years later, President Howard W. Hunter described this same love of God toward His children: “The world in which we live would beneﬁt greatly if men and women everywhere would exercise the pure love of Christ, which is kind, meek, and lowly. … It has no place for bigotry, hatred, or violence. … It encourages diverse people to live together in Christian love regardless of religious belief, race, nationality, ﬁnancial standing, education, or culture.”[^2]
+Years later, President Howard W. Hunter described this same love of God toward His children: “The world in which we live would beneﬁt greatly if men and women everywhere would exercise the pure love of Christ, which is kind, meek, and lowly. … It has no place for bigotry, hatred, or violence. … It encourages diverse people to live together in Christian love regardless of religious belief, race, nationality, ﬁnancial standing, education, or culture.”[^2]
 
 ## III.
 
@@ -56,7 +56,7 @@ The Prophet Joseph Smith taught that we should “pour forth love” to all peop
 
 Peacemakers! How it would change the world if followers of Christ would forgo harsh and hurtful words in all their communications.
 
-In general conference, President Russell M. Nelson challenged us “to *choose* to be a peacemaker, now and always.”[^4]
+In general conference, President Russell M. Nelson challenged us “to *choose* to be a peacemaker, now and always.”[^4]
 
 How can one person be a peacemaker?
 
@@ -73,11 +73,13 @@ My brothers and sisters, as followers of Christ, let us follow Him by forgoing c
 
 
 
-[^1]: [Teachings of Presidents of the Church: David O. McKay](https://churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-19?lang=eng&id=p10#p10) (2003), 181.
+[^1]: [Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-19?lang=eng&id=p10#p10) (2003), 181.
 
-[^2]: [Teachings of Presidents of the Church: Howard W. Hunter](https://churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-20-walking-the-saviors-path-of-charity?lang=eng&id=p62#p62) (2015), 263.
+[^2]: [Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-20-walking-the-saviors-path-of-charity?lang=eng&id=p62#p62) (2015), 263.
 
 [^3]: Joseph Smith, “[Journal, December 1842–June 1844; Book 3, 15 July 1843–29 February 1844](https://www.josephsmithpapers.org/paper-summary/journal-december-1842-june-1844-book-3-15-july-1843-29-february-1844/19),” 13, josephsmithpapers.org.
 
-[^4]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
+[^4]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
 
+
+#Easter #Jesus_Christ #Love #Peacemaking #Resurrection

@@ -83,4 +83,6 @@ May God bless each of you, my dear sisters, for all you are and all you do. May 
 
 
 
+
+
 #Adversity #Councils #Jesus_Christ #Prayer #Relief_Society #Service #Spirituality #Women

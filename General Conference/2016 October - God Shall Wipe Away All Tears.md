@@ -102,4 +102,6 @@ I testify that God our Father and His Son, Jesus Christ, live and that They are 
 [^20]: Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 36; *Liahona,* Jan. 2000, 42.
 
 
+
+
 #Adversity #Discipleship #Endurance #Faith #Jesus_Christ #Joy #Plan_Of_Salvation

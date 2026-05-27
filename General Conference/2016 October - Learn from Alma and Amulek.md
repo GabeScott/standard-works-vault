@@ -164,4 +164,6 @@ Of this I testify and leave you my blessing as an Apostle of the Lord in the nam
 [^13]: [[James 1.5|James 1:5]].
 
 
+
+
 #Activation #Book_Of_Mormon #Leadership #Repentance #Service

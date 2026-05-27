@@ -151,4 +151,6 @@ Through a covenant relationship with God, our own lives can become a living symb
 
 
 
+
+
 #Baptism #Covenants #Discipleship #Jesus_Christ #Sacrament #Symbols #Temples

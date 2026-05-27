@@ -105,4 +105,6 @@ In an 1831 revelation to the Prophet Joseph Smith, the Lord said the poor would 
 
 
 
+
+
 #Discipleship #Fasting #Generosity #Prayer #Welfare

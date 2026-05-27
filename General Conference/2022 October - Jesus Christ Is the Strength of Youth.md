@@ -177,4 +177,6 @@ Of this I bear my solemn witness as an Apostle of the Lord Jesus Christ and leav
 
 
 
+
+
 #Choices #Jesus_Christ #Standards #Truth #Youth

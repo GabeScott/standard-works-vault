@@ -84,4 +84,6 @@ Now, brethren, will you please remain standing and join with our chorus in singi
 [^12]: [[Alma 13.3|Alma 13:3]].
 
 
+
+
 #Activation #Ministering #Priesthood #Priesthood_Blessings #Service

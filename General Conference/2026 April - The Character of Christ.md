@@ -1,6 +1,6 @@
 # The Character of Christ
 
-By President D. Todd Christofferson - *Second Counselor in the First Presidency*
+By President D. Todd Christofferson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -10,7 +10,7 @@ By President D. Todd Christofferson - *Second Counselor in the First Presidency
 
 The Apostle Peter reminds us that in the latter days, there will be doubters who question the Second Coming of Jesus Christ: “There shall come in the last days scoffers, walking after their own lusts, and saying, Where is the promise of his coming?”[^1]
 
-Peter reminds us that the “Lord is not slack” and that if there is any seeming delay in His return, it is because of His long-suffering mercy in giving us more time to repent[^2] before “the great and dreadful day of the Lord.”[^3] “But the day of the Lord will come,” Peter forcefully declares, “… in the which the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth also and the works that are therein shall be burned up.”[^4]
+Peter reminds us that the “Lord is not slack” and that if there is any seeming delay in His return, it is because of His long-suffering mercy in giving us more time to repent[^2] before “the great and dreadful day of the Lord.”[^3] “But the day of the Lord will come,” Peter forcefully declares, “… in the which the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth also and the works that are therein shall be burned up.”[^4]
 
 Since we know that the Lord will come and establish a new earth where righteousness prevails,[^5] Peter asks, “What manner of persons ought ye to be?”[^6] He counsels that we should be preparing diligently now so that when the Lord comes, He will find us “in peace, without spot, and blameless,” leading lives of holiness.[^7]
 
@@ -34,7 +34,7 @@ Foremost among the motives that form Christ’s character is charity, “the pur
 
 The love of Christ yields character traits such as compassion, patience, a willingness to correct “when moved upon by the Holy Ghost,”[^15] and certainly a willingness to forgive.
 
-Elder David A. Bednar recalls a woman in his stake some years ago calling to request that he visit two young women who were being taken to the hospital following a horrific automobile accident. At that very moment, this sister received on another phone the terrible news that her own daughter had died from injuries sustained in the same accident. In a calm, deliberate voice, she said: “President Bednar, we must get in contact with the two other mothers. We must let them know as much as we can about the condition of their daughters and that they will soon be in the hospital.” Elder Bednar recalls that “there was no self-pity; … there was no turning inward. The Christlike character of this devoted woman was manifested in her immediate and almost instinctive turning outward to attend to the needs of other suffering mothers.”
+Elder David A. Bednar recalls a woman in his stake some years ago calling to request that he visit two young women who were being taken to the hospital following a horrific automobile accident. At that very moment, this sister received on another phone the terrible news that her own daughter had died from injuries sustained in the same accident. In a calm, deliberate voice, she said: “President Bednar, we must get in contact with the two other mothers. We must let them know as much as we can about the condition of their daughters and that they will soon be in the hospital.” Elder Bednar recalls that “there was no self-pity; … there was no turning inward. The Christlike character of this devoted woman was manifested in her immediate and almost instinctive turning outward to attend to the needs of other suffering mothers.”
 
 Elder Bednar observes, “Character is revealed … in the power to discern the suffering of other people when we ourselves are suffering; in the ability to detect the hunger of others when we are hungry; and in the power to reach out and extend compassion for the spiritual agony of others when we are in the midst of our own spiritual distress.”[^16]
 
@@ -44,11 +44,11 @@ I think of Jesus in agony and near death on the cross remembering his mother, Ma
 
 A second motivation that underlies the Savior’s character is His passion to foster the happiness and advancement of others. After all, His entire object, in harmony with the Father, is to bring to pass the immortality and eternal life of God’s children.[^18] As He taught His Apostles:
 
-“Whosoever will be great among you, shall be your minister: …
+“Whosoever will be great among you, shall be your minister: …
 
 “For even the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many.”[^19]
 
-Character qualities that grow out of devotion to the well-being and success of others include humility, meekness, selflessness, and courage. In his recent address at Brigham Young University, President Dallin H. Oaks counseled, “Look to the needs of others, and humility follows.”[^20] Jesus taught, “Learn of me; for I am meek and lowly in heart.”[^21] The meek are models of self-control, using or withholding their considerable powers and gifts as is best in every situation.
+Character qualities that grow out of devotion to the well-being and success of others include humility, meekness, selflessness, and courage. In his recent address at Brigham Young University, President Dallin H. Oaks counseled, “Look to the needs of others, and humility follows.”[^20] Jesus taught, “Learn of me; for I am meek and lowly in heart.”[^21] The meek are models of self-control, using or withholding their considerable powers and gifts as is best in every situation.
 
 As to selflessness, what better example do we have than missionaries, the tens of thousands of our missionaries who devote months and years of their lives exclusively to serving others (often strangers) and offering, in the name of Christ, His matchless gifts of repentance and forgiveness?
 
@@ -56,15 +56,15 @@ As to selflessness, what better example do we have than missionaries, the tens o
 
 A third motivating force essential to the character of Christ is His desire to glorify the Father and to fulfill the Father’s will in every particular. He declared, “My meat is to do the will of him that sent me, and to finish his work.”[^22]
 
-A Christlike desire to glorify God and do His will leads to the character qualities of honor, integrity, and virtue. Jesus, the paradigm of integrity, “was in all points tempted like as we are, yet without sin.”[^23] We can strive toward this ideal. Elder Kim B. Clark once called it pursuing a “life of moral excellence” with the Lord’s help.[^24]
+A Christlike desire to glorify God and do His will leads to the character qualities of honor, integrity, and virtue. Jesus, the paradigm of integrity, “was in all points tempted like as we are, yet without sin.”[^23] We can strive toward this ideal. Elder Kim B. Clark once called it pursuing a “life of moral excellence” with the Lord’s help.[^24]
 
-A “life of moral excellence” is a life of virtue. “Virtue is a pattern of thought and behavior based on high moral standards. It is fidelity to God and others. … \[It\] is striving to be clean and pure spiritually and physically.”[^25] It entails a search for and devotion to truth, to right thinking and right action. In his final address to us as President of the Church a year ago, President Russell M. Nelson pleaded: “Our thoughts, words, and actions need to be unfailingly virtuous and filled with the pure love of Jesus Christ towards all men. The great opportunity before us is to become the people God needs us to be.”[^26]
+A “life of moral excellence” is a life of virtue. “Virtue is a pattern of thought and behavior based on high moral standards. It is fidelity to God and others. … \[It\] is striving to be clean and pure spiritually and physically.”[^25] It entails a search for and devotion to truth, to right thinking and right action. In his final address to us as President of the Church a year ago, President Russell M. Nelson pleaded: “Our thoughts, words, and actions need to be unfailingly virtuous and filled with the pure love of Jesus Christ towards all men. The great opportunity before us is to become the people God needs us to be.”[^26]
 
 In summary, Jesus thinks and acts out of pure love; He yearns to bless and lift others; and He delights to do the will of God. With faith in Christ, we can pray that the Holy Spirit will effect a mighty change in us to instill these same divine motivations in our heart and help us practice the attributes of a Christlike character. We can keep repenting to improve as we strive to follow the Lord’s example, “which faith and repentance bringeth a change of heart.”[^27] We can “become the people God needs us to be.”
 
 I return to the matter of Jesus Christ’s Second Coming. Adopting the character of Christ is not only a question of our personal preparation but a primary element of preparing the world for the Lord’s return and His glorious millennial reign. We tend to underestimate the influence of Christlike individuals in the world, but working one by one has always been Jesus’s approach to changing society and establishing His kingdom. It is the aggregation of individual choices over time that forms and changes societies for good or ill. No one of us alone can change the world, but each of us can have an influence in the world.
 
-On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus Christ. He is the head of this, His Church. President Dallin H. Oaks is called by Him to preside over the Church on the earth and to be the Lord’s prophetic spokesman to the world. With faith in Christ, may our character come to mirror His[^28] so that “when he shall appear we shall be like him … ; that we may have this hope; that we may be purified even as he is pure,”[^29] I pray in the name of Jesus Christ, amen.
+On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus Christ. He is the head of this, His Church. President Dallin H. Oaks is called by Him to preside over the Church on the earth and to be the Lord’s prophetic spokesman to the world. With faith in Christ, may our character come to mirror His[^28] so that “when he shall appear we shall be like him … ; that we may have this hope; that we may be purified even as he is pure,”[^29] I pray in the name of Jesus Christ, amen.
 
 
 
@@ -99,7 +99,7 @@ On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus 
 
 [^15]: [[D&C 121.43|Doctrine and Covenants 121:43]].
 
-[^16]: See David A. Bednar, “[The Character of Christ](https://www.byui.edu/speeches/religious-symposium/david-a-bednar/the-character-of-christ)” (Brigham Young University–Idaho religious symposium, Jan. 25, 2003), byui.edu.
+[^16]: See David A. Bednar, “[The Character of Christ](https://www.byui.edu/speeches/religious-symposium/david-a-bednar/the-character-of-christ)” (Brigham Young University–Idaho religious symposium, Jan. 25, 2003), byui.edu.
 
 [^17]: See [[John 19.26|John 19:26–27]][[John 19.27|]]. For disciples who desire such love in their own hearts, the Lord invites, “Pray unto the Father with all the energy of heart, that ye may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ” ([[Moroni 7.48|Moroni 7:48]]).
 
@@ -107,7 +107,7 @@ On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus 
 
 [^19]: [[Mark 10.43|Mark 10:43, 45]][[Mark 10.45|]]; see also [[Matthew 20.26|Matthew 20:26]]; [[Matthew 23.11|23:11]]; [[Luke 22.26|Luke 22:26]]. Zion, He said, is “every man seeking the interest of his neighbor, and doing all things with an eye single to the glory of God” ([[D&C 82.19|Doctrine and Covenants 82:19]]).
 
-[^20]: Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), 3, speeches.byu.edu.
+[^20]: Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), 3, speeches.byu.edu.
 
 [^21]: [[Matthew 11.29|Matthew 11:29]].
 
@@ -115,11 +115,11 @@ On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus 
 
 [^23]: [[Hebrews 4.15|Hebrews 4:15]].
 
-[^24]: See Kim B. Clark, “Becoming a Disciple-Leader,” *Marriott Alumni Magazine*, Fall 2022, 14.
+[^24]: See Kim B. Clark, “Becoming a Disciple-Leader,” *Marriott Alumni Magazine*, Fall 2022, 14.
 
-[^25]: *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 128.
+[^25]: *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng&id=p33#p33)* (2023), 128.
 
-[^26]: Russell M. Nelson, “[[2025 April - Confidence in the Presence of God.md|Confidence in the Presence of God]],” *Liahona*, May 2025, 128.
+[^26]: Russell M. Nelson, “[[2025 April - Confidence in the Presence of God.md|Confidence in the Presence of God]],” *Liahona*, May 2025, 128.
 
 [^27]: [[Helaman 15.7|Helaman 15:7]].
 
@@ -127,3 +127,5 @@ On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus 
 
 [^29]: [[Moroni 7.48|Moroni 7:48]]; see also [[1 John 3.2|1 John 3:2–3]][[1 John 3.3|]].
 
+
+#Character #Jesus_Christ #Ministering #Repentance #Second_Coming

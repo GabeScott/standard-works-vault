@@ -102,4 +102,6 @@ Come unto Him. I testify that as you center your life on Jesus Christ, you will 
 [^22]: “Where Can I Turn for Peace?” no. 129.
 
 
+
+
 #Adversity #Faith #Healing #Jesus_Christ #Joy #Peace #Testimony

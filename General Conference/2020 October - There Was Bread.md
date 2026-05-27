@@ -113,4 +113,6 @@ Brothers and sisters, in an ever-changing world, we must prepare for uncertainti
 
 
 
+
+
 #Preparation #Self-Reliance

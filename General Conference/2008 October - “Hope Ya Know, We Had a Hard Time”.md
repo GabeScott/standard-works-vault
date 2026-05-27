@@ -142,4 +142,6 @@ I, with you, am eternally grateful to Jesus Christ, the rescuer of mankind. I be
 [^29]: [[Matthew 26.39|Matthew 26:39]].
 
 
+
+
 #Adversity #Attitude #Faith #Obedience #Peace

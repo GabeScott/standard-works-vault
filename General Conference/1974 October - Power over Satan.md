@@ -61,4 +61,6 @@ And every man receiveth wages of him whom he listeth to obey. (See [[D&C 29.45|D
 
 
 
+
+
 #Morality #Satan #Sin

@@ -71,4 +71,6 @@ Marriage is a gift from God to us; the quality of our marriages is a gift from u
 
 
 
+
+
 #Faith #Family #Humility #Love #Loyalty #Marriage #Repentance #Respect

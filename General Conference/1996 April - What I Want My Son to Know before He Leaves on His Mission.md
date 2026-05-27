@@ -119,4 +119,6 @@ May the priesthood of God be prepared and worthy for any calls that may come, I 
 
 
 
+
+
 #Contention #Holy_Ghost #Jesus_Christ #Love #Missionary_Work #Opposition #Priesthood #Scripture_Study #Service #Testimony #Work

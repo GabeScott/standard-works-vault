@@ -74,4 +74,6 @@ As we now hear our beloved prophet close this conference, may we remember, as Ru
 [^17]: [[Alma 32.42|Alma 32:42]].
 
 
+
+
 #Adversity #Faith #Patience

@@ -116,4 +116,6 @@ How grateful I am to know where my precious Barbara is and that we will be toget
 [^18]: The text of the vision first appeared in the November 30, 1918, edition of the *Deseret News,* 11 days after the passing of President Smith, on November 19. It was printed in the December *Improvement Era* and in January 1919 editions of the *Relief Society Magazine,* the *Utah Genealogical and Historical Magazine,* the *Young Woman’s Journal,* and the *Millennial Star.*
 
 
+
+
 #Adversity #Death #Holy_Ghost #Jesus_Christ #Revelation

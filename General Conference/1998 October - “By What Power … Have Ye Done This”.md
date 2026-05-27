@@ -97,4 +97,6 @@ This is my solemn witness in the name of Jesus Christ, amen.
 
 
 
+
+
 #Angels #Duty #Jesus_Christ #Ordinances #Priesthood #Satan #Spirituality

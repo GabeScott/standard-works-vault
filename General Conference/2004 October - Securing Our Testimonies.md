@@ -89,4 +89,6 @@ May we have the courage and the conviction to follow the prophet’s counsel. As
 
 
 
+
+
 #Holy_Ghost #Prayer #Scripture_Study #Testimony

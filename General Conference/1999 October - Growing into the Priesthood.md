@@ -147,4 +147,6 @@ It is my prayer that we may all grow into the priesthood and be the kind of men 
 
 
 
+
+
 #Commandments #God_The_Father #Gratitude #Holy_Ghost #Jesus_Christ #Joseph_Smith #Media #Music #Priesthood #Priorities #Prophets #Sacrament #Scripture_Study #Word_Of_Wisdom

@@ -69,4 +69,6 @@ Stay on the Lord’s side and you will find eternal joy and fulfillment. I bear 
 
 
 
+
+
 #Missionary_Work #Obedience #Preparation

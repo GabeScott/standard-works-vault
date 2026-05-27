@@ -97,4 +97,6 @@ God bless us all to walk humbly with Him and with all men. I testify that Presid
 
 
 
+
+
 #Atonement #Courage #Humility #Jesus_Christ #Love #Pride #Repentance #Spirituality #Tolerance

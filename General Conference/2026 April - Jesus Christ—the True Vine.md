@@ -22,20 +22,20 @@ We live in a world filled with many voices—voices that relentlessly seek our a
 
 Over time, many of these voices grow into tangled vines, rooted in popular philosophies and spread through various forms of media. They promise security, happiness, or authenticity, yet they cannot satisfy the soul. Often, they quietly introduce doubt and division—first in the mind and then in the heart—leading to spiritual loss and sorrow. Although becoming entangled in such voices may feel exciting at first, it ultimately draws us toward fleeting worldly pursuits and weakens our connection to the True and Living Vine, Jesus Christ. As the Apostle Paul warned, “Beware lest any man spoil you through philosophy and vain deceit, after the tradition of men, after the rudiments of the world, and not after Christ.”[^9]
 
-My beloved brothers and sisters, true wisdom in our technological day is found in using modern tools with spiritual discernment—through the Holy Ghost—without allowing them to replace the rightful voice of the True Vine. Only our Redeemer can truly redeem us. He is the way, the truth, and the life of the world. “His way is the path that leads to happiness in this life and eternal life in the world to come.”[^10] In his first message to the world as our prophet, President Dallin H. Oaks declared with clarity and conviction: “Jesus Christ *is* the way. … ‘There shall be no other name given, nor any other way nor means, whereby salvation can come unto the children of men, only in and through the name of Christ, the Lord Omnipotent’ ([[Mosiah 3.17|Mosiah 3:17]]).”[^11]
+My beloved brothers and sisters, true wisdom in our technological day is found in using modern tools with spiritual discernment—through the Holy Ghost—without allowing them to replace the rightful voice of the True Vine. Only our Redeemer can truly redeem us. He is the way, the truth, and the life of the world. “His way is the path that leads to happiness in this life and eternal life in the world to come.”[^10] In his first message to the world as our prophet, President Dallin H. Oaks declared with clarity and conviction: “Jesus Christ *is* the way. … ‘There shall be no other name given, nor any other way nor means, whereby salvation can come unto the children of men, only in and through the name of Christ, the Lord Omnipotent’ ([[Mosiah 3.17|Mosiah 3:17]]).”[^11]
 
 The True Vine offers something far greater and eternal than visibility or acclaim—the promise to “dwell with God in a state of never-ending happiness.”[^12] With patience and perfect love, He continues to invite us to come unto Him through His words and the words of those whom He has called and ordained to represent Him, to speak in His name, and to testify of Him.[^13] If we desire to bring forth good fruit, as the Savior taught, we need to receive our spiritual nourishment directly from the True Vine, for He is the source of all light and truth.[^14] Only then do the precious fruits of the gospel grow in our souls, and only then do we find the true light, life, and hope that flow from Him.[^15]
 
 After His Resurrection, Jesus walked with two disciples on the road to Emmaus. Luke records that when they reached their destination, “\[the Savior\] made as though he would have gone further. But \[the two disciples\] constrained him, saying, Abide with us.”[^16] Those disciples invited the resurrected Savior to abide with them. Without first the desire and then the invitation, their hearts would not have been transformed, their eyes would not have been opened to recognize Him, and they would not have returned to Jerusalem to bear witness of the living Christ—the True Vine.
 
-My beloved brothers and sisters, in a world of many voices, remaining connected to the True Vine is not merely desirable; it is essential to our spiritual survival. Those who abide in Jesus Christ come to recognize and trust His voice, especially as it is spoken through those He has called to represent Him. I will forever treasure the moment when Elder Jeffrey R. Holland called me over the phone to welcome me to the Quorum of the Twelve Apostles, just a few minutes after I received this invitation to serve as a special witness of the Savior to the world. In that sacred moment, I felt the Savior ministering in love to me through the voice of one of His anointed servants. I felt the peace and comforting assurance flowing from the True Vine. Elder Holland’s life and mighty ministry testify that as we hear the Savior’s voice through His servants and abide in Him—the True Vine—we bring forth much fruit, “for without \[Him we\] can do nothing.”[^17]
+My beloved brothers and sisters, in a world of many voices, remaining connected to the True Vine is not merely desirable; it is essential to our spiritual survival. Those who abide in Jesus Christ come to recognize and trust His voice, especially as it is spoken through those He has called to represent Him. I will forever treasure the moment when Elder Jeffrey R. Holland called me over the phone to welcome me to the Quorum of the Twelve Apostles, just a few minutes after I received this invitation to serve as a special witness of the Savior to the world. In that sacred moment, I felt the Savior ministering in love to me through the voice of one of His anointed servants. I felt the peace and comforting assurance flowing from the True Vine. Elder Holland’s life and mighty ministry testify that as we hear the Savior’s voice through His servants and abide in Him—the True Vine—we bring forth much fruit, “for without \[Him we\] can do nothing.”[^17]
 
 In this sacred Easter season, I solemnly testify that Jesus Christ is the True Vine. He lives. He rose from the dead, and His redeeming power is real. I bear witness that His voice is the voice of truth and life. With perfect love, He invites all to abide in Him and to continue in His love that we may recognize His power in our lives, that God’s love may be perfected in us, and that we may know that we are in Him.[^18] I bear my solemn witness of these eternal truths in the sacred name of Jesus Christ, our Savior, amen.
 
 
 
 
-[^1]: See Topics and Questions, “[Atonement of Jesus Christ](https://churchofjesuschrist.org/study/manual/gospel-topics/atonement-of-jesus-christ-study-guide?lang=eng),” Gospel Library.
+[^1]: See Topics and Questions, “[Atonement of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/gospel-topics/atonement-of-jesus-christ-study-guide?lang=eng),” Gospel Library.
 
 [^2]: [[John 15.1|John 15:1, 5]][[John 15.5|]]; see also [[Exodus 3.14|Exodus 3:14]]; [[John 6.35|John 6:35, 51]][[John 6.51|]]; [[John 8.12|8:12, 58]][[John 8.58|]]; [[John 10.14|10:14]]; [[Alma 26.12|Alma 26:12–13]][[Alma 26.13|]]. At least in one instance, Jesus may have also identified Himself as the Lord God of the Old Testament (see [[Exodus 3.14|Exodus 3:14]]; [[John 18.5|John 18:5]]).
 
@@ -53,15 +53,15 @@ In this sacred Easter season, I solemnly testify that Jesus Christ is the True V
 
 [^9]: [[Colossians 2.8|Colossians 2:8]].
 
-[^10]: “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p13#p13),” Gospel Library; see also [[John 8.12|John 8:12]]; [[John 14.6|14:6]]; [[Ether 12.4|Ether 12:4]].
+[^10]: “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p13#p13),” Gospel Library; see also [[John 8.12|John 8:12]]; [[John 14.6|14:6]]; [[Ether 12.4|Ether 12:4]].
 
-[^11]: Dallin H. Oaks, in “[Q&A with the New First Presidency](https://churchofjesuschrist.org/study/ftsoy/2026/01/q-a-with-the-new-first-presidency?lang=eng&id=p_p617h#p_p617h),” *For the Strength of Youth*, Jan. 2026, digital only.
+[^11]: Dallin H. Oaks, in “[Q&A with the New First Presidency](https://www.churchofjesuschrist.org/study/ftsoy/2026/01/q-a-with-the-new-first-presidency?lang=eng&id=p_p617h#p_p617h),” *For the Strength of Youth*, Jan. 2026, digital only.
 
 [^12]: [[Mosiah 2.41|Mosiah 2:41]].
 
 [^13]: See [[Hebrews 5.4|Hebrews 5:4]].
 
-[^14]: See [[D&C 84.45|Doctrine and Covenants 84:45]]; see also Guide to the Scriptures, “[Light, Light of Christ](https://churchofjesuschrist.org/study/scriptures/gs/light-light-of-christ?lang=eng),” “[Truth](https://churchofjesuschrist.org/study/scriptures/gs/truth?lang=eng),” Gospel Library; Topical Guide, “[Jesus Christ, Light of the World](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-light-of-the-world?lang=eng).”
+[^14]: See [[D&C 84.45|Doctrine and Covenants 84:45]]; see also Guide to the Scriptures, “[Light, Light of Christ](https://www.churchofjesuschrist.org/study/scriptures/gs/light-light-of-christ?lang=eng),” “[Truth](https://www.churchofjesuschrist.org/study/scriptures/gs/truth?lang=eng),” Gospel Library; Topical Guide, “[[Jesus Christ, Light of the World|Jesus Christ, Light of the World]].”
 
 [^15]: See [[Isaiah 55.1|Isaiah 55:1, 3, 6, 12]][[Isaiah 55.3|]][[Isaiah 55.6|]][[Isaiah 55.12|]]; [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]; [[Galatians 5.22|Galatians 5:22–23]][[Galatians 5.23|]]; [[3 Nephi 27.20|3 Nephi 27:20]].
 
@@ -71,3 +71,5 @@ In this sacred Easter season, I solemnly testify that Jesus Christ is the True V
 
 [^18]: See [[1 John 2.5|1 John 2:5]].
 
+
+#Discipleship #Jesus_Christ #Truth

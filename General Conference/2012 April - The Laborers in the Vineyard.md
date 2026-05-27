@@ -59,4 +59,6 @@ So if you have made covenants, keep them. If you haven’t made them, make them.
 
 
 
+
+
 #Atonement #Covetousness #Grace #Jesus_Christ

@@ -76,4 +76,6 @@ I have seen the marvelous blessing of recovery that can set one free from the ch
 [^3]: See Erika Potter, “Drug Deaths Overtake Auto Deaths in Utah,” *Universe,* Nov. 29, 2009, universe.byu.edu/node/4477.
 
 
+
+
 #Addiction #Atonement #Prayer #Word_Of_Wisdom

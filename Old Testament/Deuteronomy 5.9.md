@@ -5,6 +5,6 @@
 [Deuteronomy 5:9](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.9?lang=eng#p9)
 
 
-[^a]: IE the effects of sin.
-[^b]: [[D&C 124.50|D&C 124:50]].
-[^c]: [[Accountability|TG Accountability]]; [[Hate|Hate]].
+[^a]: IE the effects of sin.  
+[^b]: [[D&C 124.50|D&C 124:50]].  
+[^c]: [[Accountability|TG Accountability]]; [[Hate|Hate]].  

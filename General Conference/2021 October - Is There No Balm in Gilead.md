@@ -66,4 +66,6 @@ I bear my witness to you of the Balm of Gilead, the Savior Jesus Christ, our Red
 [^9]: [[Ether 12.27|Ether 12:27]].
 
 
+
+
 #Adversity #Atonement #Faith #Healing #Jesus_Christ

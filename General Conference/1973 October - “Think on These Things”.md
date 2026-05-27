@@ -87,4 +87,6 @@ And we have the promise that if we seek him with full purpose of heart, keeping 
 
 
 
+
+
 #Obedience #Spirituality

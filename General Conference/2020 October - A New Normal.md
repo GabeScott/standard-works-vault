@@ -45,4 +45,6 @@ May we go forward together to fulfill our divine mandate—that of preparing our
 
 
 
+
+
 #Peace #Preparation #Spirituality #Temples

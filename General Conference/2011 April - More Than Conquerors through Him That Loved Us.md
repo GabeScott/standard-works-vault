@@ -88,4 +88,6 @@ I know that God lives and that His Son, Jesus Christ, lives. I also know that th
 [^19]: [[Matthew 25.21|Matthew 25:21]].
 
 
+
+
 #Adversity #Faith #Jesus_Christ #Patience

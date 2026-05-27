@@ -117,4 +117,6 @@ May the Lord bless each of you special young men with strength and courage to ob
 
 
 
+
+
 #Commandments #Healing #Missionary_Work #Morality #Obedience #Priesthood #Service #Sin #Temptation #Youth

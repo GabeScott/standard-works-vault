@@ -165,4 +165,6 @@ I pray that each of us may so endure and be lifted up at the last day, in the na
 
 
 
+
+
 #Adversity #Covenants #Endurance #Jesus_Christ #Love #Loyalty #Marriage #Pioneers #Plan_Of_Salvation #Priorities #Satan #Temptation #Work

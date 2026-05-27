@@ -88,4 +88,6 @@ Let your narrative be one of faith, following your Exemplar, the Savior Jesus Ch
 [^6]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
 
+
+
 #Adversity #Agency #Discipleship #Faith #Holy_Ghost #Jesus_Christ

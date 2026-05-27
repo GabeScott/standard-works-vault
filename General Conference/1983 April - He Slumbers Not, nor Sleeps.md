@@ -99,4 +99,6 @@ I bear witness to you this morning that he, watching over Israel, slumbers not n
 
 
 
+
+
 #Jesus_Christ #Mission_Of_The_Church

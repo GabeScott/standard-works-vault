@@ -225,4 +225,6 @@ I bear solemn witness to the sacredness of the apostle Paul’s teachings. To ac
 
 
 
+
+
 #New_Testament

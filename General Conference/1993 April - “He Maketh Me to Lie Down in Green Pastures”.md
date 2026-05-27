@@ -47,4 +47,6 @@ The twenty-third Psalm says in part: “The Lord is my shepherd. … He maketh m
 
 
 
+
+
 #Peace #Safety #Spirituality

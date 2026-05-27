@@ -110,4 +110,6 @@ As we pray we can feel the embrace of our Heavenly Father, who sent His Only Beg
 [^8]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97–100.
 
 
+
+
 #Adversity #Faith #Prayer #Revelation

@@ -129,4 +129,6 @@ Jesus Christ *is* the Only Begotten and Beloved Son of God. He *is* our Creator.
 
 
 
+
+
 #Atonement #Jesus_Christ #Obedience

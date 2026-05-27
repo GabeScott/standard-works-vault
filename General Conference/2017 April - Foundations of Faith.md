@@ -140,4 +140,6 @@ I am grateful for the fortification of the foundations of faith that has come fr
 [^23]: See [[Ether 12.12|Ether 12:12]].
 
 
+
+
 #Adversity #Faith #Holy_Ghost #Jesus_Christ #Joseph_Smith

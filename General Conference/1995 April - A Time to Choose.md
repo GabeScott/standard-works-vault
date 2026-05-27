@@ -87,4 +87,6 @@ That our Heavenly Father may ever bless you precious young women, that He may in
 
 
 
+
+
 #Agency #Dedication #Friendship #God_The_Father #Perspective #Prayer #Scripture_Study #Scriptures #Wisdom #Youth

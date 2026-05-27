@@ -103,4 +103,6 @@ I am grateful for our Father in Heaven, who loves us, and for His Son, Jesus Chr
 
 
 
+
+
 #Family #Prophets #Word_Of_Wisdom

@@ -20,7 +20,7 @@ I thought, “This is like our relationship with God.” Some think He is distan
 
 As I pondered this idea, a question from one of David’s psalms came to mind:
 
-“When I consider thy heavens, the work of thy fingers, the moon and the stars … ;
+“When I consider thy heavens, the work of thy fingers, the moon and the stars … ;
 
 “What is man, that thou art mindful of him?”[^2]
 
@@ -28,9 +28,9 @@ The answer that follows is deeply comforting: “Thou hast made him a little low
 
 This is the miracle of God’s relationship with us: The universe is vast beyond comprehension, yet every soul carries infinite worth in the eyes of our Creator. Though we may seem small in a physical sense, each of us is personally known, remembered, and loved by our Eternal Father and by His Son, Jesus Christ.[^4]
 
-In 1905, after a conversation with a friend who had long endured serious health challenges, Civilla D. Martin found inspiration for the beloved hymn “His Eye Is on the Sparrow.”[^5] When Civilla asked her friend how she avoided discouragement, she replied, “How can I be discouraged when my Father watches the sparrows, and I know He loves and cares for me?”[^6]
+In 1905, after a conversation with a friend who had long endured serious health challenges, Civilla D. Martin found inspiration for the beloved hymn “His Eye Is on the Sparrow.”[^5] When Civilla asked her friend how she avoided discouragement, she replied, “How can I be discouraged when my Father watches the sparrows, and I know He loves and cares for me?”[^6]
 
-Her words echoed the Savior’s teaching that no sparrow falls without the Father’s notice—and that even “the very hairs of \[our\] head are all numbered.”[^7] Elder Neal A. Maxwell added that the God who governs galaxies also guides our personal lives. “God is in the details!” he said. “… He knows and loves *each* and *all* of mankind!”[^8]
+Her words echoed the Savior’s teaching that no sparrow falls without the Father’s notice—and that even “the very hairs of \[our\] head are all numbered.”[^7] Elder Neal A. Maxwell added that the God who governs galaxies also guides our personal lives. “God is in the details!” he said. “… He knows and loves *each* and *all* of mankind!”[^8]
 
 I bear witness of this truth: God and His Son, Jesus Christ, love *all*—and They love *each*.
 
@@ -83,13 +83,13 @@ May we follow the Lord’s perfect example and learn to love *all* and to love *
 
 
 
-[^1]: See Sara Jane Weaver, host, *Church News* podcast, episode 269, “Elder Gérald Caussé on Serving as a Lifelong Witness of the Name of Jesus Christ,” *Church News*, Dec. 2, 2025, thechurchnews.com.
+[^1]: See Sara Jane Weaver, host, *Church News* podcast, episode 269, “Elder Gérald Caussé on Serving as a Lifelong Witness of the Name of Jesus Christ,” *Church News*, Dec. 2, 2025, thechurchnews.com.
 
 [^2]: [[Psalms 8.3|Psalm 8:3–4]][[Psalms 8.4|]].
 
 [^3]: [[Psalms 8.5|Psalm 8:5]]; see also [[1 Nephi 11.17|1 Nephi 11:17]]; [[Moses 1.24|Moses 1:24–39]][[Moses 1.25|]][[Moses 1.26|]][[Moses 1.27|]][[Moses 1.28|]][[Moses 1.29|]][[Moses 1.30|]][[Moses 1.31|]][[Moses 1.32|]][[Moses 1.33|]][[Moses 1.34|]][[Moses 1.35|]][[Moses 1.36|]][[Moses 1.37|]][[Moses 1.38|]][[Moses 1.39|]].
 
-[^4]: See Gérald Caussé, “[We Are the Architects of Our Own Happiness](https://churchofjesuschrist.org/study/broadcasts/article/ces-devotionals/2012/01/we-are-the-architects-of-our-own-happiness?lang=eng&id=p27-p34#p27)” (Church Educational System devotional for young adults, Nov. 4, 2012), Gospel Library.
+[^4]: See Gérald Caussé, “[We Are the Architects of Our Own Happiness](https://www.churchofjesuschrist.org/study/broadcasts/article/ces-devotionals/2012/01/we-are-the-architects-of-our-own-happiness?lang=eng&id=p27-p34#p27)” (Church Educational System devotional for young adults, Nov. 4, 2012), Gospel Library.
 
 [^5]: “His Eye Is on the Sparrow,” *Hymns for Home and Church*, Gospel Library.
 
@@ -97,7 +97,7 @@ May we follow the Lord’s perfect example and learn to love *all* and to love *
 
 [^7]: See [[Matthew 10.29|Matthew 10:29–31]][[Matthew 10.30|]][[Matthew 10.31|]].
 
-[^8]: See Neal A. Maxwell, “[[2002 October - Encircled in the Arms of His Love.md|Encircled in the Arms of His Love]],” *Liahona*, Nov. 2002, 18; emphasis added.
+[^8]: See Neal A. Maxwell, “[[2002 October - Encircled in the Arms of His Love.md|Encircled in the Arms of His Love]],” *Liahona*, Nov. 2002, 18; emphasis added.
 
 [^9]: [[Mosiah 27.30|Mosiah 27:30]], emphasis added; see also [[Deuteronomy 33.3|Deuteronomy 33:3]]; [[Mark 16.15|Mark 16:15]]; [[Luke 4.40|Luke 4:40]]; [[John 6.45|John 6:45]]; [[Romans 14.10|Romans 14:10–12]][[Romans 14.11|]][[Romans 14.12|]]; [[2 Corinthians 5.10|2 Corinthians 5:10]]; [[Ephesians 4.6|Ephesians 4:6–7]][[Ephesians 4.7|]]; [[1 Nephi 19.17|1 Nephi 19:17]]; [[2 Nephi 9.21|2 Nephi 9:21]]; [[Mosiah 16.1|Mosiah 16:1]]; [[Mosiah 27.31|27:31]]; [[Alma 26.37|Alma 26:37]]; [[Mormon 3.20|Mormon 3:20]]; [[Mormon 9.22|9:22]]; [[D&C 18.28|Doctrine and Covenants 18:28]]; [[D&C 58.64|58:64]].
 
@@ -109,9 +109,9 @@ May we follow the Lord’s perfect example and learn to love *all* and to love *
 
 [^13]: See Gérald Caussé, “[[2013 October - Ye Are No More Strangers.md|Ye Are No More Strangers]],” *Liahona*, Nov. 2013, 49–51.
 
-[^14]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 426.
+[^14]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-37?lang=eng&id=p12#p12)* (2007), 426.
 
-[^15]: See Russell M. Nelson, “[[2002 October - “Blessed Are the Peacemakers”.md|Blessed Are the Peacemakers]],” *Liahona*, Nov. 2002, 41.
+[^15]: See Russell M. Nelson, “[[2002 October - “Blessed Are the Peacemakers”.md|Blessed Are the Peacemakers]],” *Liahona*, Nov. 2002, 41.
 
 [^16]: Opportunities also abound to extend the Savior’s love beyond our Church congregations and to care for those in need, whoever and wherever they may be—within our communities or in faraway countries.
 
@@ -123,9 +123,11 @@ May we follow the Lord’s perfect example and learn to love *all* and to love *
 
 [^20]: See [[Matthew 18.1|Matthew 18:1–5]][[Matthew 18.2|]][[Matthew 18.3|]][[Matthew 18.4|]][[Matthew 18.5|]]; [[Mark 9.36|Mark 9:36–37]][[Mark 9.37|]]; [[Luke 9.47|Luke 9:47–48]][[Luke 9.48|]]; [[3 Nephi 17.21|3 Nephi 17:21–24]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]].
 
-[^21]: See Neal A. Maxwell, “[[2002 October - Encircled in the Arms of His Love.md|Encircled in the Arms of His Love]],” 18.
+[^21]: See Neal A. Maxwell, “[[2002 October - Encircled in the Arms of His Love.md|Encircled in the Arms of His Love]],” 18.
 
 [^22]: See [[Moroni 6.4|Moroni 6:4]].
 
 [^23]: “His Eye Is on the Sparrow,” *Hymns for Home and Church*, Gospel Library.
 
+
+#Individual_Worth #Love

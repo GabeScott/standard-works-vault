@@ -96,4 +96,6 @@ I say these things in the sacred name of Jesus Christ, amen.
 [^13]: [[Moroni 7.12|Moroni 7:12]].
 
 
+
+
 #Adversity #Faith #Jesus_Christ #Trust

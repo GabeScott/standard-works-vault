@@ -118,4 +118,6 @@ We have glimpsed the future, we know the way, we have the truth. God help us to 
 
 
 
+
+
 #Abuse #Church_Growth #Commandments #Family #Fellowshipping #Home #Jesus_Christ #Love #Missionary_Work #Obedience #Peace #Pioneers #Sabbath #Temples #Tithing #Welfare #Word_Of_Wisdom

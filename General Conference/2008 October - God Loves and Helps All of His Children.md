@@ -119,4 +119,6 @@ He is our Lawgiver and Judge, the Redeemer of the world. At His Second Coming, â
 
 
 
+
+
 #Blessings #Fasting #Jesus_Christ #Prayer #Service #Welfare

@@ -49,4 +49,6 @@ My plea for each of us is to recognize that God has given each of us power—the
 
 
 
+
+
 #Disabilities #Government #Priesthood #Spirituality

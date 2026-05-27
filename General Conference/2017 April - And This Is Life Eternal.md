@@ -153,4 +153,6 @@ God knows *you* and invites *you* to know *Him.* Pray to the Father, study the s
 
 
 
+
+
 #Example #Jesus_Christ #Joseph_Smith #Obedience #Prayer #Scripture_Study #Worthiness

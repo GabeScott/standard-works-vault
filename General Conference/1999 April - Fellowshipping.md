@@ -60,4 +60,6 @@ I leave you with my witness that Jesus is the Christ, our Savior and Redeemer. T
 [^3]: [[Moroni 6.4|Moro. 6:4]].
 
 
+
+
 #Activation #Atonement #Fellowshipping #Jesus_Christ #Priesthood #Talents

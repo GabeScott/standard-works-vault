@@ -147,4 +147,6 @@ As I have reflected on gifts from our Heavenly Father and from Jesus Christ, I h
 
 
 
+
+
 #Gratitude #Spirituality

@@ -187,4 +187,6 @@ I joyfully witness that God the Eternal Father is our Father. Jesus Christ is Hi
 
 
 
+
+
 #Apostasy #Book_Of_Mormon #Pride

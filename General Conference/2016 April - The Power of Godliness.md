@@ -141,4 +141,6 @@ Come to the temple. Come often. Come with and for your family. Come, and help ot
 
 
 
+
+
 #Covenants #Ordinances #Service #Temple_Work

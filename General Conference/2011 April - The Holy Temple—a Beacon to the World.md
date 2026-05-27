@@ -109,4 +109,6 @@ My beloved brothers and sisters, may we make whatever sacrifices are necessary t
 
 
 
+
+
 #Covenants #Sacrifice #Temple_Work #Temples

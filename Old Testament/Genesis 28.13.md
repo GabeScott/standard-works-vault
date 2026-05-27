@@ -5,7 +5,7 @@
 [Genesis 28:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.13?lang=eng#p13)
 
 
-[^a]: [[Hosea 12.3|Hosea 12:4 (3–5)]][[Hosea 12.4|]][[Hosea 12.5|]].
-[^b]: OR beside him.
-[^c]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].
-[^d]: [[Promised Lands|TG Promised Lands]].
+[^a]: [[Hosea 12.3|Hosea 12:4 (3–5)]][[Hosea 12.4|]][[Hosea 12.5|]].  
+[^b]: OR beside him.  
+[^c]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^d]: [[Promised Lands|TG Promised Lands]].  

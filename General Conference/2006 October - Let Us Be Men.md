@@ -87,4 +87,6 @@ Brethren, let us be men, even as He is. In the name of Jesus Christ, amen.
 
 
 
+
+
 #Honesty #Jesus_Christ #Priesthood #Responsibility

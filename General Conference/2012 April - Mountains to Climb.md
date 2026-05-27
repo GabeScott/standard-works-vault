@@ -124,4 +124,6 @@ I testify that God the Father lives and that His Beloved Son is our Redeemer. Th
 [^9]: “I Know That My Redeemer Lives,” *Hymns,* no. 136.
 
 
+
+
 #Adversity #Faith #Jesus_Christ

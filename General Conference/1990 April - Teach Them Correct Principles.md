@@ -114,4 +114,6 @@ I could not express to you, my brethren and sisters, the depths of my feeling ab
 
 
 
+
+
 #Activation #Financial_Management #Tithing

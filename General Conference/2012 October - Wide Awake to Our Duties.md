@@ -117,4 +117,6 @@ This is a work of salvation, and the strengthening and enabling power of the Ato
 
 
 
+
+
 #Duty #Endurance #Responsibility #Service

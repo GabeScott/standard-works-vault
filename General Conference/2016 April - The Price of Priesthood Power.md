@@ -99,4 +99,6 @@ My dear brethren, we have been given a sacred trust—the authority of God to bl
 
 
 
+
+
 #Authority #Divine_Nature #Prayer #Priesthood #Scripture_Study #Service #Temple_Work

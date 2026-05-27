@@ -131,4 +131,6 @@ That we may take the Holy Spirit for our guide, recognize Satan, his representat
 
 
 
+
+
 #Evil #Satan #Temptation

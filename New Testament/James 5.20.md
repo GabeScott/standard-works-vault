@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 6.11|D&C 6:11]]. [[Conversion, Convert|TG Conversion]].  
 [^b]: [[1 Timothy 4.16|1 Tim. 4:16]].  
-[^c]: See [[1 Peter 4.note8a|JST 1 Pet. 4:8 (1 Pet. 4:8 note a)]].  
+[^c]: See [[1 Peter 4.8|JST 1 Pet. 4:8 (1 Pet. 4:8 note a)]].  

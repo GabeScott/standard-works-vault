@@ -118,4 +118,6 @@ Life comes from life. It is a gift from our Heavenly Father. It is eternal, as h
 [^12]: *Ensign,* Nov. 1975, p. 6.
 
 
+
+
 #Abortion

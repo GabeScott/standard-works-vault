@@ -94,4 +94,8 @@ I gladly bear my personal witness that these revelatory changes are inspired of 
 #Discipleship #Jesus_Christ #Ministering #Priesthood_Quorums #Relief_Society #Service #Unity #Young_Women
 
 
+
+
+
+
 #Ministering

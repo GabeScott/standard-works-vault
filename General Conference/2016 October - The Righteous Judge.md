@@ -107,4 +107,6 @@ There is only one way to judge righteous judgment, as Jesus Christ does, and tha
 
 
 
+
+
 #Atonement #Discipline #Jesus_Christ #Judging #Parenthood #Repentance #Sacrifice

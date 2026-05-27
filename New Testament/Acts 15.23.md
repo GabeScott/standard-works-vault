@@ -5,5 +5,5 @@
 [Acts 15:23](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.23?lang=eng#p23)
 
 
-[^a]: [[Scriptures, Writing of|TG Scriptures, Writing of]].
-[^b]: [[Acts 16.4|Acts 16:4]].
+[^a]: [[Scriptures, Writing of|TG Scriptures, Writing of]].  
+[^b]: [[Acts 16.4|Acts 16:4]].  

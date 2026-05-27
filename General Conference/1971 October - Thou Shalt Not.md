@@ -67,4 +67,6 @@ Because of our birthright, our intelligence, our covenants, and our assignments,
 
 
 
+
+
 #Commandments

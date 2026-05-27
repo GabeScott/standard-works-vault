@@ -185,4 +185,6 @@ Just as the ring was recovered from that shipwreck, when we give our hearts to G
 
 
 
+
+
 #Conversion #Covenants #Sabbath

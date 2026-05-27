@@ -115,4 +115,6 @@ I testify that Jesus Christ, the Redeemer of Israel, leads this, His Church. He 
 
 
 
+
+
 #Charity #Confidence #Peacemaking #Temples #Virtue

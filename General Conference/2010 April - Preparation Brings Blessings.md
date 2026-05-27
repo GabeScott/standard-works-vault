@@ -119,4 +119,6 @@ Brethren, it is my prayer that we may so live that we too may touch heaven and b
 
 
 
+
+
 #Church_Callings #Honesty #Preparation #Service #Standards

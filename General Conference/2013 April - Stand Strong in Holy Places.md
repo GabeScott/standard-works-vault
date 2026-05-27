@@ -137,4 +137,6 @@ My beloved priesthood brethren young and old, let us glorify God’s name by sta
 
 
 
+
+
 #Jesus_Christ #Obedience #Standards

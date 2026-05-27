@@ -85,4 +85,6 @@ And I ask you, brethren, sisters, where would we be, where would you be, where w
 
 
 
+
+
 #Faith #Ordinances #Repentance #Time_Management

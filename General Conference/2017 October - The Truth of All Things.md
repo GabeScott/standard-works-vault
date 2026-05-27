@@ -93,4 +93,6 @@ All of this I know to be true and bear my witness in the name of Jesus Christ, a
 
 
 
+
+
 #Book_Of_Mormon #Covenants #Faith #Patience #Testimony #Truth

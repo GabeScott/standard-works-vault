@@ -5,5 +5,5 @@
 [1 Corinthians 14:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.1?lang=eng#p1)
 
 
-[^a]: GR Pursue, follow eagerly, earnestly.
-[^b]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].
+[^a]: GR Pursue, follow eagerly, earnestly.  
+[^b]: [[Holy Ghost, Gifts of|TG Holy Ghost, Gifts of]].  

@@ -83,4 +83,6 @@ The First Presidency, the Quorum of the Twelve Apostles, and the Presidency of t
 
 
 
+
+
 #Melchizedek_Priesthood #Ministering #Priesthood_Quorums #Service

@@ -114,4 +114,6 @@ Such is my counsel, brethren. Such is my prayer. It is given in the name of Him 
 
 
 
+
+
 #Activation #Offense

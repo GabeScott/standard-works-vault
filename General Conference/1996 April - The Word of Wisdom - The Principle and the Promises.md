@@ -99,4 +99,6 @@ I bear witness that this revelation is a powerful protection to all members of t
 
 
 
+
+
 #Evil #Holy_Ghost #Jesus_Christ #Obedience #Repentance #Sacrament #Word_Of_Wisdom #Youth

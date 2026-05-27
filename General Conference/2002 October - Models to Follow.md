@@ -143,4 +143,6 @@ My prayer today is that we shall do so. In the sacred name of Jesus Christ, amen
 
 
 
+
+
 #Attitude #Courage #Dedication #Example #Faith #Humility #Loyalty #Obedience #Patience

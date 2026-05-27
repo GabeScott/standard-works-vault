@@ -102,4 +102,6 @@ I pray that you may find peace, help many others to find it, and pass it along. 
 [^5]: [[Proverbs 22.6|Proverbs 22:6]].
 
 
+
+
 #Activation #Children #Holy_Ghost #Love #Obedience #Optimism #Peace

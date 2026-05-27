@@ -39,4 +39,6 @@ Until we meet again in six months, I pray that the Lord will bless and keep you,
 
 
 
+
+
 #Gratitude #Prayer

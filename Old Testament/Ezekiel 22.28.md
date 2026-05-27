@@ -5,5 +5,5 @@
 [Ezekiel 22:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.28?lang=eng#p28)
 
 
-[^a]: [[Ezekiel 13.10|Ezek. 13:10]].
-[^b]: [[Superstitions|TG Superstitions]].
+[^a]: [[Ezekiel 13.10|Ezek. 13:10]].  
+[^b]: [[Superstitions|TG Superstitions]].  

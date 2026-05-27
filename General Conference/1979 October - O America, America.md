@@ -145,4 +145,6 @@ O Jerusalem! O America! O England, and all other countries! The Lord says to all
 
 
 
+
+
 #Honesty #Obedience #Repentance

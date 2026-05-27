@@ -69,4 +69,6 @@ There are many around you who are confused and are seeking solutions to life’s
 
 
 
+
+
 #Adversity #Character #Faith #Obedience #Peace #Prayer

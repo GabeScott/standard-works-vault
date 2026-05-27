@@ -89,4 +89,6 @@ I pray that we will choose to obey the Lord quickly, always, in quiet times and 
 
 
 
+
+
 #Faith #Jesus_Christ #Obedience #Plan_Of_Salvation #Prayer #Preparation #Repentance #Scripture_Study

@@ -136,4 +136,6 @@ As you walk toward the hope of God’s light, you will discover the compassion, 
 [^8]: [[John 8.12|John 8:12]].
 
 
+
+
 #Adversity #Healing #Hope #Jesus_Christ

@@ -107,4 +107,6 @@ I am grateful that my parents taught me to pay tithing. I bear my humble testimo
 
 
 
+
+
 #Blessings #Obedience #Testimony #Tithing

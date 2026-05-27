@@ -1,6 +1,6 @@
 # Christ—Author and Finisher of Our Faith
 
-By Elder Eduardo F. Ortega - *Of the Seventy*
+By Elder Eduardo F. Ortega - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -20,7 +20,7 @@ The Lord taught this principle when He said to Peter, “Blessed art thou, Simon
 
 A personal testimony comes in response to our sincere and dedicated quest to want to know for ourselves and then to act upon the impressions and the knowledge received. This pattern is repeated within many faithful member families in The Church of Jesus Christ of Latter-day Saints around the world.
 
-My family is not the exception. My grandmother Mercedes was the pioneer in our family. She joined the Church in August 1957 in Mendoza, Argentina, 32 years after South America was dedicated for the preaching of the gospel. My father, who is here with us today, was only six years old.
+My family is not the exception. My grandmother Mercedes was the pioneer in our family. She joined the Church in August 1957 in Mendoza, Argentina, 32 years after South America was dedicated for the preaching of the gospel. My father, who is here with us today, was only six years old.
 
 I am deeply grateful for my grandmother’s faith and courage in following the Savior’s example,[^3] even though her circumstances were not perfect or ideal. Her decision brought blessings not only to her but also to many of us.
 
@@ -38,7 +38,7 @@ The invitation to seek, to come to know and to do, and then to endure on the cov
 
 The prophet Nephi taught: “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.”[^13]
 
-Becoming a lifelong disciple of Christ is a process, the sum of multiple small, daily, personal and spiritual events. President Dallin H. Oaks taught: “We need to be patient … , even with ourselves. Overcoming doubt … can be a lengthy process, as with building faith.”[^14]
+Becoming a lifelong disciple of Christ is a process, the sum of multiple small, daily, personal and spiritual events. President Dallin H. Oaks taught: “We need to be patient … , even with ourselves. Overcoming doubt … can be a lengthy process, as with building faith.”[^14]
 
 The path of discipleship often resembles climbing a mountain. The shortest path to the top is not always the most appropriate and often not the safest either. Thus, we must choose the firm and safe path, even if it is sometimes the longest and most demanding one. Jesus Christ and His restored gospel constitute that safe path that leads us to the true summit.
 
@@ -55,13 +55,13 @@ I testify of the healing, refining, and perfecting power of Jesus Christ. I know
 
 [^4]: [[Alma 32.27|Alma 32:27]].
 
-[^5]: *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 1.
+[^5]: *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/03-chapter-1?lang=eng&id=intro1#intro1)* (2023), 1.
 
 [^6]: See [[Moroni 10.32|Moroni 10:32]].
 
 [^7]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^8]: See Ronald A. Rasband, “[[2025 April - Right Before Our Eyes.md|Right Before Our Eyes]],” *Liahona*, May 2025, 13–17.
+[^8]: See Ronald A. Rasband, “[[2025 April - Right Before Our Eyes.md|Right Before Our Eyes]],” *Liahona*, May 2025, 13–17.
 
 [^9]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
@@ -73,7 +73,9 @@ I testify of the healing, refining, and perfecting power of Jesus Christ. I know
 
 [^13]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^14]: Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), 4, speeches.byu.edu.
+[^14]: Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), 4, speeches.byu.edu.
 
 [^15]: See [[Moroni 6.4|Moroni 6:4]].
 
+
+#Conversion #Discipleship #Jesus_Christ #Testimony

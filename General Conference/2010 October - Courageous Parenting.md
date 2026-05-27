@@ -71,4 +71,6 @@ Parenting teenagers in the latter days is a very humbling assignment. Satan and 
 
 
 
+
+
 #Children #Family #Holy_Ghost #Obedience #Parenthood

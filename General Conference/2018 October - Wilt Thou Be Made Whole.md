@@ -100,4 +100,6 @@ I testify that Jesus Christ paid the price so that we can be made whole. But we 
 [^16]: [[Alma 34.31|Alma 34:31]]; emphasis added.
 
 
+
+
 #Adversity #Healing #Jesus_Christ #Repentance

@@ -106,4 +106,6 @@ My greatest desires are to stand with Mormon as a true disciple of Jesus Christ 
 [^3]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 92.
 
 
+
+
 #Adversity #Faith #Godhead #Jesus_Christ #Plan_Of_Salvation #Sacrifice #Trust

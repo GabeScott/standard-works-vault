@@ -137,4 +137,6 @@ Faithful members of the Church who are true to their covenants with the Master d
 
 
 
+
+
 #Agency #Character #Commandments #Covenants #Evil #Family #Fasting #Holy_Ghost #Joy #Love #Marriage #Morality #Ordinances #Prayer #Sacrament #Satan #Service #Temples #Truth

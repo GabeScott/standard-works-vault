@@ -47,4 +47,6 @@ Brethren, let us examine our lives and determine to follow the Savior’s exampl
 
 
 
+
+
 #Charity #Jesus_Christ #Kindness #Love

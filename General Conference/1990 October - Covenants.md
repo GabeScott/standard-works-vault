@@ -116,4 +116,6 @@ God bless you who are struggling to resist or to free yourself from these terrib
 
 
 
+
+
 #Abortion #Agency #Covenants #Morality #Temptation #Word_Of_Wisdom

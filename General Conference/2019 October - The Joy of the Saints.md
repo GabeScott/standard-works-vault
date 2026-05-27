@@ -150,4 +150,6 @@ I believe that the ultimate “joy of the saints” comes in knowing that the Sa
 [^30]: [[2 Nephi 9.18|2 Nephi 9:18]].
 
 
+
+
 #Adversity #Commandments #Jesus_Christ #Joy #Service

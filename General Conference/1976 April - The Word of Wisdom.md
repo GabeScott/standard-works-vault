@@ -59,4 +59,6 @@ The Lord has spoken. Of this I bear my witness in the name of Jesus Christ. Amen
 
 
 
+
+
 #Word_Of_Wisdom

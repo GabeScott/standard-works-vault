@@ -135,4 +135,6 @@ Covenant belonging deepens as we come to each other and to the Lord in His inn. 
 
 
 
+
+
 #Belonging #Fellowshipping #Friendship #Jesus_Christ #Love

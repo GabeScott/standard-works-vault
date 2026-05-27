@@ -64,4 +64,6 @@ It is not so much about what we are going through in life but what we are becomi
 [^11]: [[Philippians 3.14|Philippians 3:14]].
 
 
+
+
 #Adversity #Endurance #Faith #Jesus_Christ

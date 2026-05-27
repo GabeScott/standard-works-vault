@@ -122,4 +122,6 @@ My beloved brethren, let us, with faith unwavering and with love unstinting, be 
 [^4]: [[Ephesians 2.19|Eph. 2:19]].
 
 
+
+
 #Activation #Covenants #Faith #Fellowshipping #Jesus_Christ #Missionary_Work #Priesthood

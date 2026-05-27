@@ -131,4 +131,6 @@ Brethren, great promises await us if we are true and faithful to the oath and co
 
 
 
+
+
 #Anger #Priesthood #Self-Control #Sin

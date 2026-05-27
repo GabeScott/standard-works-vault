@@ -162,4 +162,6 @@ May we each be able to say to the Lord with David: “I have not hid thy righteo
 [^35]: [[Alma 13.27|Alma 13:27–29]][[Alma 13.28|]][[Alma 13.29|]].
 
 
+
+
 #Accountability #Jesus_Christ #Love #Parenthood #Prophets #Standards

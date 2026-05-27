@@ -75,4 +75,6 @@ Today as a daughter of God, I stand as a witness that He lives. Jesus is the Chr
 
 
 
+
+
 #Divine_Nature #Morality #Women

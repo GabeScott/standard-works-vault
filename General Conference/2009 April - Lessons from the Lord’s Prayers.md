@@ -197,4 +197,6 @@ In our daily lives and in our own crucial hours, may we fervently apply these pr
 
 
 
+
+
 #Fasting #Humility #Jesus_Christ #Prayer

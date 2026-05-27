@@ -80,4 +80,6 @@ I bear you my testimony and my witness of the reality of a loving Heavenly Fathe
 [^5]: [[Hebrews 12.1|Hebrews 12:1]].
 
 
+
+
 #Adversity #Atonement #Endurance

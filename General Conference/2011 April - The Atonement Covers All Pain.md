@@ -128,4 +128,6 @@ I bear testimony that He is our Redeemer, our Friend, our Advocate, the Great Ph
 [^24]: [[Job 23.10|Job 23:10]].
 
 
+
+
 #Adversity #Atonement #Healing #Humility #Jesus_Christ #Opposition #Patience

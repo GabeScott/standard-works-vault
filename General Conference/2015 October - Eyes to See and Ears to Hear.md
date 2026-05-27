@@ -90,4 +90,6 @@ Brothers and sisters, I bear witness of Jesus Christ. I know He lives. He is our
 [^18]: [[1 Corinthians 2.16|1 Corinthians 2:16]].
 
 
+
+
 #Adversity #Holy_Ghost #Jesus_Christ #Obedience #Prophets

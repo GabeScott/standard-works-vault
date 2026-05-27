@@ -70,4 +70,6 @@ I testify that Jesus Christ is our Savior and Redeemer. Because of His atoning s
 [^5]: See [[D&C 82.10|Doctrine and Covenants 82:10]].
 
 
+
+
 #Adversity #Covenants #Repentance #Sacrament

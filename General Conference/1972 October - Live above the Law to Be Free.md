@@ -99,4 +99,6 @@ I pray that we may walk in righteousness because we love the Lord, for surely th
 
 
 
+
+
 #Commandments #Obedience #Temptation

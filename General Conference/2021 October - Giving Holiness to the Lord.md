@@ -105,4 +105,6 @@ I testify that God lives. “Man of Holiness is his name.”[^17] Jesus Christ i
 
 
 
+
+
 #Consecration #Holiness #Humanitarian_Aid #Sacrifice

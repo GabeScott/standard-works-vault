@@ -1,0 +1,7 @@
+# Vine
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/vine?lang=eng)
+
+Palestine has always been famous for its vines ([[Deuteronomy 8.7|Deut. 8:7–8]][[Deuteronomy 8.8|]]). The growing of grapes was part of the regular occupation of the Israelites after the settlement in Canaan. The vine was frequently regarded as a symbol of the Jewish or Christian Church ([[Psalms 80.8|Ps. 80:8–17]][[Psalms 80.9|]][[Psalms 80.10|]][[Psalms 80.11|]][[Psalms 80.12|]][[Psalms 80.13|]][[Psalms 80.14|]][[Psalms 80.15|]][[Psalms 80.16|]][[Psalms 80.17|]]; [[Isaiah 5.1|Isa. 5:1–7]][[Isaiah 5.2|]][[Isaiah 5.3|]][[Isaiah 5.4|]][[Isaiah 5.5|]][[Isaiah 5.6|]][[Isaiah 5.7|]]; [[Isaiah 27.2|27:2–3]][[Isaiah 27.3|]]; [[Jeremiah 2.21|Jer. 2:21]]; [[Ezekiel 19.10|Ezek. 19:10–14]][[Ezekiel 19.11|]][[Ezekiel 19.12|]][[Ezekiel 19.13|]][[Ezekiel 19.14|]]; [[Matthew 21.33|Matt. 21:33–40]][[Matthew 21.34|]][[Matthew 21.35|]][[Matthew 21.36|]][[Matthew 21.37|]][[Matthew 21.38|]][[Matthew 21.39|]][[Matthew 21.40|]]; [[Mark 12.1|Mark 12:1–9]][[Mark 12.2|]][[Mark 12.3|]][[Mark 12.4|]][[Mark 12.5|]][[Mark 12.6|]][[Mark 12.7|]][[Mark 12.8|]][[Mark 12.9|]]; [[Luke 20.9|Luke 20:9–16]][[Luke 20.10|]][[Luke 20.11|]][[Luke 20.12|]][[Luke 20.13|]][[Luke 20.14|]][[Luke 20.15|]][[Luke 20.16|]]; see especially [[John 15.1|John 15:1–8]][[John 15.2|]][[John 15.3|]][[John 15.4|]][[John 15.5|]][[John 15.6|]][[John 15.7|]][[John 15.8|]]).
+
+

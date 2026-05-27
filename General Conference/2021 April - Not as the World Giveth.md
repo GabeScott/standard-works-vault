@@ -92,4 +92,6 @@ In spite of betrayal and pain, mistreatment and cruelty, and bearing all the acc
 [^23]: [[Isaiah 53.4|Isaiah 53:4]]; see also [[Isaiah 53.7|verse 7]].
 
 
+
+
 #Abuse #Contention #Easter #Jesus_Christ #Peace

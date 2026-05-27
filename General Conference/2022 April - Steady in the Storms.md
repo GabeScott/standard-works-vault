@@ -72,4 +72,6 @@ I plead with you to accept the Savior’s invitation. Like a meek and loving chi
 [^6]: [[Mosiah 3.19|Mosiah 3:19]].
 
 
+
+
 #Adversity #Covenants #Faith #Jesus_Christ #Repentance

@@ -131,4 +131,6 @@ That each of us may hear the call of the Master and straightway leave our entang
 
 
 
+
+
 #Discipleship #Jesus_Christ #Obedience #Sacrifice #Temptation

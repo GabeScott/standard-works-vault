@@ -85,4 +85,6 @@ God grant us to have that courage and determination as we go forth, edified and 
 
 
 
+
+
 #Commitment #Courage #Obedience

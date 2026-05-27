@@ -126,4 +126,6 @@ My sincere prayer is that all of us may qualify for this divine promise, in the 
 [^10]: In Conference Report, Mexico City Mexico Area Conference 1972, 77.
 
 
+
+
 #Activation #Covenants #Duty #Priesthood #Service

@@ -1,6 +1,6 @@
 # Eternal Marriage Is an Eternal Journey
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -12,7 +12,7 @@ Following the Savior’s incomparable love and sacrifice offered in the Garden o
 
 Because of our Savior’s victory over death and sin, we will praise His name forever.
 
-Jesus Christ brought other immeasurable blessings. He said to His Apostle Peter, “Whatsoever thou shalt bind on earth shall be bound in heaven.”[^2] The sacred sealing power has been restored to the earth and is found today in His dedicated temples. President Gordon B. Hinckley said, “If nothing else came out of all of the sorrow and travail and pain of the restoration than the sealing power of the holy priesthood to bind together families forever, it would have been worth all that it has cost.”[^3]
+Jesus Christ brought other immeasurable blessings. He said to His Apostle Peter, “Whatsoever thou shalt bind on earth shall be bound in heaven.”[^2] The sacred sealing power has been restored to the earth and is found today in His dedicated temples. President Gordon B. Hinckley said, “If nothing else came out of all of the sorrow and travail and pain of the restoration than the sealing power of the holy priesthood to bind together families forever, it would have been worth all that it has cost.”[^3]
 
 ## Kneeling at the Altar
 
@@ -24,7 +24,7 @@ At that moment, kneeling across the altar, we have a growing realization of the 
 
 ## Refining Our Nature
 
-Our even greater hope, however, is a desire to refine our very nature, to become more like our Savior, allowing us one day to live with Him. Within our sacred marriage, bound to God and to each other, we find ourselves in a crucible of spiritual development where vital qualities—sacrifice, charity, patience, and being a peacemaker, as President Dallin H. Oaks spoke of this morning, the very character of Christ, as President D. Todd Christofferson said—can become a greater part of us.
+Our even greater hope, however, is a desire to refine our very nature, to become more like our Savior, allowing us one day to live with Him. Within our sacred marriage, bound to God and to each other, we find ourselves in a crucible of spiritual development where vital qualities—sacrifice, charity, patience, and being a peacemaker, as President Dallin H. Oaks spoke of this morning, the very character of Christ, as President D. Todd Christofferson said—can become a greater part of us.
 
 As we increase our love for the Savior, our love for each other grows. Like our own discipleship, our eternal marriage is not a short-term experiment but a journey, an eternal journey of becoming who God desires us to become.
 
@@ -40,13 +40,13 @@ While embracing the happiness and sorrows of life’s experiences, we etch our c
 
 ## Relying on the Holy Ghost
 
-We profoundly need the gift of the Holy Ghost in our personal lives and in our marriage. As has already been quoted in this conference, President Dallin H. Oaks recently said: “The adversary has become so effective at disguising truth that if you don’t have the Holy Ghost, you will be deceived. Many obstacles lie ahead. The distractions will be many.”[^10]
+We profoundly need the gift of the Holy Ghost in our personal lives and in our marriage. As has already been quoted in this conference, President Dallin H. Oaks recently said: “The adversary has become so effective at disguising truth that if you don’t have the Holy Ghost, you will be deceived. Many obstacles lie ahead. The distractions will be many.”[^10]
 
 One of the deceptions of the world is to discount the sacred importance and the actual power of the sealing ordinance. Keep your hope in each other and in Jesus Christ. His promises can see us through the obstacles and distractions.[^11]
 
 There are times in our marriage that require a stellar dose of patience.
 
-On our 25th wedding anniversary, Kathy and I were in Philadelphia speaking to missionaries. I received a call from President Boyd K. Packer of the Twelve. At the end of our conversation, I commented, “President Packer, today is our 25th wedding anniversary. Don’t you think that is a great accomplishment?” Without pausing, he responded, “It is for Kathy!” With your hope and faith in Christ, allow the Lord to expand your spiritual gifts of understanding and patience.[^12]
+On our 25th wedding anniversary, Kathy and I were in Philadelphia speaking to missionaries. I received a call from President Boyd K. Packer of the Twelve. At the end of our conversation, I commented, “President Packer, today is our 25th wedding anniversary. Don’t you think that is a great accomplishment?” Without pausing, he responded, “It is for Kathy!” With your hope and faith in Christ, allow the Lord to expand your spiritual gifts of understanding and patience.[^12]
 
 In speaking about eternal marriage, let me mention two other issues.
 
@@ -82,9 +82,9 @@ Eternal marriage is an eternal journey.
 
 Who gives you the strength to hold tightly to each other and complete the mortal part of this eternal journey?
 
-“The everlasting God, … the Creator of the ends of the earth,” He who rose on the third day, “\[He\] fainteth not, neither is \[He\] weary. …
+“The everlasting God, … the Creator of the ends of the earth,” He who rose on the third day, “\[He\] fainteth not, neither is \[He\] weary. …
 
-“*He* giveth power \[when you are\] faint; and \[when you\] have no might \[*He*\] increaseth \[your\] strength. …
+“*He* giveth power \[when you are\] faint; and \[when you\] have no might \[*He*\] increaseth \[your\] strength. …
 
 “\[And together, as you\] wait upon the Lord … \[you\] shall mount up with wings as eagles; \[together, you\] shall run, and not be weary; and … walk, and not faint.”[^16]
 
@@ -97,31 +97,33 @@ I solemnly testify of this sacred promise in the name of Jesus Christ, amen.
 
 [^2]: [[Matthew 16.19|Matthew 16:19]].
 
-[^3]: Gordon B. Hinckley, “As One Who Loves the Prophet,” in Susan Easton Black and Charles D. Tate Jr., eds., *Joseph Smith: The Prophet, the Man* (1993), 6.
+[^3]: Gordon B. Hinckley, “As One Who Loves the Prophet,” in Susan Easton Black and Charles D. Tate Jr., eds., *Joseph Smith: The Prophet, the Man* (1993), 6.
 
-[^4]: See [[D&C 132.19|Doctrine and Covenants 132:19]]. President Russell M. Nelson said: “We need not be dismayed if our earnest efforts toward perfection now seem so arduous and endless. *Perfection is pending.* It can come in full only after the Resurrection and only through the Lord. It awaits all who love him and keep his commandments. It includes thrones, kingdoms, principalities, powers, and dominions. It is the end for which we are to endure. It is the eternal perfection that God has in store for each of us” (“[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign*, Nov. 1995, 88, emphasis added; see also John Taylor, *The Mediation and Atonement* \[1882\], 139–41).
+[^4]: See [[D&C 132.19|Doctrine and Covenants 132:19]]. President Russell M. Nelson said: “We need not be dismayed if our earnest efforts toward perfection now seem so arduous and endless. *Perfection is pending.* It can come in full only after the Resurrection and only through the Lord. It awaits all who love him and keep his commandments. It includes thrones, kingdoms, principalities, powers, and dominions. It is the end for which we are to endure. It is the eternal perfection that God has in store for each of us” (“[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign*, Nov. 1995, 88, emphasis added; see also John Taylor, *The Mediation and Atonement* \[1882\], 139–41).
 
 [^5]: See Brian J. Willoughby, *The Millennial Marriage* (2021), 14–16.
 
-[^6]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p1#p1),” Gospel Library.
+[^6]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p1#p1),” Gospel Library.
 
-[^7]: For an explanation of the conditions and blessings associated with the covenant of eternal marriage, see “Temple Sealing,” in *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [3.5.3.5](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p_tggs1#p_tggs1):
+[^7]: For an explanation of the conditions and blessings associated with the covenant of eternal marriage, see “Temple Sealing,” in *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [3.5.3.5](https://www.churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p_tggs1#p_tggs1):
 
 [^8]: William Shakespeare, Sonnet 116, lines 2–3.
 
-[^9]: See Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” 86–88.
+[^9]: See Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” 86–88.
 
-[^10]: Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), 2, speeches.byu.edu.
+[^10]: Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), 2, speeches.byu.edu.
 
-[^11]: “If you can, by faithfulness in this life, obtain the right to come up in the morning of the resurrection, you need entertain no fears that the wife will be dissatisfied with her husband, or the husband with the wife; for those of the first resurrection will be free from sin and from the consequences and power of sin” (Brigham Young, “Remarks,” *Deseret News*, Dec. 3, 1862, 178).
+[^11]: “If you can, by faithfulness in this life, obtain the right to come up in the morning of the resurrection, you need entertain no fears that the wife will be dissatisfied with her husband, or the husband with the wife; for those of the first resurrection will be free from sin and from the consequences and power of sin” (Brigham Young, “Remarks,” *Deseret News*, Dec. 3, 1862, 178).
 
-[^12]: “When a couple are married in the temple, they should try to live in peace and harmony, and if both are faithful members of the Church, this should not be impossible. Young people should try to tolerate each other’s weaknesses and overcome them. *If they live worthy of exaltation, they will enter the celestial kingdom without the frailties and weaknesses of mortality and will be perfect*” (Joseph Fielding Smith, *Doctrines of Salvation*, comp. Bruce R. McConkie \[1955\], 2:84).
+[^12]: “When a couple are married in the temple, they should try to live in peace and harmony, and if both are faithful members of the Church, this should not be impossible. Young people should try to tolerate each other’s weaknesses and overcome them. *If they live worthy of exaltation, they will enter the celestial kingdom without the frailties and weaknesses of mortality and will be perfect*” (Joseph Fielding Smith, *Doctrines of Salvation*, comp. Bruce R. McConkie \[1955\], 2:84).
 
-[^13]: President Dallin H. Oaks said: “We know that many worthy and wonderful Latter-day Saints currently lack the ideal opportunities and essential requirements for their progress. Singleness, childlessness, death, and divorce frustrate ideals and postpone the fulfillment of promised blessings. … But these frustrations are only temporary. The Lord has promised that in the eternities no blessing will be denied his sons and daughters who keep the commandments, are true to their covenants, and desire what is right” (“[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign*, Nov. 1993, 75). A righteous companion will be the choice of both the woman and the man and approved by the Lord.
+[^13]: President Dallin H. Oaks said: “We know that many worthy and wonderful Latter-day Saints currently lack the ideal opportunities and essential requirements for their progress. Singleness, childlessness, death, and divorce frustrate ideals and postpone the fulfillment of promised blessings. … But these frustrations are only temporary. The Lord has promised that in the eternities no blessing will be denied his sons and daughters who keep the commandments, are true to their covenants, and desire what is right” (“[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign*, Nov. 1993, 75). A righteous companion will be the choice of both the woman and the man and approved by the Lord.
 
-[^14]: President Dallin H. Oaks said: “We know that many of you are innocent victims—members whose former spouses persistently betrayed sacred covenants or abandoned or refused to perform marriage responsibilities for an extended period. Members who have experienced such abuse have firsthand knowledge of circumstances worse than divorce” (“[[2007 April - Divorce.md|Divorce]],” *Liahona*, May 2007, 70–71).
+[^14]: President Dallin H. Oaks said: “We know that many of you are innocent victims—members whose former spouses persistently betrayed sacred covenants or abandoned or refused to perform marriage responsibilities for an extended period. Members who have experienced such abuse have firsthand knowledge of circumstances worse than divorce” (“[[2007 April - Divorce.md|Divorce]],” *Liahona*, May 2007, 70–71).
 
-[^15]: Personal correspondence, Feb. 3, 2026.
+[^15]: Personal correspondence, Feb. 3, 2026.
 
 [^16]: [[Isaiah 40.28|Isaiah 40:28–29, 31]][[Isaiah 40.29|]][[Isaiah 40.31|]]; emphasis added.
 
+
+#Covenants #Love #Marriage #Sealings

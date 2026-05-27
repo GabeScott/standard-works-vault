@@ -89,4 +89,6 @@ Brethren, it is my belief and testimony that collectively we have the responsibi
 
 
 
+
+
 #Agency #Prayer #Repentance #Responsibility

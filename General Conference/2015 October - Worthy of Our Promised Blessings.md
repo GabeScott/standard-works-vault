@@ -84,4 +84,6 @@ si.lds.org
 [^10]: [[Ether 6.12|Ether 6:12]].
 
 
+
+
 #Adversity #Children #Covenants #Morality #Plan_Of_Salvation #Repentance #Standards

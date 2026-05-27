@@ -143,4 +143,6 @@ May we all accept God as our Father, and his Son Jesus Christ as our Savior, and
 
 
 
+
+
 #Freedom #Jesus_Christ #Obedience #Truth

@@ -147,4 +147,6 @@ I sustain President Spencer W. Kimball as the prophet of God. I know that he is 
 
 
 
+
+
 #Authority #Priesthood

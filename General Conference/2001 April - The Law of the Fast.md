@@ -123,4 +123,6 @@ I raise my voice in testimony and promise, along with the great Apostles who hav
 
 
 
+
+
 #Compassion #Family #Fasting #Forgiveness #Generosity #Love #Peace #Poverty #Prayer #Priesthood #Service #Spirituality #Welfare

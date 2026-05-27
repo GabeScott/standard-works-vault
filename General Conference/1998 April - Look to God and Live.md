@@ -226,4 +226,6 @@ That we may shoulder our sorrows, bear our burdens, and face our fears—as did 
 
 
 
+
+
 #Adversity #Atonement #Holy_Ghost #Jesus_Christ #Patience #Resurrection

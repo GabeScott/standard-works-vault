@@ -25,4 +25,6 @@ President N. Eldon Tanner, first counselor in the First Presidency of the Churc
 
 
 
+
+
 #Quorums_Of_Seventy

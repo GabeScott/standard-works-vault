@@ -128,4 +128,6 @@ Brothers and sisters, may we choose today to “doubt not, but be believing.”[
 [^24]: [[1 Nephi 21.16|1 Nephi 21:16]].
 
 
+
+
 #Adversity #Commandments #Faith #Jesus_Christ #Joy #Obedience

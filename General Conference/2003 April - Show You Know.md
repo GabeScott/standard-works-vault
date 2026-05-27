@@ -59,4 +59,6 @@ Make a decision today to show you know by following Jesus Christ in faith. The p
 
 
 
+
+
 #Children #Faith #Kindness #Love #Obedience #Primary #Sabbath #Word_Of_Wisdom

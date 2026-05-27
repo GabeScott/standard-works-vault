@@ -100,4 +100,6 @@ I am grateful for the examples of faithful priesthood holders everywhere. Heaven
 [^6]: Henry Eyring reminiscences, 1896, typescript, 27–28, Church History Library, Salt Lake City.
 
 
+
+
 #Activation #Atonement #Conversion #Example #Friendship #Priesthood #Service

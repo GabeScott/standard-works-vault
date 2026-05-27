@@ -131,4 +131,6 @@ I bear my witness that our path of duty is clearly marked by an undivided faith 
 
 
 
+
+
 #Commandments #Duty #Obedience #Prayer

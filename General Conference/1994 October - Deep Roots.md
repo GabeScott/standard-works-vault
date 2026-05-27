@@ -123,4 +123,6 @@ I bear testimony that we can find peace, security, and joy and happiness in the 
 
 
 
+
+
 #Adversity #Holy_Ghost #Jesus_Christ #Missionary_Work #Morality #Resurrection #Satan #Self-Control #Spirituality #Word_Of_Wisdom

@@ -126,4 +126,6 @@ As one of His special witnesses, I declare that God lives! Jesus is the Christ! 
 
 
 
+
+
 #Atonement #Covenants #Faith #Jesus_Christ #Scripture_Study

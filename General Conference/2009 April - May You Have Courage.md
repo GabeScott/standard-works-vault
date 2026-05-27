@@ -175,4 +175,6 @@ My earnest prayer is that you will have the courage required to refrain from jud
 
 
 
+
+
 #Courage #Judging #Standards #Virtue

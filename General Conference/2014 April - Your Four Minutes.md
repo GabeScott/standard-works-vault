@@ -101,4 +101,6 @@ I conclude with my testimony of the blessing we have in a living prophet, Presid
 
 
 
+
+
 #Ordinances

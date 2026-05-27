@@ -111,4 +111,6 @@ May you be blessed as you keep the standards of the Church. In the name of Jesus
 
 
 
+
+
 #Endurance #Standards #Youth

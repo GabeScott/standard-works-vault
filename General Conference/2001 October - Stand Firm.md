@@ -82,4 +82,6 @@ May the Lord bless you in your efforts to stand firm in defense of home and fami
 
 
 
+
+
 #Contention #Covenants #Evil #Example #Faith #Family #Fasting #Home #Jesus_Christ #Ordinances #Peace #Plan_Of_Salvation #Prayer #Spirituality #Truth #Women

@@ -89,4 +89,6 @@ I pray that we will become more long-suffering and understanding of others and t
 
 
 
+
+
 #Compassion #Jesus_Christ #Judging #Mercy

@@ -158,4 +158,6 @@ For us, being valiant in our testimony of Jesus is a stepping-stone toward quali
 [^31]: Henry Ward Beecher, in Tryon Edwards, *A Dictionary of Thoughts* (1891), 586.
 
 
+
+
 #Adversity #Atonement #Jesus_Christ #Repentance #Testimony

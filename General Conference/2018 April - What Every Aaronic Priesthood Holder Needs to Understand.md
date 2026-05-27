@@ -142,4 +142,6 @@ Young men, God has a work for you to do.[^30] Your Aaronic Priesthood ordination
 [^29]: Thomas S. Monson, general conference leadership meeting, Mar. 2011.
 
 
+
+
 #Aaronic_Priesthood #Angels #Atonement #Duty #Faith #Ordinances #Repentance #Teaching

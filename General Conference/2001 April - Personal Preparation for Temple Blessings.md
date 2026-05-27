@@ -169,4 +169,6 @@ Meanwhile, in this world smitten with spiritual decay, can individuals prepared 
 
 
 
+
+
 #Atonement #Commitment #Covenants #Death #Faith #Leadership #Morality #Obedience #Ordinances #Preparation #Priesthood #Spirituality #Temple_Work #Temples #Temptation #Tithing #Worship #Worthiness

@@ -101,4 +101,6 @@ My prayer today is that we indeed will follow the Man of Galilee. May we praise 
 
 
 
+
+
 #Individual_Worth #Sin

@@ -47,4 +47,6 @@ I bear to you my witness that God does live, that Jesus is the Christ, our Redee
 
 
 
+
+
 #Example #Gratitude #Jesus_Christ #Prayer #Prophets #Service #Temples #Youth

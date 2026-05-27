@@ -116,4 +116,6 @@ I bear witness that God the Father lives, that His Son, Jesus Christ, is our Red
 [^24]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 
+
+
 #Accountability #Agency #Jesus_Christ #Justice #Mercy #Plan_Of_Salvation #Repentance #Responsibility #Truth

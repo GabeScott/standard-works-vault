@@ -53,4 +53,6 @@ I know that Joseph Smith is a prophet of God. I testify that in our day SpencerÂ
 
 
 
+
+
 #Faith #Leadership

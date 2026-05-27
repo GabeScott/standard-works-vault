@@ -159,4 +159,6 @@ If you are carrying some burden, forget it, let it alone. Do a lot of forgiving 
 
 
 
+
+
 #Church_Organization #Holy_Ghost #Priesthood #Scriptures #Standards

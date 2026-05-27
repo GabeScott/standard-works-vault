@@ -69,4 +69,6 @@ Any who may have thought it a small thing to partake of the sacrament should rem
 
 
 
+
+
 #Commandments #Holy_Ghost #Prayer #Repentance #Sacrament

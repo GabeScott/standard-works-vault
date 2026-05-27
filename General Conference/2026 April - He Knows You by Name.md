@@ -1,6 +1,6 @@
 # He Knows You by Name
 
-By Elder Clement M. Matswagothata - *Of the Seventy*
+By Elder Clement M. Matswagothata - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -34,7 +34,7 @@ And He knows you and calls you by name too—from crowded cities to quiet villag
 
 He knows your joys, and He rejoices with you. He knows your sorrows, and He can succor and lift you. Because of His Atonement, He knows your burdens, pain, and silent tears. The prophet Alma taught that through His Atonement, Jesus Christ would “take upon him the sins of his people.”[^6]
 
-Alma also taught, “He shall go forth, suffering pains and afflictions and temptations of every kind; and … he will take upon him the pains and the sicknesses of his people … , that he may know … how to succor his people according to their infirmities.”[^7]
+Alma also taught, “He shall go forth, suffering pains and afflictions and temptations of every kind; and … he will take upon him the pains and the sicknesses of his people … , that he may know … how to succor his people according to their infirmities.”[^7]
 
 ## Others Will Be Placed in Your Way
 
@@ -54,7 +54,7 @@ I will never be able to fully describe what I felt as I stood there. I felt seen
 
 To the Savior, we are never lost in the crowd. He knows how to reach us—through a hymn, a smile, a kind word, and sometimes through people we least expect. Just as that family prayed for me, there is someone praying for you.
 
-Please remember: Your pain is not a sign that God does not love you. He truly does. So, as President D. Todd Christofferson taught, “In the midst of \[the\] refiner’s fire, rather than get angry with God, get close to God.”[^11]
+Please remember: Your pain is not a sign that God does not love you. He truly does. So, as President D. Todd Christofferson taught, “In the midst of \[the\] refiner’s fire, rather than get angry with God, get close to God.”[^11]
 
 ## We Are Invited to Walk with Him
 
@@ -97,9 +97,9 @@ I testify that Jesus Christ restored His Church, *The Church of Jesus Christ of 
 
 [^9]: [[D&C 88.6|Doctrine and Covenants 88:6]].
 
-[^10]: “[A Child’s Prayer](https://churchofjesuschrist.org/study/manual/childrens-songbook/a-childs-prayer?lang=eng),” *Children’s Songbook*, 12.
+[^10]: “[A Child’s Prayer](https://www.churchofjesuschrist.org/study/manual/childrens-songbook/a-childs-prayer?lang=eng),” *Children’s Songbook*, 12.
 
-[^11]: D. Todd Christofferson, “[[2022 April - Our Relationship with God.md|Our Relationship with God]],” *Liahona*, May 2022, 79.
+[^11]: D. Todd Christofferson, “[[2022 April - Our Relationship with God.md|Our Relationship with God]],” *Liahona*, May 2022, 79.
 
 [^12]: [[John 17.3|John 17:3]].
 
@@ -115,3 +115,5 @@ I testify that Jesus Christ restored His Church, *The Church of Jesus Christ of 
 
 [^18]: [[3 Nephi 25.2|3 Nephi 25:2]].
 
+
+#Adversity #Individual_Worth #Jesus_Christ

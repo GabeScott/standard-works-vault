@@ -83,4 +83,6 @@ We must fortify ourselves. That sure spiritual fortification is found in two wor
 
 
 
+
+
 #Courage #Standards #Temptation

@@ -97,4 +97,6 @@ I invite each of us to ask ourselves, “What ordinances, including the sacramen
 
 
 
+
+
 #Atonement #Covenants #Jesus_Christ #Ordinances #Sacrament

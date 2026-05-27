@@ -123,4 +123,6 @@ I bear you my witness of the reality of God, our loving Father, and of His Belov
 
 
 
+
+
 #Divine_Nature #Gratitude #Jesus_Christ #Joy #Kindness #Perspective

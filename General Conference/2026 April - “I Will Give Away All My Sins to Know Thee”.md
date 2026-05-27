@@ -20,9 +20,9 @@ The gospel of Jesus Christ changed my life for the better. It gave me an eternal
 
 In the Book of Mormon, we read the story of an old king who, like me, did not know God. He had met a missionary, and he was so surprised by what that missionary said that he insisted on being taught.
 
-Then Aaron began “reading the scriptures unto the king—how God created man after his own image, and that God gave him commandments, and that because of transgression, man had fallen. …
+Then Aaron began “reading the scriptures unto the king—how God created man after his own image, and that God gave him commandments, and that because of transgression, man had fallen. …
 
-“… And also the plan of redemption, which was prepared from the foundation of the world, through Christ, for all whosoever would believe on his name … through faith and repentance. …
+“… And also the plan of redemption, which was prepared from the foundation of the world, through Christ, for all whosoever would believe on his name … through faith and repentance. …
 
 “… \[Then\] the king said: What shall I do that I may have this eternal life of which thou hast spoken? … Behold, … I will give up all that I possess, yea, I will forsake my kingdom, that I may receive this great joy.
 
@@ -44,7 +44,7 @@ The only way we can come to know our Heavenly Father and gain eternal life is by
 
 The king did not remain stuck in his state of astonishment; he chose to believe and to act. He was willing to forsake all his sins that he might know God. What are we willing to give up or change to truly know God and be saved at the last day?[^6]
 
-President Dallin H. Oaks taught: “The gospel of Jesus Christ challenges us to change. ‘Repent’ is its most frequent message, and repenting means giving up all of our practices—personal, family, ethnic, and national—that are contrary to the commandments of God. The purpose of the gospel is to transform common creatures into celestial citizens, and that requires change.”[^7]
+President Dallin H. Oaks taught: “The gospel of Jesus Christ challenges us to change. ‘Repent’ is its most frequent message, and repenting means giving up all of our practices—personal, family, ethnic, and national—that are contrary to the commandments of God. The purpose of the gospel is to transform common creatures into celestial citizens, and that requires change.”[^7]
 
 We cannot know God without a sincere desire and real intent. We need to have faith in Jesus Christ, continuously repent, and strive to obey the commandments.[^8] The Savior loves us more than we can comprehend, and He pleads with us again and again, “Come, follow me.”[^9] He gave His life for us, paid the price for our sins, and rose from the dead. Because of Him, we have “hope for a future existence with Heavenly Father.”[^10]
 
@@ -63,17 +63,19 @@ I testify that Jesus Christ is risen. He lives! This is what He wants us to do t
 
 [^4]: [[John 14.6|John 14:6]].
 
-[^5]: See [Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/03-chapter-1?lang=eng&id=p4#p4) (2023), 2.
+[^5]: See [Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/03-chapter-1?lang=eng&id=p4#p4) (2023), 2.
 
 [^6]: See [[Alma 22.18|Alma 22:18]].
 
-[^7]: Dallin H. Oaks, “[[2003 October - Repentance and Change.md|Repentance and Change]],” *Liahona*, Nov. 2003, 37.
+[^7]: Dallin H. Oaks, “[[2003 October - Repentance and Change.md|Repentance and Change]],” *Liahona*, Nov. 2003, 37.
 
-[^8]: See [Preach My Gospel](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/10-chapter-3-lesson-3?lang=eng&id=title7#title7), 65.
+[^8]: See [Preach My Gospel](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/10-chapter-3-lesson-3?lang=eng&id=title7#title7), 65.
 
 [^9]: [[Luke 18.22|Luke 18:22]].
 
-[^10]: [Preach My Gospel](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/10-chapter-3-lesson-3?lang=eng&id=p52#p52), 65.
+[^10]: [Preach My Gospel](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/10-chapter-3-lesson-3?lang=eng&id=p52#p52), 65.
 
 [^11]: [[2 Nephi 25.20|2 Nephi 25:20]].
 
+
+#Conversion #Faith #God_The_Father #Jesus_Christ #Repentance

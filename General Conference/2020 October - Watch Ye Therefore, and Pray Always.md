@@ -124,4 +124,6 @@ How great is the power of prayer, and how needed are our prayers of faith in God
 [^13]: [[Acts 10.38|Acts 10:38]].
 
 
+
+
 #Adversity #Prayer

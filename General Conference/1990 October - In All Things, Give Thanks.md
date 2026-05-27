@@ -43,4 +43,6 @@ May human pride and pretensions never arise in us to cause us to imagine in thos
 
 
 
+
+
 #Gratitude #Joseph_Smith #Scriptures

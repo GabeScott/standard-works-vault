@@ -117,4 +117,6 @@ Let us avoid the despair and sorrow of those who fall into captivity and can no 
 
 
 
+
+
 #Freedom #House_Of_Israel #Religious_Freedom #Temptation

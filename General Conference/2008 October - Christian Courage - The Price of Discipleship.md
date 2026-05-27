@@ -64,4 +64,6 @@ I conclude by making the testimony of Mormon my own: “Behold, I am a disciple 
 [^3]: Thomas S. Monson, “In Quest of the Abundant Life,” *Ensign,* Mar. 1988, 3.
 
 
+
+
 #Adversity #Courage #Discipleship #Example #Spirituality

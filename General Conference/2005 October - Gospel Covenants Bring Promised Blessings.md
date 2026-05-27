@@ -65,4 +65,6 @@ I feel humbled at the opportunity to serve in this trusted calling and pray that
 
 
 
+
+
 #Covenants #Faith #Obedience #Sacrifice #Temple_Work

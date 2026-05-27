@@ -6,4 +6,4 @@
 
 
 [^a]: [[Amos 1.1|Amos 1:1]].  
-[^b]: [[1 Thessalonians 4.14|1 Thes. 4:14]]; [[1 Thessalonians 4.note17a|JST 1 Thes. 4:17 (1 Thes. 4:17 note a)]]. [[Saints|TG Saints]].  
+[^b]: [[1 Thessalonians 4.14|1 Thes. 4:14]]; [[1 Thessalonians 4.17|JST 1 Thes. 4:17 (1 Thes. 4:17 note a)]]. [[Saints|TG Saints]].  

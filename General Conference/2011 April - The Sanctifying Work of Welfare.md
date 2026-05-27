@@ -97,4 +97,6 @@ The work of caring for one another and being “kind to the poor” is a sanctif
 
 
 
+
+
 #Charity #Self-Reliance #Service #Welfare

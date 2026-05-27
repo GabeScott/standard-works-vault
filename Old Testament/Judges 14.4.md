@@ -5,5 +5,5 @@
 [Judges 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/14.4?lang=eng#p4)
 
 
-[^a]: [[Joshua 11.20|Josh. 11:20]].
-[^b]: [[Judges 15.11|Judg. 15:11]].
+[^a]: [[Joshua 11.20|Josh. 11:20]].  
+[^b]: [[Judges 15.11|Judg. 15:11]].  

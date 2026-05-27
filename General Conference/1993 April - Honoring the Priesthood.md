@@ -137,4 +137,6 @@ Brethren, to all mankind we proclaim these everlasting truths: “The Melchizede
 
 
 
+
+
 #Leadership #Priesthood #Respect

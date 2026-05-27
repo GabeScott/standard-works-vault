@@ -113,4 +113,6 @@ From all of us who have been taught to all of you who teach—we say thank you, 
 
 
 
+
+
 #Church_Callings #Fellowshipping #Holy_Ghost #Home #Jesus_Christ #Leadership #Spirituality #Teaching #Youth

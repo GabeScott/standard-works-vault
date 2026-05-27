@@ -75,4 +75,6 @@ May God sustain you in your striving to meet His high expectations and grant you
 
 
 
+
+
 #Obedience #Repentance

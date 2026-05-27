@@ -146,4 +146,6 @@ As His witness, I extend gratitude for what you do so well to help the living Lo
 [^11]: [[Mosiah 18.9|Mosiah 18:9]].
 
 
+
+
 #Adversity #Atonement #Baptism #Compassion #Covenants #Holy_Ghost #Jesus_Christ

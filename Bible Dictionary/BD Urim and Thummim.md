@@ -1,0 +1,11 @@
+# Urim and Thummim
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/urim-and-thummim?lang=eng)
+
+Hebrew term that means “Lights and Perfections.” An instrument prepared of God to assist man in obtaining revelation from the Lord and in translating languages. See [[Exodus 28.30|Ex. 28:30]]; [[Leviticus 8.8|Lev. 8:8]]; [[Numbers 27.21|Num. 27:21]]; [[Deuteronomy 33.8|Deut. 33:8]]; [[1 Samuel 28.6|1 Sam. 28:6]]; [[Ezra 2.63|Ezra 2:63]]; [[Nehemiah 7.65|Neh. 7:65]]; [[Joseph Smith History 1.35|JS—H 1:35]].
+
+Using a Urim and Thummim is the special prerogative of a seer, and it would seem reasonable that such instruments were used from the time of Adam. However, the earliest mention is in connection with the brother of Jared ([[Ether 3.21|Ether 3:21–28]][[Ether 3.22|]][[Ether 3.23|]][[Ether 3.24|]][[Ether 3.25|]][[Ether 3.26|]][[Ether 3.27|]][[Ether 3.28|]]). Abraham used a Urim and Thummim ([[Abraham 3.1|Abr. 3:1–4]][[Abraham 3.2|]][[Abraham 3.3|]][[Abraham 3.4|]]), as did Aaron and the priests of Israel, and also the prophets among the Nephites ([[Omni 1.20|Omni 1:20–21]][[Omni 1.21|]]; [[Mosiah 8.13|Mosiah 8:13–19]][[Mosiah 8.14|]][[Mosiah 8.15|]][[Mosiah 8.16|]][[Mosiah 8.17|]][[Mosiah 8.18|]][[Mosiah 8.19|]]; [[Mosiah 21.26|21:26–28]][[Mosiah 21.27|]][[Mosiah 21.28|]]; [[Mosiah 28.11|28:11–20]][[Mosiah 28.12|]][[Mosiah 28.13|]][[Mosiah 28.14|]][[Mosiah 28.15|]][[Mosiah 28.16|]][[Mosiah 28.17|]][[Mosiah 28.18|]][[Mosiah 28.19|]][[Mosiah 28.20|]]; [[Ether 4.1|Ether 4:1–7]][[Ether 4.2|]][[Ether 4.3|]][[Ether 4.4|]][[Ether 4.5|]][[Ether 4.6|]][[Ether 4.7|]]). There is more than one Urim and Thummim, but we are informed that Joseph Smith had the one used by the brother of Jared ([[Ether 3.22|Ether 3:22–28]][[Ether 3.23|]][[Ether 3.24|]][[Ether 3.25|]][[Ether 3.26|]][[Ether 3.27|]][[Ether 3.28|]]; [[D&C 10.1|D&C 10:1]]; [[D&C 17.1|17:1]]). (See *[[BD Seer|Seer]].*) A partial description is given in [[Joseph Smith History 1.35|JS—H 1:35]]. Joseph Smith used it in translating the Book of Mormon and in obtaining other revelations.
+
+This earth in its celestial condition will be a Urim and Thummim, and many within that kingdom will have an additional Urim and Thummim ([[D&C 130.6|D&C 130:6–11]][[D&C 130.7|]][[D&C 130.8|]][[D&C 130.9|]][[D&C 130.10|]][[D&C 130.11|]]).
+
+

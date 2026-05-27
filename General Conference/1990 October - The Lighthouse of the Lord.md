@@ -127,4 +127,6 @@ That this same spirit, even the Christ spirit, may ever be ours is my humble pra
 
 
 
+
+
 #Morality #Obedience #Repentance #Sabbath #Temptation #Women #Word_Of_Wisdom #Youth

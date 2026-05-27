@@ -109,4 +109,6 @@ As you come to Christ and are connected to Him and our Heavenly Father by covena
 
 
 
+
+
 #Covenants #Discipleship #Jesus_Christ #Ordinances #Temples

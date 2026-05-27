@@ -129,4 +129,6 @@ I bear solemn testimony that Jesus is the living Christ, our Savior and Redeemer
 
 
 
+
+
 #Adversity #Commandments #God_The_Father #Jesus_Christ #Peace #Plan_Of_Salvation #Responsibility #Service #Spirituality

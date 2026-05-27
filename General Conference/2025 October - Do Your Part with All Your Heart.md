@@ -171,4 +171,6 @@ I urge and bless every member of the Church, and all who desire to be part of it
 
 
 
+
+
 #Discipleship #Divine_Nature #Gifts_Of_The_Spirit #Talents

@@ -63,4 +63,6 @@ What has been taught at this pulpit for the last two days is an extension of the
 
 
 
+
+
 #Joseph_Smith #Restoration

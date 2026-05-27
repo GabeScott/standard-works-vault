@@ -43,4 +43,6 @@ It is my prayer that we will show by our behavior that we are a covenant people,
 
 
 
-#Prophets #Testimony
+
+
+#Church_Leaders #Prophets #Testimony

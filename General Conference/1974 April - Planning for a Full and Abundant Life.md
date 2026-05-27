@@ -128,4 +128,6 @@ Brethren, it is wonderful to be with you here tonight. And may peace be with you
 
 
 
+
+
 #Commitment #Covenants #Obedience #Spirituality

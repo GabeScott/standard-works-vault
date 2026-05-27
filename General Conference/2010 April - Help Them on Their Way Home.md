@@ -92,4 +92,6 @@ I testify that the Lord loves you and every child of God. This is His kingdom, r
 [^3]: *Young Women Personal Progress* (booklet, 2009), 6.
 
 
+
+
 #Activation #Children #Priesthood #Teaching #Young_Women

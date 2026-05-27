@@ -102,4 +102,6 @@ I bear testimony of Jesus Christ and His atoning sacrifice. I know He is our Sav
 [^9]: [[Alma 56.47|Alma 56:47–48]][[Alma 56.48|]].
 
 
+
+
 #Adversity #Children #Faith #Holy_Ghost #Parenthood #Teaching

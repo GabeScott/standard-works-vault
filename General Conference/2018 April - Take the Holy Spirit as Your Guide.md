@@ -97,4 +97,6 @@ Following the feet of the people ahead of you on the path is not enough. We cann
 
 
 
+
+
 #Holy_Ghost #Jesus_Christ #Prayer #Repentance #Revelation

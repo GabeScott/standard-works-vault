@@ -72,4 +72,6 @@ I sincerely testify that God the Father and His Beloved Son, Jesus Christ, live 
 [^5]: See [[Hebrews 12.7|Hebrews 12:7–9]][[Hebrews 12.8|]][[Hebrews 12.9|]].
 
 
+
+
 #Adversity #Faith #Plan_Of_Salvation

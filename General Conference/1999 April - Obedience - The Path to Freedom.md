@@ -87,4 +87,6 @@ I testify to you of the importance of obedience. I also wish to testify to you, 
 
 
 
+
+
 #Commandments #Creation #Freedom #Holy_Ghost #Jesus_Christ #Laws #Obedience #Word_Of_Wisdom

@@ -65,4 +65,6 @@ The parable of the ten virgins, five wise and five foolish, has both a spiritual
 
 
 
+
+
 #Self-Reliance #Welfare

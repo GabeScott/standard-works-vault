@@ -115,4 +115,6 @@ May God bless us to put the first commandment first and, as a result, reap peace
 
 
 
+
+
 #Commandments #God_The_Father #Love #Priorities

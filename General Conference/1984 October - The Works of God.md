@@ -71,4 +71,6 @@ I bear witness that Jesus is the Christ, the Savior of the world and the Redeeme
 
 
 
+
+
 #Adversity #Disabilities #Family #Tolerance

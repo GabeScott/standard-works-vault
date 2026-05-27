@@ -108,4 +108,6 @@ He is our King, our Lord, our Master, the living Christ, who stands on the right
 
 
 
+
+
 #Atonement #Church_Growth #Covenants #Death #Evil #Family #Jesus_Christ #Resurrection #Scriptures #Service #Testimony #Youth

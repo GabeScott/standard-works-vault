@@ -110,4 +110,6 @@ I bear you my testimony that God the Father lives. He set a course for each of u
 [^6]: [[Alma 34.28|Alma 34:28]].
 
 
+
+
 #Adversity #Humility #Service

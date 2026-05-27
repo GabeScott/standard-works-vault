@@ -2,7 +2,7 @@
 
 ([[D&C 121.29|Doctrine and Covenants 121:29]])
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -121,7 +121,7 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 [^13]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
-[^14]: Topics and Questions, “[Spiritual Gifts](https://churchofjesuschrist.org/study/manual/gospel-topics/spiritual-gifts?lang=eng),” Gospel Library.
+[^14]: Topics and Questions, “[Spiritual Gifts](https://www.churchofjesuschrist.org/study/manual/gospel-topics/spiritual-gifts?lang=eng),” Gospel Library.
 
 [^15]: [[Moroni 7.47|Moroni 7:47]].
 
@@ -141,7 +141,7 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 [^23]: [[Moroni 7.48|Moroni 7:48]].
 
-[^24]: “How Great the Wisdom and the Love,” *Hymns*, no. 195.
+[^24]: “How Great the Wisdom and the Love,” *Hymns*, no. 195.
 
 [^25]: [[D&C 93.21|Doctrine and Covenants 93:21]].
 
@@ -169,3 +169,5 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 [^37]: [[D&C 121.29|Doctrine and Covenants 121:29]]; emphasis added.
 
+
+#Charity #Discipleship #Endurance #Grace #Love #Spiritual_Gifts

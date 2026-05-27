@@ -89,4 +89,6 @@ May we enhance our temple experience with a spirit of reverence, treating it as 
 
 
 
+
+
 #Holy_Ghost #Morality #Ordinances #Preparation #Reverence #Spirituality #Temple_Work #Temples #Worldliness #Worship

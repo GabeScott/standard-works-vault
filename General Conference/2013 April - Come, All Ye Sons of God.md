@@ -123,4 +123,6 @@ I pray that we may ever respond to His gentle invitation, “Follow thou me.”[
 
 
 
+
+
 #Love #Missionary_Work #Preparation #Scripture_Study

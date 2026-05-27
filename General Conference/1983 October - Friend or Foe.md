@@ -83,4 +83,6 @@ Abraham “was called the Friend of God.” ([[James 2.23|James 2:23]].) Prophet
 
 
 
+
+
 #Jesus_Christ

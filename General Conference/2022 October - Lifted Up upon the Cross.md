@@ -72,4 +72,6 @@ As the glorious Resurrection followed the agonizing Crucifixion, so blessings of
 [^14]: *Via dolorosa* is a Latin phrase meaning “a painfully difficult route, passage, or series of experiences” (*Merriam-Webster.com Dictionary*, “via dolorosa”). It is most often associated with Jesus’s movement from His condemnation at the hand of Pilate to His Crucifixion on Calvary.
 
 
+
+
 #Adversity #Atonement #Discipleship #Jesus_Christ #Sacrifice

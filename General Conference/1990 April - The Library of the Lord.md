@@ -158,4 +158,6 @@ I reverently give thanks to the Lord for the revelations, the scriptures, the st
 
 
 
+
+
 #Activation #Book_Of_Mormon #Scriptures #Teaching

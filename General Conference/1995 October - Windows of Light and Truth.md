@@ -143,4 +143,6 @@ I testify that the windows of heaven are indeed open. President Gordon B. Hinckl
 
 
 
+
+
 #Word_Of_Wisdom #Worship

@@ -5,5 +5,5 @@
 [Jeremiah 18:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/18.8?lang=eng#p8)
 
 
-[^a]: See [[Jeremiah 26.note13a|JST Jer. 26:13]], [[Jeremiah 26.note19a|19]] ([[Jeremiah 26.note13a|Jer. 26:13 note a]], [[Jeremiah 26.note19a|19 note a]]). [[Repent, Repentance|TG Repent]].  
+[^a]: See [[Jeremiah 26.13|JST Jer. 26:13]], [[Jeremiah 26.19|19]] ([[Jeremiah 26.13|Jer. 26:13 note a]], [[Jeremiah 26.19|19 note a]]). [[Repent, Repentance|TG Repent]].  
 [^b]: OR relent regarding the punishment.  

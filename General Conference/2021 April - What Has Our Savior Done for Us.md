@@ -80,4 +80,6 @@ I testify of all of this and pray that we all will remember what our Savior has 
 [^5]: See [[John 6.58|John 6:58]].
 
 
+
+
 #Adversity #Atonement #Jesus_Christ #Love #Plan_Of_Salvation #Repentance #Resurrection

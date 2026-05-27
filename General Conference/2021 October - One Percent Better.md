@@ -79,4 +79,6 @@ To this end, Elder Neal A. Maxwell taught, “Each assertion of a righteous des
 
 
 
+
+
 #Faith #Habits #Jesus_Christ #Repentance #Righteousness

@@ -5,5 +5,5 @@
 [Numbers 18:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.7?lang=eng#p7)
 
 
-[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]; [[Priesthood, History of|Priesthood, History of]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]; [[Priesthood, History of|Priesthood, History of]]. [[BD Priests|BD Priests]].  
 [^b]: [[Veil|TG Veil]].  

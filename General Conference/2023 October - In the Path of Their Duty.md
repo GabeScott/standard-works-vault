@@ -143,4 +143,6 @@ I joyfully witness that Heavenly Father and His Beloved Son live and Their promi
 
 
 
+
+
 #Covenants #Discipleship #Duty #Endurance #Pioneers #Service

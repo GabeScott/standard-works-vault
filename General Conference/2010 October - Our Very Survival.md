@@ -85,4 +85,6 @@ Brothers and sisters, like the Saints of 1848, we can choose to follow the proph
 
 
 
+
+
 #Faith #Obedience #Pioneers #Prophets #Trust

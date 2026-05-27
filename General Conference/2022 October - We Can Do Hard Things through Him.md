@@ -84,4 +84,6 @@ I testify that we grow in our discipleship when we exercise faith in the Lord du
 [^12]: See [[2 Nephi 31.19|2 Nephi 31:19–21]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
 
 
+
+
 #Adversity #Discipleship #Endurance #Faith

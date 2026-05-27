@@ -123,4 +123,6 @@ When you do these things, you will follow the covenant path and qualify to “dw
 
 
 
+
+
 #Humility #Mercy #Spirituality

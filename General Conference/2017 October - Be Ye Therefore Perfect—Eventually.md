@@ -85,4 +85,6 @@ I testify of that grand destiny, made available to us by the Atonement of the Lo
 
 
 
+
+
 #God_The_Father #Grace #Individual_Worth #Jesus_Christ #Perspective

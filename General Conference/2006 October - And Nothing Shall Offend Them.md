@@ -99,4 +99,6 @@ As His servant, I echo the words of the Master when He declared, “These things
 
 
 
+
+
 #Agency #Attitude #Forgiveness #Patience

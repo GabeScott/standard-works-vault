@@ -51,4 +51,6 @@ May we recommit to seek after this Jesus, of whom the prophets have testified. M
 
 
 
+
+
 #Adversity #Atonement #Faith #Jesus_Christ #Joy #Satan

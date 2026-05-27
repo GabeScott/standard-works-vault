@@ -160,4 +160,6 @@ Brothers and sisters, it’s a good day to be good! In the sacred name of Jesus 
 [^48]: [[Ephesians 4.14|Ephesians 4:14]].
 
 
+
+
 #Adversity #Commandments #Discipleship #Jesus_Christ #Prophets

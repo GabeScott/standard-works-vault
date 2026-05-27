@@ -117,4 +117,6 @@ In the name of Jesus Christ, amen.
 
 
 
+
+
 #Example #Fasting #Home_Teaching #Missionary_Work #Tithing

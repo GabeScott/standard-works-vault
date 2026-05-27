@@ -119,4 +119,6 @@ If we believe and are faithful, we are promised all that the Father has. If we r
 
 
 
+
+
 #Adversity #Atonement #Blessings #Endurance #Evil #Faith #Family #Fear #Holy_Ghost #Jesus_Christ #Pioneers #Priesthood #Prophets #Satan

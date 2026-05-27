@@ -145,4 +145,6 @@ Now, brethren, we are about to hear from our beloved president, Spencer W. Kimb
 
 
 
-#Morality #Worthiness
+
+
+#Church_Leaders #Morality #Worthiness

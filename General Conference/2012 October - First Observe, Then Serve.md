@@ -95,4 +95,6 @@ May we all seek to first observe, then serve. As we do so, we are keeping covena
 
 
 
+
+
 #Discipleship #Love #Service

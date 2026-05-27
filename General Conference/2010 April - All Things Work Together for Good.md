@@ -58,4 +58,6 @@ As we pass through the trials of life, let us keep an eternal perspective, let u
 [^10]: [[Romans 8.28|Romans 8:28]].
 
 
+
+
 #Adversity #Jesus_Christ #Perspective

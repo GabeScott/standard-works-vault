@@ -95,4 +95,6 @@ I bear humble witness of the sanctity of the Sabbath day and of our need to reso
 
 
 
+
+
 #Atonement #Commandments #Covenants #Jesus_Christ #Sabbath

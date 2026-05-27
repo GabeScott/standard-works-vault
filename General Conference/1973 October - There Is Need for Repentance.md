@@ -81,4 +81,6 @@ May we all repent and place our lives and our homes in order and in perfect harm
 
 
 
+
+
 #Repentance #Temptation

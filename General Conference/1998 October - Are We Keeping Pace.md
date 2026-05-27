@@ -87,4 +87,6 @@ I pray that we may join together, brothers and sisters, to do our part to prepar
 
 
 
+
+
 #Commitment #Conversion #Councils #Covenants #Divine_Nature #Fellowshipping #Jesus_Christ #Last_Days #Priesthood #Temples #Women #Youth

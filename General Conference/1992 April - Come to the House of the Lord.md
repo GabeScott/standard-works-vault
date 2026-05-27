@@ -97,4 +97,6 @@ I pray that we will take full advantage of every opportunity to regularly come t
 
 
 
+
+
 #Marriage #Temple_Work #Worthiness

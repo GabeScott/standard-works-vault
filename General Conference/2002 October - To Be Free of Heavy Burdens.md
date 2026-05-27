@@ -86,4 +86,6 @@ In closing, if you have felt impressions to be free of burdens caused by yoursel
 [^12]: See John Taylor, *The Mediation and Atonement* (1882).
 
 
+
+
 #Accountability #Atonement #Forgiveness #Healing #Peace #Repentance

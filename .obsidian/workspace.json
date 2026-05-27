@@ -4,53 +4,24 @@
     "type": "split",
     "children": [
       {
-        "id": "a9a875e24d2753ca",
+        "id": "e57f211fdb2680a4",
         "type": "tabs",
         "children": [
           {
-            "id": "f828ef4875bd535f",
+            "id": "536dbe9b54b29748",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Book of Mormon/1 Nephi 1.1.md",
-                "mode": "preview",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "1 Nephi 1.1"
-            }
-          },
-          {
-            "id": "9caaac899acb0009",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Book of Mormon/1 Nephi 1.2.md",
+                "file": "Old Testament/Ezekiel 20.26.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "1 Nephi 1.2"
-            }
-          },
-          {
-            "id": "fc6bb8d34cada38d",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Come Follow Me/Come Follow Me 2026 - Old Testament Overview.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Come Follow Me 2026 - Old Testament Overview"
+              "title": "Ezekiel 20.26"
             }
           }
-        ],
-        "currentTab": 2
+        ]
       }
     ],
     "direction": "vertical"
@@ -85,7 +56,7 @@
                 "query": "",
                 "matchingCase": false,
                 "explainSearch": false,
-                "collapseAll": false,
+                "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical"
               },
@@ -103,7 +74,8 @@
               "title": "Bookmarks"
             }
           }
-        ]
+        ],
+        "currentTab": 2
       }
     ],
     "direction": "horizontal",
@@ -123,7 +95,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Doctrine and Covenants/D&C 1.2.md",
+                "file": "General Conference/2015 April - Stay by the Tree.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -133,7 +105,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for D&C 1.2"
+              "title": "Backlinks for 2015 April - Stay by the Tree"
             }
           },
           {
@@ -180,12 +152,12 @@
               "title": "Outline of D&C 1.2"
             }
           }
-        ]
+        ],
+        "currentTab": 2
       }
     ],
     "direction": "horizontal",
-    "width": 300,
-    "collapsed": true
+    "width": 300
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -198,41 +170,43 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "a6b5bf184110c1ea",
+  "active": "536dbe9b54b29748",
   "lastOpenFiles": [
-    "Come Follow Me/Come Follow Me 2026 - Appendix A - For Parents—Preparing Your Children for a Lifetime on God’s Covenant Path.md",
-    "Come Follow Me/Come Follow Me 2026 - Thoughts to Keep in Mind - Prophets and Prophecy.md",
-    "Come Follow Me/Come Follow Me 2026 - August 3–9. “Thou Art Come … for Such a Time as This” - Esther.md",
-    "Come Follow Me/Come Follow Me 2026 - March 30–April 5. “He Will Swallow Up Death in Victory” - Easter.md",
-    "Come Follow Me/Come Follow Me 2026 - March 16–22. “God Meant It unto Good” - Genesis 42–50.md",
-    "Come Follow Me/Come Follow Me 2026 - March 9–15. “The Lord Was with Joseph” - Genesis 37–41.md",
-    "Come Follow Me/Come Follow Me 2026 - February 23–March 1. “Is Any Thing Too Hard for the Lord” - Genesis 18–23.md",
-    "Come Follow Me/Come Follow Me 2026 - Thoughts to Keep in Mind - “Jesus Will Say to All Israel, ‘Come Home’”.md",
-    "Come Follow Me/Come Follow Me 2026 - September 28–October 4. “Comfort Ye My People” - Isaiah 40–49.md",
-    "Come Follow Me/Come Follow Me 2026 - May 11–17. “Beware Lest Thou Forget the Lord” - Deuteronomy 6–8; 15; 18; 29–30; 34.md",
-    "Come Follow Me/Come Follow Me 2026 - May 4–10. “Rebel Not Ye against the Lord, Neither Fear” - Numbers 11–14; 20–24; 27.md",
-    "Come Follow Me/Come Follow Me 2026 - Ideas to Improve Learning at Home and at Church.md",
-    "Come Follow Me/Come Follow Me 2026 - Appendix B - For Primary—Preparing Children for a Lifetime on God’s Covenant Path.md",
-    "General Conference/2025 October - The Atoning Love of Jesus Christ.md",
-    "Come Follow Me/September 7–13. “He Shall Direct Thy Paths” - Proverbs 1–4; 15–16; 22; 31; Ecclesiastes 1–3; 11–12.md",
-    "Come Follow Me/September 28–October 4. “Comfort Ye My People” - Isaiah 40–49.md",
-    "Come Follow Me/September 21–27. “A Marvellous Work and a Wonder” - Isaiah 13–14; 22; 24–30; 35.md",
-    "Come Follow Me/September 14–20. “God Is My Salvation” - Isaiah 1–12.md",
-    "Come Follow Me/Old Testament Overview.md",
-    "Come Follow Me/Appendix C - For Primary—Instructions for Singing Time and the Children’s Sacrament Meeting Presentation.md",
-    "Come Follow Me/Appendix B - For Primary—Preparing Children for a Lifetime on God’s Covenant Path.md",
-    "Come Follow Me/Appendix A - For Parents—Preparing Your Children for a Lifetime on God’s Covenant Path.md",
+    "Old Testament/Exodus 20.26.md",
+    "Old Testament/Exodus 15.2.md",
+    "Old Testament/Exodus 15.8.md",
+    "Old Testament/Exodus 15.11.md",
+    "Old Testament/Exodus 13.21.md",
+    "Old Testament/Exodus 12.17.md",
+    "Old Testament/Leviticus 18.21.md",
+    "Old Testament/Haggai 2.17.md",
+    "Old Testament/Daniel 1.7.md",
+    "Old Testament/Amos 4.13.md",
+    "Old Testament/Amos 4.12.md",
+    "Old Testament/Amos 4.11.md",
+    "Old Testament/Amos 4.10.md",
+    "Old Testament/Amos 4.9.md",
+    "Doctrine and Covenants/D&C 103.37.md",
+    "Doctrine and Covenants/D&C 102.34.md",
+    "Book of Mormon/Words of Mormon 1.6.md",
+    "Book of Mormon/Words of Mormon 1.12.md",
+    "Book of Mormon/Mormon 1.6.md",
+    "Book of Mormon/2 Nephi 22.2.md",
+    "Doctrine and Covenants/D&C 20.34.md",
+    "Doctrine and Covenants/D&C 20.35.md",
+    "Doctrine and Covenants/D&C 20.37.md",
+    "Doctrine and Covenants/D&C 20.41.md",
+    "Doctrine and Covenants/D&C 20.42.md",
+    "Doctrine and Covenants/D&C 20.22.md",
+    "Scripts/footnotes_parallel_fixed_caps.json",
+    "Scripts/update_caps_and_clarity_words.py",
+    "Scripts",
+    "New folder",
+    "IndexedDB.zip",
     "Come Follow Me",
-    "General Conference/2025 October - “Lovest Thou Me”.md",
-    "General Conference/2025 October - Cheering Each Other On.md",
-    "General Conference/2025 October - The Lord Is Hastening His Work.md",
-    "General Conference/2025 October - Tune Your Heart to Jesus Christ - The Sacred Gift of Primary Music.md",
     "LICENSE",
     "bookmarks_gc.json",
     "create_book_marks_gc.py",
-    "create_book_marks copy.py",
-    "Book of Mormon/1 Nephi 1",
-    "bookmarks.json",
-    "create_book_marks.py"
+    "create_book_marks copy.py"
   ]
 }

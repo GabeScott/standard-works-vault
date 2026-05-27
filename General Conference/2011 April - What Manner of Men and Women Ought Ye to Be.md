@@ -81,4 +81,6 @@ My remarks today have been addressed primarily to parents, but the principles ap
 
 
 
+
+
 #Children #Jesus_Christ #Obedience #Parenthood #Responsibility

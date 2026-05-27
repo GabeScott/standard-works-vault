@@ -66,4 +66,6 @@ As bearers of the priesthood of God, we are engaged in the work of the Lord Jesu
 [^1]: “Come, All Ye Sons of God,” *Hymns,* no. 322.
 
 
+
+
 #Aaronic_Priesthood #Blessings #Church_Callings #Duty #Priesthood

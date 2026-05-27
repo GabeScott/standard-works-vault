@@ -1,0 +1,7 @@
+# Shem
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/shem?lang=eng)
+
+*Name.* Son of Noah ([[Genesis 5.29|Gen. 5:29–32]][[Genesis 5.30|]][[Genesis 5.31|]][[Genesis 5.32|]]; [[Genesis 6.10|6:10]]; [[Genesis 7.13|7:13]]; [[Genesis 8.16|8:16]]; [[Genesis 9.26|9:26]]; [[Moses 8.12|Moses 8:12]]); his descendants ([[Genesis 10.21|Gen. 10:21–31]][[Genesis 10.22|]][[Genesis 10.23|]][[Genesis 10.24|]][[Genesis 10.25|]][[Genesis 10.26|]][[Genesis 10.27|]][[Genesis 10.28|]][[Genesis 10.29|]][[Genesis 10.30|]][[Genesis 10.31|]]; [[Genesis 11.10|11:10–32]][[Genesis 11.11|]][[Genesis 11.12|]][[Genesis 11.13|]][[Genesis 11.14|]][[Genesis 11.15|]][[Genesis 11.16|]][[Genesis 11.17|]][[Genesis 11.18|]][[Genesis 11.19|]][[Genesis 11.20|]][[Genesis 11.21|]][[Genesis 11.22|]][[Genesis 11.23|]][[Genesis 11.24|]][[Genesis 11.25|]][[Genesis 11.26|]][[Genesis 11.27|]][[Genesis 11.28|]][[Genesis 11.29|]][[Genesis 11.30|]][[Genesis 11.31|]][[Genesis 11.32|]]; [[1 Chronicles 1.17|1 Chr. 1:17]]; [[Luke 3.36|Luke 3:36]]). Shem was the traditional ancestor of the Shemitic or Semitic races, a group of kindred nations, which includes the Arabs, the Hebrews and Phoenicians, the Arameans or Syrians, the Babylonians and Assyrians. The languages spoken by these various nations were closely related and were known as the Semitic languages. In latter-day revelation Shem is referred to as “the great high priest” ([[D&C 138.41|D&C 138:41]]). See also *[[BD Melchizedek|Melchizedek]].*
+
+

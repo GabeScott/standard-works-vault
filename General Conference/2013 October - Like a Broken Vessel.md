@@ -64,4 +64,6 @@ I testify of the holy Resurrection, that unspeakable cornerstone gift in the Ato
 [^12]: “Free at Last,” in John W. Work, comp., *American Negro Songs: 230 Folk Songs and Spirituals, Religious and Secular* (1998), 197.
 
 
+
+
 #Adversity #Compassion #Disabilities

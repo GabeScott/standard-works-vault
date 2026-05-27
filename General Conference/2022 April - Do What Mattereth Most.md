@@ -107,4 +107,6 @@ As we center our lives on Jesus Christ, we will be guided to do what mattereth m
 
 
 
+
+
 #Covenants #Discipleship #Joy #Trust

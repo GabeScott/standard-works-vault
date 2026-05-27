@@ -139,4 +139,6 @@ Joseph Smith is now part of that heavenly priesthood of which he spoke. As he pr
 
 
 
+
+
 #First_Vision #Joseph_Smith #Repentance #Restoration

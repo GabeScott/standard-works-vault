@@ -97,4 +97,6 @@ May we appreciate the privilege that is ours in living in this time, in the beau
 
 
 
+
+
 #Loyalty #Standards

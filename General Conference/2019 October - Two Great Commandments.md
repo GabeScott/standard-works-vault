@@ -109,4 +109,6 @@ Speaking of that prophecy, President Russell M. Nelson declared that “the day
 
 
 
+
+
 #Commandments #Homosexuality #Love

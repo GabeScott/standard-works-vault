@@ -167,4 +167,6 @@ I joyfully witness that Jesus Christ is our loving and living Savior and Redeeme
 
 
 
+
+
 #Covenants #Discipleship #Endurance #Jesus_Christ

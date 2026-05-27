@@ -96,4 +96,6 @@ I testify that in The Church of Jesus Christ of Latter-day Saints is found the p
 [^4]: As the Prophet Joseph petitioned in the prayer dedicating the Kirtland Temple, which prayer was revealed to him by the Lord, “We ask thee, Holy Father, that thy servants may go forth from this house armed with thy power, and that thy name may be upon them, and thy glory be round about them, and thine angels have charge over them” ([[D&C 109.22|D&C 109:22]]).
 
 
+
+
 #Adversity #Covenants #Faith #Holy_Ghost #Obedience

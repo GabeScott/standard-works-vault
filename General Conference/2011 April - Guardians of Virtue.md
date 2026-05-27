@@ -77,4 +77,6 @@ I testify that God lives and that His Beloved Son, our Redeemer, Jesus Christ, l
 
 
 
+
+
 #Commitment #Covenants #Morality #Temples #Worthiness

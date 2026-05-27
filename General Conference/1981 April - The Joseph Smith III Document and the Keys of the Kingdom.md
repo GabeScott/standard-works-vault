@@ -65,5 +65,4 @@ Brethren and sisters, from the tragedy of that 27th of June, 1844, when Joseph S
 We were glad to see our brethren of the Reorganized Church get the document which contains a father’s blessing given upon the head of a son he loved. It is a precious artifact, with great sentimental value for the family of Joseph Smith. It does not seriously raise any question concerning the validity of succession in the presidency through the Council of the Twelve Apostles as that body was established by the Prophet and as it has functioned under the revelations of God. Of this I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Leaders

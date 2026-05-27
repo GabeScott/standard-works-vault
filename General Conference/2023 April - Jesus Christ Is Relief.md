@@ -154,4 +154,6 @@ Like the women visited by the angel on that first Easter morning, I wish to “g
 [^26]: See Dictionary.com, “relief.”
 
 
+
+
 #Adversity #Atonement #Charity #Covenants #Forgiveness #Healing #Jesus_Christ #Peace

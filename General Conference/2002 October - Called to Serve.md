@@ -71,4 +71,6 @@ I testify of the sacrifice and service of the Lord Jesus Christ, who gave everyt
 
 
 
+
+
 #Church_Callings #Family #Sacrifice #Service

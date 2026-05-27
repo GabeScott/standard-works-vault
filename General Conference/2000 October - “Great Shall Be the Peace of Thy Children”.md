@@ -115,4 +115,6 @@ God bless you, dear fathers. May He bless you with wisdom and judgment, with und
 
 
 
+
+
 #Adversity #Children #Conscience #Divorce #Education #Family #Fatherhood #Friendship #Home #Honesty #Marriage #Media #Morality #Parenthood #Peace #Prayer #Standards #Temptation #Word_Of_Wisdom #Youth

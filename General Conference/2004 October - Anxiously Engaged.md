@@ -138,4 +138,6 @@ May we, as did the Savior’s followers of old, respond to the invitation, “Fo
 [^14]: See [[James 1.22|James 1:22]].
 
 
+
+
 #Activation #Love #Responsibility #Service

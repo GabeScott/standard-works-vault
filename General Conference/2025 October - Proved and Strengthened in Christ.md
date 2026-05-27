@@ -96,4 +96,6 @@ I testify that God knows you. He knows the trials you face. He is with you. He w
 [^7]: See [[Matthew 26.39|Matthew 26:39]].
 
 
+
+
 #Adversity #Atonement #Endurance #Jesus_Christ

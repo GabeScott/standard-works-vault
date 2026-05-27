@@ -79,4 +79,6 @@ Whether we are facing a deep, Jonah-like catastrophe or the everyday challenges 
 
 
 
+
+
 #Fall #Healing #Joy #Love #Mercy #Plan_Of_Salvation

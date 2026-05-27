@@ -81,4 +81,6 @@ I pray that the Lord will bless each of you that you can come to know your indiv
 
 
 
+
+
 #Divine_Nature #Education #Family #Goals #Holy_Ghost #Joy #Morality #Peace #Responsibility #Self-Esteem #Service #Spirituality #Standards #Women #Worthiness

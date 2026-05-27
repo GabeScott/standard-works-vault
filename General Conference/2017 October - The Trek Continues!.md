@@ -109,4 +109,6 @@ I testify that “the trek continues,” and I invite you to stay on the gospel 
 
 
 
+
+
 #Dedication #Faith #Pioneers #Wisdom

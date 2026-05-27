@@ -53,4 +53,6 @@ God grant us the vision as leaders, teachers, and parents to put people first. R
 
 
 
+
+
 #Individual_Worth #Teaching

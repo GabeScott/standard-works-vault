@@ -105,4 +105,6 @@ We read in Proverbs the admonition, “Ponder the path of thy feet.”[^19] As w
 
 
 
+
+
 #Agency #Example #Jesus_Christ #Obedience #Plan_Of_Salvation #Prayer

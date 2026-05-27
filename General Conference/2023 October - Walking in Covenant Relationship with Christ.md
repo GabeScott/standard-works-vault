@@ -142,4 +142,6 @@ Thankfully, we walk this path together, calling out encouragement along the way.
 [^36]: “You will remember that I have invited the youth of The Church of Jesus Christ of Latter-day Saints to enlist in the Lord’s youth battalion to participate in the greatest cause on earth today—the gathering of Israel. I issued this invitation to our youth because they are unusually gifted in reaching out to others and sharing what they believe in a convincing fashion” (Russell M. Nelson, “Witnesses, Aaronic Priesthood Quorums, and Young Women,” *Ensign* or *Liahona*, Nov. 2019, 39).
 
 
+
+
 #Adversity #Covenants #Jesus_Christ

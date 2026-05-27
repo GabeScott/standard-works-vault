@@ -118,4 +118,6 @@ May we not shrink when we discover, paradoxically, how dear a price we must pay 
 [^27]: [[Philippians 3.10|Philippians 3:10]].
 
 
+
+
 #Adversity #Atonement #Repentance #Sacrifice

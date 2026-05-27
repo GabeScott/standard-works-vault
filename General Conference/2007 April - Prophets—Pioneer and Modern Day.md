@@ -97,4 +97,6 @@ I bear my humble witness that both President Brigham Young and President Gordon 
 
 
 
-#Brigham_Young #Church_History #Gordon_B_Hinckley #Prophets #Temple_Square
+
+
+#Brigham_Young #Church_History #Gordon_B._Hinckley #Prophets #Temple_Square

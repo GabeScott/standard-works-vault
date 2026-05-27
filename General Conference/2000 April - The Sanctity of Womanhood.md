@@ -60,4 +60,6 @@ This printed text includes segments that were not delivered due to time constrai
 [^2]: *Ensign,* Sept. 1988, 11.
 
 
+
+
 #Accountability #Bishops #Covenants #Creation #Example #Family #Fatherhood #Greed #Individual_Worth #Jesus_Christ #Joy #Love #Media #Morality #Priesthood #Repentance #Responsibility #Satan #Spirituality #Women

@@ -87,4 +87,6 @@ Our Father’s patterns help us avoid deception. Look to the Lord and not to the
 
 
 
+
+
 #Children #Disabilities #Faith #Family #Holy_Ghost #Humility #Marriage #Priesthood #Satan #Temples #Women #Work #Worthiness

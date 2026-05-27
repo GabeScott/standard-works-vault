@@ -81,4 +81,6 @@ It is my prayer that we will pledge an increased commitment to extend our arms o
 
 
 
+
+
 #Friendship #Service #Visiting_Teaching

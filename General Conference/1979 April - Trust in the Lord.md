@@ -105,4 +105,6 @@ That it may be so with all of you and all of us, I humbly pray. In the name of J
 
 
 
+
+
 #Tithing

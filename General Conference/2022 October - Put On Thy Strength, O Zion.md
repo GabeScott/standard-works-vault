@@ -157,4 +157,6 @@ I joyfully declare my witness of the divinity and living reality of God, our Ete
 
 
 
+
+
 #Agency #Covenants #Discipleship #Obedience #Parables #Priorities #Worldliness

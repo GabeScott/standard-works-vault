@@ -67,4 +67,6 @@ In the name of Jesus Christ, amen.
 
 
 
+
+
 #Covenants #Faith #Family #Honesty #Prayer #Scriptures

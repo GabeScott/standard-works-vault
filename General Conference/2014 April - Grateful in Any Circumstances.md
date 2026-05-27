@@ -144,4 +144,6 @@ May we “live in thanksgiving daily”[^18]—especially during the seemingly u
 [^17]: [[D&C 78.19|Doctrine and Covenants 78:19]]; emphasis added.
 
 
+
+
 #Adversity #Gratitude

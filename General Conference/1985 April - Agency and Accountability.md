@@ -107,4 +107,6 @@ The foolish virgins expected that they could borrow oil from others. To their so
 
 
 
+
+
 #Agency #Obedience #Responsibility

@@ -157,4 +157,6 @@ I close with this prayer from my heart, that all of us, every one, will look unt
 
 
 
+
+
 #Covenants #God_The_Father #Jesus_Christ #Ministering #Priesthood

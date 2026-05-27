@@ -102,4 +102,6 @@ I testify that all who serve together in the priesthood are preparing a people f
 [^7]: [[D&C 13.1|Doctrine and Covenants 13:1]].
 
 
+
+
 #Aaronic_Priesthood #Preparation #Service

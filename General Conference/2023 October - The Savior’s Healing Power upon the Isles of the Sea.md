@@ -107,4 +107,6 @@ With unwavering conviction, I declare these truths in the name of Jesus Christ, 
 
 
 
+
+
 #Conversion #Covenants #Healing #Temple_Work #Temples

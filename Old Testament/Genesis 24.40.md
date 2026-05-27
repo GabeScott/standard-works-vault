@@ -5,5 +5,5 @@
 [Genesis 24:40](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.40?lang=eng#p40)
 
 
-[^a]: [[Genesis 24.7|Gen. 24:7]].
-[^b]: [[Walking with God|TG Walking with God]].
+[^a]: [[Genesis 24.7|Gen. 24:7]].  
+[^b]: [[Walking with God|TG Walking with God]].  

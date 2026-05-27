@@ -1,0 +1,15 @@
+# Simeon
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/simeon?lang=eng)
+
+*That hears.* (1) Jacob’s second son by his wife Leah. His birth ([[Genesis 29.33|Gen. 29:33]]; [[Genesis 35.23|35:23]]; [[Exodus 1.2|Ex. 1:2]]); joins in massacring the Shechemites ([[Genesis 34.25|Gen. 34:25]]); bound in Egypt ([[Genesis 42.24|42:24, 36]][[Genesis 42.36|]]; [[Genesis 43.23|43:23]]); Reuben and Simeon are mine ([[Genesis 48.5|48:5]]); Jacob’s prophecy concerning ([[Genesis 49.5|49:5–7]][[Genesis 49.6|]][[Genesis 49.7|]]); his descendants ([[Genesis 46.10|Gen. 46:10]]; [[Exodus 6.15|Ex. 6:15]]; [[Numbers 26.12|Num. 26:12–14]][[Numbers 26.13|]][[Numbers 26.14|]]; [[1 Chronicles 4.24|1 Chr. 4:24–43]][[1 Chronicles 4.25|]][[1 Chronicles 4.26|]][[1 Chronicles 4.27|]][[1 Chronicles 4.28|]][[1 Chronicles 4.29|]][[1 Chronicles 4.30|]][[1 Chronicles 4.31|]][[1 Chronicles 4.32|]][[1 Chronicles 4.33|]][[1 Chronicles 4.34|]][[1 Chronicles 4.35|]][[1 Chronicles 4.36|]][[1 Chronicles 4.37|]][[1 Chronicles 4.38|]][[1 Chronicles 4.39|]][[1 Chronicles 4.40|]][[1 Chronicles 4.41|]][[1 Chronicles 4.42|]][[1 Chronicles 4.43|]]); tribe of Simeon, prince of Simeon ([[Numbers 1.6|Num. 1:6]]; [[Numbers 7.36|7:36]]; [[Numbers 10.19|10:19]]; [[Numbers 34.20|34:20]] \[to divide the land\]); number at Sinai ([[Numbers 1.22|1:22–23]][[Numbers 1.23|]]); at Shittim ([[Numbers 26.14|26:14]]); pitched on the south, with Reuben and Gad ([[Numbers 2.12|2:12]]); Simeonite spy ([[Numbers 13.5|Num. 13:5]]); shall stand on Gerizim to bless ([[Deuteronomy 27.12|Deut. 27:12]]); the lot of, within Judah ([[Joshua 19.1|Josh. 19:1–9]][[Joshua 19.2|]][[Joshua 19.3|]][[Joshua 19.4|]][[Joshua 19.5|]][[Joshua 19.6|]][[Joshua 19.7|]][[Joshua 19.8|]][[Joshua 19.9|]]; [[1 Chronicles 4.24|1 Chr. 4:24–33]][[1 Chronicles 4.25|]][[1 Chronicles 4.26|]][[1 Chronicles 4.27|]][[1 Chronicles 4.28|]][[1 Chronicles 4.29|]][[1 Chronicles 4.30|]][[1 Chronicles 4.31|]][[1 Chronicles 4.32|]][[1 Chronicles 4.33|]]); Levitical cities of ([[Joshua 21.4|Josh. 21:4]]; [[1 Chronicles 6.65|1 Chr. 6:65]]); joins Judah against the Canaanites that are left ([[Judges 1.3|Judg. 1:3, 17]][[Judges 1.17|]]); Simeonites who joined David ([[1 Chronicles 12.25|1 Chr. 12:25]]); still in the South in David’s time ([[1 Chronicles 4.31|1 Chr. 4:31]]); and some in Hezekiah’s time ([[1 Chronicles 4.41|1 Chr. 4:41–43]][[1 Chronicles 4.42|]][[1 Chronicles 4.43|]]); some had joined the northern kingdom in Asa’s day ([[2 Chronicles 15.9|2 Chr. 15:9]]); and in Josiah’s ([[2 Chronicles 34.6|2 Chr. 34:6]]); the portion of Simeon after the restoration ([[Ezekiel 48.24|Ezek. 48:24, 33]][[Ezekiel 48.33|]]; [[Revelation 7.7|Rev. 7:7]]).
+
+(2) [[Luke 3.30|Luke 3:30]], son of Judah in genealogy of the Lord.
+
+(3) [[Acts 15.14|Acts 15:14]], Simon Peter.
+
+(4) [[Luke 2.25|Luke 2:25–35]][[Luke 2.26|]][[Luke 2.27|]][[Luke 2.28|]][[Luke 2.29|]][[Luke 2.30|]][[Luke 2.31|]][[Luke 2.32|]][[Luke 2.33|]][[Luke 2.34|]][[Luke 2.35|]], who took the Savior in his arms at the presentation in the temple.
+
+(5) Simeon ([[Acts 13.1|Acts 13:1]]), called Niger, a teacher at Antioch.
+
+

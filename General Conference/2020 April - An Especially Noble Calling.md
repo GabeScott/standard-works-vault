@@ -137,4 +137,6 @@ Elder James E. Talmage tenderly reminded us, “The world’s greatest champion
 
 
 
+
+
 #Restoration #Revelation #Women

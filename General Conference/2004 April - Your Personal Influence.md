@@ -138,4 +138,6 @@ As His witness, I testify to you that He lives! In His holy name—even Jesus Ch
 [^6]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
 
 
+
+
 #Activation #Home #Jesus_Christ #Leadership #Responsibility

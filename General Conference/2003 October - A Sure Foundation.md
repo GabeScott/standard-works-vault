@@ -80,4 +80,6 @@ Brothers and sisters, the scriptures, the living prophets, and the Holy Ghost al
 [^9]: [[Mosiah 18.10|Mosiah 18:10]].
 
 
+
+
 #Adversity #Holy_Ghost #Prophets #Scripture_Study #Testimony

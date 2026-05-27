@@ -75,4 +75,6 @@ As we address our efforts in this direction, we will be worthy examples of the t
 
 
 
+
+
 #Commandments #Obedience #Satan

@@ -88,4 +88,6 @@ Like all prophets and apostles, the Prophet Joseph Smith understood the deep mea
 [^12]: See [[Moses 1.39|Moses 1:39]].
 
 
+
+
 #Activation #Couple_Missionaries #Duty #Example #Holy_Ghost #Love #Missionary_Work #Obedience #Prayer #Sacrifice

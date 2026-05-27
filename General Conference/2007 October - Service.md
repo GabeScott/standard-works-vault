@@ -67,4 +67,6 @@ It is my hope and prayer that we can all do more in giving service. If we fail t
 
 
 
+
+
 #Compassion #Service

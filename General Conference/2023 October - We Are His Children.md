@@ -97,4 +97,6 @@ I testify that He whom we address as our Father in Heaven is indeed our Father, 
 
 
 
+
+
 #Belonging #Divine_Nature #Love #Ministering #Perspective #Prejudice

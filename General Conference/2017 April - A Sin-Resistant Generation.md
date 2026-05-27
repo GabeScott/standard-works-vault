@@ -117,4 +117,6 @@ I testify that Jesus Christ leads this Church. As you teach, lead, and love chil
 
 
 
+
+
 #Children #Covenants #Discipleship #Divine_Nature #Parenthood #Repentance #Sin #Teaching

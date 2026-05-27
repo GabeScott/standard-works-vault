@@ -143,4 +143,6 @@ Brothers and sisters, my sincere prayer is that we may adapt to the changes in o
 
 
 
+
+
 #Gratitude #Jesus_Christ #Joy #Opposition

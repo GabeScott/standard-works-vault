@@ -90,4 +90,6 @@ Sisters, we belong. We are loved. We are needed. We have a divine purpose, work,
 [^15]: Howard W. Hunter, in *Daughters in My Kingdom,* 157; see also [“To the Women of the Church,”](https://churchofjesuschrist.org/study/ensign/1992/11/to-the-women-of-the-church?lang=eng) *Ensign,* Nov. 1992, 96.
 
 
+
+
 #Adversity #Covenants #Family #Plan_Of_Salvation #Unity

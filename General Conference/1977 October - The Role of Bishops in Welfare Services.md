@@ -117,4 +117,6 @@ It is my prayer that all bishops and stake presidents will thoroughly inform the
 
 
 
+
+
 #Bishops #Welfare

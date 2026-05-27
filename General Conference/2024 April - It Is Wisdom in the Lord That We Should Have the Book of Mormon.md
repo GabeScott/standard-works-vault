@@ -129,4 +129,6 @@ Heavenly Father lives. Jesus Christ is our Savior and Redeemer. The Book of Morm
 
 
 
+
+
 #Apostasy #Book_Of_Mormon #Holy_Ghost #Scripture_Study #Scriptures #Testimony

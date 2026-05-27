@@ -99,4 +99,6 @@ I testify of this solemn truth, in the name of Jesus Christ, amen.
 
 
 
+
+
 #Courage #Dedication #Example #Faith #Honesty #Joseph_Smith #Love #Missionary_Work #Patience #Teaching

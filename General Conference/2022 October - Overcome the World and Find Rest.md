@@ -106,4 +106,6 @@ With the power of the holy apostleship vested in me, I bless you in your quest t
 [^13]: See Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
 
 
+
+
 #Adversity #Covenants #Jesus_Christ #Peace #Power #Worldliness

@@ -5,5 +5,5 @@
 [Nahum 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/1.3?lang=eng#p3)
 
 
-[^a]: [[Forbear, Forbearance|TG Forbear]].
-[^b]: [[Exodus 34.7|Ex. 34:7]]; [[Mormon 4.5|Morm. 4:5]]; [[D&C 1.9|D&C 1:9]].
+[^a]: [[Forbear, Forbearance|TG Forbear]].  
+[^b]: [[Exodus 34.7|Ex. 34:7]]; [[Mormon 4.5|Morm. 4:5]]; [[D&C 1.9|D&C 1:9]].  

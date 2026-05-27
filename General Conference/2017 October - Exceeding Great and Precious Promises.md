@@ -163,4 +163,6 @@ I witness that our Heavenly Father lives and is the author of the plan of salvat
 
 
 
+
+
 #Covenants #Divine_Nature #Home #Ordinances #Sabbath #Temples

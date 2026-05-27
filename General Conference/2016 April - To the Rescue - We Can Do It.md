@@ -112,4 +112,6 @@ I solemnly testify that I know Jesus is the Good Shepherd, that He loves us, and
 [^8]: See Mervyn B. Arnold, “[[2004 April - Strengthen Thy Brethren.md|Strengthen Thy Brethren]],” *Ensign* or *Liahona,* May 2004, 46–47.
 
 
+
+
 #Activation #Fellowshipping #Friendship #Missionary_Work

@@ -129,4 +129,6 @@ I witness that Jesus lives, that He knows us, and that He has the power to heal,
 
 
 
+
+
 #Discipleship #Faith #Forgiveness #Healing #Jesus_Christ #Scriptures

@@ -125,4 +125,6 @@ The temporal is intertwined with the spiritual. God has given us this mortal exp
 
 
 
+
+
 #Love #Self-Reliance #Service #Welfare

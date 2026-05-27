@@ -77,4 +77,6 @@ As disciples of Jesus Christ, we ought to do all we can to redeem others from su
 
 
 
+
+
 #Atonement #Jesus_Christ #Repentance #Service

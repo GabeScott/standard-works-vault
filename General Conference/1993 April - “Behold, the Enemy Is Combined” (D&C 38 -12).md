@@ -109,4 +109,6 @@ Yes, “the enemy is combined,” but when we are combined with the Lord’s “
 
 
 
+
+
 #Commitment #Faith #Holy_Ghost #Last_Days

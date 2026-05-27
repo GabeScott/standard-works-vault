@@ -81,4 +81,6 @@ Instead of our being commanded in all things, we are given a pattern in all thin
 
 
 
+
+
 #Agency #Faith #Temptation

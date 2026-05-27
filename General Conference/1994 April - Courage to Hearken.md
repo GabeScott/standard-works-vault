@@ -99,4 +99,6 @@ May we all “get hold of \[ourselves\],” as Edgar Guest so beautifully sugges
 
 
 
+
+
 #Adversity #Courage #Joseph_Smith #Media #Music #Pride #Satan

@@ -181,4 +181,6 @@ That we may have the wisdom and determination to cross the bridges the Savior bu
 
 
 
+
+
 #Jesus_Christ #Obedience #Prayer #Service

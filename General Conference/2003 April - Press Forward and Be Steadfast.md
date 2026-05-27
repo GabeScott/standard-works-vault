@@ -47,4 +47,6 @@ And so I say with Nephi: “Wherefore, ye *must* press forward with a steadfastn
 
 
 
+
+
 #Endurance #Holy_Ghost #Hope

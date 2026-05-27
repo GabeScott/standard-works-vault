@@ -5,5 +5,5 @@
 [Isaiah 38:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/38.17?lang=eng#p17)
 
 
-[^a]: OR on my peace came great bitterness.
-[^b]: [[Mosiah 27.28|Mosiah 27:29 (28–30)]][[Mosiah 27.29|]][[Mosiah 27.30|]].
+[^a]: OR on my peace came great bitterness.  
+[^b]: [[Mosiah 27.28|Mosiah 27:29 (28–30)]][[Mosiah 27.29|]][[Mosiah 27.30|]].  

@@ -74,4 +74,6 @@ I testify that as we choose to make covenants with Heavenly Father and access th
 [^12]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [26.5.1](https://churchofjesuschrist.org/study/manual/general-handbook/26-temple-recommends?lang=eng), ChurchofJesusChrist.org.
 
 
+
+
 #Adversity #Covenants #Jesus_Christ #Joy #Service #Temples

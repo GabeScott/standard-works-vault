@@ -5,5 +5,5 @@
 [Isaiah 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.13?lang=eng#p13)
 
 
-[^a]: [[2 Nephi 16.13|2 Ne. 16:13]].
-[^b]: IE like a tree, though its leaves be scattered, life and potential to produce seed yet remain in it.
+[^a]: [[2 Nephi 16.13|2 Ne. 16:13]].  
+[^b]: IE like a tree, though its leaves be scattered, life and potential to produce seed yet remain in it.  

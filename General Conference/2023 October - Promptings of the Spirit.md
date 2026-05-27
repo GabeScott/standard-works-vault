@@ -135,4 +135,6 @@ I add my testimony to you, gifted Latter-day Saints, of God the Father, Jesus Ch
 
 
 
+
+
 #Gifts_Of_The_Spirit #Holy_Ghost #Promptings #Testimony

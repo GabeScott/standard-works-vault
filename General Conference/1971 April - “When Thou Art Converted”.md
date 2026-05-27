@@ -55,4 +55,6 @@ I know, too, that Jesus Christ the Lord leads this latter-day work and that he l
 
 
 
+
+
 #Conversion #Missionary_Work #Quorums_Of_Seventy

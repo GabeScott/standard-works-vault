@@ -57,4 +57,6 @@ May our Heavenly Father strengthen and guide us as we accept his invitation to g
 
 
 
+
+
 #Education #Individual_Worth

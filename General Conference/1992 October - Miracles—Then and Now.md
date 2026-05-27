@@ -143,4 +143,6 @@ To any who from anguish of heart and sadness of soul have silently asked, “Hea
 
 
 
+
+
 #Adversity #Courage #Endurance #Love

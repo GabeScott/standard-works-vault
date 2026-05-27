@@ -91,4 +91,6 @@ I pray that you will be securely tied back to God, that His eternal truths will 
 
 
 
+
+
 #Faith #Jesus_Christ #Scriptures

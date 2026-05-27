@@ -98,4 +98,6 @@ Of this I testify in the name of Jesus Christ, amen.
 [^12]: [[Alma 26.2|Alma 26:2–3]][[Alma 26.3|]].
 
 
+
+
 #Activation #Covenants #Fellowshipping

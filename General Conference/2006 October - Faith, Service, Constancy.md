@@ -86,4 +86,6 @@ Of this I testify in the name of Jesus Christ, amen.
 [^6]: [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
 
 
+
+
 #Adversity #Endurance #Faith #Service

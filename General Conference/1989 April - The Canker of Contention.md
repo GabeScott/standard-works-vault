@@ -145,4 +145,6 @@ Shun contention. Seek godliness. Be enlightened by eternal truth. Be like-minded
 
 
 
+
+
 #Contention #Family #Humility #Love #Peace

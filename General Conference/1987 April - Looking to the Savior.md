@@ -81,4 +81,6 @@ The Lord, who suffered much for the sins of all mankind and was crucified and re
 
 
 
+
+
 #Adversity #Atonement #Jesus_Christ #Obedience

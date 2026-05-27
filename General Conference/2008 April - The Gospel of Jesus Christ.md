@@ -63,4 +63,6 @@ I love the gospel of Jesus Christ, for it defines the way we can partake of the 
 
 
 
+
+
 #Endurance #Ordinances #Plan_Of_Salvation #Repentance

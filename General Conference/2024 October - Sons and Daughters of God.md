@@ -121,4 +121,6 @@ I testify as with the Apostle Paul that “the Spirit itself beareth witness wit
 
 
 
+
+
 #Divine_Nature #God_The_Father #Jesus_Christ #Satan #Temptation #Truth

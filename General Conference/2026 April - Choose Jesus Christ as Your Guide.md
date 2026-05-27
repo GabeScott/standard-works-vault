@@ -1,6 +1,6 @@
 # Choose Jesus Christ as Your Guide
 
-By Elder Edward B. Rowe - *Of the Seventy*
+By Elder Edward B. Rowe - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -30,7 +30,7 @@ Christ’s invitation is constant and consistent: “Come, follow me.”[^2] “
 
 Jesus Christ was completely obedient to the Father and declared: “I have set an example for you.”[^8] “That which ye have seen me do even that shall ye do.”[^9] As we strive to follow His perfect example, He *will* strengthen us and protect us from Satan’s spiritual land mines.
 
-While the Savior’s Atonement is *infinite*, His invitation is *individual*. He invites you and me to accept Him as our *personal* guide. He suffered not just for *humanity*—He suffered for each of us *individually*. As President Russell M. Nelson taught, “Jesus Christ took upon Himself *your* sins, *your* pains, *your* heartaches, and *your* infirmities.”[^10] In short, He knows you *personally* and thus how to guide you based on your distinct strengths, weaknesses, and circumstances.
+While the Savior’s Atonement is *infinite*, His invitation is *individual*. He invites you and me to accept Him as our *personal* guide. He suffered not just for *humanity*—He suffered for each of us *individually*. As President Russell M. Nelson taught, “Jesus Christ took upon Himself *your* sins, *your* pains, *your* heartaches, and *your* infirmities.”[^10] In short, He knows you *personally* and thus how to guide you based on your distinct strengths, weaknesses, and circumstances.
 
 Though our paths in life are unique, each is to be within the covenant path. For that is Christ’s path. We enter that path and connect ourselves to Jesus Christ as our guide through exercising faith in Him, repenting, and making sacred promises, or covenants, with Him.
 
@@ -50,7 +50,7 @@ Jesus Christ is thus not only a perfect and personal guide—He is also the resu
 
 ## Conclusion
 
-This Easter morning, may we *all* accept Christ’s invitation to be our guide and walk with Him. And when we struggle or stray, let us return unto Him that He may heal us—that He may heal *you*. As President Dallin H. Oaks declared, “Jesus Christ is the way!”[^18] He lives! He is our Savior and Redeemer, the resurrected Christ, whom I love. Of Him I bear witness in the name of Jesus Christ, amen.
+This Easter morning, may we *all* accept Christ’s invitation to be our guide and walk with Him. And when we struggle or stray, let us return unto Him that He may heal us—that He may heal *you*. As President Dallin H. Oaks declared, “Jesus Christ is the way!”[^18] He lives! He is our Savior and Redeemer, the resurrected Christ, whom I love. Of Him I bear witness in the name of Jesus Christ, amen.
 
 
 
@@ -73,7 +73,7 @@ This Easter morning, may we *all* accept Christ’s invitation to be our guide a
 
 [^9]: [[3 Nephi 27.21|3 Nephi 27:21]].
 
-[^10]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 122; see also [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
+[^10]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 122; see also [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
 [^11]: President Nelson taught:
 
@@ -89,5 +89,7 @@ This Easter morning, may we *all* accept Christ’s invitation to be our guide a
 
 [^17]: Satan’s spiritual land mines—and other opposition, tribulation, and uncertainty that are a part of mortality—can at times paralyze us with fear. However, knowing that Jesus Christ is a personal and perfect guide, who has power to heal us when we misstep, should increase our faith and cast out such fear. When fear arises, may we remember, trust, and act upon these reassuring words of Christ: “Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness” ([[Isaiah 41.10|Isaiah 41:10]]). And “fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. … For I am the Lord thy God, the Holy One of Israel, thy Saviour” ([[Isaiah 43.1|Isaiah 43:1, 3]][[Isaiah 43.3|]]).
 
-[^18]: In Ryan Jensen, “[‘Jesus Christ Is the Way,’ President Oaks Says in First Interview as Church President](https://www.thechurchnews.com/leaders/2025/10/16/president-dallin-h-oaks-first-interview-as-church-president),” *Church News*, Oct. 16, 2025, thechurchnews.com.
+[^18]: In Ryan Jensen, “[‘Jesus Christ Is the Way,’ President Oaks Says in First Interview as Church President](https://www.thechurchnews.com/leaders/2025/10/16/president-dallin-h-oaks-first-interview-as-church-president),” *Church News*, Oct. 16, 2025, thechurchnews.com.
 
+
+#Covenants #Discipleship #Healing #Jesus_Christ

@@ -82,4 +82,6 @@ My dear brothers and sisters, we can build up His Church and see real growth as 
 [^12]: See Ann M. Dibb, “My Father Is a Prophet” (Brigham Young University–Idaho devotional, Feb. 19, 2008), byui.edu/devotionalsandspeeches; Thomas S. Monson, “Stand in Your Appointed Place,” *Liahona* and *Ensign,* May 2003, 54–57; “Peace, Be Still,” *Liahona* and *Ensign,* Nov. 2002, 53–56; “Priesthood Power,” *Liahona,* Jan. 2000, 58–61; *Ensign,* Nov. 1999, 49–51; “The Spirit Giveth Life,” *Ensign,* May 1985, 68–70.
 
 
+
+
 #Activation #Conversion #Missionary_Work

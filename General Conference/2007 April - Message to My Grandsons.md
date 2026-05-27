@@ -85,4 +85,6 @@ Now, my dear grandsons and all special young men within the sound of my voice, g
 
 
 
+
+
 #Education #Family #Obedience #Priesthood #Responsibility #Testimony

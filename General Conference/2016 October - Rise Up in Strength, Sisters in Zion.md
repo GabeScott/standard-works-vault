@@ -78,4 +78,6 @@ I love the gospel of Jesus Christ, and I am eternally grateful for the direction
 [^11]: See [[D&C 109.22|Doctrine and Covenants 109:22]].
 
 
+
+
 #Adversity #Covenants #Jesus_Christ #Plan_Of_Salvation #Restoration #Teaching #Temples #Women

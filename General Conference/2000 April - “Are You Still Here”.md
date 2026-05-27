@@ -87,4 +87,6 @@ Before I was a member of this Church, I asked God, the Eternal Father, in ferven
 
 
 
+
+
 #Atonement #Authority #Book_Of_Mormon #Faith #God_The_Father #Holy_Ghost #Jesus_Christ #Joseph_Smith #Plan_Of_Salvation #Premortal_Existence #Prophets #Resurrection #Scriptures #Spirituality #Testimony #Truth

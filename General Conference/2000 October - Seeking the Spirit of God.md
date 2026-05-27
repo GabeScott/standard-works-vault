@@ -79,4 +79,6 @@ I testify that the workings of the Spirit are real and are found in this Church.
 
 
 
+
+
 #God_The_Father #Holy_Ghost #Scripture_Study #Spirituality #Teaching #Truth #Worship

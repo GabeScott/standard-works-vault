@@ -5,5 +5,5 @@
 [Daniel 5:26](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.26?lang=eng#p26)
 
 
-[^a]: Aramaic: numbered.
-[^b]: [[Jeremiah 25.12|Jer. 25:12]].
+[^a]: Aramaic: numbered.  
+[^b]: [[Jeremiah 25.12|Jer. 25:12]].  

@@ -95,4 +95,6 @@ For this blessing I fervently pray, in the name of Jesus Christ, amen.
 
 
 
+
+
 #Commandments #Example #Friendship #Leadership #Missionary_Work #Obedience #Prayer #Priesthood #Service #Temples #Youth

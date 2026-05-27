@@ -138,4 +138,6 @@ Across the world, those who now come by the tens of thousands will inevitably co
 [^13]: See [[D&C 121.41|D&C 121:41–43]][[D&C 121.42|]][[D&C 121.43|]].
 
 
+
+
 #Abortion #Abuse #Agency #Curriculum #Divorce #Family #Family_Home_Evening #Freedom #Home #Joy #Marriage #Morality #Parenthood #Satan #Scriptures #Teaching

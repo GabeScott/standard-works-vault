@@ -160,4 +160,6 @@ Jesus specializes in the seemingly impossible. He came here to make the impossib
 [^21]: [[John 10.10|John 10:10]].
 
 
+
+
 #Abuse #Adversity #Atonement #Healing #Jesus_Christ

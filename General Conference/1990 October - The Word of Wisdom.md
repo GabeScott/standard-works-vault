@@ -47,4 +47,6 @@ I earnestly desire that we will accept the wisdom of this word of warning, in th
 
 
 
+
+
 #Faith #Obedience #Word_Of_Wisdom

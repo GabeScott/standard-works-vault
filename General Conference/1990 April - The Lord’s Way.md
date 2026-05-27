@@ -109,4 +109,6 @@ That we may, as a people, merit the blessings of God, I pray in the name of Jesu
 
 
 
+
+
 #Financial_Management #Tithing #Youth

@@ -122,4 +122,6 @@ As an Apostle of the Lord Jesus Christ, I bear my sure witness of the Savior’s
 [^23]: See [[2 Nephi 25.23|2 Nephi 25:23]].
 
 
+
+
 #Abuse #Anger #Atonement #Repentance #Testimony

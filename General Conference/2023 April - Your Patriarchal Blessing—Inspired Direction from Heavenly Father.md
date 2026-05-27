@@ -77,4 +77,6 @@ I testify that patriarchal blessings do provide inspired direction from Heavenly
 
 
 
+
+
 #Courage #Divine_Nature #Patriarchal_Blessings

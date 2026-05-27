@@ -39,4 +39,6 @@ I am grateful for the privilege to serve the Lord and for the spirit which has t
 
 
 
+
+
 #Agency #Blessings #Death #Family_History #Freedom #Jesus_Christ #Obedience #Ordinances #Temples

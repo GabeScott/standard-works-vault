@@ -77,4 +77,6 @@ So also must our Father in Heaven feel joy when we follow the living prophets wi
 
 
 
+
+
 #Attitude #Contention #Obedience #Prophets #Satan

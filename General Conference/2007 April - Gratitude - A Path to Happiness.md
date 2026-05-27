@@ -76,4 +76,6 @@ My most profound gratitude is for my Savior—an obedient Son, who did all that 
 [^9]: *Pathways to Happiness,* comp. Llewelyn R. McKay (1957), 318.
 
 
+
+
 #Adversity #Gratitude #Love

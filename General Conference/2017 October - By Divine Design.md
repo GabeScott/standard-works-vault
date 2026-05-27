@@ -119,4 +119,6 @@ The Lord’s hand is guiding you. By “divine design,” He is in the small det
 
 
 
+
+
 #Divine_Nature #Spirituality

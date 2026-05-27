@@ -30,4 +30,6 @@ Our Heavenly Father is mindful of each of us and our needs. May we be filled wit
 
 
 
+
+
 #Adversity #Church_Growth #General_Conference #Gratitude

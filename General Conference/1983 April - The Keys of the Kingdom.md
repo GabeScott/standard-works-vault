@@ -95,4 +95,6 @@ Now, this testimony I bear for myself and for all the faithful elders of the kin
 
 
 
-#Authority #Priesthood
+
+
+#Authority #Church_Leaders #Priesthood

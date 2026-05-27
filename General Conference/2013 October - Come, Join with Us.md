@@ -186,4 +186,6 @@ I earnestly pray that your own search for truth will impress upon your heart the
 [^11]: [[John 6.67|John 6:67–68]][[John 6.68|]].
 
 
+
+
 #Activation #Belonging #Faith

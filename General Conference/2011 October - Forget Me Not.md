@@ -145,4 +145,6 @@ Sisters, we love you. It is my prayer and blessing that you will never forget th
 
 
 
+
+
 #Gratitude #Individual_Worth #Joy #Love #Patience #Perspective #Sacrifice #Self-Esteem

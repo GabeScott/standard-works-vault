@@ -67,4 +67,6 @@ President Benson, in the April 1986 general conference, expressed these thoughts
 
 
 
+
+
 #Jesus_Christ #Scripture_Study #Scriptures

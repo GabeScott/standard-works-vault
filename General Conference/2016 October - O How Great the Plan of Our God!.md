@@ -131,4 +131,6 @@ Of this I testify in deep gratitude to our Heavenly Father, as I leave you my bl
 
 
 
+
+
 #Atonement #Divine_Nature #Gratitude #Plan_Of_Salvation #Resurrection

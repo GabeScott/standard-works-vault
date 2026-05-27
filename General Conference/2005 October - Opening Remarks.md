@@ -51,4 +51,6 @@ I pray, my brethren and sisters, that the choicest blessings of heaven may rest 
 
 
 
+
+
 #Church_Growth #Obedience #Temples

@@ -95,4 +95,6 @@ In [[3 Nephi 27.27|chapter 27 of 3 Nephi]], the risen Lord asked, “What manne
 
 
 
+
+
 #Fasting #Self-Reliance #Service #Welfare

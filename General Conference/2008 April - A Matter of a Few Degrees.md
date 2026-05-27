@@ -147,4 +147,6 @@ I testify of our Heavenly Father, who knows and loves you. I bear witness of Jes
 
 
 
+
+
 #Holy_Ghost #Prophets #Repentance #Truth

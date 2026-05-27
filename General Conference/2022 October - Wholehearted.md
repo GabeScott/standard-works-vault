@@ -110,4 +110,6 @@ Arm in arm with you, I want to stand with Him forever. Wholehearted. Knowing tha
 [^17]: See [[Isaiah 40.31|Isaiah 40:31]].
 
 
+
+
 #Adversity #Covenants #Discipleship #Faith #Jesus_Christ

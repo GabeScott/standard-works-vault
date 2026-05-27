@@ -69,4 +69,6 @@ I leave you my testimony that the Lord’s promise of peace comes from knowing a
 
 
 
+
+
 #Adversity #Agency #Atonement #Faith #Hope #Obedience #Plan_Of_Salvation

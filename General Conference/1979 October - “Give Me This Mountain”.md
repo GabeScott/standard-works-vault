@@ -63,4 +63,6 @@ My brethren and sisters, I testify to you that this is the Lord’s work and tha
 
 
 
+
+
 #Adversity #Commitment

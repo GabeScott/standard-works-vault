@@ -69,4 +69,6 @@ Yes, today is indeed a season of many opportunities. It is a season to reach out
 
 
 
+
+
 #Fellowshipping #Love #Sabbath #Temples #Tithing

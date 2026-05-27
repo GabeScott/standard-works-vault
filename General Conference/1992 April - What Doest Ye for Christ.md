@@ -39,4 +39,6 @@ That we may all achieve this through dedicated effort and steadfast faith in Him
 
 
 
+
+
 #Jesus_Christ #Obedience #Service

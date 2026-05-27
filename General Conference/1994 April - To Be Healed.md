@@ -117,4 +117,6 @@ If you are caught on a plateau of spiritual healing and don’t seem to be makin
 
 
 
+
+
 #Adversity #Atonement #Charity #Faith #Forgiveness #Healing #Jesus_Christ #Love #Miracles #Patience #Satan

@@ -137,4 +137,6 @@ With love in my heart, I leave this with you as my prayer, testimony, and blessi
 
 
 
+
+
 #Family_History #Parenthood #Sabbath #Teaching

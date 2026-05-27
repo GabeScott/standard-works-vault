@@ -76,4 +76,6 @@ While it is good to pray for and work for physical protection and healing during
 [^12]: See [[Matthew 20.28|Matthew 20:28]]; [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]]; [[D&C 76.69|Doctrine and Covenants 76:69]].
 
 
+
+
 #Adversity #Atonement #Faith #Healing #Miracles #Plan_Of_Salvation

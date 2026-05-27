@@ -1,6 +1,6 @@
 # Jesus Christ Is the Way
 
-By Elder Brian J. Holmes - *Of the Seventy*
+By Elder Brian J. Holmes - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -16,7 +16,7 @@ Like that marathon, our journey through life has moments of beauty and joy but i
 
 At some point, we are all like the blind runner. We all need a guide.
 
-Our Father in Heaven, in His perfect love,[^1] has provided us with many helps to guide our journey. As President Dallin H. Oaks taught, the strongest help God has given us is a Savior, Jesus Christ.[^2]
+Our Father in Heaven, in His perfect love,[^1] has provided us with many helps to guide our journey. As President Dallin H. Oaks taught, the strongest help God has given us is a Savior, Jesus Christ.[^2]
 
 Through His Atonement, Jesus Christ “has done everything that is essential for our journey through mortality toward the destiny outlined in the plan of our Heavenly Father.”[^3] Because He lived a perfect life, because He bore every sin and every sorrow, because He broke the bands of death, Jesus Christ alone can stand before the world and declare, “I am the way, the truth, and the life: no man cometh unto the Father, but by me.”[^4]
 
@@ -24,7 +24,7 @@ In that simple declaration, the Savior taught that He is not only our guide; He 
 
 Our Savior invites us to walk with Him.[^6] His way is the covenant path, the one path that leads to our celestial finish line.[^7] We choose to walk the covenant path by exercising faith in Jesus Christ unto repentance, receiving the ordinances of His gospel, and enduring to the end.[^8] These ordinances are essential. As Jesus taught Nicodemus, “Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God.”[^9]
 
-Just as the band tethered the blind runner to his guide, covenants bind us to our guide—Jesus Christ. Elder David A. Bednar taught, “The covenant connection we have with our Heavenly Father and His resurrected and living Son is the supernal source of perspective, hope, power, peace, and enduring joy.”[^10]
+Just as the band tethered the blind runner to his guide, covenants bind us to our guide—Jesus Christ. Elder David A. Bednar taught, “The covenant connection we have with our Heavenly Father and His resurrected and living Son is the supernal source of perspective, hope, power, peace, and enduring joy.”[^10]
 
 Once we bind ourselves to our Savior through covenant, only we can sever the tie. Jesus never will.[^11] As we remain tightly bound to Him, He is bound to us. We can expect His power to bless us with strength and joy even when we are experiencing a steep stretch of life. But if we turn away, we have no such promise.[^12] Covenant blessings flow from ongoing faithfulness, not merely from past participation.[^13]
 
@@ -61,23 +61,23 @@ Brothers and sisters, our Father in Heaven desires all His children to come home
 
 [^1]: See [[John 3.16|John 3:16]].
 
-[^2]: See Dallin H. Oaks, “[[2025 April - Divine Helps for Mortality.md|Divine Helps for Mortality]],” *Liahona*, May 2025, 104.
+[^2]: See Dallin H. Oaks, “[[2025 April - Divine Helps for Mortality.md|Divine Helps for Mortality]],” *Liahona*, May 2025, 104.
 
-[^3]: Dallin H. Oaks, “[[2021 April - What Has Our Savior Done for Us.md|What Has Our Savior Done for Us?]],” *Liahona*, May 2021, 75.
+[^3]: Dallin H. Oaks, “[[2021 April - What Has Our Savior Done for Us.md|What Has Our Savior Done for Us?]],” *Liahona*, May 2021, 75.
 
 [^4]: [[John 14.6|John 14:6]].
 
-[^5]: See “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p13#p13),” Gospel Library.
+[^5]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p13#p13),” Gospel Library.
 
 [^6]: See [[Moses 6.34|Moses 6:34]]; see also [[2 Nephi 26.33|2 Nephi 26:33]].
 
-[^7]: See D. Todd Christofferson, “[[2021 April - Why the Covenant Path.md|Why the Covenant Path]],”* Liahona*, May 2021, 116.
+[^7]: See D. Todd Christofferson, “[[2021 April - Why the Covenant Path.md|Why the Covenant Path]],”* Liahona*, May 2021, 116.
 
 [^8]: See [[2 Nephi 31.17|2 Nephi 31:17–20]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
 
 [^9]: [[John 3.5|John 3:5]].
 
-[^10]: David A. Bednar, “[[2023 April - “Abide in Me, and I in You; Therefore Walk with Me”.md|Abide in Me, and I in You; Therefore Walk with Me]],” *Liahona*, May 2023, 124.
+[^10]: David A. Bednar, “[[2023 April - “Abide in Me, and I in You; Therefore Walk with Me”.md|Abide in Me, and I in You; Therefore Walk with Me]],” *Liahona*, May 2023, 124.
 
 [^11]: See [[D&C 82.10|Doctrine and Covenants 82:10]].
 
@@ -101,5 +101,7 @@ Brothers and sisters, our Father in Heaven desires all His children to come home
 
 [^21]: [[D&C 124.45|Doctrine and Covenants 124:45]].
 
-[^22]: See Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), speeches.byu.edu.
+[^22]: See Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), speeches.byu.edu.
 
+
+#Adversity #Covenants #Discipleship #Jesus_Christ #Prophets

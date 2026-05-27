@@ -69,4 +69,6 @@ When we face such temptations in our time, we must declare, as young Nephi did i
 
 
 
+
+
 #Loyalty #Morality #Pornography

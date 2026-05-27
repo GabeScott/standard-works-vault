@@ -115,4 +115,6 @@ He lives. I absolutely know it. He loves you. He gave His life for you. He plead
 
 
 
+
+
 #Covenants #Discipleship #Jesus_Christ #Priesthood_Power

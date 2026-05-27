@@ -107,4 +107,6 @@ Elisha’s counsel can help Church members today to silence our murmuring. Regar
 
 
 
+
+
 #Adversity #Criticism #Obedience

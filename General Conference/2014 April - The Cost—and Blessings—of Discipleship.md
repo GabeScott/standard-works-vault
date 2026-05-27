@@ -108,4 +108,6 @@ Be strong. Live the gospel faithfully even if others around you don’t live it 
 [^19]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 
+
+
 #Adversity #Discipleship #Jesus_Christ #Spirituality

@@ -98,4 +98,6 @@ Brothers and sisters, it is my hope and prayer that we will continue to bear nob
 [^9]: [[John 14.18|John 14:18, 27]][[John 14.27|]].
 
 
+
+
 #Adversity #Disabilities #Service

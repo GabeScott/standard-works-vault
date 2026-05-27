@@ -62,4 +62,6 @@ Brothers and sisters, one of the miracles of this, the Lord’s Church, is that 
 [^13]: See Clayton M. Christensen, “How Will You Measure Your Life?,” *Harvard Business Review*, July–Aug. 2010, hbr.org. This message was originally given as a Class Day address tied to Harvard Business School graduation. In his message, Professor Christensen cautioned his students not to decouple confidence from humility, reminding them that to continue to progress throughout life, they would need to be humble enough to seek correction and learn from others.
 
 
+
+
 #Adversity #Divine_Nature #Education #Humility #Jesus_Christ

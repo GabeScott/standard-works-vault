@@ -127,4 +127,6 @@ My dear brothers and sisters, as you choose to let God prevail in your lives, yo
 
 
 
+
+
 #Agency #House_Of_Israel #Humility #Prejudice

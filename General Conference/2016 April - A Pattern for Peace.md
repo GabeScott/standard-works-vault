@@ -134,4 +134,6 @@ I testify that Jesus Christ is “the way, the truth, and the life”[^18] and t
 [^17]: [[Alma 38.8|Alma 38:8]]; emphasis added.
 
 
+
+
 #Adversity #Atonement #Covenants #Jesus_Christ #Peace #Prophets #Repentance #Temples

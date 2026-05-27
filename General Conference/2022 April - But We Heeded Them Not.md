@@ -135,4 +135,6 @@ I witness that fidelity to the covenants and ordinances of the Savior’s restor
 
 
 
+
+
 #Covenants #Discipleship #Jesus_Christ #Ordinances

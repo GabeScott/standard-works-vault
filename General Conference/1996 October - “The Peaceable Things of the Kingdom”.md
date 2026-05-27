@@ -105,4 +105,6 @@ Of Him and His good tidings, of the publication of His peace in this conference 
 
 
 
+
+
 #Adversity #Forgiveness #Jesus_Christ #Obedience #Opposition #Peace #Prayer #Repentance

@@ -47,4 +47,6 @@ As we faithfully pay our tithes, the Lord will indeed open the windows of heaven
 
 
 
+
+
 #Blessings #Obedience #Tithing

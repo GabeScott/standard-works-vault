@@ -59,4 +59,6 @@ I bear testimony that perseverance is essential to us in learning and living the
 
 
 
+
+
 #Adversity #Dedication

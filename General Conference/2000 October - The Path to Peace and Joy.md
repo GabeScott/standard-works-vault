@@ -107,4 +107,6 @@ Have you wandered from the path of joy and now find yourself where you do not wa
 
 
 
+
+
 #Atonement #Commitment #Faith #Forgiveness #Jesus_Christ #Joy #Morality #Obedience #Peace #Repentance #Satan #Sin #Spirituality

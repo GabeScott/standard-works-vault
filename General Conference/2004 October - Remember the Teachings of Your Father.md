@@ -69,4 +69,6 @@ The reason Satan has fought and continues to fight against the Book of Mormon is
 
 
 
+
+
 #Book_Of_Mormon #Faith #Parenthood #Scripture_Study #Testimony

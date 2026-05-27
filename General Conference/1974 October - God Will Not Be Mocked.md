@@ -177,4 +177,6 @@ Our counsel then to you is to live strictly the laws of your Heavenly Father. In
 
 
 
+
+
 #Commandments #Obedience #Plan_Of_Salvation

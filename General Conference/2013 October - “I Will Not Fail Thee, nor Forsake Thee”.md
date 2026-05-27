@@ -100,4 +100,6 @@ With all the strength of my soul, I testify that God lives and loves us, that Hi
 [^9]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
 
+
+
 #Adversity #Gratitude

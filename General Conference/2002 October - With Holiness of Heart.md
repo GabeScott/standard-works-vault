@@ -85,4 +85,6 @@ May our individual covenants that bind us to our loving Heavenly Father guide us
 
 
 
+
+
 #Covenants #Home #Kindness #Love #Obedience

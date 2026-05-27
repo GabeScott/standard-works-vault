@@ -213,4 +213,6 @@ In the name of Jesus Christ, amen.
 
 
 
+
+
 #Atonement #Attitude #Conscience #Evil #Joy #Justice #Ordinances #Peace #Repentance

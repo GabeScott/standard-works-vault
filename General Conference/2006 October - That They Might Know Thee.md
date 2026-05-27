@@ -90,4 +90,6 @@ I bear testimony that Jesus Christ is the Savior of the world, that through His 
 [^14]: [[D&C 19.18|D&C 19:18]].
 
 
+
+
 #Adversity #Atonement #Endurance

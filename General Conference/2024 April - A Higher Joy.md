@@ -202,4 +202,6 @@ May we all seek and find the higher joy that comes from devoting our lives to ou
 [^28]: [[Luke 3.10|Luke 3:10]].
 
 
+
+
 #Adversity #Discipleship #Hope #Joy #Peace #Service

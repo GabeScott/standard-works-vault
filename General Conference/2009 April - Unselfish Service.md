@@ -107,4 +107,6 @@ Our Savior teaches us to follow Him by making the sacrifices necessary to lose o
 
 
 
+
+
 #Greed #Sacrifice #Service

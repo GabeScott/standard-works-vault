@@ -94,4 +94,6 @@ He lovingly invites, “Come unto me, all ye that labour and are heavy laden, an
 [^17]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 92–95.
 
 
+
+
 #Adversity #Gospel #Jesus_Christ #Joy

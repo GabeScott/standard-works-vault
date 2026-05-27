@@ -106,4 +106,6 @@ I remember that man in Peru, hunched over and struggling to carry that enormous 
 [^21]: [[Alma 32.13|Alma 32:13]].
 
 
+
+
 #Adversity #Atonement #Repentance #Sin

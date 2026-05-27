@@ -65,4 +65,6 @@ When heaven’s promises sometimes seem afar off, I pray that each of us will em
 
 
 
+
+
 #Covenants #Faith #Obedience

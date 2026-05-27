@@ -71,4 +71,6 @@ I testify that when we face difficult decisions and follow these guidelines, we 
 
 
 
+
+
 #Holy_Ghost #Judging #Obedience

@@ -101,4 +101,6 @@ When memory of prior mistakes encroached upon Ammon’s mind, he turned his thou
 
 
 
+
+
 #Conscience #Forgiveness #Jesus_Christ #Peace #Repentance #Temptation

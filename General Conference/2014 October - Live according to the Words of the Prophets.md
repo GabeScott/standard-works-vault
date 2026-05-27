@@ -103,4 +103,6 @@ I bear my witness that Joseph Smith was and is the prophet called of God to rest
 
 
 
+
+
 #Faith #Prophets

@@ -95,4 +95,6 @@ I bear testimony that our priorities, tendencies, inclinations, desires, appetit
 
 
 
+
+
 #Humility #Priorities #Worldliness

@@ -109,4 +109,6 @@ These are some of the characteristics of those who hear and heed the Savior’s 
 
 
 
+
+
 #Christianity #Discipleship

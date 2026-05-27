@@ -95,4 +95,6 @@ I witness that “remission of sins \[through the Atonement\] bringeth meekness,
 
 
 
+
+
 #Atonement #Covenants #Jesus_Christ #Joy #Mercy #Ordinances #Plan_Of_Salvation #Premortal_Existence #Priorities #Temples

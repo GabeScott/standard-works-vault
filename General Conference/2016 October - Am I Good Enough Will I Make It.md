@@ -97,4 +97,6 @@ I witness to you that if you will really try and will not rationalize or rebelâ€
 
 
 
+
+
 #Atonement #Jesus_Christ #Repentance

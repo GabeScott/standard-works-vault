@@ -5,8 +5,8 @@
 [Ezekiel 1:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.28?lang=eng#p28)
 
 
-[^a]: [[Revelation 4.3|Rev. 4:3]].
-[^b]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]].
-[^c]: [[Ezekiel 11.22|Ezek. 11:22]]. [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].
-[^d]: [[Isaiah 6.2|Isa. 6:3 (2–3)]][[Isaiah 6.3|]]; [[Revelation 4.7|Rev. 4:8 (7–9)]][[Revelation 4.8|]][[Revelation 4.9|]].
-[^e]: [[Ezekiel 3.23|Ezek. 3:23 (23–24)]][[Ezekiel 3.24|]]; [[Ezekiel 44.4|44:4]]; [[Acts 9.3|Acts 9:4 (3–5)]][[Acts 9.4|]][[Acts 9.5|]]; [[Ether 3.6|Ether 3:6 (6–8)]][[Ether 3.7|]][[Ether 3.8|]].
+[^a]: [[Revelation 4.3|Rev. 4:3]].  
+[^b]: [[God, Privilege of Seeing|TG God, Privilege of Seeing]].  
+[^c]: [[Ezekiel 11.22|Ezek. 11:22]]. [[Jesus Christ, Glory of|TG Jesus Christ, Glory of]].  
+[^d]: [[Isaiah 6.2|Isa. 6:3 (2–3)]][[Isaiah 6.3|]]; [[Revelation 4.7|Rev. 4:8 (7–9)]][[Revelation 4.8|]][[Revelation 4.9|]].  
+[^e]: [[Ezekiel 3.23|Ezek. 3:23 (23–24)]][[Ezekiel 3.24|]]; [[Ezekiel 44.4|44:4]]; [[Acts 9.3|Acts 9:4 (3–5)]][[Acts 9.4|]][[Acts 9.5|]]; [[Ether 3.6|Ether 3:6 (6–8)]][[Ether 3.7|]][[Ether 3.8|]].  

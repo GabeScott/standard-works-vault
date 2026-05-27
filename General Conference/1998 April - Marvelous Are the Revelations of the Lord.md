@@ -113,4 +113,6 @@ My brothers and sisters, we need to embrace, study, and appreciate the revealed 
 
 
 
+
+
 #Church_Organization #Holy_Ghost #Joseph_Smith #Plan_Of_Salvation #Priesthood #Prophets #Restoration #Resurrection #Scriptures #Spirituality #Temples

@@ -201,4 +201,6 @@ May we each try a little harder in our efforts to overcome the world, not excusi
 
 
 
+
+
 #Covenants #Discipleship #Jesus_Christ #Sabbath #Worldliness

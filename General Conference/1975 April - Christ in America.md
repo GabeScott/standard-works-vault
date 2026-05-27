@@ -107,4 +107,6 @@ All these teachings did Christ give to those Nephite people as he came to them a
 
 
 
+
+
 #Book_Of_Mormon #Jesus_Christ #Repentance

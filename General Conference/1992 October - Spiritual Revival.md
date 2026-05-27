@@ -59,4 +59,6 @@ While the world is in commotion, the kingdom is intact. We are living in the gre
 
 
 
+
+
 #Adversity #Commitment #Obedience #Testimony

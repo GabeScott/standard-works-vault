@@ -177,4 +177,6 @@ My sincere, heartfelt prayer is that we may in our individual lives reflect that
 
 
 
+
+
 #Gratitude

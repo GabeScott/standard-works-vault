@@ -95,4 +95,6 @@ I bear solemn witness that the fire of the covenant will burn in the heart of ev
 
 
 
+
+
 #Covenants #Safety #Temples

@@ -147,4 +147,6 @@ That we may do so this day and forever is my prayer, in the name of Jesus Christ
 
 
 
+
+
 #Endurance #Humility #Media #Pride #Repentance #Testimony #Worldliness

@@ -123,4 +123,6 @@ Such are lessons taught by those who “serve unto the example and shadow of hea
 
 
 
+
+
 #Dedication #Education #Example #Faith #Humility #Kindness #Love #Obedience #Patience #Preparation #Spirituality #Tabernacle_Choir #Word_Of_Wisdom

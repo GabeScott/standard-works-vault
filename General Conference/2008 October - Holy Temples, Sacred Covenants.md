@@ -99,4 +99,6 @@ I testify to you that the temples are sacred, holy places. They are a source of 
 
 
 
+
+
 #Covenants #Temples #Worthiness

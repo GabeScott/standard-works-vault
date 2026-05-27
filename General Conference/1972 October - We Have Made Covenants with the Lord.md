@@ -81,4 +81,6 @@ My brothers and sisters, we are a covenant-making people. Let us also be a coven
 
 
 
+
+
 #Commandments #Covenants

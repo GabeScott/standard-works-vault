@@ -119,4 +119,6 @@ Because the Lord Jesus Christ loved us, he died for us, and we accept his sacrif
 
 
 
+
+
 #Authority #Love #Obedience #Spirituality

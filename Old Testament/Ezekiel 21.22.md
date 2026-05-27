@@ -5,6 +5,6 @@
 [Ezekiel 21:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.22?lang=eng#p22)
 
 
-[^a]: [[Ezekiel 4.2|Ezek. 4:2]].
-[^b]: OR siege mounds.
-[^c]: OR siegeworks.
+[^a]: [[Ezekiel 4.2|Ezek. 4:2]].  
+[^b]: OR siege mounds.  
+[^c]: OR siegeworks.  

@@ -5,5 +5,5 @@
 [Matthew 6:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.30?lang=eng#p30)
 
 
-[^a]: JST Matt. 6:34 … how much more will he not provide for you, if ye are not of little faith?
-[^b]: [[Faith|TG Faith]].
+[^a]: JST Matt. 6:34 … how much more will he not provide for you, if ye are not of little faith?  
+[^b]: [[Faith|TG Faith]].  

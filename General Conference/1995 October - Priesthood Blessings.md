@@ -99,4 +99,6 @@ In so doing, our understanding, our faith, and our testimony in the Lord Jesus C
 
 
 
+
+
 #Blessings #Family #God_The_Father #Jesus_Christ #Patriarchal_Blessings #Priesthood

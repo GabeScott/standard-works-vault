@@ -71,4 +71,6 @@ I bear witness that this Church is the Church of Jesus Christ. Its strength and 
 
 
 
+
+
 #Covenants #Discipleship #Home

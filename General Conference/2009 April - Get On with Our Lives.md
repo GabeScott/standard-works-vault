@@ -60,4 +60,6 @@ Robert Gardner knew what it meant to deal with change in his life. He followed t
 
 
 
+
+
 #Adversity #Faith #Hope #Perspective #Prophets

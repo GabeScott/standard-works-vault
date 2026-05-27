@@ -145,4 +145,6 @@ Remember the words of Jesus Christ when He said, “Do the things which ye have 
 
 
 
+
+
 #Financial_Management #Scripture_Study #Scriptures

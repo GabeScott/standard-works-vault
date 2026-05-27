@@ -60,4 +60,6 @@ If you deacons quorum presidents will magnify your calling, you will be instrume
 
 
 
+
+
 #Activation #Leadership #Priesthood #Trust

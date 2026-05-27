@@ -99,4 +99,6 @@ As one of the Lord’s Apostles, and with all of the energy of my soul, I bear w
 
 
 
+
+
 #Atonement #Children #Missionary_Work #Truth

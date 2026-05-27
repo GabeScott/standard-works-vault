@@ -97,4 +97,6 @@ The ultimate offering was that offered by the Savior Himself in giving His very 
 
 
 
+
+
 #Book_Of_Mormon #Church_Membership #Commandments #Covenants #Fasting #Honesty #Jesus_Christ #Love #Sacrifice #Temples #Tithing

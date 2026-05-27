@@ -89,4 +89,6 @@ Through all mortal opposition, we have God’s assurance that He will “consecr
 
 
 
+
+
 #Agency #Atonement #Faith #Fall #Jesus_Christ #Opposition #Plan_Of_Salvation

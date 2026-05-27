@@ -64,4 +64,6 @@ I know that the Book of Mormon is true! I cannot explain the power of this great
 [^4]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
 
+
+
 #Addiction #Pornography #Prayer #Scripture_Study

@@ -145,4 +145,6 @@ We fulfill our divine role as children of a loving Heavenly Father as we strive 
 
 
 
+
+
 #Contention #Forgiveness #Kindness #Love #Peace #Peacemaking

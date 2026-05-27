@@ -193,4 +193,6 @@ I bear you my solemn witness that it is true, that the Lord is in his heavens; h
 
 
 
-#Commandments #Faith #Morality #Obedience #Welfare
+
+
+#Church_Leaders #Commandments #Faith #Morality #Obedience #Welfare

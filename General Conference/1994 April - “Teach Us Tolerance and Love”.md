@@ -169,4 +169,6 @@ That pronouncement is a contemporary confirmation of the Prophet Joseph’s earl
 
 
 
+
+
 #Children #Commandments #God_The_Father #Love #Missionary_Work #Neighbors #Temples #Tolerance #Truth

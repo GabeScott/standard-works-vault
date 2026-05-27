@@ -77,4 +77,6 @@ If we all hold up clean, honest, industrious hands to God, then his work will pr
 
 
 
+
+
 #Covenants #Service

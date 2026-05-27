@@ -5,5 +5,5 @@
 [Ezekiel 7:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.22?lang=eng#p22)
 
 
-[^a]: [[Pollution, Pollute|TG Pollution]].
-[^b]: [[Jeremiah 7.14|Jer. 7:14]]; [[Ezekiel 24.21|Ezek. 24:21]].
+[^a]: [[Pollution, Pollute|TG Pollution]].  
+[^b]: [[Jeremiah 7.14|Jer. 7:14]]; [[Ezekiel 24.21|Ezek. 24:21]].  

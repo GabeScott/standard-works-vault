@@ -110,4 +110,6 @@ I bear testimony of the Father, Son, and Holy Ghost, who in perfect unity of wor
 [^24]: See [[1 John 5.7|1 John 5:7]]; [[3 Nephi 11.36|3 Nephi 11:36]]; [[D&C 20.28|Doctrine and Covenants 20:28]]; Guide to the Scriptures, “[God, Godhead](https://churchofjesuschrist.org/study/scriptures/gs/god-godhead?lang=eng),” Gospel Library.
 
 
+
+
 #Adversity #Commandments #Healing #Jesus_Christ

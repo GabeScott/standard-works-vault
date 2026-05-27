@@ -59,4 +59,6 @@ I bear my witness that God and Jesus Christ live and that if we will love them a
 
 
 
+
+
 #Authority #Children #Fatherhood #Home #Love #Marriage #Parenthood #Priesthood

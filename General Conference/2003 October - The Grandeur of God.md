@@ -85,4 +85,6 @@ I bear witness of a God who has such shoulders. And in the spirit of the holy ap
 
 
 
+
+
 #God_The_Father #Jesus_Christ #Love #Morality

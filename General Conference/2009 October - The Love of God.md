@@ -151,4 +151,6 @@ Let us be known as a people who love God with all our heart, soul, and mind and 
 
 
 
+
+
 #Discipleship #God_The_Father #Hope #Love #Obedience

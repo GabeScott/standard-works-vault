@@ -89,4 +89,6 @@ We do rejoice that through keeping our covenants, we may feel the love of our He
 
 
 
+
+
 #Baptism #Covenants #Temples

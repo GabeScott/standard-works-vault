@@ -71,4 +71,6 @@ God bless the struggling, sacrificing, honorable parents of this world. May He e
 
 
 
+
+
 #Family #Obedience #Prayer #Word_Of_Wisdom

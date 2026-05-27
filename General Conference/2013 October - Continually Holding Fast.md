@@ -99,4 +99,6 @@ May we choose to be diligent and gain the great blessings and protections that c
 
 
 
+
+
 #Church_Meetings #Covenants #Sacrament

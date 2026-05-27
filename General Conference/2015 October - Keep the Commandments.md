@@ -75,4 +75,6 @@ My brethren, may we keep the commandments! Wonderful and glorious are the reward
 
 
 
+
+
 #Atonement #Commandments #Courage #Holy_Ghost #Jesus_Christ #Obedience #Repentance

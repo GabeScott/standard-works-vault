@@ -73,4 +73,6 @@ May we this very hour arise by strengthening our resolve to follow our Savior an
 
 
 
+
+
 #Jesus_Christ #Prayer #Satan #Scriptures #Sin #Temples #Testimony #Women

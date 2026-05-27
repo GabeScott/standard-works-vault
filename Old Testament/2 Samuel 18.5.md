@@ -5,5 +5,5 @@
 [2 Samuel 18:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/18.5?lang=eng#p5)
 
 
-[^a]: [[1 Kings 2.5|1 Kgs. 2:5]].
-[^b]: [[2 Samuel 18.12|2 Sam. 18:12]].
+[^a]: [[1 Kings 2.5|1 Kgs. 2:5]].  
+[^b]: [[2 Samuel 18.12|2 Sam. 18:12]].  

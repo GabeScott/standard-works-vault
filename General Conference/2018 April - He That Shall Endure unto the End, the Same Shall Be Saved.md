@@ -107,4 +107,6 @@ Whatever our personal situations may be, I testify that our Heavenly Father is c
 
 
 
+
+
 #Covenants #Endurance #Obedience #Sacrament

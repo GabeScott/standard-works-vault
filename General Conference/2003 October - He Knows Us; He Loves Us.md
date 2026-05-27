@@ -59,4 +59,6 @@ The Savior gave His life for each one of us. He knows our joys and our sorrows. 
 
 
 
+
+
 #God_The_Father #Holy_Ghost #Individual_Worth #Tithing

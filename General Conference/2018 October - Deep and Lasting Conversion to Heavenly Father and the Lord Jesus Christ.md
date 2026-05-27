@@ -131,4 +131,6 @@ I testify to you that in the deliberations of the Council of the First Presidenc
 
 
 
+
+
 #Conversion #Curriculum #Family #Home #Sabbath

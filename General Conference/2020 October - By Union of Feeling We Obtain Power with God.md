@@ -105,4 +105,6 @@ May we draw on this prophetic blessing and use our individual and collective eff
 
 
 
+
+
 #Diversity #Mercy #Prejudice #Unity

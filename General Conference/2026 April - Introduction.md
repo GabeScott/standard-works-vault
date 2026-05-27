@@ -1,6 +1,6 @@
 # Introduction
 
-By President Dallin H. Oaks - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Dallin H. Oaks - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -8,7 +8,7 @@ By President Dallin H. Oaks - *President of The Church of Jesus Christ of Latte
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2026/04/11oaks?lang=eng)
 
-My dear brothers and sisters, welcome to general conference. I now address members of The Church of Jesus Christ of Latter-day Saints, numbering over 17 million worldwide, and others who are interested in the remarkable progress and inspired teachings of this Church.
+My dear brothers and sisters, welcome to general conference. I now address members of The Church of Jesus Christ of Latter-day Saints, numbering over 17 million worldwide, and others who are interested in the remarkable progress and inspired teachings of this Church.
 
 Most of you know we have these general conferences twice each year. But as many of you are not aware, the conference we convene today is different because it begins with what we call a solemn assembly. For more than a century, this has been an event of great significance to members of the Church.
 
@@ -21,5 +21,4 @@ In advance, I express our gratitude as leaders of the Church for our members’ 
 At this Easter season, I reaffirm our testimony of the resurrected Lord and recognize that He is the head of this Church. We pray for His blessings upon this conference and upon all of you in the name of Jesus Christ, amen.
 
 
-
-
+#Sustaining

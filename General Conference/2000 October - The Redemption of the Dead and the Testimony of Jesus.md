@@ -165,4 +165,6 @@ Our charge extends as far and as deep as the love of God to encompass His childr
 
 
 
+
+
 #Agency #Atonement #Death #Family_History #Jesus_Christ #Obedience #Ordinances #Plan_Of_Salvation #Priesthood #Repentance #Service #Temple_Work #Temples #Testimony

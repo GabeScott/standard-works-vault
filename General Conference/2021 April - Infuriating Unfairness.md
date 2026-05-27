@@ -126,4 +126,6 @@ I testify that the Savior lives. He understands unfairness. The marks in the pal
 [^29]: See, for instance, Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94; Dallin H. Oaks, “[[2020 October - Love Your Enemies.md|Love Your Enemies]],” *Ensign* or *Liahona*, Nov. 2020, 26–29. President Nelson exhorted: “Today I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice. I plead with you to promote respect for all of God’s children.” This is more than just being opposed to attitudes and actions of prejudice. President Oaks quoted the Reverend Theresa A. Dear: “Racism thrives on hatred, oppression, collusion, passivity, indifference and silence.” Then he said, “As members of The Church of Jesus Christ of Latter-day Saints, we must do better to help root out racism.”
 
 
+
+
 #Adversity #Atonement #Compassion #Faith #God_The_Father #Jesus_Christ

@@ -99,4 +99,6 @@ May you be equal to it, I pray humbly in the name of Jesus Christ, amen.
 
 
 
-#Agency #Evil #God_The_Father #Jesus_Christ #Priesthood #Responsibility #Word_Of_Wisdom
+
+
+#Agency #Church_Leaders #Evil #God_The_Father #Jesus_Christ #Priesthood #Responsibility #Word_Of_Wisdom

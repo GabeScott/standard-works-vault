@@ -101,4 +101,6 @@ President Monson, we thank you for those truths! And we thank you for your lifet
 
 
 
-#Church_Organization #First_Presidency #Leadership #Prophets #Quorum_Of_The_Twelve_Apostles #Thomas_S_Monson
+
+
+#Church_Organization #First_Presidency #Leadership #Prophets #Quorum_Of_The_Twelve_Apostles #Thomas_S._Monson

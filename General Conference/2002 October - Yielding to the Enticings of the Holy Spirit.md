@@ -119,4 +119,6 @@ I declare my witness of these truths in the name of Jesus Christ, amen.
 
 
 
+
+
 #Conscience #Holy_Ghost #Spirituality

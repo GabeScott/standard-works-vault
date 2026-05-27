@@ -109,4 +109,6 @@ In the sacred name of Jesus Christ, amen.
 
 
 
+
+
 #Agency #Courage #Dedication #Faith #God_The_Father #Obedience #Ordinances #Prayer #Prophets #Satan #Scriptures #Spirituality

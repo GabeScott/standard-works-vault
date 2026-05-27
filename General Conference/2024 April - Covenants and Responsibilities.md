@@ -95,4 +95,6 @@ I testify of Jesus Christ, who is the head of that Church, and invoke His blessi
 
 
 
+
+
 #Book_Of_Mormon #Church_History #Commitment #Covenants #Discipleship #Responsibility #Temple_Work #Temples

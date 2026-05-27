@@ -87,4 +87,6 @@ I thank my Father in Heaven for all the pioneers of the past and present who hav
 
 
 
+
+
 #Faith #Fellowshipping #Pioneers #Spirituality #Visiting_Teaching

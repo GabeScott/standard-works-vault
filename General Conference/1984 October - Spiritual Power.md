@@ -45,4 +45,6 @@ I bear witness he has planted those seeds, and I pledge all that I have for the 
 
 
 
+
+
 #Leadership #Prayer #Spirituality

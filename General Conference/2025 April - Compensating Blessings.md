@@ -78,4 +78,6 @@ I testify that while many circumstances in life may be beyond our control, none 
 [^12]: [Teachings of Presidents of the Church: Lorenzo Snow](https://churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-lorenzo-snow/chapter-9-sacred-family-relationships?lang=eng&id=p7#p7) (2012), 130.
 
 
+
+
 #Adversity #Blessings #Temple_Work

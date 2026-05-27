@@ -67,4 +67,6 @@ I bear my special witness that Jesus Christ lives. He is the shepherd of the los
 
 
 
+
+
 #Duty #Example #Home #Parents #Youth

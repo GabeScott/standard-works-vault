@@ -126,4 +126,6 @@ I testify that Jesus Christ is our Advocate with the Father. He is a living God 
 [^26]: [[Ether 6.8|Ether 6:8]].
 
 
+
+
 #Adversity #Missionary_Service #Service #Spiritual_Growth #Youth

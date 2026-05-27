@@ -61,4 +61,6 @@ Brothers and sisters, seeing your example, I pledge anew *my* determination to b
 
 
 
+
+
 #Gratitude #Individual_Worth #Sacrifice #Service

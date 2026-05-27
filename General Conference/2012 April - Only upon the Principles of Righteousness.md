@@ -79,4 +79,6 @@ Brothers and sisters, this is the Lord’s way. Even if you’ve been mistreated
 
 
 
+
+
 #Leadership #Obedience #Parenthood #Priesthood

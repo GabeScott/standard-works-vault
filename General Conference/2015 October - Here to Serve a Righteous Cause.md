@@ -95,4 +95,6 @@ May we choose to serve a righteous cause as valiant emissaries of our Lord Jesus
 
 
 
+
+
 #Covenants #Divine_Nature #Family #Plan_Of_Salvation #Repentance #Service

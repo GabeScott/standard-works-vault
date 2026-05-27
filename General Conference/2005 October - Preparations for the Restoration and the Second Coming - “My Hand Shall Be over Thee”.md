@@ -117,4 +117,6 @@ That each of us will prepare ourselves to greet Him is my humble prayer. In His 
 
 
 
+
+
 #Apostasy #Book_Of_Mormon #Jesus_Christ #Joseph_Smith #Restoration #Scripture_Study

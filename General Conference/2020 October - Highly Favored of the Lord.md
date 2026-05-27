@@ -110,4 +110,6 @@ I close with my testimony of Jesus Christ, who Himself was no stranger to afflic
 [^15]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
 
+
+
 #Adversity

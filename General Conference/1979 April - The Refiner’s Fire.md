@@ -85,4 +85,6 @@ I now wish to conclude by testifying concerning Jesus as the Christ and the Divi
 
 
 
+
+
 #Adversity #Endurance #Faith #Jesus_Christ #Pioneers #Spirituality

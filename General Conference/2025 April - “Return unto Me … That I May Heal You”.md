@@ -100,4 +100,6 @@ I witness that there is rejoicing in heaven over those who return.[^14] You are 
 [^16]: See [[Alma 5.33|Alma 5:33]].
 
 
+
+
 #Activation #Faith #Jesus_Christ #Repentance

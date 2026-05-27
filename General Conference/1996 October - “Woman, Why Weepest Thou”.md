@@ -129,4 +129,6 @@ I pray, as did King Benjamin, that we shall “be steadfast and immovable, alway
 
 
 
+
+
 #Adversity #Atonement #Evil #Jesus_Christ #Peace #Repentance #Service #Women

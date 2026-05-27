@@ -69,4 +69,6 @@ I give you my testimony of him. He was the ordained servant of God, this Joseph 
 
 
 
+
+
 #Joseph_Smith #Restoration

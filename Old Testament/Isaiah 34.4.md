@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 102.26|Ps. 102:26]]; [[Luke 21.26|Luke 21:26]].  
-[^b]: [[Revelation 6.14|Rev. 6:14]]; [[Revelation 6.note14a|JST Rev. 6:14 (Rev. 6:14 note a)]].  
+[^b]: [[Revelation 6.14|Rev. 6:14]]; [[Revelation 6.14|JST Rev. 6:14 (Rev. 6:14 note a)]].  
 [^c]: HEB an unripe fruit.  

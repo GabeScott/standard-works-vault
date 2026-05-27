@@ -53,4 +53,6 @@ God did part the Red Sea, and He did give us the Book of Mormon. He can heal us 
 
 
 
+
+
 #Adversity #Book_Of_Mormon #God_The_Father #Jesus_Christ #Miracles #Restoration #Scriptures

@@ -69,4 +69,6 @@ May the Lord bless us to see ourselves as we really are and to repent as needs b
 
 
 
+
+
 #Forgiveness #Pride #Repentance #Responsibility

@@ -83,4 +83,6 @@ In the name of Jesus Christ, amen.
 
 
 
+
+
 #Adversity #Discipleship #Holy_Ghost #Jesus_Christ #Spirituality

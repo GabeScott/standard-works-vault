@@ -5,8 +5,8 @@
 [Exodus 15:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.2?lang=eng#p2)
 
 
-[^a]: [[2 Nephi 22.2|2 Ne. 22:2]].
-[^b]: [[Priesthood, Power of|TG Priesthood, Power of]]; [[Strength|Strength]].
-[^c]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]].
-[^d]: HEB praise Him.
-[^e]: [[2 Samuel 22.47|2 Sam. 22:47]].
+[^a]: [[2 Nephi 22.2|2 Ne. 22:2]].  
+[^b]: [[Priesthood, Power of|TG Priesthood, Power of]]; [[Strength|Strength]].  
+[^c]: [[Jesus Christ, Savior|TG Jesus Christ, Savior]].  
+[^d]: HEB praise Him.  
+[^e]: [[2 Samuel 22.47|2 Sam. 22:47]].  

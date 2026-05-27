@@ -111,4 +111,6 @@ That all of us may travel safely to our eternal home is my humble prayer. In the
 
 
 
+
+
 #Faith #Temple_Work #Temples

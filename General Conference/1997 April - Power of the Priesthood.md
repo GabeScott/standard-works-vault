@@ -109,4 +109,6 @@ Brethren, may we strive to keep the oath and covenant of the priesthood and qual
 
 
 
+
+
 #Bishops #Brigham_Young #Church_Callings #Holy_Ghost #Home #Joy #Love #Obedience #Priesthood #Service #Spirituality

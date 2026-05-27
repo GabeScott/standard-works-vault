@@ -117,4 +117,6 @@ Heavenly Father has given each of us the capacity to become holy. May we do our 
 
 
 
+
+
 #Atonement #Covenants #Divine_Nature #Holy_Ghost #Jesus_Christ

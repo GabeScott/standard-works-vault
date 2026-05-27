@@ -90,4 +90,6 @@ I solemnly bear my testimony that the constant pursuit of temperance purifies ou
 [^19]: [[1 Peter 2.23|1 Peter 2:23]].
 
 
+
+
 #Adversity #Anger #Discipleship #Jesus_Christ #Patience

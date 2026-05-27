@@ -137,4 +137,6 @@ Brethren, may the Lord strengthen each of us who holds the priesthood, that each
 
 
 
+
+
 #Charity #Compassion #Ezra_Taft_Benson #Individual_Worth #Welfare

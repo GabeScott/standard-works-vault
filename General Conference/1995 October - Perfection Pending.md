@@ -179,4 +179,6 @@ We need not be dismayed if our earnest efforts toward perfection now seem so ard
 
 
 
+
+
 #Atonement #Commandments #Example #Forgiveness #Jesus_Christ #Joy #Plan_Of_Salvation #Resurrection #Temples

@@ -69,4 +69,6 @@ To this, brothers and sisters, I add my testimony of the divinity of the Lord Je
 
 
 
+
+
 #Agency #Communication #Listening #Love #Spirituality

@@ -47,4 +47,6 @@ Now I invite you to listen to the Brethren and sisters. All who speak feel the r
 
 
 
+
+
 #Adversity #Church_Growth #Family #Family_History #General_Conference #Media #Temples #Tolerance

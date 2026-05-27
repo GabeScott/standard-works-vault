@@ -191,4 +191,6 @@ May God grant that we may be worthy to enter there and receive the fulness of th
 
 
 
+
+
 #Authority #Priesthood #Temples

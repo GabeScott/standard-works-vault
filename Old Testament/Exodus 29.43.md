@@ -5,5 +5,5 @@
 [Exodus 29:43](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.43?lang=eng#p43)
 
 
-[^a]: [[Exodus 25.22|Ex. 25:22]].
-[^b]: [[Temple|TG Temple]].
+[^a]: [[Exodus 25.22|Ex. 25:22]].  
+[^b]: [[Temple|TG Temple]].  

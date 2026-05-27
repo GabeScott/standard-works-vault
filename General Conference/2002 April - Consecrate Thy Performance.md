@@ -81,4 +81,6 @@ In the name of the Lord of the outstretched arm (see [[D&C 103.17|D&C 103:17]]; 
 
 
 
+
+
 #Commitment #Consecration #Humility

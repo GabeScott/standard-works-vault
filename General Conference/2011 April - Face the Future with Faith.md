@@ -100,4 +100,6 @@ To President Monson’s powerful declaration I add my own. I testify that God is
 [^18]: [[D&C 98.37|Doctrine and Covenants 98:37]].
 
 
+
+
 #Adversity #Faith #Obedience #Tithing

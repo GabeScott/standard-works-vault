@@ -93,4 +93,6 @@ You are precious, precious daughters of our Heavenly Father sent to earth at thi
 
 
 
+
+
 #Endurance #Faith #Obedience

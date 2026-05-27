@@ -5,5 +5,5 @@
 [Luke 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.8?lang=eng#p8)
 
 
-[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  
 [^b]: [[JST Luke 1.8|JST Luke 1:8]] … priesthood,  

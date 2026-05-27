@@ -57,4 +57,6 @@ May we be faithful and true, doing our duty to move forward the eternal work of 
 
 
 
-#Church_Growth #Faith #Jesus_Christ #Kingdom_Of_God #Pioneers #Quorums_Of_Seventy #Relief_Society #Temples
+
+
+#Church_Growth #Church_Leaders #Faith #Jesus_Christ #Kingdom_Of_God #Pioneers #Quorums_Of_Seventy #Relief_Society #Temples

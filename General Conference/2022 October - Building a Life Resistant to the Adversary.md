@@ -76,4 +76,6 @@ I pray that we may continue to build our lives following the plans and technical
 [^10]: [[Alma 26.27|Alma 26:27]].
 
 
+
+
 #Adversity #Joy #Preparation #Satan #Temptation

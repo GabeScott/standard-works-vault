@@ -149,4 +149,6 @@ Brothers and sisters, race, nationality, occupation, or other interests need not
 
 
 
-#Agency #Church_Callings #Commandments #Covenants #Faith #Family #Honesty #Jesus_Christ #Kingdom_Of_God #Morality #Neighbors #Prayer #Priorities #Service #Truth
+
+
+#Agency #Church_Callings #Church_Leaders #Commandments #Covenants #Faith #Family #Honesty #Jesus_Christ #Kingdom_Of_God #Morality #Neighbors #Prayer #Priorities #Service #Truth

@@ -113,4 +113,6 @@ That each marriage may be so nurtured is my prayer, in the name of Jesus Christ,
 
 
 
+
+
 #Communication #Family #Marriage #Temples

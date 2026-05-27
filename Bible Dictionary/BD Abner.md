@@ -1,0 +1,7 @@
+# Abner
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/abner?lang=eng)
+
+*Father of Ner,* or *light.* Captain of Saul’s army ([[1 Samuel 14.50|1 Sam. 14:50]]; [[1 Samuel 17.55|17:55]]; [[1 Samuel 20.25|20:25]]; [[1 Samuel 26.5|26:5–15]][[1 Samuel 26.6|]][[1 Samuel 26.7|]][[1 Samuel 26.8|]][[1 Samuel 26.9|]][[1 Samuel 26.10|]][[1 Samuel 26.11|]][[1 Samuel 26.12|]][[1 Samuel 26.13|]][[1 Samuel 26.14|]][[1 Samuel 26.15|]]); makes Ishbosheth king ([[2 Samuel 2.8|2 Sam. 2:8–9]][[2 Samuel 2.9|]]); defeated by Joab, slays Asahel ([[2 Samuel 2.12|2:12–32]][[2 Samuel 2.13|]][[2 Samuel 2.14|]][[2 Samuel 2.15|]][[2 Samuel 2.16|]][[2 Samuel 2.17|]][[2 Samuel 2.18|]][[2 Samuel 2.19|]][[2 Samuel 2.20|]][[2 Samuel 2.21|]][[2 Samuel 2.22|]][[2 Samuel 2.23|]][[2 Samuel 2.24|]][[2 Samuel 2.25|]][[2 Samuel 2.26|]][[2 Samuel 2.27|]][[2 Samuel 2.28|]][[2 Samuel 2.29|]][[2 Samuel 2.30|]][[2 Samuel 2.31|]][[2 Samuel 2.32|]]); revolts to David ([[2 Samuel 3.6|3:6–21]][[2 Samuel 3.7|]][[2 Samuel 3.8|]][[2 Samuel 3.9|]][[2 Samuel 3.10|]][[2 Samuel 3.11|]][[2 Samuel 3.12|]][[2 Samuel 3.13|]][[2 Samuel 3.14|]][[2 Samuel 3.15|]][[2 Samuel 3.16|]][[2 Samuel 3.17|]][[2 Samuel 3.18|]][[2 Samuel 3.19|]][[2 Samuel 3.20|]][[2 Samuel 3.21|]]); killed by Joab ([[2 Samuel 3.27|3:27]]); David’s lament over Abner ([[2 Samuel 3.33|3:33]]; [[2 Samuel 4.1|4:1, 12]][[2 Samuel 4.12|]]; [[1 Kings 2.5|1 Kgs. 2:5, 32]][[1 Kings 2.32|]]; [[1 Chronicles 26.28|1 Chr. 26:28]]; [[1 Chronicles 27.21|27:21]]).
+
+

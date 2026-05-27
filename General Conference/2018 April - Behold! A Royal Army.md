@@ -121,4 +121,6 @@ Today we all stand as witnesses of the Lord revealing His will through His proph
 
 
 
+
+
 #Church_Organization #Ministering #Priesthood_Quorums #Unity

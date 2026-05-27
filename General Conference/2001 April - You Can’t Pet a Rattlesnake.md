@@ -107,4 +107,6 @@ Don’t allow the poison to touch your souls, brethren. Remember, “He that is 
 
 
 
+
+
 #Forgiveness #Media #Morality #Prayer #Preparation #Repentance #Sin #Standards #Temptation

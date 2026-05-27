@@ -101,4 +101,6 @@ In God’s plan, we will each transition one day from this life into the next li
 
 
 
+
+
 #Belonging #Church_Callings #Covenants #Jesus_Christ #Love #Reverence #Service #Unity

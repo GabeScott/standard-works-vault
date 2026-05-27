@@ -124,4 +124,6 @@ Brethren, great is our work, and heavy are our priesthood responsibilities. I ho
 [^18]: [[3 Nephi 12.41|3 Nephi 12:41]].
 
 
+
+
 #Accountability #Priesthood #Service #Talents

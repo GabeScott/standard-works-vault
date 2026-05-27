@@ -33,4 +33,6 @@ Brethren, may we care for our bodies and our minds by observing the principles s
 
 
 
+
+
 #Prayer #Word_Of_Wisdom

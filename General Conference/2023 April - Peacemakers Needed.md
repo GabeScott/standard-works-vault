@@ -125,4 +125,6 @@ God lives! Jesus is the Christ. He stands at the head of this Church. We are His
 
 
 
+
+
 #Anger #Charity #Contention #Discipleship #Jesus_Christ #Love #Peace #Peacemaking

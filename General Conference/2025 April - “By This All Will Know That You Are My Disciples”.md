@@ -135,4 +135,6 @@ May God bless us to patiently but diligently seek to live up to the ideals our S
 
 
 
+
+
 #Belonging #Discipleship #Love #Unity

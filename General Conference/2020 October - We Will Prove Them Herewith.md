@@ -146,4 +146,6 @@ I witness that God the Eternal Father is our Father. Jesus Christ is His Only Be
 [^17]: [[D&C 87.8|Doctrine and Covenants 87:8]].
 
 
+
+
 #Adversity #Faith #Preparation

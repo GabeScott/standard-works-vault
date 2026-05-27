@@ -106,4 +106,6 @@ As we face hard things in the Lord’s way, may we lift up our heads and rejoice
 [^14]: [[1 Nephi 19.9|1 Nephi 19:9]].
 
 
+
+
 #Adversity #Discipleship #Forgiveness #Joy

@@ -70,4 +70,6 @@ I pray that you, as one abused or one who has caused it, will act now to avail y
 [^3]: See [[Deuteronomy 22.25|Deuteronomy 22:25–27]][[Deuteronomy 22.26|]][[Deuteronomy 22.27|]].
 
 
+
+
 #Abuse #Atonement #Healing

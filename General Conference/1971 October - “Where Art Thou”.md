@@ -135,4 +135,6 @@ I appeal to each member of the Church to ask himself: Where am I? Am I ashamed s
 
 
 
+
+
 #Blessings #Commandments #Obedience #Temptation

@@ -261,4 +261,6 @@ I know that as we come unto Christ, we can eventually “be perfected in him” 
 
 
 
+
+
 #Church_Doctrine #Holy_Ghost #Love #Prophets #Revelation #Teaching #Truth

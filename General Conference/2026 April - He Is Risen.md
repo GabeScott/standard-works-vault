@@ -1,6 +1,6 @@
 # He Is Risen
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -18,7 +18,7 @@ After three days in a borrowed tomb, Jesus Christ broke the bands of death impos
 
 When Mary and other faithful women[^11] approached the Garden Tomb to care for the body of their Lord, they found two angels, who announced, “He is not here, but is risen.”[^12]
 
-Those glorious words, “He is risen,” have sparked religious ceremony, gratitude, faith in Jesus Christ and His promises for centuries. President Dallin H. Oaks has testified: “The resurrection is a pillar of our faith. It adds meaning to our doctrine, motivation to our behavior, and hope for our future.”[^13]
+Those glorious words, “He is risen,” have sparked religious ceremony, gratitude, faith in Jesus Christ and His promises for centuries. President Dallin H. Oaks has testified: “The resurrection is a pillar of our faith. It adds meaning to our doctrine, motivation to our behavior, and hope for our future.”[^13]
 
 Jesus Christ is more than a mortal first laid in a manger, more than a friend, teacher, rabbi, minister, or prophet. He is the Only Begotten Son of the Father.[^14] And by divine design, His Resurrection by His own godly power reunited His body and His spirit.[^15] What a majestic and monumental event in Father in Heaven’s eternal plan.
 
@@ -57,7 +57,7 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 
 
-[^1]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 49.
+[^1]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18)* (2007), 49.
 
 [^2]: [[Exodus 3.16|Exodus 3:16]].
 
@@ -81,7 +81,7 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^12]: See [[Luke 24.5|Luke 24:5–6]][[Luke 24.6|]].
 
-[^13]: Dallin H. Oaks, “[[2000 April - Resurrection.md|Resurrection]],” *Ensign*, May 2000, 14; *Liahona*, July 2000, 16.
+[^13]: Dallin H. Oaks, “[[2000 April - Resurrection.md|Resurrection]],” *Ensign*, May 2000, 14; *Liahona*, July 2000, 16.
 
 [^14]: See [[John 3.16|John 3:16]].
 
@@ -125,7 +125,7 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^34]: [[3 Nephi 17.21|3 Nephi 17:21]].
 
-[^35]: See Ronald A. Rasband, “[[2012 April - Special Lessons.md|Special Lessons]],” *Liahona*, May 2012, 80–82.
+[^35]: See Ronald A. Rasband, “[[2012 April - Special Lessons.md|Special Lessons]],” *Liahona*, May 2012, 80–82.
 
 [^36]: [[3 Nephi 17.7|3 Nephi 17:7]].
 
@@ -143,7 +143,9 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^43]: [[Isaiah 49.16|Isaiah 49:16]].
 
-[^44]: “He Is Risen!,” *Hymns*, no. 199.
+[^44]: “He Is Risen!,” *Hymns*, no. 199.
 
 [^45]: See [[D&C 107.23|Doctrine and Covenants 107:23]].
 
+
+#Jesus_Christ #Resurrection

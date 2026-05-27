@@ -139,4 +139,6 @@ May we recognize and receive His glorious light and then choose Him over the dar
 
 
 
+
+
 #First_Vision #Light_Of_Christ #Restoration #Revelation #Testimony

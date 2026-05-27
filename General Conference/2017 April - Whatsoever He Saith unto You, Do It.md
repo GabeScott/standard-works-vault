@@ -86,4 +86,6 @@ Every day, consciously or otherwise, we all choose “whom \[we\] will serve.”
 [^15]: See [[Proverbs 3.6|Proverbs 3:6]].
 
 
+
+
 #Adversity #Faith #Jesus_Christ #Obedience #Trust

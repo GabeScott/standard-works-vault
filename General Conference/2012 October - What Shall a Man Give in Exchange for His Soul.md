@@ -99,4 +99,6 @@ On a recent trip to Nicaragua, I noticed a plaque in the modest home of a family
 
 
 
+
+
 #Humility #Repentance #Sacrifice

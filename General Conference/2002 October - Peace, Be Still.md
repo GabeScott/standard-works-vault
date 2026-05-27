@@ -187,4 +187,6 @@ His words in holy writ are sufficient: “Be still, and know that I am God.”[^
 
 
 
+
+
 #Conscience #Financial_Management #Greed #Honesty #Morality #Patience #Peace #Word_Of_Wisdom

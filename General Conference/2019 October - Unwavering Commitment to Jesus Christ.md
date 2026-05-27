@@ -97,4 +97,6 @@ I invite you to commit to a lifelong process of discipleship. Make and keep cove
 
 
 
+
+
 #Commitment #Conversion #Covenants #Faith #Jesus_Christ

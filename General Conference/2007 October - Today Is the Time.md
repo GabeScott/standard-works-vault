@@ -40,4 +40,6 @@ Today is our time to be valiant and decide to give our souls a serious, profound
 
 
 
+
+
 #Adversity #Obedience #Preparation #Service

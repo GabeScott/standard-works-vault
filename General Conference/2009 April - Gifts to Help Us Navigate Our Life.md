@@ -121,4 +121,6 @@ We have been taught this weekend by prophets, seers, and revelators. I am gratef
 
 
 
+
+
 #Agency #Holy_Ghost #Prophets

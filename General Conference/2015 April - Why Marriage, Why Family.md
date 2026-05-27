@@ -103,4 +103,6 @@ That is my prayer for all of us today. May we each find approval in His sight. M
 
 
 
+
+
 #Atonement #Creation #Fall #Family #Marriage #Plan_Of_Salvation

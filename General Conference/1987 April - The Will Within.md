@@ -82,4 +82,6 @@ Let us shed any thought of failure. Let us discard any habit that may hinder. Le
 
 
 
+
+
 #Adversity #Dedication #Fellowshipping

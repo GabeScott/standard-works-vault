@@ -112,4 +112,6 @@ I hope as you have listened this morning that the Spirit has impressed on your m
 [^20]: [[D&C 6.23|Doctrine and Covenants 6:23]].
 
 
+
+
 #Adversity #Conversion #Faith #Fasting #Obedience #Prayer #Revelation #Scriptures

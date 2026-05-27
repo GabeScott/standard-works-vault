@@ -138,4 +138,6 @@ Heed these words of the Psalmist: “I have set the Lord always before me: becau
 [^33]: [[Psalms 16.8|Psalm 16:8, 11]][[Psalms 16.11|]].
 
 
+
+
 #Adversity #Jesus_Christ #Joy #Plan_Of_Salvation

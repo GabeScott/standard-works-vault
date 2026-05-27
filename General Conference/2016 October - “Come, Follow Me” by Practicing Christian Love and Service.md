@@ -105,4 +105,6 @@ I bear my special witness that He lives and loves us with a perfect love. This i
 
 
 
+
+
 #Jesus_Christ #Love #Parenthood #Service #Teaching

@@ -83,4 +83,6 @@ God is our Father. Jesus is the Christ. May our knowledge of them on a continuin
 
 
 
+
+
 #Love #Obedience #Responsibility

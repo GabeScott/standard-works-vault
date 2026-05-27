@@ -1,6 +1,6 @@
 # Prayers for Peace
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -44,7 +44,7 @@ The Lord has also provided us touching evidence of the power of nonverbal prayer
 
 “And Alma and his people did not raise their voices to the Lord their God, but did pour out their hearts to him; and he did know the thoughts of their hearts.
 
-“And it came to pass that the voice of the Lord came to them in their afflictions, saying: Lift up your heads and be of good comfort, for I … will also ease the burdens which are put upon your shoulders, that even you cannot feel them upon your backs, even while you are in bondage. …
+“And it came to pass that the voice of the Lord came to them in their afflictions, saying: Lift up your heads and be of good comfort, for I … will also ease the burdens which are put upon your shoulders, that even you cannot feel them upon your backs, even while you are in bondage. …
 
 “And now it came to pass that the burdens which were laid upon Alma and his brethren were made light; yea, the Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with patience to all the will of the Lord.”[^6]
 
@@ -56,7 +56,7 @@ It is significant that their spiritual strength *came from continued prayer* rat
 
 I know that God the Father lives. He loves us. He hears our prayers, and many times He will answer with feelings of peace. Again from the Book of Mormon: “And now, may the peace of God rest upon you, and upon your houses and lands, and upon your flocks and herds, and all that you possess, your women and your children, according to your faith and good works, from this time forth and forever. And thus I have spoken.”[^10]
 
-Brothers and sisters, I bear my testimony that the Savior’s promise is true and that a humble prayer for peace in your heart will be honored. I felt it at the funeral of my wife of 61 years. I was surprised at the feeling of peace and almost joy. The people at the funeral must have wondered why I was smiling. It was because the Lord had answered my prayer for peace with an assurance from the Holy Ghost, which allowed me to envision the happy reunion ahead with her. The Lord gave me the peace and hope that He had promised His disciples.
+Brothers and sisters, I bear my testimony that the Savior’s promise is true and that a humble prayer for peace in your heart will be honored. I felt it at the funeral of my wife of 61 years. I was surprised at the feeling of peace and almost joy. The people at the funeral must have wondered why I was smiling. It was because the Lord had answered my prayer for peace with an assurance from the Holy Ghost, which allowed me to envision the happy reunion ahead with her. The Lord gave me the peace and hope that He had promised His disciples.
 
 He said: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled.”[^11]
 
@@ -81,9 +81,11 @@ I testify that I know that Jesus Christ lives. He loves us and blesses us. He co
 
 [^8]: [[Alma 17.3|Alma 17:3]].
 
-[^9]: See “Sweet Hour of Prayer,” *Hymns*, no. 142.
+[^9]: See “Sweet Hour of Prayer,” *Hymns*, no. 142.
 
 [^10]: [[Alma 7.27|Alma 7:27]].
 
 [^11]: [[John 14.27|John 14:27]].
 
+
+#Adversity #Peace #Prayer

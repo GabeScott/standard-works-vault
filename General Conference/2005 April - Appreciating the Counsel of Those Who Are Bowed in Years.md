@@ -73,4 +73,6 @@ I wish to add my own humble affirmation of the truthfulness of the aforementione
 
 
 
+
+
 #Elderly #Prophets #Testimony #Wisdom

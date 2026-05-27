@@ -121,17 +121,17 @@ Jesus Christ is our strength. This I know. Of this I bear witness in the name of
 
 [^11]: Scripture tells us that Peter was a skilled fisherman, but we don’t read anywhere that he was trained as a shepherd. The Lord was calling him to a greater work, inviting Peter to become who the Lord knew he was capable of becoming.
 
-[^12]: *For the Strength of Youth: A Guide for Making Choices* (2025), 6–7.
+[^12]: *[For the Strength of Youth: A Guide for Making Choices](https://www.churchofjesuschrist.org/study/manual/for-the-strength-of-youth-2026/01-gods-plan-for-you?lang=eng&id=p_vqueb-p_z01Pt#p_vqueb)* (2025), 6–7.
 
-[^13]: *For the Strength of Youth*, 10, 12.
+[^13]: *[For the Strength of Youth](https://www.churchofjesuschrist.org/study/manual/for-the-strength-of-youth-2026/02-god-wants-to-communicate-with-you?lang=eng&id=p_xN18X,p_d2ZSt#p_xN18X)*, 10, 12.
 
-[^14]: *For the Strength of Youth*, 18–19.
+[^14]: *[For the Strength of Youth](https://www.churchofjesuschrist.org/study/manual/for-the-strength-of-youth-2026/04-jesus-christ-will-help-you?lang=eng&id=p_cZnov,p_cjHv3#p_cZnov)*, 18–19.
 
-[^15]: *For the Strength of Youth*, 22–23.
+[^15]: *[For the Strength of Youth](https://www.churchofjesuschrist.org/study/manual/for-the-strength-of-youth-2026/05-walk-in-gods-light?lang=eng&id=p_nr6wk,p_ymrUp#p_nr6wk)*, 22–23.
 
-[^16]: *For the Strength of Youth*, 40; see also pages 41–44.
+[^16]: *[For the Strength of Youth](https://www.churchofjesuschrist.org/study/manual/for-the-strength-of-youth-2026/07-ordinances-and-covenants-give-you-access-to-gods-blessings?lang=eng)*, 40; see also pages 41–44.
 
-[^17]: *For the Strength of Youth*, 62–63.
+[^17]: *[For the Strength of Youth](https://www.churchofjesuschrist.org/study/manual/for-the-strength-of-youth-2026/12-jesus-christ-brings-joy?lang=eng&id=p_oKZ4O,p_bdGDJ#p_oKZ4O)*, 62–63.
 
 [^18]: See [[Luke 22.43|Luke 22:43]].
 
@@ -145,3 +145,5 @@ Jesus Christ is our strength. This I know. Of this I bear witness in the name of
 
 [^23]: See [[John 20.5|John 20:5–7]][[John 20.6|]][[John 20.7|]].
 
+
+#Adversity #Blessings #Faith #Jesus_Christ

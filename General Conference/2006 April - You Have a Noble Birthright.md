@@ -107,4 +107,6 @@ Young women, your patriarchal blessing will help you know that you have a noble 
 
 
 
+
+
 #Covenants #Example #Patriarchal_Blessings #Spirituality

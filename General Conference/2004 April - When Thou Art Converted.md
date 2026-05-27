@@ -83,4 +83,6 @@ We have talked of desire, submissiveness to God, study, prayer, service, repenta
 
 
 
+
+
 #Conversion #Prayer #Repentance #Scripture_Study

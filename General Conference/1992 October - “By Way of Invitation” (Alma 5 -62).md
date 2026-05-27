@@ -59,4 +59,6 @@ I pray that Heavenly Father will help us be wise men and wise women—wise enoug
 
 
 
+
+
 #Christmas #Prayer #Scripture_Study #Service

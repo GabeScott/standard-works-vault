@@ -83,4 +83,6 @@ He is “the Lamb of God,”[^9] He is “the Holy and Righteous One,”[^10] �
 
 
 
+
+
 #Atonement #Family #Humility #Love #Patience #Repentance #Righteousness

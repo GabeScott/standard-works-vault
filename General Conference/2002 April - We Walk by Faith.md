@@ -89,4 +89,6 @@ May God, our Eternal Father, continue to smile upon this, His Kingdom, and cause
 
 
 
+
+
 #Faith #Prayer #Tithing

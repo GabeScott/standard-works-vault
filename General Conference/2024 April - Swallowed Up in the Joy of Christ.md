@@ -188,4 +188,6 @@ With joyful reverence, I witness our Savior lives and â€œHis promises are sure.â
 [^48]: [[Alma 33.23|Alma 33:23]].
 
 
+
+
 #Adversity #Healing #Jesus_Christ #Joy #Miracles

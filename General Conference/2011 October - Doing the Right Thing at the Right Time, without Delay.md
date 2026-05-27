@@ -56,4 +56,6 @@ I testify that God lives and is our Father. Jesus Christ lives and has given His
 [^5]: See [[3 Nephi 17.9|3 Nephi 17:9–12, 21]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.21|]].
 
 
+
+
 #Activation #Service

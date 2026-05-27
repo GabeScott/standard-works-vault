@@ -141,4 +141,6 @@ I testify that this is true, as I also testify that Jesus Christ is our Master, 
 
 
 
+
+
 #Balance #Consecration #Discipleship #Sacrifice #Service

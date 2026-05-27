@@ -59,4 +59,6 @@ May our Father in Heaven bless each one of you. I testify to one and all that Je
 
 
 
+
+
 #Commandments #Obedience #Worthiness

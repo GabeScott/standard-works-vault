@@ -88,4 +88,6 @@ I testify that Jesus is our Savior and Redeemer in the name of Jesus Christ, ame
 
 
 
+
+
 #Atonement #Attitude #Faith #Obedience #Trust

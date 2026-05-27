@@ -67,4 +67,6 @@ I know this is the Church of Jesus Christ. May each of us let the gospel sink de
 
 
 
+
+
 #Covenants #Individual_Worth #Joseph_Smith #Prophets

@@ -133,4 +133,6 @@ I testify that God speaks today through His chosen servants in The Church of Jes
 
 
 
+
+
 #Blessings #Obedience #Prophets #Trust

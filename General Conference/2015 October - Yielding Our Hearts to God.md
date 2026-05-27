@@ -82,4 +82,6 @@ When we offer our broken heart to Jesus Christ, He accepts our offering. He take
 [^9]: Robert L. Millet, *After All We Can Do: Grace Works* (2003), 133.
 
 
+
+
 #Adversity #Conversion #Healing #Plan_Of_Salvation #Prayer #Sacrament

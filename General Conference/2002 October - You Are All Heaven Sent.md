@@ -109,4 +109,6 @@ May the promise of Nephi be fulfilled in your behalf: “And they were armed wit
 
 
 
+
+
 #Charity #Family #Home #Obedience #Preparation #Relief_Society #Women

@@ -152,4 +152,6 @@ I testify to you of the joy that comes from singing “the song of redeeming lov
 [^37]: [[Alma 5.26|Alma 5:26]]; see also [[Alma 5.9|Alma 5:9]]; [[Alma 26.13|26:13]].
 
 
+
+
 #Adversity #Faith #Hope #Jesus_Christ #Loyalty #Prayer #Trust

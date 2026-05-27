@@ -147,4 +147,6 @@ I am grateful for the guidance and consecrated efforts of the living prophets. I
 
 
 
+
+
 #Prophets #Revelation #Teaching #Testimony #Youth

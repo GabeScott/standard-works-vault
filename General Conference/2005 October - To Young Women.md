@@ -73,4 +73,6 @@ To my granddaughter and to every other young person in this Church I bear my per
 
 
 
+
+
 #Divine_Nature #Morality #Plan_Of_Salvation #Self-Esteem #Testimony #Womanhood #Young_Women

@@ -107,4 +107,6 @@ Brethren, I testify with all my heart and soul that through the power of self-ma
 
 
 
+
+
 #Adversity #Courage #Example #Freedom #General_Conference #Humility #Media #Missionary_Work #Morality #Priesthood #Scripture_Study #Self-Control #Spirituality

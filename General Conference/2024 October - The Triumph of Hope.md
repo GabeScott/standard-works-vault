@@ -166,4 +166,6 @@ May we nurture our precious faith, pressing forward with a perfect brightness of
 [^26]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82.
 
 
+
+
 #Adversity #Faith #Holy_Ghost #Hope #Jesus_Christ #Joy #Temples

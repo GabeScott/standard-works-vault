@@ -85,4 +85,6 @@ If we undertake this effort and quench not the Spirit, our inner being is quicke
 
 
 
+
+
 #Commitment #Holy_Ghost #Temples

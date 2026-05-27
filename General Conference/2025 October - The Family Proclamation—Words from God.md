@@ -137,4 +137,6 @@ Our Father in Heaven has provided the proclamation on the family to help guide u
 
 
 
+
+
 #Divine_Nature #Family #Marriage

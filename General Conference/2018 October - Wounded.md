@@ -168,4 +168,6 @@ My brothers and sisters, it is my promise to you that increasing your faith in t
 [^33]: [[Revelation 7.14|Revelation 7:14]].
 
 
+
+
 #Adversity #Healing #Jesus_Christ

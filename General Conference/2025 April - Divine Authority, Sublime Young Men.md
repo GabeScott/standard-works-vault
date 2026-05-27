@@ -108,4 +108,6 @@ I am forever grateful that holders of the Aaronic Priesthood, with its powers, o
 [^1]: See Patrick Kearon, “[[2024 October - Welcome to the Church of Joy.md|Welcome to the Church of Joy]],” *Liahona*, Nov. 2024, 36–38.
 
 
+
+
 #Aaronic_Priesthood #Priesthood_Authority #Sacrament #Service #Youth

@@ -111,4 +111,6 @@ Our Father in Heaven has given us a perfect direction. May we have the faith and
 
 
 
+
+
 #Adversity #Curriculum #Faith #Relief_Society #Women

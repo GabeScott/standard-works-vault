@@ -109,4 +109,6 @@ I testify of the power of the priesthood of God, of the power of the prayer of f
 
 
 
+
+
 #Blessings #Faith #Healing #Priesthood

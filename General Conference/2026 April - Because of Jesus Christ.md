@@ -1,6 +1,6 @@
 # Because of Jesus Christ
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -30,7 +30,7 @@ Third, Jesus Christ understands our challenges, having taken on not only our sin
 
 Because of Jesus Christ, all that is unfair in life can and will be made right.[^25] He will consecrate our afflictions for our gain.[^26] He will sanctify to us our deepest distress.[^27] He will fill with sweet a bitter cup.[^28] He will dependably and consistently make us whole.[^29] If we let Him, we will “suffer no manner of afflictions, save it \[is\] swallowed up in the joy of Christ.”[^30]
 
-Focusing on the Savior, His infinite Atonement, and what He has done for us will bring joy and clarity into our lives,[^31] no matter how many other concerns we have. *This* is why ancient and modern prophets have and always will direct us to Christ.[^32] You may remember that President Russell M. Nelson taught, “Whatever questions or problems you have, the answer is always found in the life and teachings of Jesus Christ.”[^33] And President Dallin H. Oaks, the Lord’s living prophet today, simply declared, “Jesus Christ is the way.”[^34]
+Focusing on the Savior, His infinite Atonement, and what He has done for us will bring joy and clarity into our lives,[^31] no matter how many other concerns we have. *This* is why ancient and modern prophets have and always will direct us to Christ.[^32] You may remember that President Russell M. Nelson taught, “Whatever questions or problems you have, the answer is always found in the life and teachings of Jesus Christ.”[^33] And President Dallin H. Oaks, the Lord’s living prophet today, simply declared, “Jesus Christ is the way.”[^34]
 
 You need not be like our little dog, Lady—confused, discouraged, and overwhelmed—when facing too many balls; you do not need to crawl back to bed and cower. Instead, keep your eye on the ball.[^35] Focus on the Savior. Seek for the “precious gifts His Atonement can impart.”[^36] Then you can joyfully and confidently sing with the children:
 
@@ -47,9 +47,9 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 
 
-[^1]: See Dallin H. Oaks, “[[2007 October - Good, Better, Best.md|Good, Better, Best]],” *Liahona*, Nov. 2007, 104–8.
+[^1]: See Dallin H. Oaks, “[[2007 October - Good, Better, Best.md|Good, Better, Best]],” *Liahona*, Nov. 2007, 104–8.
 
-[^2]: “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” Gospel Library.
+[^2]: “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” Gospel Library.
 
 [^3]: See Joseph Smith Translation, Matthew 27:54 (in [[Matthew 27.50|Matthew 27:50]], footnote *a*).
 
@@ -75,7 +75,7 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^14]: See [[Mosiah 26.29|Mosiah 26:29–30]][[Mosiah 26.30|]].
 
-[^15]: See [[Ezekiel 33.12|Ezekiel 33:12, 14–16]][[Ezekiel 33.14|]][[Ezekiel 33.15|]][[Ezekiel 33.16|]]. Although we will suffer for sins that we have not repented of, we will not suffer further punishment for sins for which we have repented (see Dallin H. Oaks, “[[2022 April - Divine Love in the Father’s Plan.md|Divine Love in the Father’s Plan]],” *Liahona*, May 2022, 101).
+[^15]: See [[Ezekiel 33.12|Ezekiel 33:12, 14–16]][[Ezekiel 33.14|]][[Ezekiel 33.15|]][[Ezekiel 33.16|]]. Although we will suffer for sins that we have not repented of, we will not suffer further punishment for sins for which we have repented (see Dallin H. Oaks, “[[2022 April - Divine Love in the Father’s Plan.md|Divine Love in the Father’s Plan]],” *Liahona*, May 2022, 101).
 
 [^16]: *The Scarlet Letter* is an 1850 novel by Nathaniel Hawthorne set in 17th-century Puritan New England (a strict religious community in colonial America). The protagonist, Hester Prynne, is convicted of adultery and forced to wear a scarlet letter “A” on her clothing. The letter serves as a visible symbol of shame, a public punishment.
 
@@ -87,33 +87,33 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^20]: [[Zephaniah 3.17|Zephaniah 3:17]].
 
-[^21]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]; see also Dallin H. Oaks, “[[2015 October - Strengthened by the Atonement of Jesus Christ.md|Strengthened by the Atonement of Jesus Christ]],” *Liahona*, Nov. 2015, 61–64.
+[^21]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]; see also Dallin H. Oaks, “[[2015 October - Strengthened by the Atonement of Jesus Christ.md|Strengthened by the Atonement of Jesus Christ]],” *Liahona*, Nov. 2015, 61–64.
 
-[^22]: “Where Can I Turn for Peace?,” *Hymns*, no. 129.
+[^22]: “Where Can I Turn for Peace?,” *Hymns*, no. 129.
 
-[^23]: See M. Russell Ballard, “[Suicide: Some Things We Know, and Some We Do Not](https://churchofjesuschrist.org/study/ensign/1987/10/suicide-some-things-we-know-and-some-we-do-not?lang=eng&id=p24#p24),” *Ensign*, Oct. 1987, 8.
+[^23]: See M. Russell Ballard, “[Suicide: Some Things We Know, and Some We Do Not](https://www.churchofjesuschrist.org/study/ensign/1987/10/suicide-some-things-we-know-and-some-we-do-not?lang=eng&id=p24#p24),” *Ensign*, Oct. 1987, 8.
 
 [^24]: [[D&C 137.9|Doctrine and Covenants 137:9]]; see also [[2 Nephi 9.41|2 Nephi 9:41]].
 
-[^25]: See “Heavenly Father’s Plan of Salvation,” in *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 48.
+[^25]: See “Heavenly Father’s Plan of Salvation,” in *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/09-chapter-3-lesson-2?lang=eng&id=p27#p27)* (2023), 48.
 
 [^26]: See [[2 Nephi 2.1|2 Nephi 2:1–2]][[2 Nephi 2.2|]].
 
-[^27]: See “How Firm a Foundation,” *Hymns*, no. 85.
+[^27]: See “How Firm a Foundation,” *Hymns*, no. 85.
 
-[^28]: See “Savior, Redeemer of My Soul,” *Hymns*, no. 112.
+[^28]: See “Savior, Redeemer of My Soul,” *Hymns*, no. 112.
 
-[^29]: See “Where Can I Turn for Peace?,” *Hymns*, no. 129.
+[^29]: See “Where Can I Turn for Peace?,” *Hymns*, no. 129.
 
 [^30]: [[Alma 31.38|Alma 31:38]].
 
-[^31]: President Russell M. Nelson taught:
+[^31]: President Russell M. Nelson taught:
 
-[^32]: In this dispensation, the Prophet Joseph Smith explained, “The fundamental principles of our religion … \[concern\] Jesus Christ, that He died, was buried, and rose again the third day, and ascended into heaven; and all other things … are only appendages to it” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 49).
+[^32]: In this dispensation, the Prophet Joseph Smith explained, “The fundamental principles of our religion … \[concern\] Jesus Christ, that He died, was buried, and rose again the third day, and ascended into heaven; and all other things … are only appendages to it” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18)* \[2007\], 49).
 
-[^33]: Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” *Liahona*, May 2023, 127.
+[^33]: Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” *Liahona*, May 2023, 127.
 
-[^34]: “‘Jesus Christ Is the Way,’ President Oaks Says in First Interview as Church President,” *Church News*, Oct. 16, 2025, thechurchnews.com.
+[^34]: “‘Jesus Christ Is the Way,’ President Oaks Says in First Interview as Church President,” *Church News*, Oct. 16, 2025, thechurchnews.com.
 
 [^35]: In the late 1800s, the phrase “keep your eye on the ball” was literal advice to players of sports like baseball and cricket; to hit successfully, the players had to watch the ball closely as it approached. The phrase later transitioned into a figurative use, warning people to stay focused and not to lose sight of their primary goal. This idiomatic usage has been common in English for over a century.
 
@@ -121,11 +121,13 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^37]: “I Will Walk with Jesus,” *Hymns for Home and Church*, Gospel Library.
 
-[^38]: See Dallin H. Oaks, “[[2021 April - What Has Our Savior Done for Us.md|What Has Our Savior Done for Us?]],” *Liahona*, May 2021, 75–77.
+[^38]: See Dallin H. Oaks, “[[2021 April - What Has Our Savior Done for Us.md|What Has Our Savior Done for Us?]],” *Liahona*, May 2021, 75–77.
 
 [^39]: “Behold the Wounds in Jesus’ Hands,” *Hymns for Home and Church*, Gospel Library.
 
 [^40]: [[D&C 138.3|Doctrine and Covenants 138:3]].
 
-[^41]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
+[^41]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
+
+#Atonement_Of_Jesus_Christ #Easter #Forgiveness #Jesus_Christ #Joy #Repentance

@@ -149,4 +149,6 @@ And may he help us to strive to live his laws and to achieve happiness on earth,
 
 
 
+
+
 #Character #Commandments #Homosexuality #Honesty #Morality

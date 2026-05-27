@@ -109,4 +109,6 @@ With the Lord’s living prophets and apostles, we too can join a virtuous circl
 
 
 
+
+
 #Discipleship #Humility #Jesus_Christ #Love #Service

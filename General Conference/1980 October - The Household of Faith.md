@@ -117,4 +117,6 @@ Such a people will be known as the “household of faith” ([[D&C 121.45|D&C 12
 
 
 
+
+
 #Preparation #Welfare

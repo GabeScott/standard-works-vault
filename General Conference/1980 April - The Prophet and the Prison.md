@@ -71,4 +71,6 @@ It is my hope and prayer that we will have the courage in our lives, homes, and 
 
 
 
+
+
 #Joseph_Smith #Kindness #Service

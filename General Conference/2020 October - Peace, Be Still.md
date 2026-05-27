@@ -120,4 +120,6 @@ Sisters and brothers, our current challenging circumstances are not our final, e
 [^26]: Russell M. Nelson, “[[2020 April - Go Forward in Faith.md|Go Forward in Faith]],” *Ensign* or *Liahona,* May 2020, 114.
 
 
+
+
 #Adversity #Faith #Obedience #Peace

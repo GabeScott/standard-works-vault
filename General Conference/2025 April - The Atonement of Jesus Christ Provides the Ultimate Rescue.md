@@ -134,4 +134,6 @@ We must never forget the sacrifices and examples of prior generations, but our a
 [^27]: President Thomas S. Monson both taught and lived the rescue principle (see *Teachings of Presidents of the Church: Thomas S. Monson* \[2020\], 67–76).
 
 
+
+
 #Adversity #Atonement #Jesus_Christ #Pioneers #Temples

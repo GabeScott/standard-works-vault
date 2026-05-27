@@ -147,4 +147,6 @@ Gratefully, and with love undiminished, I bear witness of these things in His Ho
 
 
 
+
+
 #Example #Friendship #Gratitude #Jesus_Christ #Missionary_Work #Satan #Temptation #Testimony #Youth

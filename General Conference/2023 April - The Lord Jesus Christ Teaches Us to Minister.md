@@ -86,4 +86,6 @@ The following Sunday he was back. He had a long conversation with his bishop and
 [^15]: [[Luke 15.8|Luke 15:8]].
 
 
+
+
 #Activation #Jesus_Christ #Love #Ministering

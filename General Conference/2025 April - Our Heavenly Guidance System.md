@@ -115,4 +115,6 @@ I invite all of us today to center our lives on Jesus Christ and His teachings. 
 
 
 
+
+
 #Divine_Nature #Endurance #Eternal_Life #Jesus_Christ

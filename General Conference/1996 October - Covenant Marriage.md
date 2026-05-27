@@ -81,4 +81,6 @@ May we restore the concept of marriage as a covenant, even the new and everlasti
 
 
 
+
+
 #Adversity #Children #Covenants #Marriage #Opposition #Self-Esteem

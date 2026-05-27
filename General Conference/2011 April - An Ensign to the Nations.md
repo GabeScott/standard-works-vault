@@ -85,4 +85,6 @@ President, for this entire congregation, seen and unseen, I say we love and hono
 
 
 
+
+
 #General_Conference #Holy_Ghost #Prophets #Quorum_Of_The_Twelve_Apostles #Revelation

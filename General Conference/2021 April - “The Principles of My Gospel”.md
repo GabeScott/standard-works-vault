@@ -129,4 +129,6 @@ I know that the doctrine and principles of the gospel of Jesus Christ are the fo
 
 
 
+
+
 #Church_Doctrine #Gospel #Principles #Sabbath #Standards #Truth

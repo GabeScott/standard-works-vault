@@ -160,4 +160,6 @@ As an Apostle of the Lord, I invite and bless you to “cheerfully do all things
 [^10]: See [[John 21.1|John 21:1–6]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]].
 
 
+
+
 #Adversity #Faith #Missionary_Work #Prophets

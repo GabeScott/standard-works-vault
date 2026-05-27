@@ -105,4 +105,6 @@ I conclude with the words of our well-loved prophet, Thomas S. Monson: “My de
 
 
 
+
+
 #Communication #Joy #Relief_Society #Repentance #Women

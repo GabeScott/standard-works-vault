@@ -96,4 +96,6 @@ May this be your lot with you and your families, I humbly pray in the name of Je
 
 
 
+
+
 #Commandments #Home #Satan

@@ -140,4 +140,6 @@ May we always remember that each spirit child of God is coming to earth on his o
 [^24]: [[3 Nephi 17.21|3 Nephi 17:21, 24]][[3 Nephi 17.24|]].
 
 
+
+
 #Abortion #Children #Family #Love #Mortality #Motherhood #Plan_Of_Salvation

@@ -99,4 +99,6 @@ Be strong, brethren. Keep the commandments of God. The Lord Jesus Christ promise
 
 
 
+
+
 #Dating #Discipleship #Institute #Jesus_Christ #Marriage #Seminary #Young_Single_Adults

@@ -98,4 +98,6 @@ I bear witness that as we come unto Christ and live as Latter-day Saints, we wil
 [^18]: See [[2 Nephi 4.19|2 Nephi 4:19]].
 
 
+
+
 #Adversity #Church_Organization #Faith #Jesus_Christ

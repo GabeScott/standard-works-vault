@@ -123,4 +123,6 @@ Orson and Parley Pratt experienced the healing and sealing effects of family his
 
 
 
+
+
 #Family_History #Healing #Sealings #Temple_Work

@@ -50,4 +50,6 @@ For this I pray in the sacred name of Jesus Christ, amen.
 [^3]: [[Moroni 9.6|Moroni 9:6]].
 
 
+
+
 #Adversity #Preparation #Spirituality #Temples

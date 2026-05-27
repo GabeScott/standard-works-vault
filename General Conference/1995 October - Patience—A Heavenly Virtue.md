@@ -133,4 +133,6 @@ In the name of Jesus Christ, amen.
 
 
 
+
+
 #Adversity #Example #Jesus_Christ #Patience #Resurrection #Scriptures #Service

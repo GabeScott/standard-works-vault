@@ -88,4 +88,6 @@ I pray that we will have unity and love as we strive together to keep the covena
 
 
 
+
+
 #Covenants #Ordinances

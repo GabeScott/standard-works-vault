@@ -143,4 +143,6 @@ I emphasize again the words of our living prophet: “Do you see what is happeni
 
 
 
+
+
 #Balance #Church_Growth #Education #Jesus_Christ #Missionary_Service #Temples

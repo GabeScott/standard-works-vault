@@ -74,4 +74,6 @@ I testify that God, our Eternal Father, and His Only Begotten Son, Jesus Christ,
 [^3]: “Always a Convert Church,” *Ensign,* Sept. 1975, 3.
 
 
+
+
 #Activation #Couple_Missionaries #Friendship #Missionary_Work #Priesthood #Restoration #Service #Spirituality

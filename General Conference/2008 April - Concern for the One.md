@@ -119,4 +119,6 @@ To all who inhabit this beautiful earth, I raise my voice and bear solemn witnes
 
 
 
+
+
 #Individual_Worth #Kindness #Repentance

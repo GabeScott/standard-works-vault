@@ -107,4 +107,6 @@ Knowing that we are all children of God gives us a divine vision of the worth of
 
 
 
+
+
 #Contention #Government #Laws #Love

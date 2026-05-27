@@ -158,4 +158,6 @@ As one of His Apostles, authorized to bear witness of Him, I solemnly testify th
 [^23]: [[D&C 59.21|D&C 59:21]].
 
 
+
+
 #Activation #Agency #Gratitude #Habits #Holy_Ghost #Jesus_Christ #Obedience #Plan_Of_Salvation #Repentance #Scripture_Study

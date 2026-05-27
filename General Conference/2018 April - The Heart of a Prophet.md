@@ -103,4 +103,6 @@ Brothers and sisters, what we have witnessed and participated in today, a solemn
 
 
 
+
+
 #Church_Organization #First_Presidency #Prophets #Teaching

@@ -176,4 +176,6 @@ As we embrace the gospel in faith and deed, each day and every hour, we will dra
 [^13]: [[D&C 35.14|Doctrine and Covenants 35:14]].
 
 
+
+
 #Adversity #Discipleship #Home #Jesus_Christ #Joy #Light_Of_Christ #Service

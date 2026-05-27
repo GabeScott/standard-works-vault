@@ -95,4 +95,6 @@ I bear testimony of these truths in the sacred name of Jesus Christ, amen.
 
 
 
+
+
 #Agency #Atonement #Pornography #Temptation #Testimony

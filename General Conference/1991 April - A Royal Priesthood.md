@@ -107,4 +107,6 @@ May we hear His voice. May we follow His example. May we live His teachings. The
 
 
 
+
+
 #Fasting #Love #Service #Welfare

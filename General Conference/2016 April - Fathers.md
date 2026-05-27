@@ -139,4 +139,6 @@ That is the ministry of fathers today. God bless and make them equal to it, in t
 
 
 
+
+
 #Discipline #Education #Example #Fatherhood #Love #Marriage #Teaching

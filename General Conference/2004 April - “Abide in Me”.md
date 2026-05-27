@@ -54,4 +54,6 @@ Jesus said, “Without me ye can do nothing.”[^6] I testify that that is God�
 [^5]: [[2 Nephi 31.18|2 Nephi 31:18–20]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
 
 
+
+
 #Activation #Conversion #Couple_Missionaries #Endurance #Missionary_Work #Sacrifice

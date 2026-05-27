@@ -116,4 +116,6 @@ It is my prayer that our Heavenly Father will bless each of us with that love fo
 [^24]: [[D&C 50.22|D&C 50:22]].
 
 
+
+
 #Activation #Church_Growth #Conversion #Kindness #Love #Service

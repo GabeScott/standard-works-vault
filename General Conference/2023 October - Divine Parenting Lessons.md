@@ -123,4 +123,6 @@ As we partner with God through covenants and become His agents in the care of ou
 
 
 
+
+
 #Agency #Children #Discipleship #Parenthood #Patriarchal_Blessings #Teaching #Testimony

@@ -131,4 +131,6 @@ As a final thought, Brother Vaccarono writes: “I’m sorry for my English. I h
 
 
 
+
+
 #Dedication #Financial_Management #Obedience #Preparation #Self-Reliance

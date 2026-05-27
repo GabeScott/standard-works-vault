@@ -134,4 +134,6 @@ I pray that we will humble ourselves as little children and reach out to protect
 [^24]: Douthat, “Gay Parents and the Marriage Debate.” The latest and most thorough study finds significant disadvantages reported by young adults with a parent who had same-sex relationships prior to the child’s turning age 18 (see Mark Regnerus, “How Different Are the Adult Children of Parents Who Have Same-Sex Relationships? Findings from the New Family Structures Study,” *Social Science Research,* vol. 41 \[2012\], 752–70).
 
 
+
+
 #Abortion #Children #Family #Marriage

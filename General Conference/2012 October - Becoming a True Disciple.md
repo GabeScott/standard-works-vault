@@ -47,4 +47,6 @@ I testify that as we obey His commandments, serve others, and submit our will to
 
 
 
+
+
 #Discipleship #Obedience #Service

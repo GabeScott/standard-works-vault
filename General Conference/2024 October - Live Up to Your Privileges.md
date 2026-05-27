@@ -147,4 +147,6 @@ Of this gift I bear witness in the name of Jesus Christ, amen.
 
 
 
+
+
 #Covenants #Ordinances #Priesthood_Power #Sacrament #Women
